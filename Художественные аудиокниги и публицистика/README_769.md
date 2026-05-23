@@ -1,81 +1,3 @@
-###  Публикация: 1657246   (193037) от 02.09.2023
-
-Валентин Пикуль | Русско-японская война. Дальний Восток (Книга 1). Богатство (2013) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Роман "Богатство" освещает малоизвестные страницы истории русско-японской войны 1904-05 гг. Здесь перед нами открывается богатейшая страна, земля которой таит несметные сокровища, а природа уникальна. Это Камчатка, где в цветущих долинах, осыпанных вулканическим пеплом, жили гордые и сильные люди. И эти люди были способны пренебречь личным, забыть взаимные (   Читать дальше...   )Жанр: Исторический романИздательство: Нигде не купишьПродолжительность: 10:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A77E55ECA6C8C592AF808593716E3D3C8AA5C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657255   (193031) от 02.09.2023
-
-Артур Лишен | Космические неудачники. Рай Карла (2023) [MP3, Puffin Cafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Карл снова совершает невыгодную сделку. Теперь неудачникам принадлежит циклопического размера космическая станция. Правда она давно списана. Но у Карла есть план как на этом хорошо заработать.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F601D30352DAF4C96859E1D231CFC8338E00A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657259   (192998) от 02.09.2023
-
-Валентин Пикуль | Русско-японская война. Дальний Восток (Книга 1). Богатство (2006) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Роман "Богатство" освещает малоизвестные страницы истории русско-японской войны 1904-05 гг. Здесь перед нами открывается богатейшая страна, земля которой таит несметные сокровища, а природа уникальна. Это Камчатка, где в цветущих долинах, осыпанных вулканическим пеплом, жили гордые и сильные люди. И эти люди были способны пренебречь личным, забыть взаимные (   Читать дальше...   )Жанр: Исторический романИздательство: Говорящая книгаПродолжительность: 13:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41074F72D590DED1EBAE94C991B8DD71007358C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587408   (192943) от 30.10.2022
 
 Максим Горький | Мещане (1969) [MP3, Евгений Лебедев и др.]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192943.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192941.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192905.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192891.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192863.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192825.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192779.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192729.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192723.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192718.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192708.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192703.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192702.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192698.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192696.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192694.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192690.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192684.jpg" />
 </div>
 
 
@@ -558,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192682.jpg" />
 </div>
 
 
@@ -584,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192678.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192673.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192666.jpg" />
 </div>
 
 
@@ -662,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192658.jpg" />
 </div>
 
 
@@ -673,6 +595,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5BEF537AB2F43FE0DE6223057CE8AB05CC27479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657458   (192655) от 03.09.2023
+
+Валентин Пикуль | Слово и дело (Книги 1 и 2) (2013) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый роман-хроника Валентина Пикуля «Слово и дело» состоит из двух томов. Это достаточно жестокое произведение, впрочем, как и сама Россия периода царствования императрицы Анны Иоанновны. Автор книги «Слово и дело» погружает читателя в борьбу аристократии за власть, мир дворцовых интриг и переворотов. Страну в буквальном смысле заселили и сковали иноземцы – (   Читать дальше...   )Жанр: Исторический романИздательство: Нигде не купишьПродолжительность: 64:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E38C9E659B0932C5765470F76DB50B000C1784F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657533   (192648) от 03.09.2023
+
+Дмитрий Силлов | Снайпер. Закон Фукусимы (2023) [MP3, Макс Радман]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман из цикла «Снайпер» межавторского цикла «Сталкер».
+
+Изменив прошлое, Снайпер нарушил гармонию нашего мира. Повсюду начали происходить необъяснимые явления, в том числе и в Зоне Фукусимы, где несколько лет назад произошла ядерная катастрофа. Группа ученых, работавших в Зоне, пропала. Все, кто пытался прийти им на помощь, также исчезли. И кто как не Снайпер, легендарный (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 06:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A2CCFA3CF3A4635B212096F8F3FE6EA854897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587470   (192644) от 31.10.2022
+
+Джей Ди Кирк | Куча костей (2022) [MP3, Михаил Прокопов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пропавший ребенок. Плюшевый мишка у дверей. И 48 часов на поиски…
+Шотландия, наши дни. Гуляя по лесу со своим отцом и собакой, бесследно исчезает семилетний Коннор Рид. И тут же родителям мальчика подбрасывают конверт с фото их сына, привязанного к стулу. А еще – плюшевого мишку… Ведущий расследование старший инспектор Логан потрясен: это слишком похоже на почерк (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективыПродолжительность: 08:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C350CB278F036B0E5CC477CC616EEF428EEBF56
 ```
 
 https://mybot314.ru/tekegram_catalog/

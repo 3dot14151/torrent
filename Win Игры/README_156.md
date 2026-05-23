@@ -1,29 +1,3 @@
-###  Публикация: 1021521   (732389) от 29.05.2016
-
-Meridian: New World (2014) [Ru/Multi] (1.04) License PROPHET
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Meridian: New World — это стратегия, в которой вы играете роль Дэниела Хансона, коммандира первой экспедиции на планету Меридиан. Ваше цель — разведать тамошние секреты. Сформируйте мир вокруг себя посредством каждого принятого решения и каждого проведенного с командой диалога.Тип издания: LicenseРазработчик: Elder GamesЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FB22200E929AB8E5DE3F7824FD7182C39FCAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004166   (732307) от 29.05.2016
 
 1979 Revolution: Black Friday (2016) [Ru/En] (1.0) License HI2U
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732307.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Midnight Calling 4: The Wise Dragon (2017) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732054.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Donna Brave: And the Strangler of Paris (2017) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732051.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Halloween Chronicles: Monsters Among Us / Хэллоуин: Монстры ср�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731710.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ NASCAR Heat 3 (2018) [En] (1.0/upd4/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731596.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/upd14) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731469.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Groovy (2016) [Ru/Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731318.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Tales from the Void (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731302.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tiny Knight (2016) [En] (1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731271.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731270.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730509.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730469.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd3) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730442.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Quantum Replica (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730431.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Voodoo Vince Remastered (2017) [Multi] (1.0.0.1) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730375.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730347.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730326.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Meridian: New World (2014) [Ru/Multi] (1.04) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730268.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Elite vs. Freedom (2016) [Eng] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730219.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Immortal Love 9: True Treasure (2022) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729790.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Detective Gallo (2018) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729704.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hidden Expedition 12: The Eternal Emperor / Секретная экспедиц�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729623.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ STEINS;GATE ELITE (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729578.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729575.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Quest of the Sorceress / Квест Чародейки (2014) [Ru] (1.0) Unoffic
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729498.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Quest of the Sorceress / Квест Чародейки (2014) [Ru] (1.0) Unoffic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CA5E2117B4AB29056E2A12DE191FAAAE95DB4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203541   (729458) от 20.02.2019
+
+Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remothered - кинематографичная трилогия в жанре survival horror, подкупающая исключительно реалистичным геймплеем. История насыщена оригинальными сюжетными поворотами, которые не оставят игрока равнодушным. В “Remothered” психология играет важную роль: герои и злодеи не вписываются в рамки стереотипов, а грань между добром и злом размыта.Тип издания: RepackРазработчик: Stormind Games, Darril ArtsЖанр: Action, Horror, Adventure, Stealth, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6685497879DABF86C6516019A7E8F264C85947D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

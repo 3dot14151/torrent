@@ -1,29 +1,3 @@
-###  Публикация: 1207984   (534608) от 07.08.2018
-
-Monster Energy Supercross - The Official Videogame (2018) [Multi] (1.0/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Monster Energy Supercross - The Official Videogame - симулятор от Milestone S.r.l.. Игроку предлагается принять участие в профессиональных гонках по бездорожью, в лиге Supercross. В игре предлагается множество известных стадионов и трасс, а также огромное колличество лицензионных гоночных байков, мельчайшие детали которых разработчики воссоздали с высокой точностью.Тип издания: RepackРазработчик: Milestone S.r.l.Жанр: Racing, Simulation, SportsЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234511F4618C9D54628C88098626E1D5005ED1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239765   (534607) от 07.08.2018
 
 Dead Cells (2018) [Ru/Multi] (1.0/dlc) License SKIDROW
@@ -32,7 +6,7 @@ Dead Cells (2018) [Ru/Multi] (1.0/dlc) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534607.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Jotun (2015) [Ru/Multi] (1.0/upd3) Repack Other s [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534152.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Orcs Must Die Дилогия [Ru/En/Multi9] (RePack) 2011-2012 l R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534112.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ A Story About My Uncle (2014) [Multi] (1.0.8767.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534029.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ Lisa (2014) [Ru] (1.0u2) Repack MasterDarkness
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533836.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Seasons after Fall (2016) [Ru/Multi] (25913) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533792.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ The Elder Scrolls V: Skyrim - ModPack [Ru] (Mod/040812) 2012 | ModGames
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533743.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ Living Legends Remastered 3: Wrath of the Beast (2022) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533551.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ The Initiate (2017) [En] (1.05) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533218.jpg" />
 </div>
 
 
@@ -276,7 +250,7 @@ Prevent The Fall (2017) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533130.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ Redemption Cemetery 12: The Day of the Almost Dead / Кладбище искуп
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533076.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ Ghostly Matter (2018) [En/Fr/It] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533064.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ Tacoma (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533043.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533037.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ Slime Rancher (2017) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533032.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Shift 2: Unleashed (2011) [Ru/En] (1.02) Repack R.G. Механики [Limited E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532868.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ ZUSI 3 - Aerosoft Edition (2019) [En/De] (3.3.0.1) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532091.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ Broken Age - The Complete Adventure (2014) [Ru/Multi] (2.4.800398) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531977.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ Mystery Trackers 9 : Winterpoint Tragedy (2015) [En] Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531492.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ Witches' Legacy 10: Covered By The Night / Наследие ведьм 10: Ск�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531349.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ Mechajammer (2021) [En] (1.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531332.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ Witches' Legacy 9: The City That Isn't There / Наследие ведьм 9: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531232.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531205.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ TransRoad: USA (2017) [En] (1.2.1) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531138.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Deiland (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531131.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ Deiland – однопользовательская приключенческ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:895821C1A0D308090FE1A9A64442D83300967471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222242   (531130) от 09.08.2018
+
+Basingstoke (2018) [En] (101_built_842018_54725_pm) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Basingstoke представляет собой суровый рогалик с элементами аркадного экшена и стелса. Герою предстоит исследовать руины апокалиптического городка Бейсингстока, где живут зомби и инопланетные монстры. Надо уничтожать врагов, создавать предметы для миссии и постараться побыстрее смыться из этого ада.Тип издания: LicenseРазработчик: PuppygamesЖанр: Экшн, Приключение, СтелсЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA085A84C36F4928FF69FE433B579454C6B4F35
 ```
 
 https://mybot314.ru/tekegram_catalog/

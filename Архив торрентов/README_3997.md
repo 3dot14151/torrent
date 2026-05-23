@@ -6,7 +6,7 @@ AIMP 5.10 Build 2410 RC + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192821.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Edge 107.0.1418.26 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192819.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wolfram Mathematica 13.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192770.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ CrystalDiskMark 8.0.4c + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192739.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BELOFF 2022.10 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192736.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Text Editor Pro 27.5.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192734.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VivaVideo Video Editor v9.11.2 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192713.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ZEDGE 8.14.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192704.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PrivaZer 4.0.57 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192699.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Chromium 116.0.5845.141 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192689.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ OneCommander Pro 3.51.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192683.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Moon+ Reader Pro 8.3 (803004) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192679.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Duolingo: изучай языки 5.118.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192674.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Battery HD Pro 1.99.05 (Google Play) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192665.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MeinPlatz 8.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192659.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PrivaZer 4.0.57 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192650.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ RarmaRadio Pro 2.74.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192646.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ FinePrint 11.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192643.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ PdfFactory Std & Pro 8.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192641.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PrivaZer (Donors) 4.0.57 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192631.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ United Plugins & Soundevice Digital - TrapTune 1.2.0 VST, VST3, AAX RePack by Te
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192628.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Firefox Browser 106.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192627.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Duplicate Cleaner Pro 5.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192626.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VIP Notes 9.9.75 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192624.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ CamScanner 6.48.1.2308290000 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192622.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ GeoGebra 6.0.741.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192619.jpg" />
 </div>
 
 

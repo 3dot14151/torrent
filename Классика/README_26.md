@@ -6,7 +6,7 @@ Antonio Lucio Vivaldi - Mandolin concertos RV 532, 425, 558 Violin concertos RV 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599136.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sergei Prokofiev - The complete piano sonatas 1 (1991) [FLAC|Lossless]<classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598971.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Brahms - Piano works (Claudio Arrau) (3CDs) (1991) [FLAC|image+.cue]<Classical, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598167.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Joaquin Rodrigo - The Rodrigo Edition (1992) Concertos & Symphonic Works, 4 CDs 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596979.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ VA - Classical Voices (2007) [FLAC|Lossless|image + .cue] <Classical Crossover, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595976.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Jennifer Bate - British Organ Music - Elgar And His Contemporaries (1995) [FLAC|
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594857.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Jose Miguel Moreno - Sylvius Leopold Weiss: Ars Melancholiae (1993) 2008, Glossa
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594275.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ New London Chorale - The Young Puccini (A Tom Parker Project) (1991) [FLAC|Lossl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593778.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Salvatore Accardo, Orchestra da Camera Italiana - Vivaldi: The Four Seasons / Ba
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593473.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Vikingur Olafsson - Mozart & Contemporaries: Galuppi, C.P.E. Bach, Cimarosa, Hay
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593318.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ S.Richter - Mozart, Beethoven, Schumann, Schubert, Grieg (4CDs) (1993) [FLAC|ima
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589932.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - The Early Years: George Szell - The Royal Concertgebouw Recordings (2CDs) (
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589570.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Yo-Yo Ma - Soul of the Tango (The Music of Astor Piazzolla) (1997) [FLAC|image +
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589044.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Mozart - Two Concertos for Flute And Orchestra - Andante In C Major, KV315 (2002
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588659.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ The Purcell Quartet - Vivaldi: Variations On 'La Folia' And Other Sonatas (1985)
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588298.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Ensemble Guidantus - Antonio Vivaldi: Concertos RV 248, RV306, RV385, RV165, RV3
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588294.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Neon Philharmonic Orchestra - Switched On Classics, Vol. 1 (1995?) [FLAC|Lossles
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588105.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Vivaldi - Concertos For Two Violins (Viktoria Mullova, Giuliano Carmignola & Ven
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586836.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Burkhard Glaetzner - Vivaldi: Oboe Concertos (Complete) 1989 (3CD) [MP3|320 Kbps
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586323.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Martin Jacoby - Performs Ludovico Einaudi (2014) [MP3|320 кб/с]<Classical, Pi
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584663.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Musica Pacifica - Fire Beneath My Fingers (2008) [FLAC|Lossless|tracks] <Classic
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583261.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582590.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Franz Joseph Haydn - Complete String Quartets (The Aeolian String Quartet) (1997
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581289.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Grieg - Lyric Pieces (Balzs Szokolay) Vol.1 (1995) [FLAC|image +.cue]<Classical,
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580122.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Trevor Pinnock, English Concert - Antonio Vivaldi: Six Flute Concertos, Op.10 (1
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578075.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Torelli - The Original Brandenburg Concertos (Kah-Ming Ng & Charivari Agrable) (
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577342.jpg" />
 </div>
 
 

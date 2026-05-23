@@ -6,7 +6,7 @@ Andreas Vollenweider - Quiet Places (2020) [FLAC|Lossless|image + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364963.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ L'One - 1985 (2017) Из т/с «Чернобыль 2. Зона отчужден
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364908.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Peder B. Helland - Sunny Mornings (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364609.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gregorian - Live! Masters Of Chant - Final Chapter Tour (2016) [FLAC|Lossless|im
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364329.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Enigma - Love Sensuality Devotion: The Greatest Hits & Remixes (2016) Remastered
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363997.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Life is Strange: Before the Storm Original Soundtrack (2018) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363823.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363730.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363658.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363653.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sad Music Zone - Emotional Sad Music (2015) [MP3|320 кб/с]<Instrumental,Easy 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363470.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Steinar Lund - 3 albums (2001-2004) [MP3|320 kbps]<New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363422.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Celtic Woman - Destiny (2015) [MP3|320 кб/с]<Celtic, New Age, World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363304.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Ottmar Liebert - Waiting n Swan (2015) [OGG| 459-495 кб/с]<Instrumental, Acou
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363296.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Ennio Morricone - So Sweet,So Sensual Erotica Morricone (2004) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363215.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363108.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363067.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Acoustic 90s Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361674.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Taylor Davis - Odyssey (2016) [MP3|320 Kbps] <Instrumental, Soundtrack>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361664.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Longhouse - Native Chants (2019) [MP3|192 Kbps] <Native American, World, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361019.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Yoga Music Masters - Life Balance Meditations (2020) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360369.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360247.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360204.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Ramin Djawadi - Игра Престолов / Game of Thrones (Season 1-7) (2011
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359834.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Shakta Kaur Khalsa - Women's Yoga Music (2010) [MP3|320 kbps]<New Age, Easy List
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359651.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359347.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359219.jpg" />
 </div>
 
 

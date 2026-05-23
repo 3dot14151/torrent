@@ -6,7 +6,7 @@ Train Life A Railway Simulator (2021) [Ru/Multi] (28790/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51326.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fish Game (2023) [En] (00.02.79) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51057.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Forge Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51035.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51006.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51001.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Young Hearts (2024) [Ru/En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50824.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ City Bus Manager (2024) [Ru/Multi] (2.0.16/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50607.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Chained Together (2024) [En] (1.7.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50582.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50193.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49686.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Butanooo! Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49668.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Spirit of the Island (2022) [Ru/Multi] (3.0.5.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49452.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49429.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Oxygen Not Included (2019) [Ru/Multi] (20240718/dlc) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49406.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.051) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49380.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Superscout (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49352.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pacific Drive (2024) [Ru/Multi] (1.6.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49319.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ In Search Of You (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49131.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Fortress Challenge: Fort Boyard (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49105.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Gym Simulator 24 (2023) [Ru/Multi] (1.0) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48688.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Linkito (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48673.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ House Party (2017) [Ru/Multi] (1.3.3.12714/dlc) License GOG [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48628.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Let's School (2023) [Ru/Multi] (1.3.4.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48503.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Director Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48337.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Mini Airways (2024) [Ru/Multi] (0.8.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47987.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47969.jpg" />
 </div>
 
 

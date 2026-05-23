@@ -6,7 +6,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209953.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209767.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Meng Qi Shi Shen | Cinderella Chef 3 | Очаровательная богиня
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208202.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208147.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208104.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kanojo, Okarishimasu 2 | Rent-a-Girlfriend 2 | Девушка на час [ТВ-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207935.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Engage Kiss | Поцелуй-активатор [2022, TV, 13 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207423.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Love All Play | Люблю играть [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207412.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Aoashi | Аоаси [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207389.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Lycoris Recoil / Ликорис Рекойл [2022, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207379.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь сл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207237.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Orient | Ориент [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207216.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dansai Bunri no Crime Edge | The Severing Crime Edge | Режущий грань
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206993.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hataraku Maou-sama!! / The Devil is a Part-Timer!! / Повелитель Тьм
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206818.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206294.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206231.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205873.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205782.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Fuuto Tantei | Fuuto PI | Детективы Футо [2022, Web, 12 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205726.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Warau Arsnotoria Sun! | Smile of the Arsnotoria the Animation | Улыбка А�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205349.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mamahaha no Tsurego ga Motokano Datta / My Stepmom's Daughter Is My Ex / Моя 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205335.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Kakkou no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205186.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204642.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204615.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204588.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Mushikaburi Hime | Bibliophile Princess | Принцесса-библиофил 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204587.jpg" />
 </div>
 
 

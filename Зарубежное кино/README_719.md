@@ -1,55 +1,3 @@
-###  Публикация: 873202   (736262) от 29.01.2022
-
-Столкновение с бездной / Deep Impact (1998) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Земле грозит неизбежное столкновением с кометой, что приведет к гибели всего живого. Президент США сообщает миру, что до «столкновения с бездной» остается год. На комету отправляют корабль «Мессия» который должен взорвать комету. Но от взрыва комета разлетается на две части. Ничто не может спасти человечество. Как поведут себя люди?...Производство: США / Paramount Pictures, Dreamworks PicturesЖанр: фантастика, боевик, триллер, драмаРежиссер: Мими ЛедерАктеры: Роберт Дювалл, Теа Леони, Элайджа Вуд, Ванесса Редгрейв, Морган Фриман, Максимилиан Шелл, Джеймс Кромуэлл, Рон Элдард, Джон Фавро, Лора ИннесПеревод: Дублированный, многоголосый, двуголосый, авторскийЯзык озвучки: РусскийПродолжительность: 02:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1D033B831B1D5245476FFBFA6FE14AE7F4EA0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018567   (736261) от 29.01.2022
-
-Провал во времени / Retroactive (1997) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Оставшись без автомобиля в результате небольшой аварии, Карен садится в машину к водителю Фрэнку и его жене Райан, чтобы добраться до города. На ближайшей автозаправке Фрэнк ссорится с человеком и пускает в ход оружие, пытаясь убить заодно и всех присутствующих как свидетелей. Карен в испуге бежит к ближайшему зданию и попадает в лабораторию ученого, который проводит (   Читать дальше...   )Производство: США, Cohiba Pictures, Orion Pictures Entertainment, Scanbox EntertainmentЖанр: Фантастика, триллер, криминал, приключенияРежиссер: Луис МорноАктеры: Джеймс Белуши, Кайли Трэвис, Шэннон Уирри, Фрэнк Уэйли, Джесси Боррего, М. Эммет Уолш, Шерман Ховард, Гай Бойд, Кристина Коггинс, Робби Тибо мл.Перевод: Многоголосый закадровый, двухголосый закадровый, авторскийПродолжительность: 1:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E879EB3EE45301E96E093C71DDE18F86ADF3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527604   (736259) от 29.01.2022
 
 Домашняя команда / Домашняя игра / Home Team (2022) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736259.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736257.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736253.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736251.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736118.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736111.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736083.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736078.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736051.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736042.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736027.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736024.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736003.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735997.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735982.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735974.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735973.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735972.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735966.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735965.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735952.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735950.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735946.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735936.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34CC9DA8B43A21F4F0DF5F0820FECC4450362A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787804   (735935) от 18.05.2014
+
+Роковая страсть / Иммигрантка / The Immigrant (2013) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735935.jpg" />
+</div>
+
+
+###  Подробнее
+
+1921 г. Эва с сестрой Магдой покидают родную Польшу в поисках Земли обетованной, которой им представляется Нью-Йорк. По прибытии Магду, заболевшую туберкулезом, помещают в карантин. Одинокая и растерянная Эва попадает в сети бесстыдного сутенера Бруно. Чтобы спасти сестру она готова на все жертвы и соглашается стать проституткой. Появление иллюзиониста Орландо, двоюродного (   Читать дальше...   )Производство: США | Worldview Entertainment, Keep Your Head, Kingsgate FilmsЖанр: Драма, МелодрамаРежиссер: Джеймс ГрэйАктеры: Марион Котийяр, Хоакин Феникс, Джереми Реннер, Гленн Флешлер, Анджела Сарафян, Дагмара Доминчик, Гэбриел Раш, ДиДи Люкс, Илья Волох, Энтони КоронеПеревод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский x2, АнглийскийПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6924D06B31550F2FA645850218B7E7256AD3D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787721   (735934) от 18.05.2014
+
+Джек Райан: Теория хаоса / Jack Ryan: Shadow Recruit (2014) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рядовой аналитик ЦРУ Джек Райан приезжает в Москву, чтобы решить простую задачу: ему нужно проверить операции компании, принадлежащей миллиардеру Виктору Черевину. Но все усложняется, когда Райана пытаются убить. Теперь он вынужден защищаться с оружием в руках, вспоминая армейские навыки и неожиданно для себя оказываясь в роли настоящего спецагента. На помощь Джеку (   Читать дальше...   )Производство: США, РоссияЖанр: Боевик, Триллер, Криминал, ДетективРежиссер: Кеннет БранаАктеры: Крис Пайн, Кира Найтли, Кеннет Брана, Кевин Костнер, Алек Утгофф, Джемма Чан, Петер Андерссон, Елена Великанова, Нонсо Анози, Колм Фиор ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, Aнглийский (Forced, Full, SDH, SDH-Colored)Продолжительность: 01:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646661969736AC11C8387812DCEE7E202FE94107
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1588003   (191884) от 02.11.2022
-
-Danger Forever (2022) [En] (845) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-В отличие от большинства скролл-шутеров, вы летите в трехмерной среде - используйте ее в своих интересах и остерегайтесь натыкаться на стены или землю. Кроме того, вместо того, чтобы традиционно осыпать врагов пулями, вы должны немного подумать наперед - система топлива/нагрева добавляет бою больше глубины. Уровни генерируются процедурно; каждый уровень немного отличается (   Читать дальше...   )Тип издания: LicenseРазработчик: FireVector LLCЖанр: Экшны, Ролевая играЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC260F068A5F08EDF4CDD632AC83D859A07CD2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587997   (191874) от 02.11.2022
 
 Remoteness (2022) [Ru/Multi] (1.80) License DOGE
@@ -32,7 +6,7 @@ Remoteness (2022) [Ru/Multi] (1.80) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191874.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Great North Shelter 2 (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191748.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Parasocial (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191683.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ MEGA MAN X DiVE Offline (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191674.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Great North Shelter 2 (2023) [Ru/En] (Build 12078048) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191664.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191653.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Under The Waves (2023) [Ru/Multi] (Build 11920395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191651.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Royal Romances: Battle of the Woods (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191586.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191570.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191182.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Lovecraft's Untold Stories 2 (2022) [Ru/Multi] (0.9.049b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191169.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191165.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mountain Bicycle Rider Simulator (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191077.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Lempo (2023) [Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191064.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191051.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191049.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191043.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Scene Rune [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191030.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190760.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190757.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Think of The Children (2017) [En] (1.01.03) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190756.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ CONVERGENCE: A League of Legends Story (2023) [Ru/Multi] (d3eb3874bbc/dlc) Licen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190736.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack dixen18 [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190715.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Unsolved Case 4: Above the Law (2023) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190474.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ghostbusters: Spirits Unleashed (2022) [Ru/Multi] (1.2.3.13348) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190446.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ghostbusters: Spirits Unleashed — это увлекательная много
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE19EBAF17C067347A25F1F43763A7A43B43F35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658923   (190434) от 10.09.2023
+
+Diary of Lucie (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diary of Lucie - это сюжетно-ориентированный экшен-рогалик созданный на базе RPG Maker, где вас ожидает не только полноценная история, но и динамичными сражениями. Главная героиня оказалась в странном месте, которое словно граничит между реальностью и выдумкой. Сопроводите ее в этом насыщенном приключении, чтобы узнать где она оказалась и удастся ли ей выбраться (   Читать дальше...   )Тип издания: SceneРазработчик: Parange ProjectЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, КорейскийЯзык интерфейса: Английский, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC60188FD7FF5CC3CE11983295E07DCFB218DA38
 ```
 
 https://mybot314.ru/tekegram_catalog/

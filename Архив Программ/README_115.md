@@ -6,7 +6,7 @@ BELOFF 2021.05 Medium (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016009.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Emurasoft EmEditor Professional 20.7.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015969.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VueScan Pro 9.7.54 + OCR Languages [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015957.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ashampoo WinOptimizer 19.00.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015954.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Windows 10 Manager 3.4.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015930.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Psiphon 3 build 166 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015905.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ uTorrent 3.5.5 build 46010 Stable Repack by SanLex [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015903.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Total Commander 10.00 Beta 10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015885.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ON1.Effects.2021.5 15.5.0.10403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015883.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Internet Download Manager 6.38 Build 25 Final + Retail + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015880.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015878.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v7.3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015865.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Acrobat Pro DC 2021.001.20155 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015854.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ESET NOD32 Internet Security 14.1.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015848.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5161.1002 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015835.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Freeplane 1.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015763.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Game WideScreener 2.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015742.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Nox App Player 7.0.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015741.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Wise Registry Cleaner Pro 10.3.4.693 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015723.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ ON1 Photo RAW 2021.5 15.5.0.10396 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015712.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Viber 15.3.0.5 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015686.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy 05.2021 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015673.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ foobar2000 1.5.5 DarkOne + DUIFoon Portable by MC Web (09.05.2021) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015670.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Tixati 2.82 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015612.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Tixati 2.83 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015606.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ SIV (System Information Viewer) 5.58 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015603.jpg" />
 </div>
 
 

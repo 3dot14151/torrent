@@ -1,59 +1,3 @@
-###  Публикация: 616628   (974977) от 10.02.2013
-
-Лондон / London (2005) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ничего нет возвышенней любви, когда она разгорается - и ничего нет любви разрушительней, когда она гаснет. Бросившись в пучину страстного, бурного романа с загадочной девушкой по имени Лондон, Сид верил, что эта музыка сфер будет вечной, но ошибся.
-
- Однажды они оба поняли, что чувства исчерпали себя, и Лондон ушла из жизни героя. Но девушка ушла, а боль осталась. Пытаясь заглушить муки разбитого сердца, Сид пускается во все тяжкие, глуша себя виски и наркотиками. Тщетно!
-
- Поняв, что его жизнь бессмысленна без любимой, герой решает, во что бы то ни стало увидеть Лондон и либо уговорить ее вернуться - либо умереть. Но у него будет всего одна попытка: если он не успеет сделать это сегодня, он уже не успеет это сделать никогда - завтра Лондон навсегда уезжает из города...Жанр: Драма, МелодрамаРежиссер: Хантер Ричардс / Hunter RichardsАктеры: Крис Эванс, Джессика Бил, Джой Брайант, Джейсон Стэйтем, Келли Гарнер, Айла Фишер, Луис С.К., Джефф Вульф, Дейн Кук, Лина ЭскоПеревод: Профессиональный (двухголосый закадровый)Продолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768A8B72576815373E581728894752AABEF4AEF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616148   (974922) от 10.02.2013
-
-Поможем развестись / Jodi Breakers (2012) DVDRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В наше время, когда и любовь стала предметом торга, даже бизнес по разводам может стать весьма выгодным. Немало адвокатов по бракоразводным процессам только бы подтвердили это. А наш Сид — специалист по разбиванию пар. Он идет на все, чтобы предоставить доказательства мнимой или настоящей неверности, а взамен получает чек на внушительные суммы. Профессиональная карьера Сида набирает ход с появлением нового бизнес-партнера — Сонали. Но когда партнер так хорош собой, сложно оставаться в рамках сугубо профессиональных отношений. А тут еще и совместная командировка в Грецию…Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Ашвини ЧаудхариАктеры: Мадхаван, Бипаша Басу, Оми Вайдья, Дипаннита Шарма, Милинд Соман, Мриналини ШармаПеревод: Одноголосый закадровый (Selena)Язык субтитров: РусскиеПродолжительность: 02:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9811B98DD4302CDD95340549F67AEF526EEC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 438703   (974890) от 19.01.2012
 
 Что скрывает ложь / Trespass (2011) DVD9
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974890.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974813.jpg" />
 </div>
 
 
@@ -114,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974806.jpg" />
 </div>
 
 
@@ -140,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974799.jpg" />
 </div>
 
 
@@ -166,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974795.jpg" />
 </div>
 
 
@@ -192,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974759.jpg" />
 </div>
 
 
@@ -218,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974746.jpg" />
 </div>
 
 
@@ -244,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974741.jpg" />
 </div>
 
 
@@ -270,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974715.jpg" />
 </div>
 
 
@@ -296,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974668.jpg" />
 </div>
 
 
@@ -322,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974665.jpg" />
 </div>
 
 
@@ -350,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974664.jpg" />
 </div>
 
 
@@ -376,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974656.jpg" />
 </div>
 
 
@@ -402,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974651.jpg" />
 </div>
 
 
@@ -428,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974623.jpg" />
 </div>
 
 
@@ -454,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974578.jpg" />
 </div>
 
 
@@ -480,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974576.jpg" />
 </div>
 
 
@@ -507,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974573.jpg" />
 </div>
 
 
@@ -533,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974568.jpg" />
 </div>
 
 
@@ -559,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974567.jpg" />
 </div>
 
 
@@ -585,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974522.jpg" />
 </div>
 
 
@@ -613,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974517.jpg" />
 </div>
 
 
@@ -639,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974516.jpg" />
 </div>
 
 
@@ -665,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974512.jpg" />
 </div>
 
 
@@ -676,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A5BF5D4E42C67CEF0779E77BA26346FFE4D5CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616784   (974511) от 10.02.2013
+
+Законопослушный гражданин / Law Abiding Citizen [Unrated Directors Cut] (2009) [1080p] Blu-Ray
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добропорядочный житель Филадельфии Клайд Шелтон теряет семью в результате бандитского нападения. Но когда преступники оказались в руках правосудия, выяснилось, что юридической Системе удобнее пойти на сделку с одним из бандитов, чтобы дать высшую меру другому. Помощник окружного прокурора Ник Райс идет на эту сделку, вопреки протестам возмущенного Шелтона, свято верящего в безукоризненность Закона. Но его права были попраны… И тогда спустя годы безвестный мститель начинает творить собственную расправу над убийцами. Ник Райс достаточно быстро находит его. Это… Клайд Шелтон. Райсу кажется, что ему нетрудно добиться признания от раздавленного семейной трагедией Клайда. Каково же изумление всех работников Системы, когда они обнаруживают, что даже помещенный в тюрьму, этот человек способен на самую жестокую и изощренную месть. Более того, они оказались совершенно бессильны перед гениальной игрой и смертоносными ударами изолированного в одиночке Шелтона! Законопослушный гражданин начал беспощадную войну против всех (   Читать дальше...   )Жанр: Триллер, Криминал, ДрамаРежиссер: Ф. Гари Грей / F. Gary GrayАктеры: Джейми Фокс, Джерард Батлер, Колм Мини, Брюс МакГилл, Лесли Бибб, Майкл Ирби, Грегори Итцин, Реджина Холл, Кристиан СтолтеПеревод: Профессиональный |дублированный|Продолжительность: 01:58:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975122   (974471) от 13.01.2016
+
+Миссис Чудо в Манхэттене / Call Me Mrs. Miracle (2010) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974471.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о сказочной няне по прозвищу «Миссис Чудо» продолжается. Эмили Меркл переезжает в Бруклин к новому воспитаннику. Пока отец героя служит в горячей точке планеты, мальчик вынужден коротать дни в большом доме своей тёти, мечтая поскорее встретить Рождество. Но после знакомства с леди Меркл ему больше не придётся скучать. Добрая няня не только исполнит заветные (   Читать дальше...   )Производство: США, КанадаЖанр: Фэнтези, драма, комедияРежиссер: Майкл СкоттАктеры: Дорис Робертс, Джуэл Стэйт, Эрик Джонсон, Куинн Лорд, Том Батлер, Патрисия Майен-Салазар, Лорен Холли, Жослин Ловен, Мэри Блэк, Шон КэриПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C3833A9B28F1CC8346E1B8970C300484949ABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

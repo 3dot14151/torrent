@@ -1,55 +1,3 @@
-###  Публикация: 1268866   (222047) от 13.12.2018
-
-Галвестон / Galveston (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-История о бывшем приспешнике мафиози Рое Кэди, который имел неосторожность перейти дорогу своему влиятельному боссу. Став мишенью наёмных убийц, Кэди пускается в бега и по стечению обстоятельств берёт ответственность за жизнь ещё и своей неожиданной спутницы — совсем молоденькой проститутки.Производство: США, Jean Doumanian Productions, Low Spark FilmsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Мелани ЛоранАктеры: Эль Фаннинг, Бен Фостер, Джеффри Гроувер, Кристофер Амитрано, Марк Хикс, Мария Вальверде, Бо Бриджес, Майкл Рэй Эскамиллья, Дж. Питер Кинг, Джимми Ли Сессомс и др.Перевод: Дублированный (iTunes)Субтитры: Русские (full), английские (full, SDH)Продолжительность: 01:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC342635A6C5021130E2B32DF76A11444954493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269110   (222041) от 13.12.2018
-
-Ужастики 2: Беспокойный Хэллоуин / Goosebumps 2: Haunted Halloween (2018) WEB-DL [H.264/1080p-LQ] [UKR, ENG]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В заброшенном доме парочка ребят находит странную книгу «Беспокойный Хэллоуин» Р. Л. Стайна. Друзья быстро понимают, почему книгу спрятали подальше от всех, когда небольшой городок заполняют монстры разной степени ужасности.Производство: США, Великобритания, Columbia Pictures Corporation, Sony Pictures AnimationЖанр: Ужасы, Фэнтези, Комедия, ПриключенияРежиссер: Эри СанделАктеры: Мэдисон Айсмен, Джереми Рэй Тейлор, Калил Харрис, Мик Вингерт, Кен Жонг, Венди МакЛендон-Кови, Крис Парнелл, Брайс Касс, Пейтон Уич, Шэри ХидлиПеревод: Украинский дубляж (студия LeDoyen)Субтитры: ОтсутствуютПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBF8838A54B73928A7D8489E792F6CD7BBEC29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342644   (222039) от 03.12.2019
 
 Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (2019) DVD9+DVD5
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222039.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222034.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222032.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222014.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222009.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221996.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221991.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221982.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221981.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221974.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221969.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221958.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221957.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221953.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221945.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221943.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221933.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221930.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221916.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221911.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221904.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221902.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221894.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221885.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B56ED00F8C901E9B5EA42F828AB904FCB77948A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425220   (221881) от 20.11.2020
+
+Новые мутанты / The New Mutants (2020) UHD BDRip [H.265/2160p-LQ] [SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221881.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нашествия на её резервацию загадочного торнадо и гибели отца Дэниель Мунстар приходит в себя связанной на больничной койке. Доктор Рейес сообщает девушке, что она - единственная выжившая, и теперь вместе с четырьмя подростками находится в специализированном учреждении, где их изучают и учат контролировать свои сверхспособности. Вскоре Дэни выясняет, что покинуть (   Читать дальше...   )Производство: США / 20th Century Fox, Marvel Entertainment, TSG EntertainmentЖанр: ужасы, фантастика, боевикРежиссер: Джош БунАктеры: Блю Хант, Алиси Брага. Мэйси Уильямс, Аня Тейлор-Джой, Чарли Хитон, Генри Зага, Адам Бич, Томас Ки, Колби Ганнетт, Хэппи АндерсонПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 01:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7855C5BCAD74900C7CB17F5B399B5C6474BA1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651342   (221874) от 06.08.2023
+
+Когда мне исполнилось девять / Ahopsal insaeng / When I Turned Nine (2004) DVD9 [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая деревенская школа. Ё-мин - мальчик из бедной семьи. Тем не менее, пользуется авторитетом среди сверстников. Вдруг в их класс приходит новенькая из Сеула, которая с первого взгляда запала в душу мальчишке. Их посадили за одну парту.Производство: Корея Южная / CJ Entertainment, Hwang Ki-seong ProductionsЖанр: драмаРежиссер: Юн Ин-хоАктеры: Сок Ким, Ли Сэ-ён, Myeong-jae Kim, Ah-hyeon Na, Baek-ri Park, Чон Сон-гён, Чи Дэ-хан, Чон Э-ён, Но Хён-джон, Ли Ён-сукПеревод: одноголосый любительский (D.I.M.)Язык озвучки: русский, корейскийСубтитры: русские (Narцissa)Продолжительность: 01:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B615B82F86A054F1C240BA07ABFBB3BD535E341A
 ```
 
 https://mybot314.ru/tekegram_catalog/

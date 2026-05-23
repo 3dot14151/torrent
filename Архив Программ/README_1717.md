@@ -6,7 +6,7 @@ WinRAR 6.20 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203670.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macrorit Partition Expert 7.9.8 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203669.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Firefox Browser ESR 115.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203667.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Win10 All Settings 2.0.3.27(x32) / 2.0.3.30(x64) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203661.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ USB Device Tree Viewer 3.8.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203658.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Topaz Video AI 3.4.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203653.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MyLanViewer 6.0.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203649.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wondershare Filmora 12.0.12.1450 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203644.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Total Commander 10.52 by wincmd64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203636.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ HiBit Uninstaller 3.1.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203635.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PrivaZer 4.0.77 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203633.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kdenlive 23.08.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203629.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ IceCream Ebook Reader Pro 6.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203627.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ OCCT 11.0.20 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203624.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ App Builder 2023.48 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203623.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Macrorit Data Wiper 6.9.9 Pro / Unlimited / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203617.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ OpenedFilesView 1.90 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203613.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ RadioBOSS Advanced 6.2.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203612.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ FastFlix 5.5.7 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203604.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ FireAlpaca 2.11.8 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203590.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Caramba Switcher Lab 2022.03.29 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203585.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WinRAR 6.21 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203582.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 25.01.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203549.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Google Chrome 109.0.5414.120 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203541.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Vivaldi 5.6.2867.62 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203534.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ iZotope - RX 10 Audio Editor Advanced 10.3.0 STANDALONE, VST3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203528.jpg" />
 </div>
 
 

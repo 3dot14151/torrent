@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Backupper Technician Plus 6.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225267.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cookie 5 v5.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225250.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Argos Cursors by jacksmafia [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225246.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Microsoft Visual C++ 14.28.29515 Runtimes AIO (x86-x64) Repack by @ricktendo64 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225244.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ WonderPen 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225242.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ IPFire 2.17 - Core Update 94 [i586] 1xCD, 2xIMG
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225239.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ IObit Smart Defrag Pro 8.2.0.197 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225228.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ JetBrains WebStorm 11.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225221.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ FanControl V132 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225213.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ USB Protection & Recovery 1.2 Portable by killer000 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225202.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Uninstall Tool 3.7.1 Build 5695 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225195.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Antivirus Removal Tool 2022.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225164.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Lasso 1.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225147.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Microsoft Windows and Office ISO Download Tool 8.41.0.147 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225142.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Tinderbox 9 v.9.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225139.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ AOMEI Backupper Pro 6.2.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225114.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ AOMEI Partition Assistant Pro 9.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225108.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ SiteSucker 5.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225102.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Viber 14.2.0.38 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225100.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Network Radar 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225099.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Unclutter 2.1.16d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225091.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ URL Manager Pro 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225090.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225087.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ AnyTrans for Android 6.4.0 (build 20181203 ) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225075.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225057.jpg" />
 </div>
 
 

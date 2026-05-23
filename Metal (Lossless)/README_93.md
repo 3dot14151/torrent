@@ -6,7 +6,7 @@ Kryptos - Force Of Danger (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753401.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Johansson & Speckmann - Sulphur Skies (2013) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753397.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Illnath - Cast Into Fields Of Evil Pleasure (2003) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753149.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Edge Of Paradise - Immortal Waltz (2015) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752268.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cryonic Temple - Blood, Guts & Glory (2003) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751669.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lowbrow - Victims at Play (1999) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751462.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751365.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Diabolicum - The Dark Blood Rising (2001) [APE|Lossless|image + .cue] <Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751364.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Illegal Operation - Digital Hero (2002) [APE|Lossless|image + .cue] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751363.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tobias Sammet's Avantasia - More Moonglow - The Rock Hard EP (2019) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750012.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Converge - Axe To Fall (2009) [FLAC|Lossless|image + .cue] <Chaotic Hardcore, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_750001.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Xenos - The Dawn Of Ares (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749993.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pitch Shifter - Desensitized (1993) [APE|Lossless|image + .cue] <Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749581.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eleine - Until The End (Japanese Edition) (2018) [FLAC|lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749572.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Leprous - Malina (2017) [FLAC|Lossless|image + .cue] <Progressive Rock, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749567.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Earthstream - Earth Scream (2018) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749434.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sentenced - Buried Alive (2006) 2CD German Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748687.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Savior From Anger - Temple Of Judgment (2016) [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748654.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Illnath - Second Skin Of Harlequin (2006) [FLAC|Lossless|image + .cue] <Sympho M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748571.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Phlebotomized - Immense Intense Suspense / Skycontact (2014) Compilation, Reissu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748508.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Cauldron - New Gods (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748363.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Infestdead - JesuSatan (1999) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747935.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Mortification - Blood World (1994) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747934.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Mortification - Hammer of God (1999) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747933.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ God Dethroned - Ravenous (2001) [APE|Lossless|image + .cue] <Blackened Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747932.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Eidolon - Coma Nation (2002) [FLAC|Lossless|image + .cue] <Speed Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747931.jpg" />
 </div>
 
 

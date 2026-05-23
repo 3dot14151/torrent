@@ -6,7 +6,7 @@ TeraCopy Pro 3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577419.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ConsoleAct 2.5 Portable by Ratiborus  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577384.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577360.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Avant Browser Ultimate 2015 build 17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577336.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wise Care 365 Pro 3.75.335 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577334.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ JetBrains ReSharper Ultimate 2015.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577320.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Joboshare Video Converter v2.9.9 Build 0708 [Eng+Rus]+Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_577280.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v7.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577268.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ashampoo Photo Commander 12.0.12 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577252.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ MEGA Sync Client 2.1.1 (4012b) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577245.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577231.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PDF-XChange Pro v4.0196.197 Final + PDF-XChange Pro v4.0196.197 Portable [2011, 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_577151.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Google Chrome 44.0.2403.107 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577149.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ AmanVPN 2.2.2.0527 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577102.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Honeyview 5.12 build 4603 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577077.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ FileXile 2.00 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577076.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Avanquest Expert PDF Ultimate 9.0.270 Final [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577074.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Avast! Free Antivirus 2015 10.3.2223 DC 17.07.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577071.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ JetBrains RubyMine 7.1.4 Build #RM 141.1835 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577065.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Kantaris Media Player 0.7.7 (2011) 0.7.7 [Мультиязычный (русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_577034.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Daum PotPlayer 1.6.55390 DC 24.07.2015 Stable + Portable (x86/x64) by SamLab [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576998.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Kaspersky TDSSKiller 3.1.0.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576995.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Infix PDF Editor Pro 6.38 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576987.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ CDBurnerXP 4.5.5.5767 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576986.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Adobe Flash Player 19.0.0.115 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576983.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ LS · 2-НДФЛ АДВ-6-2 РСВ-1 2.00 от 23.07.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576942.jpg" />
 </div>
 
 

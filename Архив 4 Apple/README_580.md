@@ -6,7 +6,7 @@ PhotoChef 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184575.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ URI Handler – Open With Picker 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184572.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MetaImage 1.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184561.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ GlueMotion 1.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184551.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Principle 5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184546.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ SSH Config Editor Pro 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184522.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ start 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184516.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184512.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Iridient Developer 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184506.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Keyboard Maestro 9 v9.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184502.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SnapMotion 4.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184496.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184490.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Wise Menu 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184465.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ iMusic 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184450.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Magic Hider 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184418.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ TG Pro (Temperature Gauge Pro) 2.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184404.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ CodeRunner 4 v4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184402.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Aiseesoft Mac FoneLab for Android 3.1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184375.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Boinx FotoMagico Pro 5 v5.6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184316.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Wirecast Pro 14.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184302.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Sublime Text 4.0 Dev build 4093 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184271.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Remote Desktop Manager Enterprise 2020.3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184112.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Scrutiny 9 v9.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183612.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Bookends 13.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183608.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Integrity Pro 9.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183600.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Multitouch 1.19.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183598.jpg" />
 </div>
 
 

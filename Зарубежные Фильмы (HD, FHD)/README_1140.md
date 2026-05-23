@@ -1,56 +1,3 @@
-###  Публикация: 1799404   (16711) от 27.05.2025
-
-Дрожь земли 4: Легенда начинается / Tremors 4: The Legend Begins (2004) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-После того как жителей отдалённого городка в штате Невада стал безжалостно истреблять невидимый враг, владелец копей Хайрем Гаммер нанимает лучшего стрелка на Диком Западе по кличке Келли Черная Рука, чтобы тот расправился со зловещими существами, оставляющими уважаемого бизнесмена без прибыли!
-Надо заметить, что мистер Гаммер является прапрадедом Берта Гаммера — (   Читать дальше...   )Производство: США / Stampede EntertainmentЖанр: ужасы, фантастика, боевик, триллер, комедия, приключения, вестернРежиссер: С.С. УилсонАктеры: Майкл Гросс, Сара Ботсфорд, Билли Драго, Брент Роам, Аугуст Шелленберг, Дж.Э. Фримен, Ло Минг, Лидия Лук, Сэм Ли, Нил КопитПеревод: дублированный официальный (Zone Vision), профессиональный многоголосый (СТС), авторский (Сергей Визгунов, Андрей Дольский)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA201CBD9F175D8A26F23333D68298D058CBAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799379   (16696) от 27.05.2025
-
-На прицеле / В укрытие / Take Cover (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Наёмники Сэм и Кен — давние напарники и боевые товарищи. Первый работает в качестве снайпера, а второй — наблюдателя. Во время очередной операции по устранению Сэм первым выстрелом случайно убивает не главную цель — мужчину, а девушку, которая находилась рядом. Опытный снайпер уверен, что она увидела его и заслонила своего спутника намеренно. Сэма гложет чувство (   Читать дальше...   )Производство: Великобритания / Signature EntertainmentЖанр: боевикРежиссер: Ник МаккинлессАктеры: Скотт Эдкинс, Джек Парр, Мадалина Беллариу Ион, Альба де Торребруна, Элис Ив, Ренарс Латковскис, Билли Клементс, Питер Колфилд, Ник Голдман, Том ЛиПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: русские (Forced), английские (Full, SDH)Продолжительность: 01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A117A0FF4C7200BCF7D7EA9DE2AD0E03034005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799526   (16560) от 28.05.2025
 
 Берни / Bernie (2011) BDRip [H.264/720p] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16560.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16552.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16522.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16392.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16371.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16357.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16354.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16353.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16317.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16288.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16178.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16167.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16122.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15985.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15769.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15764.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15706.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15702.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15661.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15647.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15601.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15600.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15577.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15511.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:175FD8A4A3DE95ED3944936484EC59B97DF78EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800750   (15480) от 06.06.2025
+
+Пункт назначения 4 / The Final Destination (2009) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15480.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Ника О`Бэннона было видение — на автогонках произойдёт ужасная трагедия, жертвами которой станут его друзья и он сам. Как и прежде группе счастливчиков, благодаря Нику, удаётся выжить, но смерть вовсе не спешит вычёркивать их из своего списка.Производство: США / FlipZide Pictures, New Line Cinema, Practical PicturesЖанр: ужасы, триллерРежиссер: Дэвид Р. ЭллисАктеры: Бобби Кампо, Шантель Ван Сантен, Ник Зано, Хейли Уэбб, Майкелти Уильямсон, Криста Аллен, Эндрю Фисцелла, Джастин Уэлборн, Стефани Онор, Лара ГрайсПеревод: дублированный официальный (Мосфильм-Мастер, Line In), профессиональный многоголосый (Киномания, ICTV), авторский (Юрий Сербин, Андрей Гаврилов, Дмитрий Есарев), любительский одноголосый (Сергей Черкасов)Язык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F107D0442C75694C6297188EDFF7B75609A68C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800950   (15355) от 07.06.2025
+
+Хлеб и розы / Bread and Roses (2000) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майя перебралась из Мексики в Лос-Анджелес к старшей сестре. Но здесь нелегальную иммигрантку встретила отнюдь не сладкая жизнь. Вместе с сестрой она работает за копейки, каждый день опасаясь высылки из страны. Кажется, что страх и бесправие — неизменный фон их будущей жизни. Но девушки встречают Сэма Шапиро, молодого парня, который вовлекает их в борьбу за свои (   Читать дальше...   )Производство: Великобритания, Франция, Германия, Испания, Италия, Швейцария / Alta Films, Alta Producción S.L., ARTE, Bac Films...Жанр: драмаРежиссер: Кен ЛоучАктеры: Пилар Падилла, Эдриан Броуди, Эльпидия Каррильо, Джек МакГи, Моника Ривас, Фрэнки Девила, Лиллиэн Херст, Мария Ореллана, Джордж Лопес, Мелоди Гаррет, Бенисио Дель Торо, Тим Рот, Одед Фер, Рон ПерлманПеревод: профессиональный многоголосый (Другое Кино)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6E732DA5ECDA467DF487EBEF84C8B40CA6C1E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

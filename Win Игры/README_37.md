@@ -6,7 +6,7 @@ Megabonk (2025) [Ru/Multi] (1.0.19) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051350.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PixelJunk Eden 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051349.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Angeline Era (2025) [Multi] (43.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051283.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051282.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.25) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051281.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.25) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051280.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Gruniożerca (Gruniozerca) Trilogy (2025) [Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051279.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ qomp (2021) [En] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051276.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Wreckborn (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051268.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.12.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051116.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Bottle Can Float (2023) [Ru/Multi] (1.0.0.1.EA/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051115.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bottle Can Float (2023) [Ru/Multi] (1.0.0.1.EA) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051114.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Electronic Market Simulator (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051113.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Electronic Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051112.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Aquarist (2024) [Ru/Multi] (1.0161) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051111.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.11.18.994fa78/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051074.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Whispered Secrets 17: Poisoner's Masquerade / Нашёптанные секре�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051062.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ UltraGirl Alters (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051053.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Vampiress: Eternal Duet (2025) [Ru/Multi] (Build 21267562) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051043.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dead Space (2023) [Ru/Multi] (1.1.14.17871/dlc) Repack Let'sРlay [Deluxe]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051009.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Scarred (2025) [Multi] (1.25) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050982.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Utawarerumono: ZAN (2025) [Multi] (21148349/dlc) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050962.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Yakuza 3 Remastered (2021) [Ru/Multi] (1.005a) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050940.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Yakuza 4 Remastered (2021) [Ru/Multi] (1.003a) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050939.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack CoronerLemur [Game of the Year E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050929.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Lovely Lady RPG (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050906.jpg" />
 </div>
 
 

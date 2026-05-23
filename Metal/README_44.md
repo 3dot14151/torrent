@@ -6,7 +6,7 @@ Luca Turilli's Rhapsody - Prometheus (2015) Single [MP3|320 кб/с]<Symphonic P
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660214.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paradise Lost - The Plague Within (2015) Deluxe Edition [MP3|320 кб/с]<Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659919.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tarja - Luna Park Ride (2015) [MP3|320 кб/с]<Power Metal, Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659839.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Helloween - My God-Given Right (2015) Mailorder Edition [MP3|320 кб/с]<Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659736.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Lindemann - Praise Abort (2015) Single & EP [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659734.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Cripper - Antagonist (2012) [MP3|320 кб/с]<Thrash Metal / Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659359.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Luca Turilli`s Dreamquest - Lost Horizons (2006) [MP3|320 кб/с]<Electro-Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659351.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Nekrogoblikon - Heavy Meta (2015) [MP3|~275 кб/с]<Melodic Death Metal, Folk M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659316.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Almach - Dream Elegy (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659232.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Armored Saint - Win Hands Down (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659216.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659036.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Miss May I - 6 альбомов (2009-2017) [MP3|320 кб/с]<Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658808.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Amorphis - Queen Of Time (2018) [MP3|320 Kbps] <Melodic Death Metal, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658600.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Mount Shasta Collective - Beast (2015) [MP3|320 кб/с]<Post-Metal, Post-Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658167.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Direblaze - Direblaze (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658086.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Signum Regis - Through The Storm (2015) EP [MP3|320 кб/с]<Power Metal, Melodi
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657996.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Perzonal War - The Last Sunset (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657993.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Adrenaline Mob - We The People (2017) [MP3|320 Kbps] <Heavy Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657931.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ ANA - Metal for Charity Project (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657912.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Accept - The Rise Of Chaos (2017) Single [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657815.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Tankard - One Foot In The Grave (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657810.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Burning Point - The Ignitor (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657173.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ The Ghost Inside - Get What You Give (2012) [MP3|320 kbps] <metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657161.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Tornado - Black President (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657093.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Siren - A Kingdom Aflame (2015) [MP3|320 кб/с]<Heavy Metal, Doom Metal, Black
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657092.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Synesthesia - Worst Case Scenario (2015) [MP3|320 кб/с]<Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656990.jpg" />
 </div>
 
 

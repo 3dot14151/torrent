@@ -6,7 +6,7 @@ Solomun - live at Kappa FuturFestival 2018 [MP3|192 Kbps] <Deep House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356790.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SKURM - Ultra Mood Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356783.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wondershare Filmora 11 v.11.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356767.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Quick CPU 4.4.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356766.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ TrustViewer 2.9.0.4203 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356762.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Kerish Doctor 2022 4.90 (Update 18.09.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356761.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Black Magnet - Body Prophecy (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356755.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Loraine James - For You And I (2019) Hyperdub [FLAC|Lossless|tracks+.cue] <Exper
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356731.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356725.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ OfficeSuite Premium (PDF & HD) Mod v8.8.6139 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356712.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WavePad Sound Editor Masters Edition 6.63 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356710.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ant Download Manager Pro 1.10.1 Build 53855 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356696.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Paul Oakenfold & Little Nikki - Only Us (The Remixes) (2018) [MP3|320 Kbps] <Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356690.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ save2pc Ultimate 5.5.6.1581 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356681.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Markus Schulz & Jes - Calling For Love (The Remixes) (2018) [MP3|320 Kbps] <Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356679.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Brave Browser 0.55.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356670.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ R-Studio Technician 9.1 Build 191044 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356658.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Windows 11 Manager 1.1.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356654.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ WinContig 5.0.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356653.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Double Commander 1.0.8 Build 191 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356650.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356639.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ BurnAware Professional 12.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356633.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356610.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356589.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ SMPlayer 18.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356565.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ YTD Video Downloader PRO 5.9.10 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356562.jpg" />
 </div>
 
 

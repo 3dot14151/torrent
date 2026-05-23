@@ -1,57 +1,3 @@
-###  Публикация: 1074976   (686657) от 16.05.2017
-
-Обнаженная Маха / Volaverunt (1999) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный исторический, костюмированная драма, по мотивам романа Антонио Ларреты "Вознесение" рассказывает об обстоятельствах смерти герцогини Альбы (Хихон) в 1802 году.
-Даже небольшие знатоки живописи наверняка помнят знаменитую картину великого испанского художника Франсиско Гойи "Обнаженная Маха".
-Именно страсти вокруг ее создания легли (   Читать дальше...   )Производство: Франция, ИспанияЖанр: Драма, Исторический, ЭкранизацияРежиссер: Хосе Хуан Бигас ЛунаАктеры: Айтана Санчес-Хихон, Пенелопа Крус, Хорди Молья, Хорхе Перугорриа, Стефания Сандрелли и др.Перевод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD42EB5BAE3BD5E0FA0386E542E3480B9C1227B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532034   (686559) от 06.03.2022
-
-Молот / Hamill (2010) DVB [MPEG-2/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Биографический фильм 2010 года о Мэтте Хэмилле, глухом борце и мастере смешанных единоборств.Производство: США / Film Harvest, Fifth Year Productions, Sawhorse ProductionsЖанр: биография, спорт, драмаРежиссер: Орен КапланАктеры: Расселл Харвард, Рэймонд Дж. Бэрри, Шошанна Штерн, Майкл Энтони, Кортни Хэлверсон, Сьюзэн Гибни, Джозеф МакКелхир, Эбен Костбар, Рич Франклин, Стивен ДоддПеревод: Многоголосый профессиональный (Русский Репортаж)Субтитры: нетПродолжительность: 01:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED6D05AA94B1CE44F06577D4F0440928558472F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134607   (686523) от 16.05.2017
 
 Автобан / Collide (2016) BDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686523.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686521.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686520.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686519.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686516.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686310.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686248.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686223.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686214.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686186.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686177.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686172.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686164.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686153.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686111.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686107.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686103.jpg" />
 </div>
 
 
@@ -502,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_686065.jpg" />
 </div>
 
 
@@ -528,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686040.jpg" />
 </div>
 
 
@@ -554,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686036.jpg" />
 </div>
 
 
@@ -580,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686035.jpg" />
 </div>
 
 
@@ -606,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686033.jpg" />
 </div>
 
 
@@ -632,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686032.jpg" />
 </div>
 
 
@@ -658,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686025.jpg" />
 </div>
 
 
@@ -669,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C08FB79A972957ED5A33E88307E76E6A5823FF55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535365   (686024) от 06.03.2022
+
+Снайпер / The Sniper (2021) WEB-DL [H.265/1080p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время выполнения задания снайпер Цзинь Мин (Майкл Тун) отвлекается на пленного ребенка и срывает операцию. Спустя десять лет ребенок, которого Цзинь Мин взял под крыло и назвал Цзинь Таем (Генри Принц Мак), вырастает и сам становится снайпером, как и еще одна спасенная Цзинь Мином девочка, Сяо Мэй (Фрида Ху). Во время очередного задания Цзинь Мин неожиданно попадает (   Читать дальше...   )Производство: Китай, Gold Stone Film, IQiyiЖанр: Боевик, драмаРежиссер: Чжу ЦзянАктеры: Генри Принц Мак, Ракель Сюй, Майкл Тун, Фрида Ху, Лу Цзиньхао, Чэн Тао, Чжоу Чжо, Е Синьюй, Ли Муюй, Пэй Цзясинь, Ло ЧжэнхуаПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские, арабские, китайские, индонезийские, корейские, малайские, испанские, тайские, вьетнамскиеПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906D164FF0A1017521F9B985FFFC938AE688F866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531847   (686022) от 06.03.2022
+
+Я - Четвёртый / I Am Number Four (2011) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный с виду подросток Джон Смит на самом деле - один из последних выживших обитателей далёкой планеты. Джон вынужден скрываться от страшных врагов, посланных уничтожить его. Ему приходится менять имена, постоянно переезжая с места на место со своим опекуном Генри. В разных городках и в разных школах Джон всегда был новичком без прошлого, но однажды он нашёл место, (   Читать дальше...   )Производство: США, Индия / Bay Films, DreamWorks Pictures, Imagenation Abu Dhabi FZ, Media Rights CapitalЖанр: фантастика, боевик, триллер, приключенияРежиссер: Ди Джей КарузоАктеры: Алекс Петтифер, Тимоти Олифант, Тереза Палмер, Дианна Агрон, Каллэн МакОлифф, Кевин Дюран, Джейк Эйбел, Джефф Хочендонер, Патрик Сибис, Грег ТаунлейПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38431112C973EC5CF68753D5DEB5E8DF09EB153E
 ```
 
 https://mybot314.ru/tekegram_catalog/

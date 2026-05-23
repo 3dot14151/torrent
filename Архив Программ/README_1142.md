@@ -6,7 +6,7 @@ YouTube Video Downloader PRO 4.9.2 (20150817) Portable by PortableWares [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464297.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ICQ 8.4 build 7786 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464272.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ R-Studio 7.7 Build 159747 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464270.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Glary Disk Cleaner 5.0.1.220 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464260.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Glary Utilities Pro 5.150.0.176 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464256.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Glary Utilities Pro 5.150.0.176 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464255.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MediaHuman YouTube Downloader 3.9.9.45 (0609) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464254.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Athentech Perfectly Clear Complete 3.10.0.1828 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464247.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ HitmanPro 3.7.9 Build 246 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464174.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AOMEI Partition Assistant Technician Edition 5.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464153.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Novicorp WinToFlash Professional 1.3.0000 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464139.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Q-Dir 8.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464132.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PDF24 Creator 9.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464128.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Display Driver Uninstaller 18.0.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464124.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wise Data Recovery 5.1.6.334 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464123.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ GPU-Z 2.34.0 RePack by -ALEX- [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464119.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Maxthon Browser 6.1.0.700 Beta + Portable (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464117.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Diskeeper 2012 Professional v.16.0.1016.0 [Английский] (х64 ready!)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464059.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ ICQ 8.4 build 7786 Portable by ruboarm [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464049.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Re-Loader Activator 1.4 RC 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464048.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ AIMP 3.60 Build 1503 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464043.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bandicam 2.3.3.860 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464036.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Adobe Media Encoder CC 2015.0.2 9.0.2.2 Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464013.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ManyCam Virtual Webcam Free 5.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464009.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464002.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ AAF DCH Optimus Sound 6.0.9008.1 Realtek Mod by AlanFinotty1995 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464000.jpg" />
 </div>
 
 

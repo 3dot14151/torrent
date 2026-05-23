@@ -1,55 +1,3 @@
-###  Публикация: 846229   (301830) от 02.12.2014
-
-Кулинарная книга любви / The Food Guide to Love (2013) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Очень успешный ресторанный критик слоган которого "всегда один" наконец, находит то что искал.Производство: Испания, Ирландия, Франция / Parallel Film Productions, Fox International Productions (FIP), Haut et CourtЖанр: Комедия, МелодрамаРежиссер: Доминик Арари, Тереса ПелегриАктеры: Ричард Койл, Леонор Уотлинг, Сиара Бэйли, Мишель Бимиш, Лоркан Кранич, Саймон Делани, Роберт Доннелли, Зенна Доннели, Брона Галлахер, Хинес Гарсия МильянПеревод: АвторскийСубтитры: Вшитые, не отключаемые (надписи и пр.)Язык субтитров: ФранцузскийПродолжительность: 01:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA56AA4EED74B762C23AFEB955F6CCA9D014F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730251   (301826) от 05.12.2013
-
-Убей их всех / Kill 'em All (2013) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Маниакальный злодей управляет смертельной игрой, в которую вовлечены ассасины со всего мира. Размещенные внутри изолированного бункера, эти безжалостные злодеи должны схватиться друг с другом и только один получит главный приз, а также свободу.Жанр: Боевик, Криминал, ТриллерРежиссер: Раймунд ХуберАктеры: Джонни Месснер, Джа Хуи, Лью Джо, Льюис Тим, Мэн Аммара, Сирипонг Рашид, Феникс Брахим, Ачаббаке Эрик, Маркус ШуетзПеревод: многоголосый закадровый НТВ+Продолжительность: 01:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6333EEDEF5A39A05F5583574B5DC57A04B036924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730681   (301824) от 05.12.2013
 
 В бегах / Несвятые / Ain't Them Bodies Saints (2013) BDRip [720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301824.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301817.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301814.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301793.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301787.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301783.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301779.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301774.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301762.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301761.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301754.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301724.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301713.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301688.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301684.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_301683.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301681.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301680.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301675.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_301673.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301666.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301654.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301646.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301629.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5522948F4080D6A56A77970C0EF9F3779D0A04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846656   (301607) от 02.12.2014
+
+Черепашки-ниндзя / Teenage Mutant Ninja Turtles (2014) DVD5 [BD -> DVD]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город нуждается в героях. Тьма окутала Нью-Йорк в виде Шреддера и его зловещего Клана Футов, у которого имеется железный контроль над всеми, от полицейских до политиков. Будущее выглядит мрачным, пока из канализации не поднимается и не раскрывает своё предназначение четвёрка отверженных братьев — Черепашки-ниндзя. Черепашки должны работать вместе с бесстрашным репортёром (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, КомедияРежиссер: Джонатан ЛибесманАктеры: Меган Фокс, Уилл Арнетт, Уильям Фихтнер, Алан Ричсон, Ноэль Фишер, Пит Пложек, Джонни Ноксвил, Джереми Ховард, Дэнни Вудберн, Тони ШэлубПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: русские (форсированные, полные), английские (форсированные, полные)Продолжительность: 01:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE061BBAB67EC4D81229D5C3E5267500BDEDB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846539   (301600) от 02.12.2014
+
+Черепашки-ниндзя / Teenage Mutant Ninja Turtles (2014) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город нуждается в героях. Тьма окутала Нью-Йорк в виде Шреддера и его зловещего Клана Футов, у которого имеется железный контроль над всеми, от полицейских до политиков. Будущее выглядит мрачным, пока из канализации не поднимается и не раскрывает своё предназначение четвёрка отверженных братьев — Черепашки-ниндзя. Черепашки должны работать вместе с бесстрашным репортёром (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: Джонатан ЛибесманАктеры: Меган Фокс, Уилл Арнетт, Уильям Фихтнер, Алан Ричсон, Ноэль Фишер, Пит Пложек, Джонни Ноксвил, Джереми Ховард, Дэнни Вудберн, Тони ШэлубПеревод: Дублированный (Лицензия «Blu-ray CEE»)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), Английский (Forced, Full, SDH, SDH-Colored)Продолжительность: 01:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27105A27D06D55A5EA102E96C3A41F1F195565D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

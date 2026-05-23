@@ -1,55 +1,3 @@
-###  Публикация: 1285457   (720393) от 26.02.2019
-
-Смерть на воде / Dead in the Water (2018) WEBRip [H.264/720p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Члены женского экипажа морского судна вынуждены бороться против неизвестного врага, попавшего к ним на борт во время сильного шторма в тысяче километров от берега.Производство: США / Blue Ice Pictures, Dandelion Productions, Out of Africa EntertainmentЖанр: ТриллерРежиссер: Шелдон УилсонАктеры: Адам Фридландер, Дэниэл Айрон, Лэнс Сэмюэлс, Брэндон Оре, Николь Бушери, Николь Фортуи, Бьянка Симон Мэнни, Скай Расселл, Таня ван Граан, Кристина Виссер, Эми Луиз УилсонПеревод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Английские (SDH)Продолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AC3F28972FE4D64885F462EE5FDA45F49B9192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285421   (720390) от 26.02.2019
-
-Как не стать президентом / The Front Runner (2018) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-За многие годы карьеры в политике сенатор Гэри Харт создал себе идеальную репутацию. В 1988 году он баллотируется в президенты с прогрессивной программой, в частности в экономике. Его предвыборный штаб работает днём и ночью на поддержание привлекательного имиджа кандидата, и предварительные данные опросов говорят, что Гэри Харт — главный кандидат на должность президента (   Читать дальше...   )Производство: США / BRON Studios, Creative Wealth Media Finance, Right of Way FilmsЖанр: Драма, биография, историяРежиссер: Джейсон РайтманАктеры: Хью Джекман, Вера Фармига, Джонатан Кимбл Симмонс, Марк О’Брайэн, Молли Эфраим, Крис Кой, Алекс Карповски, Джош Бренер, Томми Дьюи, Кейтлин ДиверПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58C4848FEA25804D5AB8324D61A3A5390C4897F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285589   (720385) от 26.02.2019
 
 На границе миров / Grans (2018) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720385.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720288.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720283.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720282.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720279.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720276.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720224.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720201.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720165.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720164.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720157.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720153.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720149.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720126.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720107.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720064.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720051.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719996.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719990.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719956.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719854.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719817.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719780.jpg" />
 </div>
 
 
@@ -658,13 +606,66 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719779.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Темные тучи нависли над Волшебной Империей Измир. Злобный колдун Дамодар жаждет власти над миром. Обратившись в черный вихрь, он похищает мистическую "Черную сферу" - источник могущества, способный контролировать Черного Дракона, спавшего долгие столетия. Стране и ее обитателям грозит уничтожение. Теперь судьба всего Королевства оказывается в руках двоих (   Читать дальше...   )Жанр: Боевик, Фэнтези, ПриключенияРежиссер: Джерри ЛивлиАктеры: Брюс Пэйн , Марк Даймонд , Клеменси Бертон-Хилл , Элли Чиджли , Тим Штерн , Стивен Элдер , Люси Гаскелл , Рой Мэрсден , Джефри Bersey , Леонас ЦюнисПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 01:40:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024096   (719719) от 07.06.2016
+
+Годзилла против Гайгана / Chiky kogeki meirei: Gojira tai Gaigan (1972) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетные захватчики направляют для порабощения Земли двух космических монстров с дистанционным управлением. В противовес им выдвигается Годзилла и другой динозавроподобный ящер — Ангирус.Производство: ЯпонияЖанр: Ужасы, фантастика, боевик, приключенияРежиссер: Дзюн ФукудаАктеры: Хироши Ишикава, Юрико Хишими, Минору Такашима, Тошиаки Нисидзава, Кунио Мурай, Ген ШимицуПеревод: Любительский одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB97CE7CE2CFBF30D0E3F7582EEBAFC0BC8C770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327522   (719673) от 24.04.2011
+
+Знакомство с родителями / Meet the Parents (2000) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обладатель замечательной фамилии, санитар Грэг Трахер, отправляется за город, чтобы познакомится с родителями своей девушки Пэм. Здесь Грэг собирается торжественно просить руки возлюбленной. Но, к несчастью, Грэг - парень невезучий, и любые благие начинания в его исполнении превращаются в сущий кошмар.
+Несчастный Трахер и в самом страшном сне не предполагал, какие его ждут испытания. Дело в том, что отец Пэм, Джек Бернс, - отставной сотрудник ЦРУ, устраивает приятелям дочери свою особую и жесткую проверку. Эта проверка включает в себя даже специальный тест на детекторе лжи!Жанр: мелодрама, комедияРежиссер: Джей Роуч / Jay RoachВ ролях: Роберт Де Ниро (Jack Byrnes), Бен Стиллер (Gaylord 'Greg' Focker), Тери Поло (Pam Byrnes), Блайт Даннер (Dina Byrnes), Николь ДеХафф (Deborah Byrnes), Джон Абрахамс (Denny Byrnes), Оуэн Уилсон (Kevin Rawley), Джеймс Ребхорн (Dr. Larry Banks), Томас МакКарти (Dr. Bob Banks), Филлис Джордж (Linda Banks), Кали Роча (Atlantic American Flight Attendant), Bernie Sheredy (Norm the Interrogator)Перевод: Профессиональный (дублированный)Продолжительность: 01:47:45
 
 ## Скачать торент
 ```bash

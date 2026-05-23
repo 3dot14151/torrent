@@ -6,7 +6,7 @@ MAGIX SOUND FORGE Audio Studio 16.1.0.47 (x86/x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352056.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rainmeter 4.5.15 Build 3678 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352043.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v10.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352042.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Comodo Dragon 69.0.3497.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351987.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Windows Xp Professional SP3 City v9 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_351956.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AntiWinLocker LiveCD + USB 4.0.6 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_351955.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Passware Windows Key Enterprise Edition 11.0.3579 Bootable CD [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_351947.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ WM Recorder 16.7.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351899.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Paint.NET 4.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351889.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ iZotope - Ozone 9 Advanced 9.0.1 STANDALONE, VST, VST3, AAX (x64) RePack by R2R 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351876.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Teorex Inpaint 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351871.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ akaEasyMoney 1.0.3 Portable [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351836.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VideoPad Professional 4.48 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351821.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Blue Cat's All Plug-Ins Pack (v.2018.10.2) VST, VST3, RTAS, AAX RePack by VR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351816.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ System Ninja 3.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351803.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ HDCleaner 1.208 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351800.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Icecream Image Resizer 1.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351789.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Maxon ZBrush 2022.0.6 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351758.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ EASEUS Partition Master Professional 16.8 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351748.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Zero Assumption Recovery 10.0.548 Technician Edition RePack (& Portable) by Trov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351702.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351700.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Skype 8.33.0.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351697.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Icecream Slideshow Maker 1.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351690.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Movavi Video Converter 19.0.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351676.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Icecream Screen Recorder PRO 2.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351666.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351592.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Shabti - Trembling and Shorn (2019) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633756.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Accuser - Reflections (1994) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633754.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cea Serin - The Vibrant Sound Of Bliss And Decay (2014) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633750.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ WarKings - Reborn (2018) [FLAC|lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633736.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Battle Beast - No More Hollywood Endings (2019) [FLAC|Lossless|tracks + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633622.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kissin' Dynamite - Addicted To Metal (2010) [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632670.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Adrenaline Mob - Men Of Honor (2014) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632592.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Periphery - Periphery IV: Hail Stan (2019) [FLAC|Lossless|tracks + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631853.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Rammstein - Zick Zack (2022) Single [FLAC|lossless|WEB-DL|tracks] <Industrial Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631364.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Born of Osiris - The Simulation (2019) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631234.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Serj Tankian - Harakiri (2012) [FLAC (tracks+cue)|Lossless]<Alternative Metal, E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630851.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Amethyst - The Maze Of Destiny (2010) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630519.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Hemlock - Bleed the Dream (2004) [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630318.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ The Meads Of Asphodel - Sonderkommando (2013) [FLAC|image+.cue]<Avant-Garde Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630315.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Within Silence - Gallery Of Life (2015) [FLAC|image+.cue]<Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630221.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Outrun The Sunlight - Terrapin (2014) [FLAC|Lossless|image + .cue] <Instrumental
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630103.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Black Matter Device - Hostile Architecture (2019) EP [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630101.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Outrun The Sunlight - Red Bird (2017) [FLAC|Lossless|image + .cue] <Instrumental
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630097.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Five Finger Death Punch - A Decade Of Destruction (2017) Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629848.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Crown Compass - The Drought (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629786.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Edguy - The Savage Poetry, 2CD (2000) Remastered, 2021, Fono [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629520.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Rhарsоdу Оf Fire - Legеndаrу Yeаrs (2017) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629504.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ In Mourning - The Weight of Oceans (2012) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629305.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Klandestyn - Wounds Bleeding Black (2009) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628682.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Thanatos - Angelic Encounters (2000) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628680.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Evol - The Saga of the Horned King (1995) [APE|Lossless|image + .cue] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628679.jpg" />
 </div>
 
 

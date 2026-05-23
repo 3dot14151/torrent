@@ -1,83 +1,3 @@
-###  Публикация: 94552   (795753) от 27.05.2020
-
-Терри Пратчетт | Цвет волшебства [2008] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Терри Пратчетт - самый популярный британский писатель, непревзойденный мастер юмористически-фэнтезийного жанра, любимец английских читателей, общий тираж книг автора превышает 40 миллионов.
-Роман "Цвет волшебства" - первый, с которого начался грандиозный цикл бестселлеров "Плоский мир", насчитывающий сейчас более 20 книг.
-Итак, знакомьтесь: Ринсвинд (   Читать дальше...   )Жанр: фэнтези, юмор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871CAB000D1818FA74DFBD543C96DDFCBE384C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200543   (795650) от 21.01.2018
-
-Барбара Картленд | Флирт (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Потеряв сначала мать, а затем отца, умершего от тяжелой болезни, Анцелла Уинтон осталась одна, без средств к существованию. Выбор у девушки невелик: либо ехать приживалкой к теткам, суровым незамужним дамам, которым везде и во всем чудится порок, либо попытаться устроиться в жизни самостоятельно… И она принимает предложение отправиться на юг Франции и стать сиделкой (   Читать дальше...   )Жанр: Исторические любовные романыПродолжительность: 06:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442555D73F7590A1129DC29481B7C88E1D275D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012049   (795622) от 29.04.2016
-
-Борис Екимов | За теплым хлебом (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рассказы Бориса Екимова, составившие этот сборник, населены людьми разными и по возрасту и по характерам. Писатель создал свой художественный мир современной Задонщины, увековечив имена ее рек, курганов, балок, уходящих в небытие хуторов и казачьих родов. Проза его пластична, в ней нет аффектации, хотя она социально заострена, серьезность волнующих писателя вопросов (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 18:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB2274489D70018D5BC3EA15D214F002269D4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200691   (795585) от 21.01.2018
 
 Елена Малиновская | Найти Кукловода (2018) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795585.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795562.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795561.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795533.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795515.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795513.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795448.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795411.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795399.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795239.jpg" />
 </div>
 
 
@@ -353,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795225.jpg" />
 </div>
 
 
@@ -379,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795195.jpg" />
 </div>
 
 
@@ -405,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795156.jpg" />
 </div>
 
 
@@ -431,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795146.jpg" />
 </div>
 
 
@@ -457,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795043.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794991.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794951.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794937.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794867.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794849.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794843.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794834.jpg" />
 </div>
 
 
@@ -666,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794737.jpg" />
 </div>
 
 
@@ -677,6 +597,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06E40E267DC7A57646CD4FBDF2846A19A95A5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012217   (794729) от 30.04.2016
+
+Андрей Молчанов | Схождение во ад (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если нам суждено быть побежденными в этой войне, наше поражение будет окончательным. Наши враги провозгласили свои цели таким образом, что у нас не остается никаких иллюзий относительно их намерений. Евреи, русские большевики и тьма шакалов, идущих за ними и тявкающих у их ног - ни один из них, мы знаем это, не сложит оружия до тех пор, пока они не разрушат и не (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF9D341435578F7B60490F4D6B9E2AA3EC2FBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012315   (794725) от 30.04.2016
+
+Иван Рак | Чего не говорил Заратустра. (2007) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794725.jpg" />
+</div>
+
+
+###  Подробнее
+
+«…Керсаспа своими собственными руками изготовил боевую палицу и отправился искать злого змея Сэрвару. Это было рогатое чудовище, из пасти которого струею бил желтый яд, отравляя все вокруг. Рассказывали, что у Сэрвары зубы длиной с человеческую руку, каждое ухо величиной в четырнадцать одеял, каждый глаз величиной с колесо, а рога как ветвистые деревья. И теперь (   Читать дальше...   )Жанр: МифологияПродолжительность: 08:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F90FC79D4C9DEF60A185A6BA130D5327E6D2A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012322   (794718) от 30.04.2016
+
+Пётр. Краснов | Русско-японская война (2007) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русско-японская война
+
+Будучи военным корреспондентом на этой войне. Краснов принимал непосредственное участие в боях. Перед нами захватывающее повествование о героизме наших солдат в битвах с противником, превосходящим русских и числом и оснащением.На внутреннем фронте
+(   Читать дальше...   )Жанр: ИсторияПродолжительность: 06:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D297EFB9517B822FBEEBC2573361C856B12EF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

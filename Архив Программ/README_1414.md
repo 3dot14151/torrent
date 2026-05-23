@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2019.021.20048 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320176.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zoner Photo Studio Professional 15.0.1.3 DC 28.11.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_320171.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AIMP 3.20 Build 1163 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_320156.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Total Commander 7.50a Grey Pack (Lite Version) 1.2 [русский + англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320124.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VirtualBox 5.1.10 Build 112026 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320098.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Piriform CCleaner Professional Plus 5.24.5841 Portable by PortableAppZ (22.11.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320097.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.10.5200 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320064.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Uninstall Tool 3.5.9 build 5660 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320062.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ AIDA64 Extreme Edition 2.70.2227 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_320034.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Victoria 5.00 Portable [Ru/En] (релиз)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320019.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Topaz Sharpen AI 1.4.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320014.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Topaz Gigapixel AI 4.4.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320011.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Topaz DeNoise AI 1.3.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319998.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4875.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319948.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4875.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319946.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4875.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319943.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Speccy 1.30.730 Professional | Technician Edition RePack (& Portable) by D!akov 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319941.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ ACDSee Pro 6.1 Build 197 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319905.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ CudaText 1.117.4 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319806.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Opera 72.0.3815.200 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319803.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Kinza Browser 6.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319802.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Dr.Web CureIt! 6.00 от 28.11.2012 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319784.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Brave Browser 1.16.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319702.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ RJ TextEd 14.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319698.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ CCProxy 7.3 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319690.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Catanya 1.0.1 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319684.jpg" />
 </div>
 
 

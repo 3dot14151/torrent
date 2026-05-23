@@ -6,7 +6,7 @@ Legends of Pegasus [En/Ge] (RePack/1.0.0.4115) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503067.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Maestia: Rise Of Keledus [Ru] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503060.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hitman: Sniper Challenge [Ru] (Repack) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503058.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Darksiders II: Death Lives - Limited Edition [Ru] (Repack/1.0.u2) 2012 | R.G. Wo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502988.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Damage Inc. Pacific Squadron WWII [En] [Repack) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502105.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Mass Effect 3 [Ru] (Lossless Repack/1.03.5427.46/3 DLC) 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502021.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Mass Effect 3 [Ru] (RePack/1.3.5427.46/4 DLC) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501960.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Mass Effect Трилогия [Ru] (RePack) 2008-2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501952.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ World of Tanks (2010) [Ru] (0.9.10) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501935.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ X Rebirth (2013) [Ru/En] (3.60/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500934.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Transformers: Fall of Cybertron [En] (Rip/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500866.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ I am alive [XBOX 360] [ENG] [Freeboot/JTAG] [XBLA] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500827.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ I Am Alive [En] (L) 2012 | R.G. GameWorks [без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499356.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ This War of Mine (2014) [Ru/Multi] (1.3.2/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499023.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Alan Wake Дилогия [Ru] (Repack) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498997.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Darksiders II: Death Lives [Ru] (Repack/Upd.2) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498848.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Hitman: Blood Money / Hitman: Кровавые деньги [Ru] (Repack) 2006 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498785.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Fallout: New Vegas Ultimate Edition + 6 DLC [Ru] (Repack/1.4.0.525) 2010 | R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498781.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Fallout: New Vegas Ultimate Edition + 6 DLC [Ru/En] (Repack/1.4.0.525) 2010 | {A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498777.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ The Basement Collection [En] (Steam-Rip/1.0) 2012 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497976.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Transformers: Fall of Cybertron [Ru/En] (RePack/1.0) 2012 | TERRAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496985.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Ball / The Ball: Оружие мертвых [Ru] (RePack/1.0.6698.0) 2010 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496977.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ I Am Alive [En] (Lossless RePack) 2012 | kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496951.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ The Darkness 2 [ENG] [PAL] (2012) [PS3]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496948.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Transformers: Fall of Cybertron [Ru] (Rip/1.0) 2012 | R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496946.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Minecraft (L/12w34b) [Ru/Multi56] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495110.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ SmartWhois 5.1 Build 280 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568018.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ TMeter Premium edition 13.2.659 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567912.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cyberfox 52.9.1 for Intel + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565689.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NetSend2015 Server 1.5.0.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558809.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ mIRC 7.43 Portable by SceneDL [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557380.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ HandyCache RC4 1.0.0.571 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557301.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Cyberfox 52.9.1 for AMD + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557290.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ mIRC 7.43 Final [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557273.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Comodo IceDragon 65.0.2.15 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551053.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Twonky Media Server 8.3.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541574.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Datacol 5.54 + Plugins [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531971.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Shadowsocks 4.4.1.0 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528429.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525801.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Miranda NG 0.95.4 build 13028 [RoseBl] 5.0 RC1 Portable by S@eR [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514820.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ X-Lite 4.8.4 Build 76589 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514756.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Router Scan 2.60 Beta Portable by Stas'M [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512628.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Avast Secure Browser 75.1.1528.101 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506765.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ DVB Dream 2.7.3 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504100.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Pale Moon 25.7.0 + Portable [Ru/En] (сборка для iAtom и Windows XP)
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503019.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ DomainHostingView 1.82 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502383.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ummy Video Downloader 1.10.5.2 portable by DRON [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498427.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Online Radio Player 3.5.0.93 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498422.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AVG Secure Browser 75.1.849.144 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497503.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ SurfEasy VPN 3.3.443 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493303.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Orbit Downloader + Portable 4.1.1.2 [ML/RUS]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490870.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Hirschmann Industrial HiVision 07.0.03 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485678.jpg" />
 </div>
 
 

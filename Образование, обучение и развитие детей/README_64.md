@@ -1,57 +1,3 @@
-###  Публикация: 728485   (314464) от 30.11.2013
-
-М.Я. Выгодский | Арифметика и алгебра в древнем мире (1967) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга обращается к широкому кругу читателей; предполагаемая ею подготовка не выходит за пределы программы средней школы. В основу книги положено стремление познакомить читателя с фактическим материалом по первоисточникам. Это не значит, что книга представляет собой хрестоматию по истории математики. Здесь дается связное изложение материала, стремящееся дать по возможности цельную картину истории арифметики и алгебры в древнем мире, выяснить обстоятельства и причины возникновения и развития различных приемов счета и методов решения задач.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470FD13DC450E31C8A2BFA7AE0848D7D86E7523B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728872   (314323) от 30.11.2013
-
-В.А. Касьянов | Иллюстрированный атлас по физике. 10 класс (2010) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Иллюстрированный Атлас по физике" - уникальное учебное пособие, не имеющее аналогов в мировой и отечественной учебной литературе, сочетающее достоинства интересного, доказательного учебника и красочного альбома наглядных иллюстраций, помогающих глубже понять суть физических явлений и легче запомнить их взаимосвязи.
-"Иллюстрированный Атлас по физике" может использоваться как основное учебное пособие для изучения физики на базовом уровне. Простота и лаконичность изложения курса физики 10 класса делает "Иллюстрированный Атлас по физике" незаменимым при подготовке к контрольным работам, экзаменам и ЕГЭ.
-"Иллюстрированный Атлас по физике. 10 класс" содержит следующие разделы: Механика (классическая и релятивистская), Молекулярная физика и Термодинамика, Электростатика.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9C9F7DF98F96012F2263E93DE41213928645E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 728848   (314294) от 30.11.2013
 
 Синтез | Математические формулы. Краткий справочник (2013) [PDF]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314294.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314051.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314049.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313909.jpg" />
 </div>
 
 
@@ -167,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313695.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313666.jpg" />
 </div>
 
 
@@ -220,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313650.jpg" />
 </div>
 
 
@@ -246,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313534.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313482.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313406.jpg" />
 </div>
 
 
@@ -326,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312252.jpg" />
 </div>
 
 
@@ -352,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312249.jpg" />
 </div>
 
 
@@ -378,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311923.jpg" />
 </div>
 
 
@@ -404,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311063.jpg" />
 </div>
 
 
@@ -432,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311032.jpg" />
 </div>
 
 
@@ -458,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309995.jpg" />
 </div>
 
 
@@ -487,7 +433,7 @@ English Show  | Шпаргалка по всем английским време
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309230.jpg" />
 </div>
 
 
@@ -515,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309163.jpg" />
 </div>
 
 
@@ -541,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309062.jpg" />
 </div>
 
 
@@ -567,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307837.jpg" />
 </div>
 
 
@@ -593,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307727.jpg" />
 </div>
 
 
@@ -620,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307345.jpg" />
 </div>
 
 
@@ -648,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307342.jpg" />
 </div>
 
 
@@ -676,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306147.jpg" />
 </div>
 
 
@@ -689,6 +635,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF88934F9355FE2F36FB8D3364774496D984D05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422850   (306143) от 10.11.2020
+
+Оксана Абрамова | Почемучкины опыты и эксперименты. Астрономия (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306143.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге О. Абрамовой "Астрономия" ты найдешь несколько любопытных рассказов о космосе и созвездиях, а также 12 астрономических экспериментов со звёздами и планетами.
+
+Все эксперименты разработаны с использованием предметов, которые легко найти в каждом доме. Эти увлекательные занятия помогут понять не только устройство нашей Солнечной системы, смену дня (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8007924378189D794191F5A438EBD9BC551ACFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261098   (305467) от 10.11.2018
+
+Э.В. Александрова, В.А. Левшин | Путешествие по Карликании и Аль-Джебре (1991) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305467.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сказки да не сказки» - так авторы назвали свою книжку. Действие происходит в воображаемых математических странах Карликании и Аль-Джебре. Герои книги, школьники Таня, Сева и Олег, попадают в забавные приключения, знакомятся с основами алгебры, учатся решать уравнения первой степени.Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F19C4F7F601768100D2CC9026D2FC3211C079FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

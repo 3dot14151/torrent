@@ -1,55 +1,3 @@
-###  Публикация: 1469908   (1016013) от 14.05.2021
-
-Отец / The Father (2020) BDRip [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Энтони далеко не молод и живет один в Лондоне, что очень тревожит его дочь. Она не хочет оставлять отца без присмотра и пытается найти ему сиделку. Энтони отметает все предложенные варианты. Однако, планируя переезд в Париж, дочь не спешит сдаваться. Она становится все настойчивее в попытках найти для упрямого папочки идеальную женщину.Производство: Великобритания, Франция, AG Studios NYC, Cine@, Embankment Films, F Comme Film, Film4, Trademark Films, ViewfinderЖанр: ДрамаРежиссер: Флориан ЗеллерАктеры: Оливия Колман, Энтони Хопкинс, Марк Гатисс, Оливия Уильямс, Имоджен Путс, Руфус Сьюэлл, Айеша Дхаркер, Роман Зеллер, Скотт Маллинз, Рэй БернетПеревод: Одноголосый любительский (SillyCat, присутствует мат)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Надписи, Полные), Английские (Полные, SDH)Продолжительность: 01:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7285E16555A1C8ED566536FD3DE3B294C0FCFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460463   (1016008) от 14.05.2021
-
-Поступь хаоса / Chaos Walking (2021) WEB-DLRip [H.265/1080p-LQ] [HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-2257 год. Тодд обнаруживает загадочную девушку Виолу, потерпевшую крушение на его родной планете, где женщины давно исчезли, а все мужчины страдают от вируса — существуют в пространстве бесконечных мыслеобразов, которое называют шумом: рядом с другим человеком совершенно невозможно утаить свои воспоминания и мысли. В такой агрессивной реальности Виоле, чьи чувства (   Читать дальше...   )Производство: США, Канада, Гонконг / Lionsgate, Quadrant PicturesЖанр: Фантастика, приключенияРежиссер: Даг ЛайманАктеры: Том Холланд, Дэйзи Ридли, Демиан Бичир, Дэвид Ойелоуо, Курт Саттер, Синтия Эриво, Бетани Энн Линд, Мадс Миккельсен, Ник Джонас, Рэй МаккиннонПеревод: Дублированный (iTunes), Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Русский (Forced, Full), английские (Full, SDH)Продолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0011C5B74B0F6E798CC5A66394CA7274A64F6F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469653   (1016004) от 14.05.2021
 
 Гениальное ограбление / Way Down (2021) WEB-DL [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016004.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015915.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015899.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015891.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015887.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015886.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015862.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015842.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015836.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015707.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015700.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015689.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015683.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015674.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015609.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015557.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015549.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015537.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015532.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015531.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015529.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015446.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015439.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015438.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:804854A4BE193ED3BB85692756BBD169E10C44DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467070   (1015428) от 18.05.2021
+
+Мистер Пип / Mr. Pip (2012) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015428.jpg" />
+</div>
+
+
+###  Подробнее
+
+История мистера Уоттса, последнего белого парня в Бугенвиле. Он открывает школу и читает детям свой любимый роман – «Большие надежды» Чарльза Диккенса. Это помогает ему наладить связь с ними и помочь разобраться в собственных проблемах.Производство: Папуа - Новая Гвинея, Австралия, Новая Зеландия / Olympus Pictures, Daydream Productions, Eyeworks FilmЖанр: Драма, военныйРежиссер: Эндрю АдамсонАктеры: Хью Лори, Экзанья Матси, Хилсвиль Джоэль, Ика Дэрвилл, Керри Фокс, Флоренс Корокоро, Давид Каумара, Каусибона Мел, Сэм Симиха, Марселин Ампа’ойПеревод: Профессиональный, любительский (многоголосый, закадровый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9AD4E9B735999882FD91BC4FB281707752F84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470898   (1015427) от 18.05.2021
+
+Полный нокдаун / American Fighter (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переехав в Штаты и поступив в университет, Али ищет любую возможность заработать денег на лечение матери. Он принимает предложение выйти на ринг в подпольных боях без правил. Вскоре он сталкивается с коварным миром интриг и махинаций и узнает, как рождаются истинные чемпионы, готовые на все ради победы.Производство: США / ESX EntertainmentЖанр: Боевик, БиографияРежиссер: Шон Пол ПиччининоАктеры: Джордж Костурос, Томми Флэнаган, Шон Патрик Флэнери, Брайан Алан Крэйг, Эллисон Пейдж Нист, Парвиз Сайяд, Салом Азизи, Винс Хилл-Бедфорд, Тони Пантерра, Кевин ПортерПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60461DF06FFB2D384C9562DCBF7E22BA10B5F0E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

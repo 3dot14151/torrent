@@ -1,29 +1,3 @@
-###  Публикация: 1276049   (788852) от 14.01.2019
-
-Catherine Classic (2019) [Multi] (1.0.1151) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Познайте все прелести и ужасы любви вместе с Винсентом, который оказался перед нелёгким выбором: жениться на своей давней подруге Катерине или переехать к отпадной блондинке, в чьей постели он только что проснулся — и которую зовут Катриной! Но берегитесь! Одно неверное решение может стоить вам жизни. Этот уникальный гибрид приключенческого боевика и головоломки (   Читать дальше...   )Тип издания: LicenseРазработчик: ATLUSЖанр: Adventure, Novel, Action, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E62204E76EFC58F9ECCD5E65F32139C0FACB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511517   (788779) от 21.11.2021
 
 City Legends: The Curse of the Crimson Shadow / Городские легенды: Проклятие Красного человека (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ City Legends: The Curse of the Crimson Shadow / Городские легенд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788779.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Guild of Dungeoneering (2015) [Multi] (1.0UE/dlc) License PLAZA [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788768.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Grow: Song of the Evertree (2021) [Ru/Multi] (1.0.0) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788749.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Cloudpunk (2020) [Ru/Multi] (6861751/dlc) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788743.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ NASCAR 21: Ignition (2021) [Multi] (1.25/dlc) License CODEX [Champions Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788739.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ SimCasino (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788738.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Motorcycle Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.12) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788734.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (57824) License FAIRLIG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788730.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Exodus Borealis (2021) [Multi] (5.2) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788725.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0rc1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788724.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dungeon No Dungeon (2021) [Multi] (2.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788723.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Nerf Legends (2021) [Multi] (0.1) License FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788717.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Marsupilami: Hoobadventure (2021) [Ru/Multi] (1.0rd) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788716.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Hextech Mayhem: A League of Legends Story (2021) [Ru/Multi] (1.21.11.19/dlc) Lic
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788715.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dawn of Hope 3: The Frozen Soul (2018) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788573.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788526.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Detective escape1 (2019) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788495.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Apartment (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788446.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Wulverblade (2018) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788440.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Fishing Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788408.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Onimusha: Warlords (2019) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788402.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Tales of Sorrow. Strawsbrough Town / Печальная история горо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788352.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ CountryBalls Heroes (2021) [Ru/Multi] (7722318) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788304.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Solasta: Crown of the Magister (2021) [Ru/Multi] (1.2.9/dlc) License CODEX [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788282.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Solitaire Mystery: Four Seasons / Магия Пасьянса: Времена Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788281.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Solitaire Mystery: Four Seasons / Магия Пасьянса: Времена Г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81FDCAD9D33D7F2D27B06D306A38151D30959C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511754   (788278) от 22.11.2021
+
+The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разгадайте мрачную тайну, раскрыть которую под силу лишь медиуму. Исследуйте реальный мир и мир духов одновременно. Используйте свои возможности ясновидения, чтобы решать загадки, связывающие два мира, открывать зловещие тайны и пережить встречи с Пастью – чудовищем, порожденным ужасной трагедией.Тип издания: LicenseРазработчик: Bloober TeamЖанр: Квест (От третьего лица), Хоррор (Психология)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07883FA1C72AA58DF5D84DB99D19BD033134DDEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

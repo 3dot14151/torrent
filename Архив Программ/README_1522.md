@@ -6,7 +6,7 @@ Pale Moon 12.1 (86-x64) + Portable.Multi+Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259420.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Scanitto Pro + Portable by DJFenix 2.12.23.233 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259406.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Zero Assumption Recovery 9.1 Build 4 Technician Edition [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259402.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ All-Radio 3.51 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259319.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wise Registry Cleaner 7.25 Build 466 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259300.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Total Commander 8.0 Final x86+x64 [MAX-Pack 2012.5.4] Ru+En + тихая уст�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259254.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ AntiSMS 1.9.5 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259214.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Firefox Builder Optimization 1.3 beta 4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259212.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DLL-Files.com Fixer 2.7.72.2072 RePack by D!akov [Русский/Английс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259168.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Advanced SystemCare Pro 5.3.0.245 DC 28.05.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259162.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AusLogics BoostSpeed 5.3.0.5 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258958.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ashampoo Burning Studio 2012 10.0.15.10773 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258947.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Portable Adobe Dreamweaver CS3 9.0 Build 3453 [английский + русиф
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258943.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Kaspersky Internet Security 2013 13.0.0.3333 Technical Preview
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258934.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ iFoxSoft Photo Crop Editor 2.02 [Eng+Rus] + Portable [Rus-Eng] by Maverick
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258933.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Kvisoft Flip Book Maker Pro v3.5.3 (2012) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258929.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ SysTweak Regclean Pro 6.21.65.2300 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258921.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Super Hide IP + RUS  v3.2.1.6  [английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258910.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Hard Drive Inspector Professional 3.99.441 + For Notebooks RePack (& portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258904.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ SoftMaker Office Professional rev 663 RePack (& portable) by KpoJIuK [Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258872.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tor Browser Bundle 2.2.35-13 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258854.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ InetOps 1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258833.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PDF-XChange 2012 Pro 5.0.259 [Ru/En] RePack by MKN
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258829.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ DisplayFusion Pro 4.0 [Mult/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258828.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Auslogics Registry Defrag 6.3.0.5 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258786.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Google Chrome 19.0.1084.52 Stable [MULTi / Русский] + *PortableAppZ*
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258779.jpg" />
 </div>
 
 

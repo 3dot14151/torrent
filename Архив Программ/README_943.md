@@ -6,7 +6,7 @@ Soft Organizer 7.25 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572630.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Lasso Pro 9.0.0.372 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572603.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Torch Browser 51.0.0.11603 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572577.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Telegram Desktop 0.10.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572560.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Display Driver Uninstaller 17.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572546.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Product Key Explorer 3.9.9.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572545.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CCleaner 5.21.5700 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572523.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Google Earth Pro 7.3.0.3830 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572520.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Emurasoft EmEditor Professional 18.9.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572498.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Cent Browser 2.0.10.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572451.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Baidu Browser 43.23.1007.94 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572435.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Advanced SystemCare Pro 5.4.0.257 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_572428.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Infix PDF Editor Pro 7.1.9 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572416.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Artweaver Plus 6.0.12.15183 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572413.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ CCleaner 5.21.5700 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572410.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Google Earth Pro 7.3.0.3830 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572382.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Java SE Runtime Environment 8.0 Update 141 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572368.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ QTranslate 5.7.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572335.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Opera 46.0.2597.57 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572334.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PassMark BurnInTest Pro 9.0 Build 1015 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572325.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ All in One Runtimes 2.4.2 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572323.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ PhotoInstrument 7.6 Build 928 Portable by Baltagy  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572318.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Isotropix Clarisse iFX 4.0 SP2b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572310.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572297.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Emurasoft EmEditor Professional 21.7.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572232.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ JetBrains RubyMine 2017.2 Build #RM-172.3317.60 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572204.jpg" />
 </div>
 
 

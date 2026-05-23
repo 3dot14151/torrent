@@ -6,7 +6,7 @@ Dropbox 1.4.7 Stable [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258778.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Opera Web Browser 12.00 Build 1431 Beta [Multilanguage (Russian)] 12.00 Build 14
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258772.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Kaspersky TDSSKiller 2.7.37.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258757.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Any Video Converter Ultimate 4.3.9 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258635.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Kaspersky Password Manager 5.0.0.164 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258600.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258592.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ K-Lite Codec Pack Update 8.8.5 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258576.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Norton AntiVirus 2012 19.7.1.5 Final [RU/EN]  [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258416.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Daum PotPlayer 1.5.33573 Stable [x86-x64] [Full & Lite] [Rus] [сборка 7sh3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258399.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Daum PotPlayer 1.5.33573 Stable (официальная версия) [Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258360.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Any DVD Converter Professional 4.3.9 + Portable *PortableAppZ* [MULTi / Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258323.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Ashampoo Photo Commander 10.1.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258302.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Ashampoo Photo Commander 10.1.1 RePack by KpoJIuK [Русский/Английс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258291.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Easy CD-DA Extractor 16.0.6.1 RePack (& portable) by KpoJIuK [Русский / �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258264.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Mozilla Firefox 13.0 Beta 5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258261.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Mozilla SeaMonkey 2.10 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_258246.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Daum PotPlayer 1.5.33573 Stable by 7sh3 [Русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258231.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ RarmaRadio 2.68.3 [ML / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258160.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Total Commander 8.0 Final x86+x64 [MAX-Pack 2012.5.3] Ru+En + тихая уст�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258124.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Registry Winner 6.5.7.17 [Мульти|Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258109.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VkBot 2.1.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257483.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Maxthon 3.3.8.3000 Final + Portable [Мульти|Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257459.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Native Instruments - Massive v.1.3.0 by ASSiGN[английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257361.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Windows 7 Максимальная SP1 x86/x64 DVD Original WPI 23.05.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257348.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Microsoft Windows 7 Ultimate Ru  x64 SP1 NL2 by OVGorskiy® 05.2012 (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257341.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257288.jpg" />
 </div>
 
 

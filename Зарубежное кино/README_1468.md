@@ -1,55 +1,3 @@
-###  Публикация: 1187365   (279883) от 28.11.2017
-
-Падение Лондона / London Has Fallen (2016) Blu-ray [H.264/1080p] [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-При загадочных обстоятельствах убит британский премьер-министр. На его похороны съезжаются лидеры крупнейших держав мира. Несмотря на запредельные меры безопасности, неизвестные террористы успешно взрывают приглашенных руководителей государств одного за другим вместе с половиной исторического центра Лондона. Однако, для президента США и его личного телохранителя (   Читать дальше...   )Производство: США, Великобритания, Болгария, Gerard Butler Alan Siegel Entertainment, LHF Film, Millennium FilmsЖанр: Боевик, триллер, криминалРежиссер: Бабак НаджафиАктеры: Джерард Батлер, Аарон Экхарт, Морган Фримен, Алон Абутбул, Валид Зуэйтер, Адель Беншериф, Мехди Дехби, Шивани Гаи, Мартин Петрушев, Оуэн Дэвис, Майкл Уилдман, Рада Митчелл, Стэйси Шэйн, Пенни Дауни, Кларксон Гай Уильямс, Патрик Кеннеди, Колин Сэлмон, Анджела Бассетт, Дебора Грант, Эндрю ПлевинПеревод: Дублированный (Лицензия)Субтитры: Русские, Английские, ФранцузскиеПродолжительность: 01:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A600E1883E353594116D9846082E58714E3271F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187300   (279875) от 28.11.2017
-
-Ночлежка / Crash Pad (2017) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Стенслэнд, простак и безнадёжный романтик, верит, что обрёл истинную любовь в лице красавицы Морган. Однако для неё молодой любовник — лишь способ отомстить беспутному мужу, на что тот отвечает равноценной монетой, начав разгульную холостяцкую жизнь… в доме Стенслэнда.Производство: США / Indomitable Entertainment, Windowseat FilmsЖанр: КомедияРежиссер: Кевин ТентАктеры: Нина Добрев, Донал Глисон, Кристина Эпплгейт, Томас Хейден Чёрч, Анна Ван Хуфт, Алийа О Брайен, Бриттни Ирвин, Аня Савчич, Нилс Дж Хонестад, Сунита ПрасадПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские (отдельным файлом)Продолжительность: 01:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C696ADB2E7B21C20B00BA5BA4B3E2CBFF5FB34F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187307   (279862) от 28.11.2017
 
 Дом с призраками / Haunted (2017) BDRip [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279862.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279860.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279858.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279848.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279808.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279805.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279788.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279786.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279776.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279773.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279765.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279761.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279760.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279759.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279758.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279753.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279722.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279715.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279639.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279613.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279509.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279448.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279435.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279386.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:891A2F2DC9ED49E5A0B8AA994232AE3EDF785F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 734446   (279382) от 16.12.2013
+
+Заклятие / The Conjuring (2013) BDRip [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279382.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе картины лежит реальная история семьи Перрон, которые утверждали, что жили в окружении привидений, как добрых, так и злых. Духи населяли дом на Род-Айленде, в котором Перроны проживали в семидесятых годах XX века.Производство: США / Evergreen Media Group, New Line Cinema, The Safran CompanyЖанр: ужасы, триллерРежиссер: Джеймс ВанАктеры: : Вера Фармига, Патрик Уилсон, Лили Тейлор, Рон Ливингстон, Хейли МакФарланд, Джои Кинг, МакКензи Фой, Шэнон Кук, Стерлинг Джеринс, Джозеф Бишара, ...Перевод: ДублированыйЯзык субтитров: Украинский, АнглийскийПродолжительность: 01:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2B6C722B7CE2D2D4F5ED012E4D15FE2F48E930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 734889   (279381) от 16.12.2013
+
+Соломон Кейн / Solomon Kane (2009) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279381.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказов Роберта Ирвина Говарда. Соломон Кейн — английский солдат XVI века, который осознал, что его бесчеловечные и жестокие поступки навечно прокляли его душу. Вознамерившись искупить свои грехи, Кейн клянется жить в мире и добродетели, но когда на землю ступают темные силы, ему не остается ничего, как дать бой.Жанр: Боевик, Фэнтези, ПриключенияРежиссер: Майкл Дж. БассеттАктеры: Джеймс Пьюрфой, Джеймс Бэбсон, Джофф Белл, Мэттью Блад-Смит, Брайан Каспе, Джон Комер, Маккензи Крук, Джейсон Флеминг, Патрик Хард-ВудПеревод: ДублированныйПродолжительность: 01:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0906BAD389F17301754E00484CB20DE4B3B4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

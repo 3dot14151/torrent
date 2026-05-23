@@ -1,81 +1,3 @@
-###  Публикация: 1377939   (850004) от 23.04.2020
-
-Алекс Хейли | Корни (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алекс Хейли повествует о своей семье, история которой уходит корнями в глубокое прошлое и начинается в Западной Африке. Герои Хейли — его предки, среди которых рабы и освобожденные, фермеры и кузнецы, музыканты и бизнесмены, адвокаты и архитекторы — и один автор. «Корни» — это сага о порабощении и свободе, любви и разлуке, насилии и заботе о близких, отчаянии и непостижимой (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 27:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E5BB9B35B6FF64D27215677071C1A80B3EDFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377773   (849997) от 23.04.2020
-
-Кристиан Роберт Винд | Мрачная вселенная Фрэнка Миллера (Книга 2). Нечто из Блэк Вудс (2020) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга серии переносит читателей в 1978 год – в то время, когда специальный детектив Фрэнк Миллер получает странное задание: жителей небольшого городка терроризирует необъяснимая бессонница, сводящая людей с ума. Покинув Вашингтон вместе с новым напарником Алексом Ридом, Миллер оказывается в Блэк Вудс – крошечном поселении, затерянном в непроходимых лесах. (   Читать дальше...   )Жанр: Зарубежные детективы, Мистика, УжасыПродолжительность: 06:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD896BE08838D35A084163BB3942509BD6C3A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377772   (849994) от 23.04.2020
-
-Кристиан Роберт Винд | Нечто из Норт Ривер (2020) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Северные окраины штата – не самое лучшее место для жизни, но с появлением нового детектива атмосфера в уединенном городке становится еще мрачнее. Зачем Фрэнк Миллер прибыл в Норт Ривер? Что он знает о растерзанных коровьих тушах на ферме и почему не спешит делиться информацией с местными копами, оберегая свои тайны? Наконец, как все эти события связаны с исчезновением (   Читать дальше...   )Жанр: Зарубежные детективы, Мистика, УжасыПродолжительность: 07:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD9A73208250D7F11674BD2A8EEAAA8215BC8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377775   (849991) от 23.04.2020
 
 Дина Рубина | Единственный голос [Сборник] (2020) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849991.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849898.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849891.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849888.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849792.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849726.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849713.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849565.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849524.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849523.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849268.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849137.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849110.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848987.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848984.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848798.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848750.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848666.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848478.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848425.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848421.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848418.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848416.jpg" />
 </div>
 
 
@@ -675,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD1858EAE2AF83E2D12FA31A912C9157CD87929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111146   (848288) от 05.03.2017
+
+Алексей Атеев | Солнце Мертвых [Часть 3] (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издавна деревня Лиходеевка считалась недобрым местом. И люди здесь селились странные. Рассказывали, будто обладают они колдовской силой. Да такой мощной, что даже могли оживлять умерших. Шли годы… Лиходеевка превратилась в один из городских районов. Но здесь по-прежнему время от времени происходили загадочные и страшные вещи. Однажды милиция обнаружила чудовищно (   Читать дальше...   )Жанр: МистикаПродолжительность: 07:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26DF1F6BA286D860E54225617B8564D747FA5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378084   (848185) от 24.04.2020
+
+Игорь Беленький | История кино. Киносъемки, кинопромышленность, киноискусство (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_848185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год в прокат выходит все больше фильмов, появляются новые имена и жанры. Чтобы разобраться в том, что сейчас происходит в кино, важно понимать, как кинематограф зародился и развивался. Историк кино, преподаватель Гуманитарного института кино и телевидения Игорь Беленький рассматривает основные этапы становления кинематографа: как кино стало искусством, боролось (   Читать дальше...   )Жанр: Кинематограф / театрПродолжительность: 15:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC0143EB49D825189117425679150263A66EF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378236   (848174) от 24.04.2020
+
+Кир Булычёв | Гусляр. Повесть о контакте (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиостудия «Ардис» представляет наиболее популярные рассказы из цикла рассказов и повестей Кира Булычева, события которого происходят в старинном русском (вымышленном) городе Великий Гусляр. Находится он на севере Европейской части России, в Вологодской области, на притоке Северной Двины реке Гусь. Город расположен на равнине, окружён «колхозными полями и густыми (   Читать дальше...   )Жанр: Юмористическая фантастикаПродолжительность: 05:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BC024A061C65F41ECBD7A4A429B407F790EE2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

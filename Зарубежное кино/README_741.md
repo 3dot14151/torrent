@@ -1,55 +1,3 @@
-###  Публикация: 1128769   (725760) от 26.04.2017
-
-Манчестер у моря / Manchester by the Sea (2016) BDRip [H.265/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Нелюдимый и погруженный в себя Ли работает слесарем в многоквартирном доме. Узнав, что его старший брат умер, Ли возвращается в родной городок. Он вспоминает свою жизнь в этом городе и страшную трагедию, произошедшую с его собственной семьей. Неожиданно он узнает, что в завещании брат указал его опекуном 16-летнего племянника. Через взаимоотношения с подростком Ли (   Читать дальше...   )Производство: США / Amazon Studios, B Story, Big Indie PicturesЖанр: драмаРежиссер: Кеннет ЛонерганАктеры: Кейси Аффлек, Мишель Уильямс, Кайл Чандлер, Лукас Хеджес, Бен О’Брайэн, Ричард Донелли, Вирджиния Лоринг Кук, Куинси Тайлер Бернстайн, Мисси Ягер, Стивен ХендерсонПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские, АнглийскиеПродолжительность: 02:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57457F8EE202CF3703AA7FB18D2CFAB9871AAE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128750   (725756) от 26.04.2017
-
-Человек, который познал бесконечность / The Man Who Knew Infinity (2015) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о жизни известного индийского математика-самоучки Сриниваса Рамануджана.Производство: Великобритания, СШАЖанр: Драма, БиографияРежиссер: Мэтт БраунАктеры: Джереми Айронс, Дев Патель, Малкольм Синклер, Дхритиман Чаттерджи, Стивен Фрай, Арундатхи Наг, Девика Бисе, Падрейк Делани, Тоби ДжонсПеревод: Дублированный (iTunes)Субтитры: Русские, АнглийскиеПродолжительность: 01:48:35Реклама: отсутствует.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9779C5BD1394F9830368E45413D3FB4C750C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128770   (725744) от 26.04.2017
 
 Манчестер у моря / Manchester by the Sea (2016) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725744.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725728.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725629.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725620.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725609.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725608.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725589.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_725548.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725539.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725538.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725536.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725533.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725532.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725478.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725474.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725467.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725456.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725446.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725426.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725353.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725351.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725332.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725262.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725252.jpg" />
 </div>
 
 
@@ -677,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA59FDAACF12E29BF93CE17B4F6B71BC4CDA93F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891047   (725143) от 23.04.2015
+
+Седьмой сын / Seventh Son (2014) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ в фильме пойдет про парня, который, так уж вышло, стал седьмым сыном седьмого сына. А только такой человек может стать ведьмаком. Но этого недостаточно, чтобы именовать себя так — необходимо пройти массу тренировок, а также усердно учиться. Ведь главное оружие ведьмака — это его ум. Хоть в народе их не любят, но кто-то же обязан убивать нечисть, хранить землю (   Читать дальше...   )Производство: Великобритания, США, Канада, Китай, Legendary Pictures, Moving Picture CompanyЖанр: Фэнтези, ПриключенияРежиссер: Сергей БодровАктеры: Бен Барнс, Джефф Бриджес, Джулианна Мур, Алисия Викандер, Кит Харингтон, Джимон Хонсу, Оливия Уильямс, Антье Трауэ, Джейсон Скотт Ли, Дэвид КабиттПеревод: Дублированный (Лицензия BD CEE)Субтитры: ОтсутствуютПродолжительность: 01:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685AAF53460511C58A59BF1FE431A0E5D0AB52B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891304   (725129) от 23.04.2015
+
+Седьмой сын / Seventh Son (2014) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ в фильме пойдет про парня, который, так уж вышло, стал седьмым сыном седьмого сына. А только такой человек может стать ведьмаком. Но этого недостаточно, чтобы именовать себя так - необходимо пройти массу тренировок, а также усердно учиться. Ведь главное оружие ведьмака - это его ум. Хоть в народе их не любят, но кто-то же обязан убивать нечисть, хранить землю (   Читать дальше...   )Производство: США, Великобритания, Канада, Китай | Legendary Pictures, Outlaw Sinema, Pendle Mountain Productions, Thunder Road, Moving Picture Company, China Film Co.Жанр: Фэнтези, ПриключенияРежиссер: Сергей БодровАктеры: Бен Барнс, Джефф Бриджес, Джулианна Мур, Алисия Викандер, Антье Трауэ, Оливия Уильямс, Джон ДеСантис, Кит Харингтон, Джимон Хонсу, Джерард Планкет, Джейсон Скотт Ли, Кэндис МакКлюр, Люк Родерик, Заф Пару, Тимоти УэбберПеревод: Профессиональный дублированныйЯзык субтитров: Русский (Forced, Full), английскийПродолжительность: 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1144462CB1FF67D34DF1379695D5FD7B67003483
 ```
 
 https://mybot314.ru/tekegram_catalog/

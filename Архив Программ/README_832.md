@@ -6,7 +6,7 @@ Skype 7.6.0.103 Final + Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625554.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIDA64 Extreme /Engineer / Business / Network Audit 6.70.6000 RePack (& Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625551.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Uninstall Tool 3.6.0 Build 5681 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625537.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Antivirus Removal Tool 2022.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625533.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Aiseesoft PDF Converter Ultimate 3.3.16  RePack (& Portable) by TryRooM  [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625517.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Internet Download Manager 6.28 Build 14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625514.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Acrobat Reader DC 2019.010.20099 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625457.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Toon Boom Harmony Premium 16.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625451.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ CCleaner 5.56.7144 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625441.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Adobe Acrobat Pro DC 2019.010.20099 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625435.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bootstrap Studio 6.0.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625417.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft .NET 6.0.4 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625413.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ AIMP 5.02 Build 2370 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625408.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ IObit Uninstaller Pro 11.4.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625405.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ SamDrivers 22.3 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625403.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ACDSee Pro 8.2 Build 287 Lite RePack by MKN (18.06.2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625401.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.70.6000 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625392.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PreSonus Studio One 5 Professional 5.5.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625388.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ ReviverSoft Driver Reviver 5.20.0.4 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625362.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ R-Studio 8.3 Build 168003 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625358.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ USB Safely Remove 6.0.9.1263 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625356.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625355.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ LibreOffice 5.3.4 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625353.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Download Master 6.13.1.1563 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625352.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ YouTube Video Downloader PRO 4.9 (20150610) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625302.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Skype 7.6.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625299.jpg" />
 </div>
 
 

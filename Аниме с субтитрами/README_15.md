@@ -6,7 +6,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013657.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soukou Musume Senki | LBX Girls | Девушки в доспехах [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012705.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012600.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Maburaho | Мабурахо [2003, TV, 24 из 24] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012547.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Amanchu! Advance | Аманчу! [ТВ-2] [2018, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012445.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012103.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Princess Lover! | Любимчик принцесс [2009, TV, 12 эп. + 18 SP]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012100.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Легенда о Бело
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012094.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Kiddy Grade / Детское подразделение [ТВ-1] [2002, TV, 24 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012071.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bungaku Shoujo Memoire / Записки литературной девушки 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012057.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ BALDR FORCE EXE Resolution / Виртуальный спецназ [2006, OAV, 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012056.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Saishuu Shiken Kujira / Final Examination Kujira / Кудзира: послед�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011920.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ A Journey Through Fairyland | Yousei Florence | Фея Флоренция [1985,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011911.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Dear Boys | Hoop Days | Дорогие парни [2003, TV, 26 эп.] DVDrip 48
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011905.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Rekka no Honoo | Flame of Recca | Пламя Рэкки [1997, TV, 42 эп.] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011892.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Akikan! | Пустая банка [2009, TV, 12 эп.] DVDrip 400p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011889.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Tsukuyomi: Moon Phase | Фаза Луны [2004, TV, 25 эп. + 1 SP] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011879.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Claymore | Клеймор [2007, TV, 26 эп.] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011875.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Eiga Sayonara Watashi no Cramer: First Touch | Farewell, My Dear Cramer: First T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011700.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011497.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой! [2018, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011411.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Shimoneta: A Boring World Where the Concept of Dirty Jokes Doesn`t Exist / Ск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011377.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Aldnoah.Zero | Альдной.Зеро [2014, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011370.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ame-iro Cocoa in Hawaii | Rainy Cocoa in Hawaii | Какао цвета дожд
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011354.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan | Armored Trooper Votoms: Brilliantly Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011341.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Niji-iro Days | Rainbow Days | Радужные деньки [2016, TV, 24 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011340.jpg" />
 </div>
 
 

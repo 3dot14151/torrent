@@ -6,7 +6,7 @@ Darksiders II Death Lives [En] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517467.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517451.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Trine 3: The Artifact of Power (2015) [Ru/Multi] (1.01) Repack U4enik_77
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517112.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Shadowrun: Hong Kong (2015) [En] License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517014.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Silent Hill: Alchemilla (2015) [Ru/Multi] (1.1) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516909.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) Repack R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516905.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.01) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516903.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Burnout Paradise: The Ultimate Box [Ru/En] (Repack/1.1.0.0) 2009 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516442.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ The Amazing Spider-Man [Ru] (RePack) 2012 l DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515358.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Speed Thief / Угнать за 40 секунд [Ru] (RePack) 2002 | Shmitt
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515337.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ferrum's Secrets: Where Is Grandpa? (2015) [En] License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515150.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Darksiders II: Death Lives - Limited Edition [En] (Repack/1.0) 2012 | DangeSecon
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514367.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Darksiders II: Death Lives - Limited Edition [Ru/En/Multi5] (RePack) 2012 l VANS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514268.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514261.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Darksiders II: Death Lives - Limited Edition [Ru/En/Multi6] (Repack/1.0) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514230.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ The Expendables 2 Videogame (2012) [Multi] (1.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514188.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Tales from the Borderlands: Episode 1 - 3 (2014) [Xbox360] [RegionFree] [FreeBoo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513699.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Hockey? (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513255.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ NHL 12 [PS3] [RUS] [PAL] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513216.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Incoming + OST [Ru] (Rip) 1998 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512285.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Expendables 2. Videogame [En] (RePack/1.0) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512125.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ NBA 2K12 [PS3] [ENG] [PAL] [MOVE] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512116.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (Lossless RePack/1.4) 2012 l ShTeCvV
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512057.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sleeping Dogs - Limited Edition [Ru] (Repack/1.4) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512056.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Rochard [Ru/En/Multi12) (RePack/1.23) 2011 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511459.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Rochard [Ru\En\Multi12] (Steam-Rip/1.23) 2011 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511457.jpg" />
 </div>
 
 

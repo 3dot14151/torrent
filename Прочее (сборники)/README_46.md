@@ -6,7 +6,7 @@ VA - 100 Tracks Love Ballads Playlist Spotify (2020) [MP3|320 Kbps] <Rock, Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797140.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Дискотека Весенние Хиты (2016) [MP3|320 кб/с] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796996.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Tech House For Runing: House Garden Music (2018) [MP3|320 Kbps] <Club, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796973.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Italo Disco Hits Vol.17 (2018) [MP3|320 Kbps] <Italo-Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796909.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Kiss FM: Top 100 2017 - Итоговый (2018) [MP3|320 Kbps] <Pop, House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796845.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Best Hits 80s от ALEXnROCK часть 2 (2017) [MP3|320 Kbps] <Pop, Disco
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796793.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Music News vol.146 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796766.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Club Vibes: European EDM Mix (2016) [MP3|320 кб/с] <Trance, Electro, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796431.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Top 40 Hits Music April Work (2016) [MP3|320 кб/с] <Electro, Bigroom, Bo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796400.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Весенняя Молодежная Хитовая 100-ка (2016) [MP3|2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796355.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Горячий хит Europa Plus №2" (2016) [MP3|256 кб/с] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796244.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - TOP 100: лучших песен 2017 года на Love Radio (2018) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796195.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Music News vol.10 (2020) [MP3|320 Kbps] <Progressive Rock, Acoustic, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795975.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Acoustic Soul (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795926.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Sad Songs Sing-along (2020) [MP3|320 Kbps] <Pop, Rock, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795920.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - House of love (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795919.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Women of Pop (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795918.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Music News vol.9 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795914.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Romantic evening (2020) [MP3|320 Kbps] <Rock, Electro, Techno House, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795907.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Acoustic Chill (2020) [MP3|320 Kbps] <RnB, Pop, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795886.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Non stop Май (2020) [MP3|256 Kbps] <Pop, Shanson, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_795838.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Громкие новинки Мая (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795764.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Empire Records - Sound Clinic 8 (2017) [MP3|320 Kbps] <Dance, Electro House
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795696.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0003 (
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795658.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0004 (
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795657.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Empire Records - Sound Clinic 9 (2017) [MP3|320 Kbps] <Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795655.jpg" />
 </div>
 
 

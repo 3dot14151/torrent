@@ -1,29 +1,3 @@
-###  Публикация: 1506440   (799871) от 31.10.2021
-
-Grotto (2021) [En] (1.1.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Grotto - это игра с таинственной атмосферой и фокусом на сюжете. Вы Прорицатель. Вы способны читать по звёздам и расшифровывать их послания. Настали неспокойные времена. Племя долины обращается к Вашим силам предсказывать будущее и просит совета. Судьба племени зависит от Ваших пророчеств. Поразмыслите над каждым созвездием или позвольте звёздам войти в Ваше сознание. (   Читать дальше...   )Тип издания: LicenseРазработчик: Brainwash GangЖанр: Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF17FEAC78E500F35FCA5A78A019DCE82D01AB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506437   (799829) от 31.10.2021
 
 Defend the Rook (2021) [Ru/Multi] (1.062) License GOG
@@ -32,7 +6,7 @@ Defend the Rook (2021) [Ru/Multi] (1.062) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799829.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Radio Station (2021) [Multi] (1.01) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799825.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ I Am Fish (2021) [Ru/Multi] (1.1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799811.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) License PROPHET
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799711.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Grim Tales 12: Graywitch / Страшные сказки 12: Грейвич (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799518.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Weather Lord 8: Graduation / Повелитель погоды 8: Выпускн
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799513.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Cyberline Racing (2017) [Ru] (1.0) Unofficial
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799502.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) SteamRip Let'sPlay [Gold Pa
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799469.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Plants vs. Zombies (2009) [En] (1.2.0.1095) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799422.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Greed. The Mad Scientist / Жадность. Безумный учёный (2013
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799377.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Happy Game (2021) [Ru/Multi] (1.0rls) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799310.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Living Legends 5: Beasts of Bremen / Живые легенды 5: Бременс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799109.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Unseen Fears: Body Thief / Невидимые страхи: Свежеват
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799074.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Banner Saga Collection (2014-2016) [Ru/Multi] (2.36.15/2.39.02) SteamRip Let
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799055.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dark City 6: Paris / Мрачный город 6: Париж (2021) [Ru] (1.0) U
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799010.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ MahJong Suite (2017) [En] (14.0) License RadiXX11
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799008.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Memoranda (2017) [En] (1.1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798980.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Infernium (2018) [Ru/Multi] (1.0upd1) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798947.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Ziggurat 2 (2021) [Ru/Multi] (2019.4.31.12409535) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798913.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Perfect World (2012) [Ru] (13.10.21) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798899.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Growbot (2021) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798599.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798571.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (7639057) License FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798549.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ FATAL FRAME / PROJECT ZERO: Maiden of Black Water (2021) [Multi] (1.0.0.1.761591
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798513.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Happy Game (2021) [Ru/Multi] (1.0.3) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798508.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Happy Game (2021) [Ru/Multi] (1.0.3) License GOG [Collector's Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13DB10A77B55A9C661158FDEFB51C855FDEAEBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392386   (798495) от 03.11.2021
+
+Danger Scavenger (2020) [Ru/Multi] (2.0.8) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Danger Scavenger – это напряженный роуглайк в стиле киберпанк на крышах небоскребов. Вам предстоит дать отпор могучим противникам, которыми управляет бездушный искусственный интеллект. Забудьте о подземельях, пещерах и адской мгле.Тип издания: LicenseРазработчик: Piotr Wolk, Star DriftersЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F3DF7386C4CCFFF617A04B424F557B9D19EAF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

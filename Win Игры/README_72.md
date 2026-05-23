@@ -1,29 +1,3 @@
-###  Публикация: 602635   (997358) от 13.01.2013
-
-Closure [En] (RePack) 2012 | R.G. Механики
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Closure – логический платформер, использующий концепцию света и тени. Главная особенность игры заключается в том, что только то, что видно в данный момент на экране, на самом деле существует. Так, например, если какой-то предмет или поверхность освещаются светом, то значит с ним можно взаимодействовать, а если на них находит тень – они перестают существовать.(   Читать дальше...   )Тип издания: RepackЖанр: Arcade (Platform) / LogicЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D21D9D9FD71438C7348BBA2170BDA4C813D2045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603228   (997112) от 14.01.2013
 
 Dracula: Origin / Охотник на Дракулу [Ru] (RePack/1.0) 2008 | Audioslave
@@ -32,7 +6,7 @@ Dracula: Origin / Охотник на Дракулу [Ru] (RePack/1.0) 2008 | Au
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997112.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Orcs Must Die Dilogy / Дилогия Бей орков [Ru] (RePack/1.0r14, 1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997102.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Fantasy Wars / Кодекс войны [Ru] (RePack/1.0.9.3) 2007 | Audioslave
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997101.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Dungeons | The Dark Lord [Ru] (RePack/1.3.2.1, 1.1.1.0) 2011 | Audioslave
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997091.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ A Game of Thrones: Genesis / Игра престолов: Начало [Ru] (ReP
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997083.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ Torchlight 2/II [Ru/En/Multi4] (Steam-Rip/1.21.5.1) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996615.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ Dracula. Origin / Охотник на Дракулу [Ru] (Repack) 2008 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996600.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ Torchlight II [Ru/En/Pl] (Repack/1.21.5.1) 2012 | THETA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996596.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ Torchlight 2/II [Ru/Multi4] (RePack/1.21.5.1) 2012 | R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996590.jpg" />
 </div>
 
 
@@ -280,7 +254,7 @@ Painkiller. Hell & Damnation [Ru] (RePack/1.0.27204/3 DLC) 2012 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996582.jpg" />
 </div>
 
 
@@ -310,7 +284,7 @@ Sherlock Holmes vs. Jack the Ripper / Шерлок Холмс против Дж�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996571.jpg" />
 </div>
 
 
@@ -338,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995740.jpg" />
 </div>
 
 
@@ -364,7 +338,7 @@ Helldorado [En/Multi5] (L) 2009 | *PROPHET*
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995398.jpg" />
 </div>
 
 
@@ -390,7 +364,7 @@ Lineage 2 Interlude [En] (P/Client) 2007 l AceWorld
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995384.jpg" />
 </div>
 
 
@@ -417,7 +391,7 @@ Gas Guzzlers: Combat Carnage / Gas Guzzlers: Убойные гонки [Ru/En] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995362.jpg" />
 </div>
 
 
@@ -445,7 +419,7 @@ Test Drive: Ferrari Racing Legends [En] (L) 2012 | Proper FAIRLIGHT
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994969.jpg" />
 </div>
 
 
@@ -473,7 +447,7 @@ Sword of the Stars II: Enhanced Edition [Ru/En/Multi4] (RePack /2.0.24759.2) 201
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994962.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Ninja Blade [Ru/En] (L) 2009
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994624.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Assassin's Creed 3 (Patch/1.02) 2013
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994620.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ Assassin's Creed 3 (Patch/Crack/1.02) 2013 | SKIDROW
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994610.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ Assassin's Creed 3 (Patch/Crack/1.02) 2013 | RELOADED
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994605.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ TRON: Evolution: The Video Game [Ru/En] (RePack) 2010 | R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994598.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ Death To Spies Moment of Truth / Смерть шпионам: Момент ис�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994353.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ Dawnstar [En] (L) 2013 | *SKIDROW*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994340.jpg" />
 </div>
 
 
@@ -698,7 +672,7 @@ Wasteland Angel [Ru/En/Multi4] (L) 2011 | *PROPHET*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993875.jpg" />
 </div>
 
 
@@ -711,6 +685,32 @@ Wasteland Angel возвращает нас во времена старых а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9FFF9EDEB03C3C78E3EFB78DE8CDA58D3347F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607416   (993871) от 24.01.2013
+
+Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En] (L) 2010
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prison Break – это экшен с видом от третьего лица, создаваемый на основе одноименного телевизионного сериала, известного российским зрителям под названием "Побег". Действие игры разворачивается параллельно событиям первого сезона "Побега". В игре Prison Break вам предстоит управлять человеком по имени Том Пэкстон. Он является агентом так называемой "Компании" - организации, которая подставила Линкольна. Его отправляют в тюрьму для того, чтобы выяснить, зачем Майкл Скофилд попытался ограбить банк. Герою предстоит столкнуться с некоторыми персонажами, которые фигурировали в телесериале, а так же исследовать территорию тюрьмы "Фокс Ривер" и сразиться с противниками. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA862F5185D99F5940CFF469B4557A6F3B9EFCC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

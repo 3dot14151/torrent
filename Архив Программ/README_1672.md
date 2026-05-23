@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210805.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FreeFileSync 12.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210804.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ QOwnNotes 23.6.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210802.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser 114.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210792.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics Duplicate File Finder 10.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210779.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Vivaldi 6.1.3035.100 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210775.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wondershare PDFelement 9.5.11.2311 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210770.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Slimjet 39.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210769.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft .NET 7.0.8 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210767.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WinSCP 6.1.1 Build 13736 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210765.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Wise Care 365 Pro 6.5.5.628 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210764.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Altair PSIM 2022.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210760.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Topaz Photo AI 1.3.9 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210759.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ TreeSize Pro 8.6.0.1757 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210758.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ FinePrint 11.39 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210756.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v9.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210747.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ TeraCopy 3.9.2 Portable by AlexYar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210742.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210740.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Pinta 2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210732.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ R-Studio Network 9.2 Build 191115 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210724.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Auslogics File Recovery 11.0.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210723.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Emurasoft EmEditor Professional 22.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210716.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VueScan Pro 9.8.08 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210713.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210711.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Microsoft PowerToys 0.66.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210693.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft .NET 6.0.19 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210692.jpg" />
 </div>
 
 

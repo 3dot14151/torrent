@@ -7,7 +7,7 @@ Ground Zero (2026) [Ru/Multi] (Patch 1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070030.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Willy Morgan and the Curse of Bone Town (2020) [Ru/Multi] (1.2.1) Repack Let'sР
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069958.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ The Midnight Walk (2025) [Ru/Multi] (1.0004) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069853.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GYLT (2023) [Ru/Multi] (2026) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068628.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ An English Haunting (2024) [Ru/Multi] (3.6.0.54) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068428.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Dark Rites of Arkham (2026) [Ru/Multi] (3.6.1.34) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068422.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Nightmare Frames (2022) [Ru/Multi] (3.5.1.19) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068421.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Demonologist (2023) [Ru/Multi] (2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067829.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ The Council - Complete Season (2018) [Ru/Multi] (0.9.5.6359) License GOG [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067722.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ The Long Dark (2017) [Ru/Multi] (2.52 Build 179852/dlc) Repack FitGirl [Quiet Ap
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066129.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (1.1.2.0/dlc) Repack Let'sРlay [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065249.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Possessor(s) (2025) [Ru/Multi] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065180.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack Other s [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065072.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065064.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack HardwareMini
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065024.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack seleZen [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064759.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Neva (2024) [Ru/Multi] (1.2/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064758.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack FitGirl [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064755.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Marshmallow All the Way Home (2025) [Multi] (1.0.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064386.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.231) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064385.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.3/dlc) License GOG [Digital Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064255.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (0.51) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064171.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (3.0.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063923.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20220419/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062270.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (1.1.0.15) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061710.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Umigari (2026) [Ru/Multi] (1.6.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061115.jpg" />
 </div>
 
 

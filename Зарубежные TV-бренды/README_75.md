@@ -1,29 +1,3 @@
-###  Публикация: 229286   (518247) от 22.08.2010
-
-BBC: Мир природы. Сокровища Анд / Natural World. Treasure Of The Andes (1993) SATRip [112 серия]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Природа не перестает поражать воображение своими нерукотворными чудесами. Некоторые из них создавались на протяжении миллионов лет эволюции. Нас ждет знакомство с удивительными местами и их не менее удивительными обитателями. В этих нетронутых уголках земли до сих пор подчиняются одному закону - закону природы. Животные не спорят, но готов ли следовать ему человек? (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314703   (518077) от 15.07.2019
 
 NG. Осушить океан: глубокое погружение. Подводные империи / Drain the Oceans: Deep Dive. Undersea Empires (2018) HDTVRip [H.264/1080p-LQ]
@@ -32,7 +6,7 @@ NG. Осушить океан: глубокое погружение. Подво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518077.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery. Возвращение суперзмеи-людоеда / Devoured: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518075.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG. Осушить океан: глубокое погружение / Drain the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517785.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Discovery: Пираты / Pirates (1998) DVDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517686.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517629.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC:  Машина Большого Взрыва / The Big Bang Machine (2008) S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_517192.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC: Ноев Ковчег - реальная история / BBC: Noah`s Ark-T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517123.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Discovery. Челюсти наносят ответный удар / Jaws Strike
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516841.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ BBC. Планеты / The Planets (2019) BDRemux [H.264/1080i] (сезон 1, с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516763.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Discovery: Секреты и Заговоры / Codes and Conspiracies (2014) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516204.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Discovery: Секреты и Заговоры / Discovery: Codes and Conspiracie
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516151.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Discovery. Вот это странно Корабль-призрак / Weird or
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516141.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Discovery. Вот это странно. Кокаиновые мумии / Weird
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516135.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515878.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTVRip (1 с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514839.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ BBC. Мир природы. Королева морских дьяволов / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514815.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTV [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513794.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Discovery. Нашествие гигантских медуз / Attack of The Gi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513727.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ BBC. Horizon: Питание, голодание и долголетие / Eat, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513263.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512355.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Do You See What I Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512272.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511439.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511436.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ BBC: Грязные города. Революционный Париж [час�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510458.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ History Channel: Детективы морских глубин-5. Алекса�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510452.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ History Channel: Детективы морских глубин-5. Алекса�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC8630A235CEB93E085769C0FF83DE622523530B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538024   (510365) от 22.08.2012
+
+Звёздные врата: Правдивая наука / True Science of Stargate (2006) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о том, как те или иные факты в сериале, подтверждаются наукой.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812AFACA3B844DC0D8DDA5B0CCAF68106A387962
 ```
 
 https://mybot314.ru/tekegram_catalog/

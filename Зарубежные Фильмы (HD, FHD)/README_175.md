@@ -1,55 +1,3 @@
-###  Публикация: 987793   (922050) от 19.02.2016
-
-К-19 / K-19: The Widowmaker (2002) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях, произошедших с первой атомной советской подводной лодкой, которая потерпела аварию из-за неполадок в атомном реакторе в 1961 году. К-19 - это зримое свидетельство героизма русских моряков, которые служили на этой подводной лодке. Фильм демонстрирует героизм капитана Алексея Вострикова, который в разгар холодной войны берет на себя (   Читать дальше...   )Производство: Великобритания, Германия, США, Канада | Intermedia Films, First Light Production, National Geographic Society, New Regency Pictures, Palomar Pictures, IMF Internationale Medien und Film GmbH & Co. 2. Produktions KGЖанр: Триллер, Драма, Военный, ИсторияРежиссер: Кэтрин БигелоуАктеры: Харрисон Форд, Лиам Нисон, Питер Сарсгаард, Сэм Спруэлл, Тим Вудворд, Стив Николсон, Питер Стеббингс, Лекс Шрэпнел, Джон Шрэпнел, Лев Прыгунов, Равиль Исянов, Джей Джей Филд, Кристиан Камарго, Роман ПодхораПеревод: Дублированный, Авторский одноголосыйЯзык субтитров: Русский , английскийПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C1E6E87EEA0150673BE7A01C7D7634CC384BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371749   (922048) от 19.02.2016
-
-Как заняться любовью с женщиной / How to Make Love to a Woman (2010) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Энди не может удовлетворить свою подругу Лоурен. Ситуация осложняется, когда на горизонте неожиданно появляется друг детства Лоурен, красавец Даниэль. Энди в срочном порядке обращается за помощью к своим друзьям музыкантам.Жанр: комедияАктеры: Джош Мейерс, Кристен Риттер, Юджин Бирд, Иен Сомерхолдер, Линдси Ричардс, Катрин Рейтман, Нора Киркпатрик, Кен Жонг, Джеймс Кайсон Ли, Айк БаринхолцПеревод: Профессиональный (многоголосый закадровый)Субтитры: Русские, английскиеПродолжительность: 01:31:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988348   (922046) от 19.02.2016
 
 Кровью и потом: Анаболики / Pain & Gain (2013) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922046.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922028.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921993.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921929.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921916.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921905.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921900.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921895.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921894.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921893.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921892.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921880.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ S.W.A.T.: Спецназ города ангелов / S.W.A.T. (2003) WEB-DL [H
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921862.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921805.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921802.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921778.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921775.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921745.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921716.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921692.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921615.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_921477.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921452.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921399.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421D9C84A294C27623446D18373EF0811C15581F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864069   (921385) от 28.01.2015
+
+Судья / The Judge (2014) Blu-ray [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921385.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре истории — успешный адвокат, который приезжает в родной город на похороны матери и узнаёт, что его отца, городского судью, подозревают в убийстве. Герой решает задержаться, чтобы выяснить правду, и постепенно лучше узнаёт родственников, с которыми давно вообще никак не общался.Производство: США, Warner Bros., Big Kid Pictures, Team DowneyЖанр: ДрамаРежиссер: Дэвид ДобкинАктеры: Роберт Дауни-мл., Роберт Дювалл, Вера Фармига, Билли Боб Торнтон, Винсент Д’Онофрио, Джереми Стронг, Дэкс Шепард, Лейтон Мистер, Кен Ховард, Эмма Трамбле, Грейс Забриски, Дэвид Крамхолц, Бальтазар Гетти, Дэнис О’ХэйрПеревод: Дублированный (Лицензия, Blu-ray CEE)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, китайский, корейский, арабский, болгарский, хорватский, чешский, эстонский, греческий, иврит, венгерский, индонезийский, латвийский, литовский, польский, румынский, русский, словенский, тайский, турецкий, украинскийПродолжительность: 02:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB94C9E08CDD33388574B0B7C30BDC528E89FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863897   (921330) от 28.01.2015
+
+Кольт 45 / Colt 45 (2014) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винсент Милиес несет службу в рядах Национальной полиции. Он является превосходным оружейником и первоклассным инструктором по стрельбе. Однажды, получается так, что карьера этого человека переворачивается. Когда он знакомится с Мило Карденом, в судьбе героя наступает череда различных перемен. Карден втягивает Винсента в спираль событий. Со временем Милиес будет (   Читать дальше...   )Производство: Франция, Бельгия | La Petite Reine, Orange Studio, Entre Chien et LoupЖанр: Боевик, Криминал, ТриллерРежиссер: Фабрис Дю ВельцАктеры: Амр Вакед, Рихард Заммель, Элис Тальони, Симон Абкарян, Жерар Ланвен,
+Филипп Наон, Джои Старр, Микаела Фишер, Джо Престиа, Мик ГулдПеревод: Многоголосый закадровый, любительский (Студия "Paradox")Субтитры: Вшитые отключаемыеЯзык субтитров: Французский, на английскую речь в оригинальной "дороге"Продолжительность: 01:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E87E536E5C214573B42B829BC89E6DF7740F58A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1031153   (652966) от 03.07.2016
-
-Gnomes Vs. Fairies (2016) [En] (5.0B) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Gnomes vs. Fairies игра в стиле Hack 'n' slash-Action RPG platformer. Улучшайте своего гнома тонной предметов, раскачивайте любую из 5 школ Магии Меча, и наслаждайтесь уникальным ретро приключением, круто замешанным на элементах таких Гуру жанра как: Mario 64, Zelda 64, Spiro.Тип издания: LicenseРазработчик: Prismic Studios LLCЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BA45974DD4D7929D30BE24FC11F8253818A4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031159   (652965) от 03.07.2016
 
 RC Racing Off Road 2.0 (2016) [En/De] (1.0) License SKIDROW
@@ -32,7 +6,7 @@ RC Racing Off Road 2.0 (2016) [En/De] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652965.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ I Know a Tale / Я знаю интересную историю (2015) [Ru] Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652877.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Haunted Legends 12: Monstrous Alchemy (2017) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652500.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Immortal Love 4: Black Lotus (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652492.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Twin Mind 3: Ghost Hunter (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652439.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Whispered Secrets 13: Tying the Knot / Нашептанные секреты 13:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652436.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Punished Talents 2: Stolen Awards / Наказанные талантом 2: У�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652315.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Scarlett Mysteries. Cursed Child / Алые Тайны. Проклятое ди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652313.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Bridge To Another World 4: Escape From Oz / Мост в Другой мир 4: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652141.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Pretty Snails / Спаси улиток! (2017) [Ru] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652133.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Orbital Bullet - The 360° Rogue-lite (2022) [Ru/Multi] (1.0.3) License GOG [Sav
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651903.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651888.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Night In The Opera (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651728.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.82.5006) RePack Audioslave
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651496.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651369.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Fierce Tales: The Dog's Heart Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651314.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Astebreed (2014) [En/Ja] (2.04) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651131.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651117.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Spider: Rite of the Shrouded Moon (2015) [Ru/Multi] (1.1.1.11836) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651033.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ LEGO Batman 2. DC Super Heroes (RePack/1.0.0.18994) [Ru/En] 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650783.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Chicken Shoot 2 Edition 2012 (Р) [Multi9\+] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650782.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Lemma (2015) [Multi] (1.0.7.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650662.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) License CPY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650646.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Danse Macabre 7. Florentine Elegy / Танец смерти. Флорентий�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650197.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650123.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72CE5C31E369B3E3AAD96530DEBE79FBD86C9D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291848   (650122) от 27.03.2019
+
+Xenon Racer (2019) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xenon Racer – футуристическая гоночная аркада, события которой развернутся в 2030 году. Вам предстоит стать участником чемпионата среди традиционных рулевых электромобилей на ксеноне. Берите под свой контроль одно из ультрасовременных авто и промчитесь на умопомрачительной скорости по трассам Токио и Дубая.Тип издания: LicenseРазработчик: 3DClouds.itЖанр: Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C27362258E0CB27BB37E6FFE0BDF1FB8749F20A
 ```
 
 https://mybot314.ru/tekegram_catalog/

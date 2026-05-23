@@ -1,107 +1,3 @@
-###  Публикация: 939075   (477119) от 20.09.2015
-
-Transformers: Rise of the Dark Spark / Трансформеры: Битва за Тёмную Искру (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Transformers: Rise Of The Dark Spark связывает вселенные Cybertron и фильмы серии Трансформеры Майкла Бэя (Michael Bay). В проекте будет 40 играбельных персонажей. Вам предстоит охотиться за мощным артефактом Dark Spark. Во время прохождения одиночной кампании за автоботов или десептиконов можно будет переключаться между героями. Transformers: Rise Of The Dark Spark (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Edge of Reality и WayForward TechnologiesЖанр: Action (Shooter) / Strategy (Real-time) / RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4731E5744CDC6A8DFFBBBCDEB9E802FCD650318A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319654   (476859) от 15.08.2019
-
-Stuntman: Ignition (2007) [PS3] [USA] 1.82 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь каскадера опасна и трудна: переломы, ушибы, ссадины — постоянные спутники любого трюкача. Но результатом его работы восхищаются миллионы зрителей. Что чувствует безрассудный храбрец, находясь на тонкой грани между жизнью и смертью? Что заставляет его рисковать ради чужого восхищения? Stuntman: Ignition дает исчерпывающие ответы на эти вопросы. Вам отводится (   Читать дальше...   )Тип издания: LicenseРазработчик: Paradigm EntertainmentЖанр: Arcade, RacingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E07CA8E0673D94623121CBC1AD57A6C224170ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319832   (476804) от 15.08.2019
-
-Ninja Gaiden Sigma 2 (2009) [PS3] [USA] 2.80 [CFW] [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта игра является сиквелом к популярному экшену от Tecmo - Ninja Gaiden Sigma. Вам снова предстоит вжиться в роль ниндзя по имени Ryu Hayabusa на его миссии отмщения и предотвращения уничтожения человеческой расы. Вооружившись огромным ассортиментов оружия настоящих ниндзя, помогите герою пройти через мир, наполненный опасностями и испытаниями. Бои теперь выглядят (   Читать дальше...   )Тип издания: RepackРазработчик: Team NINJAЖанр: Action, Hack and slashЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838F48794E986E7550F16A4E46EC8228279F147C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320150   (472882) от 17.08.2019
-
-Ben 10 Ultimate Alien: Cosmic Destruction (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бен теперь является международным мега-звездным супергероем, после того как его секретная личность была раскрыта. Оснащенный новой Ultimatrix, Бен должен путешествовать по всему миру, чтобы собрать древние артефакты Galvan, с помощью которых удастся спасти Землю от таинственного космического шторма. Возьмите под свой контроль Бена и 17 новых инопланетных форм из (   Читать дальше...   )Тип издания: LicenseРазработчик: Papaya StudioЖанр: Action, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CF6E23E633A55DC1A0AADDF2736042C43214FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320272   (472880) от 17.08.2019
 
 Catherine (2011) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
@@ -110,7 +6,7 @@ Catherine (2011) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472880.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Resident Evil 5 + DLC (2009) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472780.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Severed (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472486.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471039.jpg" />
 </div>
 
 
@@ -223,7 +119,7 @@ Borderlands 2 [Xbox360] [ENG] [Region Free] [LT+ 2.0] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470939.jpg" />
 </div>
 
 
@@ -253,7 +149,7 @@ Killer Is Dead (2013) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470712.jpg" />
 </div>
 
 
@@ -279,7 +175,7 @@ Cartoon Network. Punch Time Explosion XL (2011) [PS3] [USA] 3.72 [Cobra ODE / E3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470572.jpg" />
 </div>
 
 
@@ -306,7 +202,7 @@ The Walking Dead Survival Instinct (2013) [Xbox360] [RegionFree] [FreeBoot] [Uno
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470493.jpg" />
 </div>
 
 
@@ -332,7 +228,7 @@ Borderlands 2 (2014) [PSVita] [USA] 3.60 [HENkaku] [Repack / 1.09 ] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470242.jpg" />
 </div>
 
 
@@ -359,7 +255,7 @@ Puyo Puyo Tetris (2014) [PS3] [JAP] 3.40 [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469308.jpg" />
 </div>
 
 
@@ -386,7 +282,7 @@ F1 2012 [Xbox360] [ENG] [Region Free] [LT+ v2.0] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468697.jpg" />
 </div>
 
 
@@ -413,7 +309,7 @@ Sonic and the Black Knight (2009) [Wii] [PAL] [License] [En]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468300.jpg" />
 </div>
 
 
@@ -439,7 +335,7 @@ Super Mario Maker 2 (2019) [Switch] [USA] 10.0.4 [NSP] [License / 3.0.1] [Ru/Mul
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467927.jpg" />
 </div>
 
 
@@ -465,7 +361,7 @@ Trinity: Souls of Zill O’ll (2010) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466056.jpg" />
 </div>
 
 
@@ -491,7 +387,7 @@ NBA 2K16 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464166.jpg" />
 </div>
 
 
@@ -517,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463924.jpg" />
 </div>
 
 
@@ -545,7 +441,7 @@ NBA 2K16 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463894.jpg" />
 </div>
 
 
@@ -571,7 +467,7 @@ Spore Hero (2009) [Wii] [PAL] [License] [En/Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463867.jpg" />
 </div>
 
 
@@ -597,7 +493,7 @@ Tom Clancy's Splinter Cell: Blacklist - Deluxe Edition (2013) [Xbox360] [RegionF
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461751.jpg" />
 </div>
 
 
@@ -623,7 +519,7 @@ God of War II (2007) [PS2] [EUR] [License] [Ru/Multi]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460503.jpg" />
 </div>
 
 
@@ -649,7 +545,7 @@ Martian Panic [Wii] [PAL] [ENG] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460365.jpg" />
 </div>
 
 
@@ -675,7 +571,7 @@ Stray (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459321.jpg" />
 </div>
 
 
@@ -686,6 +582,116 @@ Stray переносит игрока в далекое будущее, мир �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87D36484A6988F40BCEB0CE6F5B4B1B595414C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161518   (458463) от 01.09.2017
+
+Heavenly Sword (2007) [PS3] [EUR] 3.40 [Repack / 1.10] [Ru/Multi]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боги никогда не даруют свою силу просто так. За право владеть ею смертные должны распрощаться со своей прежней жизнью. Именно такую цену пришлось заплатить юной Нарико, когда она взяла в руки Меч Богов. Девушка стала лучшей воительницей среди людей, но, увы, ненадолго. У нее есть только несколько часов до того, как грозное оружие поглотит ее жизненные силы. Но этого (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Action, Slasher, 3D, 3rd PersonЯзык озвучки: Английский и другиеЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBCCBB7944058A844656DC05D2A576421231740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568736   (457276) от 10.08.2022
+
+Jurassic World Evolution (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.34 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jurassic World: Evolution - игра в мире "Парка Юрского периода", в которой вам предстоит создать собственный парк с динозаврами и заняться его развитием. Игроки смогут не только строить здания парка, но и выводить новые виды динозавров, исследовать и улучшать их - все как в оригинальной серии фильмов. Биоинженерия поможет создать динозавров, способных думать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Frontier DevelopmentsЖанр: Simulation, StrategyЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDFB077D4A8B3ED6D7E57198EA01D1A8DAC4F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405827   (457232) от 11.09.2020
+
+Vampyr (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1918. Вас зовут Джонатан Рид, и вы недавно стали вампиром. Будучи доктором, вы должны найти лекарство от страшной эпидемии. А будучи вампиром, вы вынуждены кормиться теми, кого вы поклялись лечить. Справитесь ли вы с монстром внутри себя? Вам предстоит выжить в борьбе с охотниками на вампиров, жуткими скалями и другими сверхъестественными существами. Используйте (   Читать дальше...   )Тип издания: LicenseРазработчик: DONTNOD EntertainmentЖанр: Action, RPG, 3st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F39AFAF592C04B2FF84E9F76BD42A200B2AED79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550605   (456926) от 22.09.2012
+
+Dead or Alive 5 [Xbox360] [ENG] [PAL] [LT+ 2.0] (2012)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый выпуск культовой серии драк с участием сексуальных героинь возвращается после нескольких лет отсутствия — многочисленным фанатам на радость!
+
+Пятая часть Dead or Alive продолжает грандиозную историю сериала Dead or Alive, предыдущая часть которого вышла в 2005 году. Dead or Alive является одним из родоначальников жанра «трехмерных драк», выступая в одной лиге с такими хитами как Tekken, Virtua Fighter и Soul Calibur.
+
+Dead or Alive 5 станет двенадцатой игрой в серии и закрепит успех прошлогоднего эксклюзива Dead or Alive: Dimensions для консоли 3DS (было продано свыше 400,000 копий игры). В России появится как стандартное, так и коллекционное издание игры. Хотя предыдущие выпуски были эксклюзивны для платформы Xbox 360, новая часть заглянет не только на X360, но еще и на PlayStation 3, впервые за десять лет!
+
+Отныне самые сексуальные барышни готовы расцарапать друг другу милые лица, не щадя сил — все повреждения корректно обсчитываются на телах персонажей, а улучшенная физика движений отображает приемы бойцов, (   Читать дальше...   )Жанр: Arcade (Fighting) / 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66745ED0F18C34287BA4EAD700795008FDB4169D
 ```
 
 https://mybot314.ru/tekegram_catalog/

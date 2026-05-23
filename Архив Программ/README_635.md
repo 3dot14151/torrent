@@ -6,7 +6,7 @@ Techsmith Snagit 13.1.2 Build 7933 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730498.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AdwCleaner 5.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730467.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Acronis Disk Director 12 Build 12.5.163 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730448.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ICE Book Reader Professional 9.5.0 + Lang Pack + Skin Pack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730441.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Opera Developer 39.0.2245.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730432.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Futuremark 3DMark 2.22.7336 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730396.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ uTorrent 3.5.5 Build 46200 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730395.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ XnView 2.40 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730362.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MakeMKV 1.10.5 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730355.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730349.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kylo – браузер для HD-Мониторов, телевизоров 0.8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_730345.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ FastStone MaxView 3.1 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730340.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Shadow Defender 1.4.0.665 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730336.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Total Commander 10.00 Extended 22.2 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730335.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Hotspot Shield Elite 5.20.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730330.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ TechSmith Camtasia Studio 9.0.4 Build 1948 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730325.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Dreamweaver CC 2017 17.1.0.9583 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730318.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Bandicam 3.1.0.1064 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730286.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730280.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Ashampoo Driver Updater 1.1.0.27413 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730272.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ DAEMON Tools Lite 10.4.0.190 Unlocked [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730265.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adobe Media Encoder CC 2017.1 11.1.0.170 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730258.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Master PDF Editor 5.3.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730062.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730056.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ ExamDiff Pro Master Edition 10.0.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730054.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ ExamDiff Pro Master Edition 10.0.1.8 RePack (& Portable) by elchupacabra 10.0.1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730047.jpg" />
 </div>
 
 

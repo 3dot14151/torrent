@@ -6,7 +6,7 @@ XCOM: Enemy Unknown [Ru/En] (P/1.0.0.5443) 2012 l FairLight 3xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406252.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Doom 3 BFG Edition [En] (RePack) 2012 | R.G Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406072.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ DOOM 3 BFG Edition [Xbox 360] [ENG] [Pal] (LT+3.0/15574) (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406010.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Magicka / Magicka: Ну очень эпическая игра + 19 DLC [Ru/En] 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406009.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Halo 4 [Xbox 360] [RegionFree] [Rus] [LT+2.0/15574] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406000.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Mark of the Ninja [MULTi6/-] (Steam-Rip) 2012 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405999.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Viking: Battle for Asgard [Ru/En/Multi7] (RePack/1.0.u.1) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405482.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405437.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405364.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Spec Ops: The Line + 2 DLC [Ru/En] (RePack/1.0.6890.0) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405359.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Viking: Battle for Asgard [Ru/En/Multi7] (RePack/1.0.u.1) 2012 | SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405239.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | Luminous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405216.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Euro Truck Simulator 2 [Ru/Multi4] (RePack) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405141.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ No Man’s Sky (2016) [Ru/Multi] (1.37/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404526.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ NBA 2K13 [En] (RePack/1.0.1.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404354.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Viking: Battle for Asgard [Ru/En/Multi7] (P/1.0.u.1) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404271.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Medal of Honor: Warfighter - Deluxe Edition [En/Ru] (Update №1) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_403431.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Medal of Honor: Warfighter - Digital DELUXE EDITION [En/Ru] (Crack/v.1.0.0.2) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_403373.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403371.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Medal of Honor: Warfighter - Limited Edition [En/Ru] (Crack/v.1.0.0.2) 2012 | 3D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_403368.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Medal of Honor Warfighter: Limited Edition [Ru/Multi8] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403313.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Hob (2017) [Ru/Multi] (1.10.2.0) Repack CoolGames
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402980.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402755.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (L/1.5/5 DLC) 2012 3xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402741.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402652.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Medal of Honor Warfighter: Deluxe Edition [Ru] (Lossless RePack/1.0.0.2) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402594.jpg" />
 </div>
 
 

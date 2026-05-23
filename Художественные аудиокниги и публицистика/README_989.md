@@ -1,81 +1,3 @@
-###  Публикация: 1809968   (64579) от 02.08.2025
-
-Григорий Володин | История Телепата. Газлайтер (Книги 1-11) (2023-2025) [MP3, Никита Петров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что телепаты опасны.Говорят, что телепаты не щадят чувства других. Говорят, что телепаты плевать хотели на чужое личное пространство. Да и вообще, говорят, что мы те еще газлайтеры. И знаете, что? Всё это отчасти правда, но ведь с нами же весело!Жанр: Фантастика, попаданцыИздательство: ИДДКПродолжительность: 90:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE08A69B5880DA26473B37545C96A92267B041E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809906   (64572) от 02.08.2025
-
-Findroid | Возвращение демонического мастера (Книга 1) (2023) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Возвращение демонического мастера» – роман, первая книга одноименного цикла, жанр героическое фэнтези. В пять лет я попал в Ад, и чтобы выжить мне пришлось стать там сильнейшим. Двести лет спустя, пройдя бесчисленное множество сражений и потеряв всех кто был мне дорог, я смог вернуться в прошлое. Начать всё с начала. Мне снова пять, но эта жизнь будет иной..Жанр: фэнтезиИздательство: ИДДКПродолжительность: 08:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEC18141BC0A300566BB15737B6743D4D0FB0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810043   (64570) от 02.08.2025
-
-Селина Катрин | Жена по вызову с другой планеты (2024) [MP3, Леди Арфа]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я заключила фиктивный брак через агентство, чтобы получить визу на планету Цварг. О своей цели соврала – будущий муж не поверит, а цварги в принципе подозрительные. Памятуя психологию цваргов, ещё и брякнула, что настаиваю на пробном сексе до брака, чтобы точно держался подальше. Кто же знал, что муж таким красавчиком окажется?Жанр: космическая фантастика, любовное фэнтезиИздательство: ИДДКПродолжительность: 04:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030B2CB3B22DEBAA4E410DBA5D95232A6086BC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809908   (64569) от 02.08.2025
 
 Findroid | Избранник Башни (Книги 1-10) (2022-2025) [MP3, Алексей Семенов, Александр Солоненко]
@@ -84,7 +6,7 @@ Findroid | Избранник Башни (Книги 1-10) (2022-2025) [MP3, А�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64569.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64568.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64560.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64559.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64555.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64554.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64552.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64550.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ Findroid | Контрактор (Книга 3) (2025) [MP3, Максим Пол�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64549.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64548.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ Findroid | Контрактор (Книга 1) (2025) [MP3, Максим Пол�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64547.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64543.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64541.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64538.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64537.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64536.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64535.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64534.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64518.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64507.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64477.jpg" />
 </div>
 
 
@@ -633,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64045.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64044.jpg" />
 </div>
 
 
@@ -670,6 +592,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7BB62961C85D8EFA7A5DE94E6A726E2236162C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821462   (64041) от 02.10.2025
+
+Росс Макдональд | Лью Арчер (Книга 1). Живая мишень (2025) [MP3, Александр Степной]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64041.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Живая мишень» - первый роман Росса Макдональда, где главным действующим лицом становится частный детектив Лью Арчер, интеллектуал с железными кулаками.
+Лью Арчера нанимает красивая женщина, миссис Сэмпсон, чтобы тот отыскал ее пропавшего мужа, нефтяного магната на двадцать лет старше нее. Ральф Сэмпсон прилетел в Лос-Анджелес из Лас-Вегаса вчера днем в своем частном (   Читать дальше...   )Жанр: детективИздательство: Аудиокнига своими рукамиПродолжительность: 05:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D54DD034D65D104497D369A8DB7357FE9D4F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821463   (64040) от 02.10.2025
+
+Росс Макдональд | Лью Арчер (Книга 3). Смерть на выбор (2025) [MP3, Александр Степной]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64040.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Смерть на выбор" - известный роман Росса Макдональда о приключениях частного детектива Лу Арчера. Безутешная мать просит разыскать ее пропавшую дочь, по слухам, сбежавшую с гангстером. Вполне рутинное дело - так считает Арчер поначалу. Но поиски девушки приводят его то на роскошный курорт, то в мрачные бандитские кварталы, то в притоны наркоманов. Необычно? (   Читать дальше...   )Жанр: детективИздательство: Аудиокнига своими рукамиПродолжительность: 07:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0B69F03B334C5F001DFDC549428CACB3941B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821467   (64039) от 02.10.2025
+
+Росс Макдональд | Лью Арчер (Книга 4). Ослепительный оскал (2025) [MP3, Александр Степной]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просьба эксцентричной миллионерши разыскать нечистую на руку горничную и заставить вернуть украденные драгоценности вдруг превращается в дело об убийстве и таинственном исчезновении юного наследника огромного состояния.Жанр: детективИздательство: Аудиокнига своими рукамиПродолжительность: 06:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8992FB0EA78E59F30E1B31EF00727BFE624230D
 ```
 
 https://mybot314.ru/tekegram_catalog/

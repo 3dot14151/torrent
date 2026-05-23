@@ -1,56 +1,3 @@
-###  Публикация: 1566145   (6526) от 22.08.2025
-
-Король-Рыбак / The Fisher King (1991) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Джек — популярный радиоведущий. У него есть чувство юмора, сарказм и профессиональный цинизм, который в итоге оборачивается трагедией: один из постоянных слушателей последовал его ироничному совету: вошел в людное кафе и разрядил полную обойму в ничего не подозревающих посетителей.
-Потрясенный Джек бросает работу и уходит в запой, погружаясь на дно отчаяния. В этот (   Читать дальше...   )Производство: США, TriStar PicturesЖанр: фэнтези, драма, комедияРежиссер: Терри ГиллиамАктеры: Робин Уильямс, Джефф Бриджес, Аманда Пламмер, Мерседес Руэль, Майкл Джитер, Уильям Джей Маршалл, Адам Брайант, Пол Ломбарди, Дэвид Хайд Пирс, Тед Росс, Лара ХаррисПеревод: Дублированный (Варус Видео), Многоголосый профессиональный (1 Канал)Язык озвучки: Русский, АнглийскийСубтитры: Русскиe, АнглийскиeПродолжительность: 02:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6983A7C120836FC05249E542EB9A3BE84F9ACE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813931   (6517) от 22.08.2025
-
-Голый пистолет 33 1/3: Последний выпад / Naked Gun 33 1/3: The Final Insult (1994) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лейтенант полиции Лос-Анджелеса Фрэнк Дребин женится на Джейн и уходит на пенсию, пытаясь разобраться с нахлынувшими семейными проблемами. В это же время в тюрьму к отбывающему срок известному взрывнику Рокко приходит представитель арабских террористов и предлагает ему и его матери-подельнице совершить крупный теракт за 5 миллионов долларов. Не в силах справиться (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: комедия, криминалРежиссер: Питер СигалАктеры: Лесли Нильсен, Присцилла Пресли, Джордж Кеннеди, О. Дж. Симпсон, Фред Уорд, Кэтлин Фримен, Анна Николь Смит, Эллен Грин, Эд Уильямс, Рэй БиркПеревод: Многоголосый профессиональный (Видеобиз)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CF862DC717604810CF048F81331F368A51855C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813882   (6513) от 22.08.2025
 
 Голый пистолет 2 1/2: Запах страха / The Naked Gun 2½: The Smell of Fear (1991) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6513.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6500.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6499.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6348.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6338.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6336.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6311.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6300.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6231.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6230.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6208.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6174.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6168.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6140.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6139.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6066.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6062.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6059.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6057.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6029.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6025.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6020.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6013.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6008.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EDA4BE0F8D8C8C9AD20571A59D485D23FB59C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814444   (5993) от 25.08.2025
+
+Ненастоящий вампир / Liar, Liar, Vampire (2015) HDTVRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой - Дэвис, с виду вроде вполне обычный парень, который всегда старается оставаться в тени и не привлекать внимания к своей скромной персоне. Но парню это не к лицу и Дэвис решает исправить cитуацию.Однако наш герой решил пойти на хитрость, а точнее - соврать всем, что он вампир. Парень подумал, что такой персонаж будет пользоваться популярностью, ведь (   Читать дальше...   )Производство: США / Pacific Bay Entertainment, Pacific Bay Entertainment CanadaЖанр: комедия, семейныйРежиссер: Винс МарчеллоАктеры: Рахарт Адамс, Брэк Бэссинджер, Тиера Сковбай, Алекс Захара, Полин Иган, Оливия Райан Штерн, Ларисса Альбукерке. Сэмюэл Патрик Чу, Тай Вуд, Эрик БемпонгПеревод: Двуголосый любительский (TheAngelOfDeath, SweetySacrifice)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26459FEC57A5F609B16707D679BAB9F86A59508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814597   (5975) от 25.08.2025
+
+Девушка-змея и ведьма с серебряными волосами / Hebi musume to hakuhatsuma / The Snake-girl and the Silver-haired witch (1968) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшная сказка про девочку Саюри, которая провела своё детство в приюте для сироток, пока её не забрал отец. И казалось бы, что в её жизни теперь начнутся новые и радостные дни, но старый особняк куда привёз отец, встречает её смертью служанки, матерью попавшей в автомобильную катастрофу и забывшей, что у неё была дочь, а где-то в сумерках кроется страшная ведьма (   Читать дальше...   )Производство: Япония / Daiei Motion Picture Co. Ltd.Жанр: ужасы, фэнтезиРежиссер: Юаса НориакиАктеры: Тадаши Датэ, Марико Фукухара, Юко Хамада, Сей Хирайзуми, Сабуро Ишигуро, Йосиро Китахара, Осаму МаруямаПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (Contello), английскиеПродолжительность: 01:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AE6A5BDEE541590B4EA429F550221B024B61B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 484562   (89324) от 18.04.2012
-
-Милый друг / Bel Ami (2012) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Жоржа влекут деньги, секс и власть. Обольстительная внешность и железные нервы карточного игрока, обворожительные манеры и когти хищника — и Париж, город порока и страсти, лежит у его ног…Жанр: ДрамаРежиссер: Деклан Доннеллан, Ник ОрмеродАктеры: Роберт Паттинсон, Кристина Риччи, Ума Турман, Кристин Скотт Томас, Наталия Тена, Колм Мини, Холли Грэйнджер, Филип Гленистер, Пип Торренс, Джеймс ЛэнсПеревод: ДублированныйПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7A95367C63A599103B6C418D5863212AD7943B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484370   (89305) от 18.04.2012
-
-Разделитель / The Divide (2011) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-События фильма разворачиваются в подвале одного из зданий в Нью-Йорке, который стал своего рода спасательным бункером для восьмерых людей, когда город был разрушен в результате мощного взрыва неизвестного происхождения.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Ксавьер ГенсПродюсер: Натаниель Ролло, Даррин Уэлш, Росс М. ДинерштейнАктеры: Лорен Джерман, Майкл Бьен, Майло Вентимилья, Кортни Б. Вэнс, Эштон Холмс, Розанна Аркетт, Иван Гонзалез, Майкл Эклунд, Дженнифер БланкПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB55099C69258F01462648F6D34E93A82C3C9A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484698   (89296) от 18.04.2012
 
 Из ада / From Hell (2001) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89296.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89121.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89095.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89089.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89088.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89080.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89072.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89047.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89044.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88934.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88905.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88834.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88783.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88733.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88711.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88702.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88701.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88700.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88697.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88683.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88681.jpg" />
 </div>
 
 
@@ -614,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88666.jpg" />
 </div>
 
 
@@ -640,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88494.jpg" />
 </div>
 
 
@@ -666,13 +614,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88488.jpg" />
 </div>
 
 
 ###  Подробнее
 
 На удаленном острове семь будущих агентов ФБР проходят решающий тест, чтобы попасть в элитный отдел «охотников за разумом» — людей, по мельчайшим уликам и любым сведениям составляющих психологические профили опаснейших преступников.Но испытание становится слишком реальным, когда в их группе оказывается настоящий серийный убийца. Успеют ли оставшиеся в живых выявить маньяка в своих рядах, пока он не расправился с каждым поодиночке?Жанр: Триллер, криминал, детективРежиссер: Ренни ХарлинАктеры: Эйон Бэйли, Клифтон Коллинз мл., Уилл Кемп, Вэл Килмер, Джонни Ли Миллер, Кэтрин Моррис, Кристиан Слэйтер, Джеймс Тодд Смит, Патрисия ВеласкесПеревод: Дублированный, Многоголосый закадровый,  АвторскийПродолжительность: 01:45:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482997   (88477) от 14.04.2012
+
+Красная Шапочка / Red Riding Hood (2011) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валери — девочке в красном плаще — предстоит раскрыть, кто же в её родной деревушке является оборотнем. Между тем на личном фронте у Валери тоже не всё просто: мама хочет выдать её замуж за богатого кузнеца Генри, тогда как девушка влюблена в плохиша Питера, местного дровосека.Жанр: Ужасы, Фэнтези, Триллер, ДетективРежиссер: Кэтрин ХардвикАктеры: Аманда Сейфрид, Шило Фернандез, Гари Олдман, Лукас Хаас, Вирджиния Мэдсен, Билли Бёрк, Майкл Шэнкс, Джули Кристи, Майкл Хоган, Даррен ШахлавиПеревод: ДублированныйСубтитры: Русские, Английские - (UTF-8)Язык субтитров: Русские, АнглийскиеФормат: MKVПродолжительность: 01:39:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482933   (88445) от 14.04.2012
+
+Франклин / Franklyn (2008) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88445.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета положены судьбы четырёх главных героев. Эссер — старый сломленный жизнью человек, скитающийся по переполненным бездомными и нищими улицам города в поисках своего пропавшего сына. Майло — тридцатилетний мужчина, отчаянно пытающийся вернуть себе чистоту первой любви. Эмилия — прекрасная студентка факультета искусств, чьи работы наполнены суицидальными мыслями и смертью. Прист — безжалостный детектив, ищущий возмездия на улицах метрополиса под названием Meanwhile City, гигантского монолита, управляемого религиозными фанатиками. Эти четверо людей — радикально разные, но в результате их миры столкнутся друг с другом и в стремительном финале полёт одной-единственной пули разрешит судьбу героевЖанр: Фэнтези, ТриллерРежиссер: Джеральд МакМорроу / Gerald McMorrowАктеры: Райан Филипп, Сэм Райли, Бернард Хилл, Ричард Койл, Ева Грин, Сюзанна Йорк, Джеймс Фолкнер, Мэттью ФлиннПеревод: Профессиональный (многоголосый закадровый) «Lizard Cinema Trade»Продолжительность: 01:37:55
 
 ## Скачать торент
 ```bash

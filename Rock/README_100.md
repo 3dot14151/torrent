@@ -6,7 +6,7 @@ Goat Generator - Goat Generator (2024) [MP3|320 Kbps] <heavy psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45246.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jon Anderson and The Band Geeks - True (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45226.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Gilmour - Luck and Strange (2024) [MP3|320 Kbps] <Progresiv Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44285.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ghostwriter Society - Long Weekend (2024) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43979.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rush - Ten songs for you (2024) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43898.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The The - Ensoulment (2024) [MP3|320 Kbps] <Pop Rock, Alternative, Indie>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43769.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tony Levin - Bringing It Down to the Bass (2024) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43758.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Chelsea Smiles - Nowhere Ride E.P. (2005) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43668.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Local H - Whatever Happened To P.J. Soles? (2004) Reissue, Remaster, 2024, Studi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43142.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Residents - Demons Dance Alone (2019) pREServed Edition, 2024, Cherry Red Re
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43134.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Paul McCartney & Wings - Red Rose Speedway (1973) Archive Collection, 2018, Paul
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40092.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Widespread Panic - Warfield 2000 #4 (2024) [MP3|320 Kbps] <Southern Rock, Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40066.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Alan Parsons Project - Ammonia Avenue (Sessions) (1984) Remaster, 2024, Aris
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38588.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ A Poets Dream - The Spirit Never Sleeps (2024) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37575.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jackie DeShannon - The Sherry Lee Show (2023) [MP3|320 Kbps] <Country, Soft>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36682.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Redbone - Ten songs for you (2024) [MP3|320 Kbps] <Pop Rock, Singer & Songwriter
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36558.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Marillion - This Strange Engine (Deluxe Edition) (1997) 4 x CD, Compilation, Rem
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36048.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Deep Purple - The Boys From Brazil (2020) Remaster, 2024, Leftfield Media [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35345.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Australian Pink Floyd Show - Exposed In The Light (2012) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35008.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024) 4
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34796.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Vedran Bozic - Planet Led Zeppelin (Live At Vintage Industrial Bar, Zagreb) (202
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33029.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Echolyn - Time Silent Radio vii II (2025) 2 x CD [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31041.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Pink Floyd - The Dark Side Of The Moon - Live At Wembley 1974 (2023) Master [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30964.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jack Lancaster & Robin Lumley - Peter And The Wolf (1975) [MP3|320 Kbps] <Progre
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29907.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Led Zeppelin - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29701.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ ACDC - Back Home With Brian (2024) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28814.jpg" />
 </div>
 
 

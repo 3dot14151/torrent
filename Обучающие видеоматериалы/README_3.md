@@ -1,29 +1,3 @@
-###  Публикация: 1859297   (1061067) от 15.03.2026
-
-Вячеслав Дубынин | Мозг: стресс и выгорание (2022) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Хронический стресс опасен истощением всех систем нашего тела. Здесь важнейшую роль играет гормон кортизол, чьи функции мы подробно обсудим. Как стресс влияет на формирование поведенческих зависимостей (игромания и т.д.)? Что понимается под выгоранием? Почему при этом страдает иммунитет, сон, функции сердца? Что такое «психозащиты» с точки зрения нейробиологии? Растёт (   Читать дальше...   )Жанр: видеоурок, лекция, нейрофизиология, психологияЯзык озвучки: русскийПродолжительность: 02:36:58Реклама: наложение на видео (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8E6C68B0293236623F54B9709CCBA76E4F431E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859288   (1061065) от 15.03.2026
 
 Прямая речь, Вячеслав Дубынин | Мозг: как мы думаем и принимаем решения (2022) WEB-DL [AD] [RU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061065.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ OTUS, Андрей Буранов, Алексей Цыкунов | Administrator
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061030.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Mindvalley, Мэй Маск, Мари Даймонд и др. | Годовая �
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061004.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ TutorPlace, Александр Воеводов | Текстурирование
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060990.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060892.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ vabrain, Вячеслав Дубынин | Мозг против ИИ: есть 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060556.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ vabrain, Вячеслав Дубынин | Нейромедиаторы радо
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060555.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ vabrain, Вячеслав Дубынин | Уровни любви: от ген�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060554.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060553.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ vabrain, Вячеслав Дубынин | Нейрофизиология при
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060552.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060549.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ vabrain, Вячеслав Дубынин | Физиология здоровог
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060548.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060540.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Magisteria, Анна Пожидаева | Античная мифология в
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060207.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060206.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060203.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ karpov.courses, Ярослав Шуваев | RAG-боты и агенты LLM [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059894.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ TutorPlace, Кирилл Калужских | Нейросети в HR (2025) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059891.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Magisteria, Ольга Иванова | Теория музыки для все�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059811.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Level One, Никита Петров | Ключ к памяти (2021) WEB-DL [R
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059810.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Level One, Анастасия Беляева, Екатерина Гресь, А�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059803.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ TutorPlace, Диана Кутепова | Стилист для начинающ
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059800.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059799.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059797.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059682.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D14A85CC126F3ADD7F852AC69D54686609C3F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857165   (1059584) от 04.03.2026
+
+TutorPlace, Анастасия Оршанская | Французский язык (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите научиться говорить по-французски с нуля? Освойте базовые фразы, глаголы всех групп и ключевые грамматические конструкции, чтобы чувствовать себя уверенно в любой ситуации!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, саморазвитие, французский языкЯзык озвучки: русский, французскийПродолжительность: 03:23:37Реклама: наложение на видео и в презентации (плашка спонсора и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FDDD98961FE05CB287511F73E1DDB2016135E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

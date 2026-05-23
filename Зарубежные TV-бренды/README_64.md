@@ -1,29 +1,3 @@
-###  Публикация: 915663   (591812) от 06.07.2015
-
-Discovery: Разрушители легенд. Спецвыпуск Симпсоны / MythBusters. The Simpsons Special (2015) WEB-DLRip (Сезон 15, эпизод 01) Jetvis Studio
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Одноголосый закадровый - Jetvis StudioПродолжительность: ~ 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126E9A6958762635FAFCE3A274DC891969C86B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915467   (591776) от 06.07.2015
 
 Animal Planet. Природа Ближнего Востока / Wildest Middle East (2014) HDTVRip (Сезон 1, серии 1-5 из 5)
@@ -32,7 +6,7 @@ Animal Planet. Природа Ближнего Востока / Wildest Middle E
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591776.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery: Разрушители легенд. Спецвыпуск Индиа�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591775.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591772.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591335.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591157.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590850.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Da Vinci Learning: BBC: Музыка простых чисел / The Music of th
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590825.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Discovery. Гаражное золото / Garage Gold (2014) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590388.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589748.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ NG: Дикая сторона кошек / Wild Side of Cats (2012) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589503.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ NG: Дикая река Конго / Wild Congo (2013) HDTVRip [H.264/720p-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589172.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588931.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588248.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587910.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ BBC: Дикая Африка и Маленькие гиганты / Wild Africa 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587015.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586168.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ NG: Миссия Плутон (Встреча с Плутоном) / Mission Plu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585749.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585586.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ Animal Planet: В дикие края с Эваном. Киты и акулы / 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585103.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ BBC: Галапагосы / Galapagos (2006) HDTVRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_584600.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ BBC: Прогулки с чудовищами / Walking with Beasts (2001) 2хDV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_584590.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ Discovery: Под Нью Йорком / UnderNew York (2008) IPTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584136.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Discovery: Спасение подлодки - Специальный выпус
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584050.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Animal Planet: Cинее царство (Лазурная страна). Кит�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583816.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ BBC: Мир природы. Бабочки. Британская страсть 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583811.jpg" />
 </div>
 
 
@@ -676,6 +650,33 @@ BBC: Мир природы. Бабочки. Британская страсть 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5B1B98D4CBB37D404680D22F5D7E9E1F130EC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359507   (583094) от 05.07.2011
+
+Discovery: Любитель опасностей / Dangerman (2004) IPTVRip [4 из 4]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Идеальная буря / The Perfect Storm
+Любитель экстремальных съемок Джеф Макклей отправляется на Тайвань, Южную Корею и США, чтобы сделать фотографии разрушительных тайфунов и ураганов прямо изнутри.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 4x~00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF237EF8A6A3FC37184E262033D30809369FAB03
 ```
 
 https://mybot314.ru/tekegram_catalog/

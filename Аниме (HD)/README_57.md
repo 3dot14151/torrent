@@ -6,7 +6,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 эп.] WebRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13630.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nazotoki wa Dinner no Ato de | The Dinner Table Detective | Разгадыван
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13496.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shiunji-ke no Kodomo-tachi / The Shiunji Family Children / Дети семьи �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13485.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | Ki
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13418.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chuuzenji-sensei Mononoke Kougiroku: Sensei ga Nazo o Toite Shimau kara. | Жу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13403.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ninja to Koroshiya no Futari-gurashi | A Ninja and an Assassin Under One Roof | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13399.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ A Rank Party o Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu o Meza
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13236.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kowloon Generic Romance | Обычная романтика в Цзюлуне [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13209.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Teogonia | Теогония [2025, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13206.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ mono | Моно [2025, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13200.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Hibi wa Sugiredo Meshi Umashi / Food for the Soul / Дни проходят, а 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13189.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Classic Stars | Звёзды классики [2025, TV, 13 эп.] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13172.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Kuroshitsuji: Midori no Majo Hen | Black Butler: Emerald Witch Arc | Тёмны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13093.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Vigilante: Boku no Hero Academia Illegals | My Hero Academia: Vigilantes | Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12999.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Shirohiyo | Я белый свин-аристократ, ко мне верну�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12997.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kusuriya no Hitorigoto (2025) | The Apothecary Diaries (2025) | Записки �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12614.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Kaijuu 8-gou: Hoshina no Kyuujitsu | Kaiju No. 8: Hoshina's Day Off | Кайдз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12229.jpg" />
 </div>
 
 

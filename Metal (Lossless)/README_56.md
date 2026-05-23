@@ -6,7 +6,7 @@ Pestilence - Exitivm (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908756.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rotting Christ - Rituals (2016) Japanese Edition [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907903.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anthrax - For All Kings (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907828.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Leprous - Aphelion (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907510.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Killswitch Engage - Alive or Just Breathing (2002) Reissue, 2005, Roadrunner Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907493.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bornholm - Primaeval Pantheons (2016) [FLAC|Lossless|image + .cue] <Pagan Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907439.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Celtefog - Sounds of the Olden Days (2016) [FLAC|Lossless|image + .cue] <Pagan B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907436.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Belenos - Kornog (2016) Limited Edition [FLAC|Lossless|image + .cue] <Pagan Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907431.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bifröst - Mana Ewah (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907347.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Behemoth - Messe Noire (2018) [FLAC|Lossless|image + .cue] <Black Metal, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907291.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ArkenFire - Trials Through Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907281.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Behemoth - I Loved You At Your Darkest (2018) Tour Edition, 2020, Nuclear Blast 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907262.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ex Deo - The Thirteen Years Of Nero (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907261.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nothgard - The Sinner's Sake (2016) [FLAC|Lossless|image + .cue] <Pagan Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907205.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Great Old Ones - EOD: A Tale Of Dark Legacy (2017) Deluxe Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907190.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Pestilence - 10 Studio Albums (1988-2021) 20xCD [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907168.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sepultura - Machine Messiah (2017) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907072.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906320.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Redemption - The Art Of Loss (2016) Limited Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906185.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Burning Witches - Dance with the Devil (2020) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905636.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Timo Tolkki’s Avalon - The Enigma Birth (2021) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905470.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Ramchat - Atrana (2016) [FLAC|Lossless|image + .cue] <Black, Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905443.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Doro - True At Heart (1991) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905017.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Impaled Nazarene - Eight Headed Serpent (2021) Limited Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904035.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Brujeria - The Mexecutioner! The Best Of Brujeria (Compilation) (2003) [APE|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903917.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Tank - Honour and Blood (1984) Reissue, 1990, Roadrunner Records [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903818.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Syncovery Premium 11.14.4 build 185 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065643.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ R-Studio Network 9.5 Build 191742 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064738.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ GetDataBack Pro 5.78 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064612.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MiniTool Power Data Recovery 12.8 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064252.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ R-Studio Network 9.5 Build 191733 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064182.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ R-Studio Technician 9.5 Build 191733 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064092.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 7.2 RePack (& Port
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064090.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ R-Studio Network 9.5 Build 191733 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063928.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Hetman Partition Recovery 5.2 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063856.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Hasleo Backup Suite 5.6.2.1 Home | Home Family | Professional | Workstation | Se
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063793.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wise Data Recovery Pro 6.2.2.520 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063717.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Hasleo Backup Suite 5.6.2.1 Professional | Eterprise | Technician Editions RePac
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063648.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ R-Studio Network 9.5 Build 191733 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063618.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Eassos DiskGenius Professional 6.0.1.1645 RePack (& Portable) by elchupacabra [M
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063472.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Auslogics File Recovery 12.1.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063466.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Runtime RAID Recovery 4.05 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063233.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Syncovery Premium 11.14.2 build 183 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063020.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ PassFab 4EasyPartition 4.0.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062980.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062960.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AOMEI Backupper Technician Plus 8.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062018.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ AOMEI Backupper Technician Plus 8.2.0 Lite (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061963.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AOMEI Backupper Technician Plus 8.2.0 Full (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061960.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AOMEI Backupper Technician Plus 8.2.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061811.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ O&O DiskImage Professional 22.1.249 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061681.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Hetman Partition Recovery 5.2 Unlimited Edition RePack (& Portable) by elchupaca
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060897.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Hetman Uneraser Unlimited Edition 7.2 RePack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060887.jpg" />
 </div>
 
 

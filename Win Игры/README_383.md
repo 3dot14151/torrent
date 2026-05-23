@@ -1,29 +1,3 @@
-###  Публикация: 1690456   (124023) от 07.01.2024
-
-The Night is Grey (2024) [En] (1.0) Scene SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-The Night is Grey наполнена мрачной атмосферой темной ночи, которая застала мужчину по имени Грэхем в лесу с бродящими волками. Главный герой спасается бегством, обнаружив небольшой заброшенный домик. Заглянув внутрь, протагонист находит девочку, испуганную и ищущую выход из ловушки. Совместными усилиями предстоит выбираться из загадочного леса, в котором мистическим (   Читать дальше...   )Тип издания: SceneРазработчик: Whalestork InteractiveЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532109   (124013) от 07.01.2024
 
 Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
@@ -32,7 +6,7 @@ Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124013.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Amatsutsumi (2022) [En] (1.02/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123978.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123970.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Fates of Ort (2020) [En] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123953.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Unsolved Case 5: Killer Popularity (2024) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123938.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123876.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Booze Masters: Freezing Moonshine (2023) [Ru/Multi] (5150) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123858.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Faraway Land (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123856.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ About a Boy (2023) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123849.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Ditzy Demons Are in Love With Me / Boku to Koi Suru Ponkotsu Akuma (2018) [M
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123845.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Everspace 2 (2021) [Ru/Multi] (1.1.36529) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123766.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Maze of Realities 3: Ride in the Sky / Лабиринт реальностей 3
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123701.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Twistingo 4: Hummingbird Haven (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123679.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ GoreBox (2023) [En] (14.9.3) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123604.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Around the World 2: Travel to Canada (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123538.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.80) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123497.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Bootlegger's Mafia Racing Story (2024) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123494.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Vagrus The Riven Realms (2021) [En] (1.1.50.1219V/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123477.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123473.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123460.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123374.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dragon Quest Treasures (2023) [Multi] (20240111/dlc) Scene Tenoke [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123356.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123337.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123290.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123234.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6310172414A82BBA0595B4D7043401B6DF12BE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691761   (123232) от 13.01.2024
+
+Supernormal (2024) [En] (1.3.3) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический хоррор с давящей атмосферой, где вам предстоит с головой окунуться в мрачные тайны и испытать неподдельный ужас от происходящего. Казалось бы, что может скрывать в себе обычная на первый взгляд квартира, но переступив порог детектив Уайетт ощущает мистическое присутствие. Вам предстоит узнать связано ли это с его текущим делом о пропажи дочери Сакамото (   Читать дальше...   )Тип издания: SceneРазработчик: Hitori de ProductionsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8250FFA679D1A2809E95483B2DC9E97426F38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

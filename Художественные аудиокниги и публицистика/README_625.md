@@ -1,81 +1,3 @@
-###  Публикация: 1331568   (322777) от 16.10.2019
-
-Майкл Коннелли | «Линкольн» для адвоката (2019) [MP3, Олег Новиков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Микки Холлер – адвокат по уголовным делам. Его офис – заднее сиденье «линкольна», в котором он путешествует между судами Лос-Анджелеса; клиенты – шулеры, драчуны, пьяные водители и тому подобная братия. Для циника Холлера, в общем-то, не важно, виновен или нет его подзащитный. Разве правосудие – не тот же торг? Но наконец в этой мутной водице Микки вылавливает крупную (   Читать дальше...   )Жанр: ДетективПродолжительность: 15:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBA85044FD6456938405FF84A47A05C93AB3973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073859   (322776) от 21.11.2016
-
-Вячеслав Шалыгин | Путь с небес (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Интересы правителя Каллисто князя Сергея Преображенского никогда не выходили далеко за пределы лун Юпитера, ну, максимум – Солнечной системы. Но, как известно, человек предполагает… Судьба явилась к князю в виде загадочного китайского купца, предсказавшего появление в далеком космосе таинственного Рубежа, который привёл к гибели множества обитаемых миров. Сергей (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 16:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1A1E9394AC4E41D0782ED0D40AF944C16E4F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331487   (322646) от 16.10.2019
-
-Макс Фрай | Неизвестным для меня способом (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе человека, который сначала сам, по собственному желанию залезает в сундук и закрывает крышку. А потом начинает в этом сундуке задыхаться. И когда приступ клаустрофобии доводит его до полного истощения, он вдруг открывает глаза и понимает: сундука-то нет! Он исчез, и человек просто лежит на полу. Все рассказы в аудиокниге примерно про это. Ну или для (   Читать дальше...   )Жанр: Фэнтези, МистикаПродолжительность: 07:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEB664A5283936984B2C23D8884C2E10DF6DD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331638   (322640) от 16.10.2019
 
 Юлиан Семёнов | Политические хроники (Книга 6). Третья карта (2019) [MP3, Борис Конышев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322640.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322627.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322213.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322208.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322113.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322111.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322107.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322009.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322002.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321910.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321896.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321874.jpg" />
 </div>
 
 
@@ -403,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321866.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321856.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321846.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321763.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321752.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321703.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321663.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321662.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321659.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321655.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321586.jpg" />
 </div>
 
 
@@ -678,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:264628A1CB6B2ABDC82CDE7B1CF65D920739F436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421209   (321540) от 03.11.2020
+
+Марта Уэллс | Стратегия отхода (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбежав с планеты «Сохранения», Киллербот надеется обрести свободу от запрограммированных в нем обязательств перед людьми. Но, как обычно, что-то идет не так, и андроид снова вмешивается в разборки между корпорациями и бывшими клиентами. Занимаясь просмотром сериалов и самоанализом, он летит на планету Майлу, чтобы добыть информацию о давних врагах. И пускай люди (   Читать дальше...   )Жанр: Зарубежная фантастика, Космическая фантастика, Научная фантастикаПродолжительность: 7:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CC6072D595E59D0B3E32ABF0BB298571498A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958456   (321507) от 22.11.2015
+
+Оганес Диланян | Уролога.net (2011) [MP3, Надежда Винокурова]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321507.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Книга Оганеса Диланяна способна поднять настроение даже самому мрачному мизантропу, а шутки из нее давным-давно стали поговорками, которые живут своей жизнью и гуляют по сети. И если у вас не задался день или просто паршивое настроение, пара страниц из этой книги помогут лучше самого дорогого аптечного лекарства. Конечно, когда-нибудь, через тысячу лет, все мужчины (   Читать дальше...   )Жанр: Юмористическая прозаПродолжительность: 06:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD91583C12C8DFDBD45B8E9E5F92E73B0597CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259269   (321381) от 03.11.2018
+
+Агата Кристи | Эркюль Пуаро. Смерть лорда Эджвера (2018) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321381.jpg" />
+</div>
+
+
+###  Подробнее
+
+И снова великий сыщик всех времен – Эркюль Пуаро пытается докопаться до правды. Американская актриса Сильвия Уилкинсон уже давно не скрывала, что хотела бы расстаться со своим мужем, лордом Эджвером. Ведь у нее на примете был мужчина и познатнее, и побогаче… Поэтому, когда Эджвера нашли мертвым у себя в кабинете, ни у кого не возникло сомнений в виновности Сильвии. (   Читать дальше...   )Жанр: ДетективИздательство: АудиокнигаПродолжительность: 06:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F73FCAC2372A3E7E49FB8BF980F5D417B4EC6C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

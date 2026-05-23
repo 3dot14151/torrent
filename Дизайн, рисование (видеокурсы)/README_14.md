@@ -6,7 +6,7 @@ Alan Ayoubi | Мега-курс Adobe Illustrator - от новичка до п�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012613.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012491.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Justin Marshall | Quick Start to Modeling in Maya. Volume 4 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011959.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gumroad, Olav3D Tutorials | Упрощённая разработка аддон
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011943.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 5 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011922.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011554.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011542.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Jake Parker | Light and Shadow (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010137.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ David Malan | Drawing a Portrait (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010117.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Jake Parker, Will Terry, Ty Carter | Painting Color and Light (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010110.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ James Paick | Environment Design for Games and Film Vol 1-2 (2014) PCRec [En, Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010088.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008502.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ XYZ School, Олег Болдырев | Курс Houdini FX (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008362.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Unrealskills, Даниил Лихоманов | Unreal Engine 4 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008214.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ SVS, Jake Parker | How To Draw Everything version 2 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008088.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Gumroad, Tom Newbury | Look Dev Realistic Skin for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007863.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Gumroad, Tom Newbury | Xgen Hair for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007849.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Gumroad, Tom Newbury | Texturing Realistic Skin for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007841.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VK, Александр Васин | ZBrush. Проекты Александра 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007830.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007543.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ SVS, Jake Parker, Will Terry | Working With Color (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007413.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ SVS, Will Terry | Painting Texture and Details (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007381.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Masterclass, Judd Apatow | Judd Apatow teaches comedy (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007264.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Masterclass, Dan Brown | Dan Brown Teaches Writing Thrillers (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007258.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Gnomon Workshop, Aaron Limonick | Environmental Design and Illustration (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007254.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Marco Bucci | Understanding and Painting the Head (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007249.jpg" />
 </div>
 
 

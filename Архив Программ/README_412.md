@@ -6,7 +6,7 @@ SeaMonkey 2.53.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833047.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ocenaudio 3.7.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833045.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Flash Player 25.0.0.127 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833017.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows 10 TP Language Pack build 10041 (x86) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832971.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Twinkstar 7.0.1000.2003 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832950.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Windows Doctor 3.0.0.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832910.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ K-Lite Codec Pack 13.0.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832903.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ CPU-Z 1.92.0 Portable by ALEX [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832822.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ RuntimePack 17.3.14 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832780.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MiniTool Partition Wizard Technician 10.1 RePack by WYLEK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832775.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe Photoshop Lightroom CC 2015.9 (6.9) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832771.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10041 (x86, x64) (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832728.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10041 (x86, x64) (esd) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832727.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Wondershare Filmora 9.4.6.2 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832694.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Internet Download Manager 6.37 Build 14 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832687.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VueScan Pro 9.7.27 + OCR Languages
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832686.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Easy Disc Burner 4.7.5.341 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832636.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Wise Care 365 Pro 4.13.398 RePack (&Portable) by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832562.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DNS Jumper 2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832541.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Google Earth Pro 7.3.3.7692 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832535.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ GridinSoft CHM Editor 3.0.9 RePack by leserg73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832390.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Adobe components:  Flash Player 21.0.0.213 | AIR 21.0.0.176 | Shockwave Player 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832294.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ WinUtilities PRO 9.98 [RU]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832266.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ DriverEasy Professional 5.0.2.42137 RePack (& Portable) by TryRooM [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832209.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ GetWindowText 2.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832205.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832145.jpg" />
 </div>
 
 

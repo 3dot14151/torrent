@@ -1,55 +1,3 @@
-###  Публикация: 1478105   (1006073) от 19.07.2021
-
-Ван Хельсинг / Van Helsing (2004) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [Remastered]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Глубоко в Карпатах лежит таинственная страна Трансильвания — мир, в котором зло встречается на каждом шагу, мир, в котором опасность оживает с заходом солнца, и где монстры, живущие в глубине человеческих кошмаров, обретают форму. В этот мир попадает легендарный охотник на чудовищ Ван Хельсинг, рождённый на страницах романа «Дракула» Брэма Стокера. В своей непрерывной (   Читать дальше...   )Производство: США, Чехия, Румыния / Universal Pictures, The Sommers Company, Stillking Films, Carpathian PicturesЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Стивен СоммерсАктеры: Хью Джекман, Кейт Бекинсейл, Ричард Роксбург, Дэвид Уэнэм, Шулер Хенсли, Елена Анайя, Уилл Кемп, Кевин Дж. О’Коннор, Алан Армстронг, Сильвия КоллокаПеревод: ДублированныйСубтитры: Русские (2x forced, 2x full), английские (forced, full, 3x SDH)Продолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE6BBADEC7614E4ECA6858C2EEC11F763A93BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484467   (1006067) от 19.07.2021
-
-Ночь / The Night (2020) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Засидевшись в гостях, супружеская пара с младенцем отправляется на машине домой, но по пути всё же решает переночевать в отеле. В первой попавшейся гостинице их встречает странный портье, а в номере супруги начинают слышать посторонние звуки — будто кто-то никак не хочет оставить их в покое.Производство: США, Иран /  7Skies Entertainment, Indie Entertainment, Leveller Media, Mammoth Pictures, Orama Filmworks, SuperNova8 FilmsЖанр: ужасыРежиссер: Курош АхариАктеры: Шахаб Хоссейни, Нюша Нур, Леа Оганян, Гия Мора, Элестер Лэтэм, Джордж Магуайр, Майкл Грэм, Армин Амири, Стефани Элизабет Мартинес, Катрин ХавариПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A497578D225B02473EBCA5E890409205643C9682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477917   (1006065) от 19.07.2021
 
 Красный воробей / Red Sparrow (2018) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006065.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006064.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006062.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006058.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006052.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006010.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005992.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005987.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005984.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005979.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005920.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005919.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005918.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005916.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005914.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005907.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005892.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005885.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005881.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005879.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005874.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005866.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005791.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005764.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E30E80EC8862A603D90C74AC374DB87ED0403890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484466   (1005760) от 22.07.2021
+
+Тихое место 2 / A Quiet Place Part II (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005760.jpg" />
+</div>
+
+
+###  Подробнее
+
+474 дня прошло после нападения на Землю охотящихся на звук существ, семья Эбботт продолжает бороться за жизнь в полной тишине. Столкнувшись со смертельной угрозой в собственном доме, они вынуждены отправиться во внешний мир, где находят убежище и старого знакомого семьи. Поймав радиосигнал, Реган вычисляет место предполагаемой колонии выживших и решает во что бы (   Читать дальше...   )Производство: США / Buffalo FilmWorks, Paramount Pictures, Platinum Dunes, Sunday Night ProductionsЖанр: Ужасы, фантастика, драмаРежиссер: Джон КрасинскиАктеры: Эмили Блант, Миллисент Симмондс, Киллиан Мёрфи, Ноа Джуп, Джон Красински, Джимон Хонсу, Окьерете Онаодован, Скут МакНэри, Захари Голингер, Блейк ДеЛонгПеревод: Дублированный Пифагор/Кинопоиск HDСубтитры: Русские (Forced, Full, FOCS), Украинские (Full), Английские (Forced, Full, SDH)Продолжительность: 01:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDF9BF2F6AE2E203DAEC971CF4A4F3D810285BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381409   (1005756) от 22.07.2021
+
+Царство небесное / Kingdom Of Heaven (2005) BDRip [H.265/1080p] [10-bit] [Director's Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный оружейник Бэлиан вынужден бежать со своей родины. Он присоединяется к отряду крестоносцев, которым руководит его отец. В одной из битв отец получает тяжёлую рану и перед смертью присваивает своему сыну сан рыцаря, и тот клянётся в верности королю Иерусалима.Производство: США, Испания / Twentieth Century Fox, Scott Free Productions, BKЖанр: боевик, драма, приключения, военный, историяРежиссер: Ридли СкоттАктеры: Орландо Блум, Ева Грин, Лайам Нисон, Дэвид Тьюлис, Джереми Айронс, Эрик Эбони, Натали Кокс, Филип Гленистер, Мартин Хэнкок, Бронсон УэббПеревод: Дублированный, многоголосый, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (полные х2), украинские, английские (полные, SDH)Продолжительность: 03:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD25F0467669190E81ADD8267C81C54193CB6236
 ```
 
 https://mybot314.ru/tekegram_catalog/

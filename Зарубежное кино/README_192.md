@@ -1,57 +1,3 @@
-###  Публикация: 1473773   (1010767) от 16.06.2021
-
-Перевозчик 2 / Le Transporteur II / Transporter 2 (2005) BDRemux [H264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Бывший сотрудник спецподразделения Фрэнк Мартин, известный также как Перевозчик, уходит от дел и поселяется в Майами, где устраивается шофером в богатую семью. С маленьким сыном этого семейства у него завязываются дружеские отношения.
-Когда же мальчика похищают, Мартину приходится использовать свои профессиональные навыки, чтобы вернуть парнишку в целости и сохранности, (   Читать дальше...   )Производство: Франция, США, Германия / EuropaCorp, TF1 Films ProductionЖанр: Боевик, Триллер, КриминалРежиссер: Луи ЛетерьеАктеры: Джейсон Стэйтем, Алессандро Гассман, Эмбер Валлетта, Кейт Наута, Мэттью Модайн, Джейсон Флеминг, Кит Дэвид, Хантер КлэриПеревод: Дублированный, Многоголосый, Двухголосый, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB2342E4922C20E2B28A75CD3AEAFF474537FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477654   (1010766) от 16.06.2021
-
-Осло / Oslo (2021) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной пьесы с Эндрю Скоттом («Дрянь») и Рут Уилсон («Темные начала»), написанной лауреатом премии «Тони» Дж. Т. Роджерсом.
-«Осло» — это драма о тайных переговорах между Израилем и Организацией Освобождения Палестины под «присмотром» Норвегии. В 1993 году этот процесс привел к созданию Декларации принципов о временных мерах самоуправления (так называемое (   Читать дальше...   )Производство: США / Dreamworks Pictures, Marc Platt Productions, Stillking Films, HBOЖанр: Триллер, драма, историяРежиссер: Бартлетт ШерАктеры: Рут Уилсон, Эндрю Скотт, Джефф Вильбуш, Салим Дау, Валид Зуэйтер, Игал Наор, Довале Гликман, Ротем Кейнан, Ицик Коэн, Тобиаш ЗиллиакусПеревод: Профессиональный многоголосый (NewStudio, HDRezka Studio)Язык озвучки: РусскийСубтитры: Русские (forced), Украинские (forced), Английские (SDH), Испанские (full)Продолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E175DCA5F327469B5A70CA71B4562D42D209BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477751   (1010759) от 16.06.2021
 
 Гениальное ограбление  / Way Down / The Vault (2021) BDRip [H.264/1080p] [DVO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010759.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010752.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010748.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010747.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010742.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010737.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010736.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010735.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010730.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010644.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010626.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010618.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010612.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010610.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010603.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010584.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010581.jpg" />
 </div>
 
 
@@ -504,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010579.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010571.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010570.jpg" />
 </div>
 
 
@@ -582,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010566.jpg" />
 </div>
 
 
@@ -608,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010565.jpg" />
 </div>
 
 
@@ -634,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010561.jpg" />
 </div>
 
 
@@ -660,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010555.jpg" />
 </div>
 
 
@@ -671,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C0A4083631C660FB7EB452E6DB27A86B3DE5C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478010   (1010539) от 17.06.2021
+
+Никто / Nobody (2021) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непримечательный и незаметный семьянин Хатч живёт скучной жизнью обычного аудитора, пока однажды в его дом не вламываются грабители. И это бы сошло им с рук, если бы они не забрали браслетик его маленькой дочки. Не в силах это терпеть, Хатч отправляется на поиски наглецов, а на обратном пути ввязывается в драку с пьяными хулиганами, пристававшими к девушке в общественном (   Читать дальше...   )Производство: США / 87North, Dentsu, Eighty Two Films, Odenkirk Provissiero Entertainment, Perfect World (Beijing) Pictures Co.Жанр: Боевик, триллер, криминалРежиссер: Илья НайшуллерАктеры: Боб Оденкёрк, Алексей Серебряков, Конни Нильсен, Кристофер Ллойд, Майкл Айронсайд, Колин Сэлмон, RZA, Билли Маклеллан, Арая Менгеша, Гейдж МанроПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (forced, full) - отдельноПродолжительность: 01:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD56A40332F42E8030DB7F2B78DA5864014E2F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478338   (1010458) от 18.06.2021
+
+Кикбоксер возвращается / Kickboxer: Retaliation (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение боевика о мстителе Курте Слоуне, который жаждал поквитаться за своего поверженного брата. Спустя год Курт против воли возвращается в Таиланд, где перед ним встает выбор – сгнить в жестокой тюрьме или выйти на ринг против боксера-гиганта, устроив смертельное, но грандиозное и прибыльное зрелище.Производство: США / Our House Films, Head Gear Films, Metrol TechnologyЖанр: Боевик, ДрамаРежиссер: Димитри ЛоготетисАктеры: Ален Мусси, Кристофер Ламберт, Жан-Клод Ван Дамм, Майк Тайсон, Сара Малакул Лэйн, Хафтор Бьёрнсон, Сэм Медина, Стивен Суодлинг, Майлз Строммен, Джессика Янн, Максим Савариа, Вандерлей Силва, Фрэнк Эдгар, Роналдиньо ГаушоПеревод: Многоголосый закадровый, АвторскийЯзык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D117CB5203BB04416E3FAB476C316994DDC95107
 ```
 
 https://mybot314.ru/tekegram_catalog/

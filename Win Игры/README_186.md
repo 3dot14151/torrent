@@ -1,29 +1,3 @@
-###  Публикация: 1292961   (640498) от 01.04.2019
-
-The Andersen Accounts 2: The Price of a Life / Досье Андерсена 2: Цена жизни (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение интригующей серии The Andersen Accounts. После того как Андерсен спас город от опасных преступников, его имя стало известно всем. Однажды он получил странное сообщение, пошел по следам того, кто его прислал - и оказался в ловушке. Удивительно и то, что напавший тоже обладал магическими способностями. Сможет ли Андерсен раскрыть загадку нападения и снова (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A99BF60367EBE152442A4173E3736BC697E8B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516131   (640482) от 04.07.2012
 
 Xonotic 0.6.0 (L) [Ru/Multi] 2012
@@ -32,7 +6,7 @@ Xonotic 0.6.0 (L) [Ru/Multi] 2012
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640482.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dead Island. Game of the Year Edition [Ru/En] (Steam-Rip/1.3) 2011 | R.G. Игр
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640479.jpg" />
 </div>
 
 
@@ -92,7 +66,7 @@ FlatOut 3: Chaos & Destruction [Ru/En/Multi7] (L/1.04) 2011 l R.G. Origins
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640461.jpg" />
 </div>
 
 
@@ -122,7 +96,7 @@ Air Missions: HIND (2017) [Ru/Multi] (1.01) License SKIDROW [Deluxe Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640386.jpg" />
 </div>
 
 
@@ -148,7 +122,7 @@ Dishonored (2013) [Ru/En] (1.4/dlc) Repack R.G. Механики [Game of the Ye
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640379.jpg" />
 </div>
 
 
@@ -174,7 +148,7 @@ Zero Escape: Zero Time Dilemma (2016) [En/Ja] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639361.jpg" />
 </div>
 
 
@@ -200,7 +174,7 @@ Cadenza 3: Havana Nights / Каденция 3: Гаванские ночи (2016
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639217.jpg" />
 </div>
 
 
@@ -226,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639041.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ Enchanted Kingdom 5: Descent of the Elders / Зачарованное Корол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638935.jpg" />
 </div>
 
 
@@ -278,7 +252,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638817.jpg" />
 </div>
 
 
@@ -304,7 +278,7 @@ Two Worlds II / Два Мира 2 (2010) [Multi] (2.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638598.jpg" />
 </div>
 
 
@@ -330,7 +304,7 @@ MotoGP 17 (2017) [Multi] (1.0.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638597.jpg" />
 </div>
 
 
@@ -356,7 +330,7 @@ Fossil Echo (2016) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637645.jpg" />
 </div>
 
 
@@ -382,7 +356,7 @@ Dead Effect - Дилогия (2014-2016) [Ru/En] (1.4/1.0.3) Repack Mizantrop133
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637549.jpg" />
 </div>
 
 
@@ -408,7 +382,7 @@ Survivalist (2015) [Ru/Multi] (57) SteamRIP ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637536.jpg" />
 </div>
 
 
@@ -434,7 +408,7 @@ Grim Facade: Sinister Obsession Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637495.jpg" />
 </div>
 
 
@@ -460,7 +434,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637235.jpg" />
 </div>
 
 
@@ -487,7 +461,7 @@ Unworthy (2018) [En] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637225.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637089.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ Shattered Minds 2: Encore / Разбитый мозг: Рецидив (P) [Ru] 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637044.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ Marooned 2: Secrets of the Akoni / Покинутая 2. Секреты Акон
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637038.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ House of Evil (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636985.jpg" />
 </div>
 
 
@@ -617,7 +591,7 @@ Grim Facade: Sinister Obsession Collector's Edition / Тайный Орден 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636914.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ Reassembly (2015) [Ru/Multi] (2019.03.28/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636897.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ Through the Woods (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Digital Collector'
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636825.jpg" />
 </div>
 
 
@@ -680,6 +654,32 @@ Through the Woods — это приключенческая игра от тре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BCE49DDE70A295AC1E04D91D2D264F4C3549562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143184   (636809) от 17.06.2017
+
+WRC 6 FIA World Rally Championship (2016) [Multi] (1.0) License STEAMPUNKS
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636809.jpg" />
+</div>
+
+
+###  Подробнее
+
+На треке все решает машина. В ралли — водитель. В WRC 6 вас ждут испытания: туман, грязь, проколы, ночная гонка, поломки двигателя… со всем этим придется справляться. WRC 6 включает весь официальный контент 2016, включая Rally China, 11 суперспецучастков в масштабе 1:1Тип издания: LicenseРазработчик: Kylotonn Racing GamesЖанр: Racing, Sport, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13991A8BCBF1290D56F10F11B86A3B3F12E9E4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

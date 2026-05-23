@@ -1,55 +1,3 @@
-###  Публикация: 1664307   (185618) от 25.09.2023
-
-Семь одиннадцать вечера / 7:11 PM (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Инцидент, случившийся в 19:11, кардинально меняет ход событий в городе Хамсала-Диви и на планете Проксима-EV12. Рави отправляется в эпическое путешествие сквозь временной водоворот, с целью остановить зловещего гения, спасти своих близких и защитить свой любимый город от неизбежной гибели.Производство: Индия, Автралия / Arcus FilmsЖанр: фантастика, боевик, триллерРежиссер: Чайту МадалаАктеры: Рагху Кумар Каруманчи, Дипика, Бхарат Редди, Тесс Уолш, Саахас, Луи Афанасиу, Клэй АнтониоПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, телугуСубтитры: английскиеПродолжительность: 02:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A181669C02AB054ABDA60374C80DBDB505F6F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664531   (185409) от 26.09.2023
-
-Лейла / Leila (1997) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Лейла и Реза — молодая семейная пара. Через несколько месяцев после свадьбы они узнают, что Лейла не может иметь детей. Мать Резы настаивает на том, что «каждый должен иметь детей» и уговаривает молодожёнов взять в дом вторую жену. Лейла пытается всем угодить и убеждает мужа согласиться, в душе надеясь, что он откажется. Реза хочет всем угодить и соглашается, в душе (   Читать дальше...   )Производство: Иран, Farabi Cinema FoundationЖанр: драма, мелодрамаРежиссер: Дарьюш МехрджуиАктеры: Лейла Хатами, Али Мосаффа, Ямильен Шейхи, Мохаммад Реза Шарифиния, Туран Мэрзад, Амир Пивар, Шагнаегх Фараханы, Али МосафаПеревод: любительский двухголосыйЯзык озвучки: русский, персидскийСубтитры: русские, английскиеПродолжительность: 02:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71BCDEA78755DA3F9423C64673B0270367A03CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591956   (185388) от 20.11.2022
 
 Картина с Юки / Снимка с Юки / A Picture with Yuki (2019) WEBRip [H.264/720p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185388.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185365.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185347.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185330.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185200.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185176.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185168.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185146.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185143.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185142.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185135.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185128.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185122.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185119.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185109.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185107.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ The Fanimatrix: Run Program (2003) WEBRip [H.264/720p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185103.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185085.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185082.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185079.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185078.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185067.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185058.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185035.jpg" />
 </div>
 
 
@@ -668,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB589DF0C48C630580007BDFA635F438D72EE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664488   (185021) от 26.09.2023
+
+Никто тебя не спасет / No One Will Save You (2023) WEBRip [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бринн живёт в лесном доме в отдалении от небольшого городка. Из-за одного события в прошлом она обречена на одиночество — местные дружно её осуждают и активно игнорируют. Однажды ночью девушка просыпается от странных звуков и обнаруживает, что в её дом забралось внеземное существо с явно недобрыми намерениями. Поскольку помощи ждать неоткуда, Бринн придётся противостоять (   Читать дальше...   )Производство: США | 20th Century Studios, Star Thrower EntertainmentЖанр: Ужасы, фантастика, триллерРежиссер: Брайан ДаффилдАктеры: Кейтлин Дивер, Elizabeth Kaluev, Зэк Дуэйм, Лорен Л. Мюррэй, Джеральдин Сингер, Дэйн Родс, Daniel Rigamer, Evangeline Rose, Dari Lynn Griffin, Gabrielle BordleeПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B3F58832ABC71F970FAC8D0E011791EADB8CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592024   (185018) от 20.11.2022
+
+Поцелуй дракона / Kiss of the Dragon (2001) BDRip [H.265/1080p] [10-bit] [US Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер китайской разведки приезжает из Гонконга в Париж, чтобы участвовать в опасной операции, цель которой - заманить в ловушку и взять с поличным крупного наркобарона. Но дела идут совершенно непредсказуемо.
+Герой попадает в двойную ловушку и становится подозреваемым в убийстве c неопровержимыми уликами против него. Его жизнь теперь зависит от того, сумеет ли он (   Читать дальше...   )Производство: Франция, США / 20th Century Fox Film Corporation, Canal+Жанр: боевик, триллер, криминалРежиссер: Крис НаонАктеры: Джет Ли, Бриджит Фонда, Чеки Карио, Рик Янг, Берт Квук, Лоуренс Эшли, Сирил Раффаэлли, Дидье Азулай, Джон Форджэм, Пол БарретПеревод: дублированный, многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F7F0F2C19A0983FB4A6E8A7492F229F3EB69E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

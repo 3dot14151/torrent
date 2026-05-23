@@ -6,7 +6,7 @@ Blasphemous 1.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34645.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Monument Valley 3 v1.0.14999 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34527.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Machinarium 3.1.8 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34444.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Kovoclak 1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34409.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Little Nightmares 124 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34354.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Age of History 3 1.035 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34334.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Very Little Nightmares 1.2.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34303.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Pine: A Story of Loss 1.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34289.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Meadowfell v1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34288.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ The Abandoned Planet v1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34282.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ The Rise of the Golden Idol v1.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34279.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Death’s Door v1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34274.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Civilization VI: NETFLIX 1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34236.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Dune: Imperium Digital 2.1.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34208.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Balatro 0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34206.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dead Cells: Netflix Edition v3.3.25 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34141.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Trudograd 1.0.75 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34138.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Forgotten Memories: Remastered 1.9.102 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34118.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Conquistadorio v25 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34112.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ GRIS 1.0.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34095.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Gomorrah v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34075.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Endling *Extinction is Forever 1.3.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34071.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Carrion 1.0.35 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34060.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Skul: The Hero Slayer v1.0.9 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34015.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Tiny Room Stories Town Mystery v2.6.26 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33991.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Stardew Valley 1.6.14.11 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33983.jpg" />
 </div>
 
 

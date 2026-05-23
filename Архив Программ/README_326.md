@@ -6,7 +6,7 @@ The Bat! Professional Edition 7.4.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887440.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Notepad3 5.21.905.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887397.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tor Browser Bundle 5.5.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887363.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIDA64 Extreme Edition 1.60.1300 Final [RU/UA/EN] RePack от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887344.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cyberfox 51.0.3 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887338.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Acrobat Reader DC 2015.010.20060 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887337.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Topaz Labs Photoshop Plugins Bundle 2016 (08.03.2016) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887328.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Acrobat Professional DC (v15.10) Multilingual Updated
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887296.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Nox App Player 7.0.1.6000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887283.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887237.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Vivaldi 2.11.1811.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887201.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Bat! Professional 7.4.8 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887142.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Norton AntiVirus 22.9.0.68 [Ru] (с антивирусными базами)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887139.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887126.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Chromium 80.0.3987.162 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887068.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ save2pc Ultimate 5.59.1593 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887062.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ AnyDesk 6.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887059.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Icecream Screen Recorder PRO 6.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887044.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Windows Firewall Control 4.9.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887009.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Norton 360 22.9.0.68 [Ru] (с антивирусными базами)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887005.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Norton Internet Security 22.9.0.68 [Ru] (с антивирусными база�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886995.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Privacy Eraser Free 4.61.0 Build 3425 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886987.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Loaris Trojan Remover 3.1.21.1446 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886978.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Viber 12.7.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886966.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ WinSCP 5.17.3 Build 10325 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886958.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Trojan Killer 2.1.19 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886957.jpg" />
 </div>
 
 

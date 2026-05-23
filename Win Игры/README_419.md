@@ -1,29 +1,3 @@
-###  Публикация: 1718435   (58598) от 25.04.2024
-
-Sweet Transit (2022) [Ru/Multi] (1.0.38) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Sweet Transit – это градостроение, где все во многом будет зависеть от системы железнодорожных путей. Ведь только с их помощью можно продавать товары, которые создаются в городке и в обмен завозить новое продовольствие или необходимое жилье. Именно от начальника транспортной компании зависит благосостояние горожан, а также экономика всего города.Тип издания: RepackРазработчик: Ernestas NorvaišasЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7015EA57C33DB5E6EAD65164543F2A757FC939B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718498   (58577) от 25.04.2024
 
 Crimson Tactics: The Rise of The White Banner (2023) [En] (1.0.0b) Repack FitGirl
@@ -32,7 +6,7 @@ Crimson Tactics: The Rise of The White Banner (2023) [En] (1.0.0b) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58577.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (11830638) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58574.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58566.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58553.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Once a Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58539.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58518.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Remnant II (2023) [Ru/Multi] (417.127/dlc) Scene FairLight
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58509.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58501.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.21/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58489.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Pepper Grinder (2024) [Ru/Multi] (392-full_release) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58458.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58453.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Royal Order (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58452.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58445.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58409.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58399.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58393.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Diluvian Winds (2023) [Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58391.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Rise of the Triad (2013) [En] (1.5.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58390.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58383.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.2.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58370.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Tents and Trees (2024) [Ru/Multi] (2404041009) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58361.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58354.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Paranormal Files 10: Counterpart / Паранормальные явления 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58348.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58288.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Truck Driver (2021) [Ru/Multi] (1.35.2.32/dlc) Scene DOGE
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58280.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Truck Driver (2021) [Ru/Multi] (1.35.2.32/dlc) Scene DOGE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD9F8FAB845F0284E496682BB39782F070142FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719121   (58272) от 28.04.2024
+
+Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в пустынный мир, где и люди, и демоны страдают от острой нехватки воды, - SAND LAND. Познакомьтесь с дьявольским принцем Вельзевулом, его сопровождающим Вором и бесстрашным шерифом Рао и отправляйтесь вслед за командой в необычное приключение на поиски легендарного источника, спрятанного в пустыне. Конец - это только начало, ведь за пределами этой засушливой (   Читать дальше...   )Тип издания: SceneРазработчик: ILCA, Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AD49D21378D05C98657A3F2F759BC88326A233
 ```
 
 https://mybot314.ru/tekegram_catalog/

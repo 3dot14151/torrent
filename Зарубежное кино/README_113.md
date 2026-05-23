@@ -1,55 +1,3 @@
-###  Публикация: 1440823   (1031086) от 16.02.2021
-
-Перед рассветом / Before Sunrise (1995) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Молодой американец Джесси знакомится в поезде с красивой француженкой Селин. Они сразу находят много общих тем для разговоров, и Джесси уговаривает Селин сойти вместе с ним в Вене, чтобы провести вместе вечер и ночь, так как наутро он должен улететь домой в Штаты.Производство: США, Австрия, Швейцария / Castle Rock Entertainment, Detour Filmproduction, Filmhaus Wien Universa FilmproduktionsЖанр: Мелодрама, ДрамаРежиссер: Ричард ЛинклейтерАктеры: Итан Хоук, Жюли Дельпи, Андреа Экерт, Ханно Пёшль, Карл Брукшвайгер, Текс Рубиновиц, Эрни Мангольд, Доминик Кастелль, Хаймон Мария Буттингер, Харольд ВайглайнПеревод: Многоголосый профессиональный (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3BA5D5915ADC3F2F7785328AB0A43AF062EF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621041   (1031084) от 24.03.2023
-
-Эксперимент «Ведьма» / Ведьма 2 / Manyeo 2 / The Witch 2: The Other One (2022) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Некая организация похищает школьницу, чтобы держать в секретной лаборатории и ставить над ней опыты. Некоторое время спустя там происходит ЧП, в результате которого одна из юных жертв жестоких экспериментов сбегает и с помощью невероятных способностей спасает местную жительницу от бандитов. Так девочка находит новую семью, но тайная организация не готова отпустить (   Читать дальше...   )Производство: Южная Корея / Goldmoon Film, Next Entertainment WorldЖанр: Боевик, фантастика, триллерРежиссер: Пак Хун-джонАктеры: Щин Щи-а, Пак Ын-бин, Со Ын-су, Чин Гу, Сон Ю-бин, Чо Мин-су, Ли Джон-сок, Джастин Джон Харви, Чха Сун-бэ, Пён Со-юн, Чхэ Вон-бинПеревод: Дублированный (Кинопоиск HD), Любильский двухголосый (Pazl Voice), Одноголосый (Ворон)Язык озвучки: Русский, Украинский, Английский, КорейскийСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859A95B2CCDF9C28DA30A2E343B7C3950ABFF588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621382   (1031083) от 24.03.2023
 
 Эксперимент «Ведьма» / Ведьма 2 / Manyeo 2 / The Witch 2: The Other One (2022) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031083.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031081.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031079.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031072.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031069.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031063.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031062.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031061.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031058.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031057.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031054.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031050.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031042.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031041.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031039.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031037.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031036.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031035.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031034.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031031.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031028.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031026.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031025.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031022.jpg" />
 </div>
 
 
@@ -673,6 +621,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD0EB4B9D546E0B0A6637FC1BDA4A214A5D96754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448019   (1031019) от 16.02.2021
+
+Асоциальная сеть / Silk Road (2020) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031019.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире супергероев он был бы Джокером. Настоящий суперзлодей, бросивший вызов системе. Он создал свой Амазон в мире даркнета, где преступники со всего мира сбывали оружие, поддельные документы и наркотики. Многомиллионное состояние, возможность по щелчку пальцев организовать любую хакерскую атаку и вооружить небольшую страну - кажется, он был неуязвим. Но как и всякий (   Читать дальше...   )Производство: США / High Frequency Entertainment, Mutressa Movies, Perfect Season ProductionsЖанр: Триллер, драма, криминалРежиссер: Тиллер РасселлАктеры: Ник Робинсон, Дженнифер Юн, Джимми Симпсон, Джейсон Кларк, Пол Блотт, Даррел Бритт-Гибсон, Дэниэл Дэвид Стюарт, Кеннет Миллер, Александра Шипп, Кэтрин АселтонПеревод: Авторский (Антон Карповский)Субтитры: Английские
+Присутствует ненормативная лексика.Продолжительность: 01:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B296B2DC2A880452F8E5FE10079C02D07083CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448020   (1031018) от 16.02.2021
+
+Асоциальная сеть / Silk Road (2020) HDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031018.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире супергероев он был бы Джокером. Настоящий суперзлодей, бросивший вызов системе. Он создал свой Амазон в мире даркнета, где преступники со всего мира сбывали оружие, поддельные документы и наркотики. Многомиллионное состояние, возможность по щелчку пальцев организовать любую хакерскую атаку и вооружить небольшую страну - кажется, он был неуязвим. Но как и всякий (   Читать дальше...   )Производство: США / High Frequency Entertainment, Mutressa Movies, Perfect Season ProductionsЖанр: Триллер, драма, криминалРежиссер: Тиллер РасселлАктеры: Ник Робинсон, Дженнифер Юн, Джимми Симпсон, Джейсон Кларк, Пол Блотт, Даррел Бритт-Гибсон, Дэниэл Дэвид Стюарт, Кеннет Миллер, Александра Шипп, Кэтрин АселтонПеревод: Авторский (Антон Карповский)Субтитры: Отсутствуют
+Присутствует ненормативная лексика.Продолжительность: 01:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D340C1BF9B6E07C5EC302C25917F99FF4F96769A
 ```
 
 https://mybot314.ru/tekegram_catalog/

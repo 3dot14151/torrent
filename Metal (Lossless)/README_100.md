@@ -6,7 +6,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|image + .cue] <Technical Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718738.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pyramaze - Contingent (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718703.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Battle Beast - Circus Of Doom (2022) 2xCD [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718666.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Volbeat - Seal The Deal & Let's Boogie (2016) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717769.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Firewind - Firewind (2020) [FLAC|Lossless|image + .cue] <Heavy Metal,  Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717110.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Spirits of Fire - Spirits of Fire (2019) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716955.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Schizophrenia - Recollections Of The Insane (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716762.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Glasya - Attarghan (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716758.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Swallow the Sun - Live In Helsinki (20 Years Of Gloom, Beauty And Despair) (2021
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716642.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Re-Machined - Brain Dead (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716498.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Spirits Of Fire - Embrace The Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716497.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ty Morn - Last Villain Testament (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716490.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Volbeat - Servant of the Mind (2021) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716331.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tarja Turunen - The Brightest Void (2016) [FLAC|Lossless|tracks + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715449.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Deadly Sin - Sunborn (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715282.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Demons & Wizards - III (2020) [FLAC|Lossless|image + .cue] <Heavy Metal,  Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715191.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Queensryche - The Verdict (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714933.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Immolation - Acts Of God (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714828.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sudden Darkness / Economist - Fear of Reality: Anthology (2014) 2 CD, Compilatio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714489.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wisdom - Rise Of The Wise (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714253.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Visions Of Atlantis - Old Routes - New Waters (2016) EP [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714091.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ F. Roses - The Prologue of Mythology (EP) (2012) [FLAC|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714030.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ NorthTale - Eternal Flame (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712990.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - 25 Years Metal Addiction - The Rare & The Unreleased (2021) 2xCD [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712952.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sonata Arctica - Acoustic Adventures Vol 1 (2022) Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712946.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Der Weg einer Freiheit - Der Weg einer Freiheit (2009) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712798.jpg" />
 </div>
 
 

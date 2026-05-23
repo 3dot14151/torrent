@@ -1,29 +1,3 @@
-###  Публикация: 1766109   (10326) от 26.07.2025
-
-Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Смахните пыль с резака и молота – пора возвращаться к работе, у вас новое задание. Отправляйтесь на новое побережье с самым большим кладбищем кораблей в мире, демонтируйте огромные детали кораблей и соберите тонны драгоценной стали. Засучите рукава, пора вернуться в бизнес. Ship Graveyard Simulator 2 – это продолжение тепло принятой первой части игры, в которой игрок (   Читать дальше...   )Тип издания: RepackРазработчик: Games IncubatorЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E18334BC36AB8DBB9798ABF770BBD588D066D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808692   (10319) от 26.07.2025
 
 Star Wars Battlefront II (2) (2017) [Ru/Multi] (1.1.8.16162/dlc) Repack seleZen [Celebration Edition]
@@ -32,7 +6,7 @@ Star Wars Battlefront II (2) (2017) [Ru/Multi] (1.1.8.16162/dlc) Repack seleZen 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10319.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ SGS Spain at War (2025) [Ru/Multi] (25.06.11) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10306.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Crime Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10299.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Vilde (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10294.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ TRAPPED (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10292.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.9.2) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10291.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Squirreled Away (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10290.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Tech Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10286.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) Repack FitGirl [Fine Dining Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10266.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Grocery Store Tycoon (2025) [Ru/Multi] (0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10265.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Rooftops & Alleys: The Parkour Game (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10250.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10245.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10195.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ No More Heroes / No More Heroes 2: Desperate Struggle (2021) [Ru] (Patch 4/29/25
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10182.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9336.24144/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10181.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10180.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Kick'n Hell (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10177.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10176.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Starmetal Crusaders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10173.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Kunitsu-Gami: Path of the Goddess (2024) [Ru/Multi] (Build 19024694/dlc) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10172.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10170.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Laser Tag Massacre (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10153.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack Other s [Wreckma
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10151.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10147.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Steep (2016) [Ru/Multi] (1.23.7640008/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10146.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Steep (2016) [Ru/Multi] (1.23.7640008/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F51AAAEE2090816844F6CACDA47F94CF01A04B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808937   (10114) от 28.07.2025
+
+Beff Jezos Simulator (2024) [Ru/Multi] (1.1.0.0711) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beff Jezos Simulator предлагает геймерам почувствовать себя в роли начинающего магната электронной коммерции. Проект начинается в скромном офисе, а затем юзерам предоставляются инструменты для создания своей виртуальной империи розничной торговли. Цель - управлять всеми аспектами растущего онлайн-бизнеса. С самого начала задача ясна: разработать бренд, найти товары (   Читать дальше...   )Тип издания: RepackРазработчик: tiplay studioЖанр: Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55B754AC257840E48D8E56A02CC072820D609FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

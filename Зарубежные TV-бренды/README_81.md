@@ -1,29 +1,3 @@
-###  Публикация: 1058482   (469024) от 01.10.2016
-
-NG: 20 животных, которые могут вас убить / 20 Animals that Will Kill You (2012) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дикие животные убивают тысячи людей каждый день - и самыми опасными существами могут оказаться не те животные, о которых вы можете подумать. Бенгальские тигры, слоны, комары - животные могут убивать множеством разных способов. Хищники очевидно являются убийцами, а другие животные защищают свою территорию, нападают в целях самообороны или убивают совершенно случайно. (   Читать дальше...   )Телекомпания: США, NGHT, LLC.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF09E0B2C58B37DB80A4E48342F7C77E48DCE1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320623   (468757) от 19.08.2019
 
 BBC: Топ-10 самых смертоносных чудовищ / Top Ten Deadliest Beasts (2018) IPTVRip [H.264] (1-2 серии из 2)
@@ -32,7 +6,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468757.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG. 20 животных, которые могут вас убить / 20 Animal
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468234.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Discovery:Правда о Нострадамусе / Nostradamus Decoded (2009) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467415.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466748.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466408.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466068.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466067.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip (сезон
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465797.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465477.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ NG. Осушить океан: тайны нацистов / Drain the Oceans. N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465467.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465191.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BBC. Мрачное обаяние Адольфа Гитлера / The Dark Char
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464268.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ History Channel: В поисках исчезнувших великанов / S
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464265.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Discovery: Сибирская рулетка (сезон 1, серии 1-4 из 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464108.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464037.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463782.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ NGW: Секретная жизнь жемчужин / The Secret Life of Pearls 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463560.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463299.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ NG: Генуя. Хронология катастрофы / Genoa. Bridge Disast
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463134.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ NG: Человек против осьминога / Man vs octopus (2017) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463130.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Da Vinci Learning: BBC: Джимми Дохерти в Саду Дарвина /
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463054.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Discovery. Смертельный улов / Deadliest Catch (2014) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462163.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461894.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ BBC: Человек на Марсе. Экспедиция на красную п
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461633.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461547.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FC7E4EC3D6F543E60E6ABE6FB330CE96A6F5101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624449   (460891) от 11.09.2018
+
+Тайна туринской плащаницы / The Mysterious Man Of The Shroud (1997) SATRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Туринская плащаница была увлекательным и спорным источником тайн на протяжении столетий, она - наиболее изучаемая ткань в истории. Неужели это материя, в которую облекли тело Иисуса Христа сразу же после его распятия, или это подделка, созданная сотни лет спустя? Фильм подробно исследует этот вопрос; в нем представлены интервью со многими исследователями, для которых (   Читать дальше...   )Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE858EDCA404FAC088094B80095C4D3F4459CD49
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 970305   (143228) от 29.12.2015
-
-Городские пижоны 2: Легенда о золоте Кёрли / City Slickers II: The Legend Of Curly's Gold (1994) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Директор популярной нью-йоркской радиостанции Митч Роббинс счастливо живет со своей женой, двумя очаровательными ребятишками и домашней коровой, пока не находит таинственную карту, на которой указано место, где спрятаны несметные сокровища. В сердце закоренелого горожанина просыпается извечная болезнь всех авантюристов — золотая лихорадка. Сразу забыв о жене, ребятишках (   Читать дальше...   )Производство: США, Castle Rock Entertainment, Columbia Pictures Corporation, Face ProductionsЖанр: КомедияРежиссер: Пол ВейландАктеры: Билли Кристал, Дэниэл Штерн, Джон Ловиц, Джек Пэланс, Патриша Уеттинг, Прюитт Тейлор Винс, Билл МакКинни, Линдсэй Кристал, Бет Грант, Ноубл Уиллингэм, Джейн Медоуз, Дэвид Пэймер, Джош МостелПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый) А.МихалёвЯзык субтитров: АнглийскийПродолжительность: 01:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F6F35FA3AF9299E361BCC0FA7CC74D53A1341C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514999   (143217) от 27.12.2021
-
-Во имя короля: История осады подземелья / In the Name of the King: A Dungeon Siege Tale (2007) WEB-DL [H.264/1080p] [16:9]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-На фоне войны в королевстве Эхб между зловещим Галлианом и правящим королем Конредом, Фермер Дэймон ищет свою похищенную жену Солану и попутно мстит за смерть своего сына, убитого воинами-зверями Крагами.Производство: Германия, Канада, США / Boll Kino Beteiligungs GmbH & Co. KG, Herold Productions, Brightlight PicturesЖанр: Фэнтези, боевик, триллер, приключения, военныйРежиссер: Уве БоллАктеры: Джейсон Стэйтем, Лили Собески, Джон Рис-Дэвис, Рон Перлман, Мэттью Лиллард, Рэй Лиотта, Брайан Дж. Уайт, Клэр Форлани, Кристанна Локен, Берт РейнолдсПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7932CB22878C579A55D57F307F977DB26EAD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435318   (143214) от 28.12.2020
 
 Ведьмы / The Witches (2020) BDRip [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143214.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143207.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143184.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143173.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143120.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143089.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143083.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143055.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143044.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143042.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143036.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143019.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143008.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143004.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142998.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142991.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142976.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142973.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142963.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142948.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142946.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142938.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142935.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142934.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3F4BBA32AD8404F0DC8ECA702FAEF293E2310D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086061   (142918) от 29.12.2016
+
+Свадебный банкет / The Wedding Banquet (1993) BDRip [H.264 /1080p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китаец-эмигрант Вай уже пять лет живет со своим бойфрендом Саймоном. Но Вай боится признаться своим родителям, что он гомосексуалист, а они постоянно присылают ему на дом анкеты для брачных агентств. Однажды Вай находит выход. Он решает оформить фиктивный брак с Вей-Вей, которую собираются депортировать из США. Таким образом он собирается убить двух зайцев. Но всё (   Читать дальше...   )Производство: Тайвань, США | Central Motion PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Энг ЛиАктеры: Гуа А-Лэ, Сихун Лун, Мэй Чин, Уинстон Чао, Митчелл Лихтенштейн, Дион Бирни, Джинн Куо Чанг, Пол Чен, Чунвэй Чоу, Юн ЧунгПеревод: Одноголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A1B9625B2D4DD5FE9B56E8924B9B5D763541D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678575   (142911) от 22.11.2023
+
+Искусство по понятиям / The Kill Room (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачливая хозяйка арт-галереи Патрис, киллер Реджи и его босс Гордон ввязываются в опасную авантюру по отмыванию денег. Дело принимает неожиданный оборот, когда Реджи становится восходящей звездой авангардной живописи. Так вдохновенное преступление превращается в настоящее искусство.Производство: США / BKStudios, BondIt, Bradley Pilz Productions, Buffalo 8 ProductionsЖанр: триллер, комедияРежиссер: Николь ПаонАктеры: Ума Турман, Сэмюэл Л. Джексон, Джо Манганьелло, Эми Кым, Деби Мейзар, Николай Цанков, Александр Соковиков, Дженнифер Ким, Майя Хоук, Майк ДойлПеревод: Дублированный (Кириллица)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304994911FC43CF3C27518039085A41B2EFC1170
 ```
 
 https://mybot314.ru/tekegram_catalog/

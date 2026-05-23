@@ -6,7 +6,7 @@ Java SE Runtime Environment 7 Update 11 Stable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997191.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced SystemCare Pro 6.1.9.214 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997185.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ KMSmicro WO w7 o2010-13 v1.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997126.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ DSP pack 1.34 (Winamp/Aimp3) RePack by elchupacabra [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997121.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ K-Lite Codec Pack 9.7.0 Mega/Full/Standard + x64 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997113.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Adobe Muse 3.2 [Multi/English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997096.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Win7codecs 3.9.6 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997024.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Wise Care 365 Pro 2.18 Build 169 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997021.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Free Download Manager 5.0.1139 Alpha [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997000.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Advanced SystemCare Pro 6.1.9.214 Portable by Baltagy [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996997.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Advanced SystemCare Pro 6.1.9.214 Final RePack by D!akov [Русский+Анг�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996971.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Daum PotPlayer 1.5.35238  Stable Full & Lite + Update by 7sh3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996908.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Advanced SystemCare Pro 6.1.9.215 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996901.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Daum PotPlayer 1.5.35238 Stable [Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996892.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ CodeLobster PHP Edition Pro 4.4 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996828.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Uniblue DriverScanner 2013 v4.0.10.0 Portable by T-BAG [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996827.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Pano2VR 4.0 Pro (x86/x64) [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996811.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ SONY Sound Forge Pro 10.0e Build 507 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996806.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ KMSmicro WO w7 o2010-13 v1.0.1 (2012-01-15) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996798.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ LogonScreens (Экраны регистрации) Для Windows XP/Vista/Seven
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996796.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Comodo Dragon 24.1.0.0 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996761.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ HyperSnap 7.23.00 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996750.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Google Chrome 26.0.1384.2 Dev [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996738.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Process Lasso Pro 6.0.2.44 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996715.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Pale Moon 15.4 (x86/x64) [Английский / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996710.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Foxit Reader 5.4.5.0114 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996704.jpg" />
 </div>
 
 

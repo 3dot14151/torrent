@@ -1,55 +1,3 @@
-###  Публикация: 1216556   (747269) от 01.04.2018
-
-VideoPad Video Editor Professional 6.01 [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-VideoPad предлагает средства для быстрого и лёгкого создания видео профессионального качества. Монтируя свой фильм, вы можете использовать видео ролики с web-камеры или видеомагнитофона, объединяя их с помощью эффектов перехода. Программа располагает совершенными инструментами настройки звука и цвета, средствами оптимизации видео. Создавайте собственное видео, делитесь (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF09D08A86908CF51FC36A8E9CF9CA96FCDFD66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217622   (740750) от 06.04.2018
-
-VideoSolo DVD Creator 1.2.6 RePack by вовава [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-VideoSolo DVD Creator - это програма для создания собственного меню DVD. Запись ваших собственных DVD-дисков выполняется всего за три шага. Хороший интерфейс и иллюстрированная панель инструментов делают весь процесс простым от начала до конца. Просто импортируйте медиафайлы или видеофайлы, которые вы хотите записать на DVD, создайте свое собственное меню DVD. Создание (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C90DF64A4FEC487393BA1DEDBE3E47EC8A07B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217863   (740641) от 06.04.2018
 
 Aiseesoft Video Enhancer 9.2.18 RePack by вовава [Ru/En]
@@ -58,7 +6,7 @@ Aiseesoft Video Enhancer 9.2.18 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740641.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Digital Anarchy Beauty Box Video 4.2.1 (AE+OFX) RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740536.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731382.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Tipard DVD Ripper 9.2.18 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723210.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Tipard Video Enhancer 9.2.18 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723114.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Tipard HD Video Converter 9.2.12 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718428.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Corel VideoStudio Pro X9 19.3.0.18 SP3 + Content Pack [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715112.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Videomizer 2.0.16.504 Portable by SpeedZodiac [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711466.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ VideoSolo Video Converter Ultimate 1.0.18 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707795.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ Boris FX Sapphire Plug-ins 11.0.2 x64 OFX RePack by pooshock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707670.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ Nero Video 2015 16.0.02500 + Content Packs [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698672.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ Sorenson Squeeze Desktop Pro 11.0.0.185 CE RePack by Team V.R [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696016.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Imagenomic Video Suite v1006 CE RePack by Team V.R [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695918.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ MainConcept TotalCode Studio 3.5.1 build 22591 CE RePack by Team V.R [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695794.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ Digital Anarchy Beauty Box AE v4.0.8 CE RePack by Team VR [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695789.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ FilmConvert Pro 2.36 CE for After Effects and Premiere Pro RePack by Team V.R [E
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695780.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ Wondershare Video Editor 5.1.2 Portable by KSHR [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691389.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ AnyMP4 Video Converter Ultimate 7.2.32 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689163.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ ArcSoft ShowBiz DVD 2.2.2.81 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688784.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ Bandicut 1.2.2.65 RePack (&Portable) by Dodakaedr [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684824.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ Ashampoo Video Converter 1.0.1.8 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678590.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ Ashampoo Movie Studio Pro 2.0.15.7 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678454.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ Boilsoft Video Joiner 8.01.1 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676106.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ Microsoft Hyperlapse Pro 1.6.116.0 (x64) Portable by Gosuto [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672538.jpg" />
 </div>
 
 
@@ -676,6 +624,64 @@ Microsoft Hyperlapse Pro 1.6.116.0 (x64) Portable by Gosuto [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D254714B6B3C3ACFA8647C3B9346A3FF42E453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223731   (671217) от 06.05.2018
+
+AEscripts - EditMonkeyv1.00 [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671217.jpg" />
+</div>
+
+
+###  Подробнее
+
+EditMonkey - это последняя версия от Ebberts + Zucker, которая использует мощь After Effects для создания и последовательности сложных многостраничных анимаций быстро и легко. Наш последний инструмент способен создавать десятки анимаций одним щелчком мыши, идеально подходящий для широкого спектра проектов, требующих перехода от одного графика к другому ....  но достаточно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910447A0A0C521F11DF7FB1AEBB3F35AF5DE1336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514389   (658524) от 23.06.2012
+
+Corel MotionStudio 3D 1.0.0.252 [Английский]
+
+>>След.
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_658524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадская компания Corel представила новый продукт под названием MotionStudio 3D в своей серии Digital Media. Этот продукт стал первой попыткой Corel выпустить полноценный инструментарий не только для создания трехмерных титров, но и для полноценной анимации, пригодной для использования в самых амбициозных творческих проектах.
+ Интерфейс MotionStudio 3D выполнен в фирменном стиле компании. Работа на нем, конечно же начинается с выбора инструмента в палитре Easy Pallet, которая идеальным образом позволяет применять свои готовые решения для трехмерной обработки графики, текста и веб страниц. Пакет оптимизирован для работы на компьютерах нового поколения, тем самым позволяя обеспечивать высокую скорость при обработке и отображения трехмерных объектов. Так же программа позволяет просматривать изменения в проектах в реальном времени.
+ MotionStudio 3D имеет статус недорогого проекта и специально ориентирован на так называемый “домашний” рынок. Продукт будет полезен и для обычных пользователей и дизайнеров занимающихся (   Читать дальше...   )Название программы: Corel MotionStudio 3DЯзык интерфейса: Английский
+Год/Дата Выпуска: 2012
+ Разрядность: 32+64bit
+ Совместимость с Vista: полная
+ Совместимость с Windows 7: полная
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

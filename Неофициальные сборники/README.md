@@ -7,7 +7,7 @@ Europe - Compilation (1983-2023) [MP3|320 Kbps] <Arena rock, Hard rock, Glam met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070210.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Best Disco Hits 70's 80's & 90's (2026) [MP3|320 Kbps] <Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070133.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Arabesque best (1977-1984) [MP3|320 Kbps] <pop,electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070044.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Synthpop: Ethereal Beats (2026) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069852.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Ai - Russian Retro Covers Favorites Collection (2026) [MP3|320 Kbps] <Cover, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069809.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Russian Rock 2014  [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069642.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Beat, Bass, Melody vol.5 (mixed by Dj V) (2026) [MP3|320 Kbps] <Euro Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069624.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Ai - Russian Poets Covers Compilation  Part 14 (2026) [MP3|320 Kbps] <Cover, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069623.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Ai - Russian Poets Covers Compilation  Part 13 (2026) [MP3|320 Kbps] <Cover, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069622.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Dave Sandler - Favorites Collection (2026) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069621.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Aurum Project - We Still Have Dreams (2025) [MP3|320 Kbps] <Disco, Dance, AI Mus
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069396.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Aurum Project - Wasted Love (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069395.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Aurum Project - Out Of The Shadows (2025) [MP3|320 Kbps] <Disco, Dance, AI Music
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069394.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Aurum Project - Let The Party Go On (2025) [MP3|320 Kbps] <Disco, Dance, AI Musi
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069393.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Aurum Project - Hunters Of The Night (2025) [MP3|320 Kbps] <Disco, Dance, AI Mus
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069392.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Aurum Project - Just Like An Angel (2026) [MP3|320 Kbps] <Disco, Dance, AI Music
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069389.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Дискотека 2026 Dance Club Vol. 232 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069348.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Josh Groban - Compilation (2001-2026) [MP3|320 Kbps] <Vocal, Crossover, Operatic
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069297.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Spiritual Gaia - Compilation (2026) [MP3|320 Kbps] <Easy Listening, Meditation, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069296.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069295.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sandra best (1984-2012) [MP3|320 Kbps] <pop,electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069294.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - National Pop Dance Music Vol.131 (2026) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069261.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - DOWN LOW 10 (2026) [MP3|320 Kbps] <Bass House, Dark Techno, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068849.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Frontmusic - Eurodance Hits & Tops (2026) [MP3|320 Kbps] <Pop, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068770.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Frontmusic - 90s Club Electronica (2026) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068769.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Night Rider 10 (2026) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068702.jpg" />
 </div>
 
 

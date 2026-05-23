@@ -1,29 +1,3 @@
-###  Публикация: 1773091   (31090) от 13.01.2025
-
-Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-В этом мире существует загадочная башня, которая воспроизводит самые разные объекты из других реальностей, создавая неопределенное пространство, наполненное монстрами, странными существами, людьми и лутом. Вы оказались в этой реальности, и здесь начинается Ваш путь. Войдя в башню, Вы оказываетесь в жестких битвах, требующих ценных предметов лута - брони, магических (   Читать дальше...   )Тип издания: RepackРазработчик: axilirateЖанр: Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8B55C61489B3824719F4B8677584E222692451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773027   (31087) от 13.01.2025
 
 Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
@@ -32,7 +6,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31087.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Carnival Of Souls (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31080.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Momodora Moonlit Farewell (2024) [Ru/Multi] (1.1f32) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31059.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Future Fragments (2024) [En] (1.0.4) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31004.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30998.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30994.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Wonder Boy: Asha in Monster World (2021) [Ru/Multi] (Build 8291740) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30965.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ While We Wait Here (2024) [Ru/Multi] (Build 16641425) Repack FitGirl [Soundtrack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30960.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30956.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30934.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30925.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294.40/dlc) Repack Decepticon [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30918.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack FitGirl [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30907.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30897.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1a) License GOG [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30895.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30881.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Running With Rifles (2015) [Ru/Multi] (1.98.1/dlc) Repack Pioneer
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30875.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30871.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ WWE 2K24 (2024) [Multi] (1.24/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30815.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30814.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30812.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30799.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30779.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30766.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Among Ashes (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30746.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Among Ashes - это хоррор-игра от первого лица о ви�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B3866393A0EC92B1562AFE801754EB1E1EDCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756130   (30707) от 17.01.2025
+
+Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Decepticon [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы Харуна - квестор, наделенный способностью погружаться в Складку - таинственное измерение, напрямую связанное с нашим миром. В погоне за тайными знаниями Харуне предстоит отточить свое исключительное умение использовать силу Складки в реальности... Однако дар Харуны не остается незамеченным, и она становится целью Восходящих. Эта организация замыслила повлиять (   Читать дальше...   )Тип издания: RepackРазработчик: Reflector Entertainment Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74EC00BDAB57549F1872EE1478C6704CA4FF5FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

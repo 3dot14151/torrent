@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199339.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Rainlendar Pro 2.19.2 Build 174 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199334.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199327.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Topaz Photo AI 1.3.1 RePack (& Portable) by TryRooM [En] (25.04.2023)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199325.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v7 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199324.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ HitPaw Photo Enhancer 2.2.0.13 (x64) Portable by Жека [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199319.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Telegram Desktop 4.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199315.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ WhatsApp (outdated) 2.2317.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199312.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ FurMark 1.34.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199305.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ WhatsApp 2.2317.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199299.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Kaspersky Tweak Assistant 23.4.22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199298.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Red Button 5.96 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199290.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ WinNTSetup 5.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199289.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Cockos REAPER 6.79 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199287.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Torrent Merkle Root Reader (TMRR) 2.0g [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199285.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ LDPlayer 9.0.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199282.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Office Tool Plus 10.1.7.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199278.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ CCleaner 6.11.10435 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199277.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Malwarebytes Free 4.5.27.262 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199275.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ W10Privacy 4.1.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199272.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Display Driver Uninstaller 18.0.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199262.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199258.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Psiphon 3 build 179 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199254.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Total Commander 10.52 (27.04.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199252.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Opera 98.0.4759.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199246.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ O&O AppBuster 1.3.1343 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199244.jpg" />
 </div>
 
 

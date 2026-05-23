@@ -1,81 +1,3 @@
-###  Публикация: 1856461   (1059116) от 02.03.2026
-
-Минцифры потратило 3 млрд рублей на строительство объектов связи там, где связь уже была
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Почти 3 млрд рублей, направленные Минцифры России на строительство объектов связи в 2025 году по программе устранения цифрового неравенства (УЦН), израсходовали без должной необходимости. К таким выводам пришла Счётная палата по итогам проверки использования средств федерального бюджета, выделенных на универсальные услуги связи. Об этом на заседании IT-комитета Госудумы (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856275   (1058962) от 01.03.2026
-
-В России раскрыли, когда страна станет независима от глобального интернета
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Россия достигнет независимости от глобального интернета к 2028 году, сообщили "Газете.Ru" в пресс-службе Российской ассоциации электронных коммуникаций [РАЭК]."Импортозамещение программного обеспечения и оборудования получит дополнительный импульс: по прогнозам, реестр отечественного ПО к 2028 году может насчитывать до 30 тысяч наименований, а доля (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856417   (1058959) от 02.03.2026
-
-В Индонезии проявили интерес к подключению к мессенджеру Max
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Индонезии было бы целесообразно рассмотреть возможность подключения к российскому мессенджеру Max в качестве альтернативной цифровой платформы наряду с уже доминирующими сервисами, завил РИА Новости аналитик Центра стратегических и международных исследований Индонезии Исриад Иман."С учетом высокой зависимости Индонезии от ограниченного числа иностранных мессенджеров, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856086   (1058905) от 28.02.2026
 
 Тайна экстренного возвращения Crew-11 с МКС раскрыта: астронавт Майкл Финк признал, что всё произошло из-за него
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058905.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058778.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058575.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058509.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058312.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058167.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058166.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058054.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057963.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ Zapret GUI 1.75 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057900.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057899.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057865.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057797.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057596.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057528.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057488.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057478.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ Google отключает комментарии и описания видео 
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057476.jpg" />
 </div>
 
 
@@ -558,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057256.jpg" />
 </div>
 
 
@@ -584,40 +506,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057244.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Очередное достижение: 3000 релизов от LORDKILL!!Уважаемые одноклубники, в преддверии Дня Защитника Отечества рада сообщить Вам о возможности поздравить нашего товарища и активного релизера фильмов, мультфильмов, а также hand made * video (что само по себе очень трудоемкий процесс!!) с преодолением очередного рубежа в  3000 релизов!! Ждем очередных достижений)) Так (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854508   (1057243) от 19.02.2026
-
-Первое достижение: 1000 релизов от adguard
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от adguard Дорогие друзья и гости клуба...Все мы знаем, как в последние годы вырос спрос на всякого рода репаки и сборки ПО. К сожалению на этом фоне безумства теряются истинные приверженцы оригинального софта.
-И вот когда заходит речь об официальном релизе Операционной Системы Windows, то каждый раз добрым словом вспоминаю нашего (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -637,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057242.jpg" />
 </div>
 
 
@@ -664,13 +559,118 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057194.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Аудиозаписи, скопированные со Spotify, постепенно становятся открыты всем желающим: Anna's Archive начала опубликовывать миллионы треков, несмотря на «немыслимый судебный иск» в размере $13 трлн от всемирно известного сервиса.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854143   (1057162) от 17.02.2026
+
+Ученый раскрыл, мог ли челябинский метеорит привести к катастрофе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллионный Челябинск на южном Урале ожидала бы катастрофа, сопоставимая со взрывом 20 атомных бомб над японской Хиросимой, если бы Чебаркульский метеорит 13 лет назад взорвался на высоте около одного километра над Землей, сказал РИА Новости научный руководитель обсерватории Ка-Дар и астрофермы "Астроверты" Стас Короткий.Метеорит пролетел и взорвался 15 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853589   (1057000) от 15.02.2026
+
+Роутеры — новые жертвы дефицита: память для них подорожала в семь раз и это не предел
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057000.jpg" />
+</div>
+
+
+###  Подробнее
+
+В контексте влияния роста цен на память чаще принято говорить о проблемах производителей ПК и смартфонов, но в действительности могут пострадать и производители телекоммуникационного оборудования и телевизионных приставок. Теперь доля затрат на память в себестоимости компонентов для таких устройств выросла с 3 до 20 % всего за год, и микросхем памяти для их производства (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853605   (1056907) от 15.02.2026
+
+Создан двухсторонний телевизор
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания TPV Technology Group представила первый в мире телевизор, имеющий экраны с двух сторон. На это обратило внимание издание TechRadar.Устройство GP TV имеет две стороны — условно фронтальную и тыльную. На каждой из них находится по 48-дюймовому экрану. Дисплеи имеют матрицу OLED разрешением 4К. Модель имеет металлические ножки, созданные из переработанных материалов, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+https://www.techradar.com/pro/worlds-largest-monitor-company-designed-a-4k-48-inch-oled-dual-sided-smart-gaming-display-with-metal-feet-a-magnetic-power-socket-and-an-alienware-inspired-sound-system-but-who-will-actually-use-it
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853840   (1056899) от 16.02.2026
+
+У Western Digital не осталось свободных производственных мощностей, рост цен на HDD неизбежен — Wccftech
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналисты портала Wccftech обратили внимание на довольно любопытное заявление генерального директора компании Western Digital Ирвинга Тана, сделанное в ходе пресс-конференции, посвященной последнему финансовому отчету фирмы.
 (   Читать дальше...   )
 
 ## Скачать торент

@@ -6,7 +6,7 @@ Pain - Coming Home (2016) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464030.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Doro - Forever Warriors Forever United (2018) 2CD, Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463451.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Blut Aus Nord - 777 - Sect(s) (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463391.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Acod - The Divine Triumph (2018) [FLAC|Lossless|image + .cue] <Melodic Blackened
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463388.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Abbath - Outstrider (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463381.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Starblind - Black Bubbling Ooze (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462751.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wings of Destiny - Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462592.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Leverage - Tides (2006) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462280.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Amken - Theater of the Absurd (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462274.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Communic - Hiding from the World (2020) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462271.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Amken - Adrenaline Shot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462270.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Steve Grimmett's Grim Reaper - Walking In The Shadows (2016) Japanese Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462114.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Anathema - A Vision of a Dying Embrace (Live in Krakow 1996) (2022) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462097.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Oceans of Slumber - Starlight And Ash (2022) [FLAC|Lossless|tracks + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462096.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Arch Enemy - Deceivers (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461814.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Beyond The Black - Heart Of The Hurricane (2018) Japanese Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461417.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Circadian Pulse - Elements Of Existence (2018) [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461330.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Gorgon - Titanomachy (2016) [FLAC|Lossless|image + .cue] <Sympho Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461224.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Explorers Club - Raising the Mammoth (2002) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461223.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Circadian Pulse - In The Blink Of An Eye (2012) [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461222.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sabbtail - Night Church (2004) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461220.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Transience - Temple (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461219.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Behold… The Arctopus - Hapeleptic Overtrove (2020) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460353.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Harakiri For The Sky - Arson (2018) [FLAC|Lossless|image + .cue] <Post Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460351.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Harakiri For The Sky - Harakiri For The Sky (2012) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460237.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Malevolent Creation - The 13th Beast (2019) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460236.jpg" />
 </div>
 
 

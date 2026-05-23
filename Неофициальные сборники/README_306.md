@@ -1,32 +1,3 @@
-###  Публикация: 1227380   (646583) от 26.05.2018
-
-VA - Зарубежные Хиты-Май 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. 30 Seconds To Mars - Dangerous Night
-002. Akcent feat. Reea - Deep In Your Eyes
-003. Akcent feat. Reea - Stole My Heart
-004. Andreas Riskykidd feat. Free - Selena(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB8C69F87E13D4ACE52C5F7A30C3FD54247931F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292274   (646548) от 29.03.2019
 
 VA - 80s Music Hits (2019) [MP3|320 Kbps] <Disco, Pop>
@@ -35,7 +6,7 @@ VA - 80s Music Hits (2019) [MP3|320 Kbps] <Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646548.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Горячие хиты радиостанций (2019) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646547.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Basstronic: Underground Electric Bass Session (2022) [MP3|320 Kbps] <Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646521.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - RnB Digest June Collection (2017) [MP3|320 Kbps] <Rhythm and Blues>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646505.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Bob Marley - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646482.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Крутые пушки Весна 2022 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646434.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Harder Better Trance (2016) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646176.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - For Brunettes: Selected Chillout Rhythms (2016) [MP3|320 Kbps] <Downtempo, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646175.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Trance Reflect (2016) [MP3|320 Kbps] <Trance, Melodic, Energy >
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646172.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646170.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Зарубежная Дискотека ХХ Века - 74 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646162.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Ночной клуб. Сборник танцевальных хитов (
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646070.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Studio Ibiza (2016) [MP3|320 Kbps] <Pop, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646063.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Зарубежная Дискотека ХХ Века - 75 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646060.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Зарубежная Дискотека ХХ Века - 73 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646058.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Dreaming In Orange (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646057.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Зарубежная Дискотека ХХ Века - 77 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646056.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - The Best - In Music We Trust (2016) [MP3|320 Kbps] <House, Electro House, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646050.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Зарубежная Дискотека ХХ Века - 76 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645956.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Зарубежная Дискотека ХХ Века - 72 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645947.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Зарубежная Дискотека ХХ Века - 79 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645944.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Пляжный Союз (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645843.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Dance Club Party Vol.3 (2012) [MP3|256 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645830.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ VA - Dance Club Party Vol.4 (2012) [MP3|256 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645829.jpg" />
 </div>
 
 
@@ -743,7 +714,7 @@ VA - Попсовый Драйв Летний (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645828.jpg" />
 </div>
 
 
@@ -763,6 +734,32 @@ VA - Попсовый Драйв Летний (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8762031193D9C7011F4D9DEB4D31D4EA9AA5F2E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905453   (645777) от 08.06.2015
+
+VA - КаZантип Z005 Progressive Trance (2005) [MP3|128-224 кб/с]<Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645777.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: Progressive TranceПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD4D8E6894EA0DEB094B796E61C395F41D97325
 ```
 
 https://mybot314.ru/tekegram_catalog/

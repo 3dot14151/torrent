@@ -1,83 +1,3 @@
-###  Публикация: 1107509   (866354) от 23.02.2017
-
-Владимир Короткевич | Черный замок Ольшанский (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Черный замок Ольшанский. Месяц ныряет в тучах. Башни во мраке туманные видят сны о былом дремучем...»
-Историк и писатель Антон Космич пытается раскрыть тайну старинного пергамента, рассказывающего о спрятанных в подземелье Ольшанского замка сокровищах. Но эти сокровища ищут и другие.Жанр: Современная прозаПродолжительность: 17:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C31B18FB9343A5DC21B61D0E02BADE65D41212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497232   (866345) от 21.09.2021
-
-Орсон Скотт Кард | "Сага о Вортинге" Книга 1. Хроники Вортинга (2021) [MP3, Сергей Оробчук]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это - хроники времени, когда наука подарила людям бессмертие - и дар бесконечной жизни оказался проклятием. Потому что жизнь без риска, без опасности, без конца - суть жизнь, лишенная смысла. Это - хроники времени, когда человечество лишилось будущего - казалось бы, навсегда.
-Однако в мир пришел НОВЫЙ ЛИДЕР. Лидер, готовый принести человечеству НОВЫЙ СМЫСЛ ЖИЗНИ. (   Читать дальше...   )Жанр: Фантастика, Зарубежные приключенияПродолжительность: 10:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EBD96D84761486D96DB2045DD3F3350FFEFCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497191   (866343) от 21.09.2021
-
-Сергей Куц | Земля 2252 (Книга 2). Земля 2252. Инкорпорация (2021) [MP3, Сергей Ермилов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Брат и сестра Андрей и Евгения Ливадовы перенесены из двадцать первого века в двадцать третий, эпоху постапокалипсиса. После Третьей мировой войны и Судного дня Земля разделена между тремя огромными корпорациями, заменившими прежние правительства государств, которых больше нет. Чтобы выжить, чтобы вырвать у жестокого мира шанс найти друг друга и вернуться в прошлое, (   Читать дальше...   )Жанр: Боевая фантастика, попаданцыПродолжительность: 10:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CADBD448CA484FFC60B66D571959137ABA00B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497259   (866334) от 21.09.2021
 
 Владимир Кретов | Легенда (Книга 2). Инферно (2021) [MP3, Вадим Чернобельский]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866334.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866258.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866231.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866103.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866083.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865903.jpg" />
 </div>
 
 
@@ -245,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865805.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865497.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865484.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865386.jpg" />
 </div>
 
 
@@ -353,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865381.jpg" />
 </div>
 
 
@@ -379,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865362.jpg" />
 </div>
 
 
@@ -405,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865346.jpg" />
 </div>
 
 
@@ -431,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865311.jpg" />
 </div>
 
 
@@ -458,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865280.jpg" />
 </div>
 
 
@@ -484,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865251.jpg" />
 </div>
 
 
@@ -510,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864953.jpg" />
 </div>
 
 
@@ -536,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864951.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864950.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864949.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864904.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864865.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864822.jpg" />
 </div>
 
 
@@ -678,6 +598,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2060B5418A67C139A3E5328E523903C1FA50A942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497520   (864781) от 22.09.2021
+
+Гордон Диксон | Человек (2021) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды, скучающий бессмертный властитель Дунбара, узнав, что впервые в его Империю прибыло существо нового вида, решил разнообразить свои будни, создав пикантную ситуацию, чтобы потом решить ее самому, продемонстрировав свое могущество и безграничную власть. Но он не знал, что имеет дело с Человеком.Жанр: ФантастикаПродолжительность: 00:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C19A56C3A58BCFD066783A99D74EDEF0B9B28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497566   (864779) от 22.09.2021
+
+Ясмина Сапфир | Сердце предводителя демонов (2021) [MP3, Luigi, Валерия Савельева]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864779.jpg" />
+</div>
+
+
+###  Подробнее
+
+– Сам грабли уберешь, или мне тебя еще раз приложить даром?
+– Грабли? Ты про садовый инструмент?
+– Лапу от моей руки, если тебе так понятней! Давайте сразу и в лоб. Чего тебе от меня нужно, Хортон? Я не стану с тобой спать! Еще что-то нужно?
+– Такая бойкая. Не боишься меня?(   Читать дальше...   )Жанр: Детективное фэнтези, Эротическое фэнтезиПродолжительность: 09:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB44F81311E362CE799892785270C5F2BAC8857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999243   (864719) от 22.03.2016
+
+Николай Нозиков | Русские кругосветные мореплаватели (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Русские кругосветные мореплаватели» рассчитана на массового читателя.
+Материал, помещенный в книге, интересен в том отношении, что дает возможность читателю познакомиться с характеристикой и деятельностью военных моряков - первых русских кругосветных мореплавателей, с маршрутами их плавания, а также знакомит читателя с природными богатствами, климатическими (   Читать дальше...   )Жанр: История, ПутешествияПродолжительность: 10:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8A0CED5C204791A79C7DA37C9C1EFBF8C7C847
 ```
 
 https://mybot314.ru/tekegram_catalog/

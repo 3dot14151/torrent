@@ -6,7 +6,7 @@ NERO (2022) [En] (1.5) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326957.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Middle-earth: Shadow of War (2017) [Ru/Multi] (1.21/dlc) License GOG [Definitive
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326029.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EARTH DEFENSE FORCE: IRON RAIN (2019) [Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322362.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HITMAN (2016) [Ru/Multi] (1.13.1/dlc) Repack Other s [GOTY Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320577.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Darksiders II (2015) [Ru/En] (2.1.0.4/dlc) Repack =nemos= [Deathinitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319849.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319845.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tom Clancy's Splinter Cell: Chaos Theory (2005) [Ru/En] (1.05) Repack Samael
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318554.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ State of Mind (2018) [Ru/Multi] (1.2) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318115.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack Samael
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316223.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) SteamRip Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314031.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Agents of Mayhem (2017) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313774.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Assassin’s Creed: Brotherhood (2011) [Ru] (1.03/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309044.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Darksiders: Wrath of War (2010) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308290.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Outcast - Second Contact (2017) [Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306968.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Outcast - Second Contact (2017) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306776.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dead Space 2 (2011) [Ru/Multi] (1.1/dlc) SteamRip Let'sРlay [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304584.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) Repack Seraph1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303949.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Outcast: Second Contact (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302731.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Darksiders: Wrath of War [Ru/En/Multi9) (Steam-Rip/1.1) 2010 | R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302311.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Darksiders Dilogy / Дилогия Darksiders [Ru] (RePack/1.1/1.5) 2010-2012 | 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302301.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Blade & Bones (2016) [Ru/Multi] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301885.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.05/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300344.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Darksiders 2: Death Lives - Limited Edition [Ru/En/Multi9] (Steam-Rip/1.5/18 DLC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_299890.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ A Way Out (2018) [Ru/En] (1.0.62) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298326.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Outcast - Second Contact (2017) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296601.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296519.jpg" />
 </div>
 
 

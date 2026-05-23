@@ -6,7 +6,7 @@ DVDFab 9.3.1.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434097.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HWMonitor 1.30 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434093.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VLC Media Player 2.1.0-git-20120930 (x32/x64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434087.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Glary Utilities Pro 5.151.0.177 Repack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434063.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Glary Disk Cleaner 5.0.1.221 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434055.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4867.1001 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434035.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4867.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434031.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Shadow Defender 1.4.0.653 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434029.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Advanced Installer 17.4.1 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433972.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Glarysoft Malware Hunter PRO 1.111.0.703 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433960.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ CoolUtils Total Image Converter 8.2.0.222 RePack (& Portable) by Dodakaedr [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433958.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sandboxie 5.58.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433937.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Download Master 6.6.1.1483 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433925.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Nokia Suite 3.6.21 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433900.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.22 (0509) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433885.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MediaHuman YouTube Downloader 3.9.9.22 (0509) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433883.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Opera GX 63.0.3368.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433881.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Opera GX 63.0.3368.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433879.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ XMedia Recode 3.5.1.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433863.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sandboxie plus 1.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433852.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ ThunderSoft GIF to Video Converter 4.4.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433847.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ThunderSoft Video to GIF Converter 3.9.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433844.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Audiority - PlexiTape 1.0.1 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433810.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Comodo Dragon 76.0.3809.132 + Portable Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433791.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Vivaldi 2.7.1628.33 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433789.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433775.jpg" />
 </div>
 
 

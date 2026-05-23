@@ -1,83 +1,3 @@
-###  Публикация: 145360   (430711) от 11.10.2009
-
-Георгий Зотов | Элемент крови [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Гарантируем – такого вы еще не слушали никогда! Головокружительный мистический триллер, изобилующий черным юмором и скандальными пародиями на современную российскую действительность.
-Саддам Хусейн играет в дешевой рекламе. Телеведущий Влад Кистьев снимает сериал «Доктор Трупаго». Мэрилин Монро уменьшили бюст до нуля. Здесь чудовищные пробки, мобильная сеть – глючный (   Читать дальше...   )Жанр: Юмористическая фантастика
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165631   (430588) от 14.09.2017
-
-Олег Рой | Не оставляй меня, любимый (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Остросоциальные темы в новом психологическом романе «Не оставляй меня, любимый!» от культового автора современной прозы Олега Роя.
-Сергей Аникеев казался избранником судьбы – созданная им социальная сеть «Мы» завоевала огромную популярность, принеся создателю славу и деньги, а еще он встретил большую любовь. Но не зря говорят, что судьба одной рукой дает, а другой (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 08:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25328B3C3AF6F7E0966A1CCFBE01D541B949B0D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165814   (430459) от 14.09.2017
-
-Джордан Кралл | В щупальцах смертельной гонки (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2025 год. Десять лет назад Соединенные штаты Америки развязали еще одну мировую войну, но на этот раз они оказались в проигрыше, разоренные ядерным, химическим и биологическим оружием. Остальные страны всего мира теперь работают над восстановлением былой цивилизации, коллективно игнорируя США. Американцы же сдались на милость мутантов, сумасшедших, мародеров, бандитов (   Читать дальше...   )Жанр: Постапокалипсис, Боди-хоррорПродолжительность: 05:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13C470CCD59D556D49EF6E2E5F32AAF1991491B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 830020   (430408) от 10.10.2014
 
 Роберт Гэлбрейт (Джоан Роулинг) | Корморан Страйк (Книга 1). Зов Кукушки (2014) [MP3, Дмитрий Негодяев]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430408.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430241.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429761.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429760.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429751.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429746.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429711.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429707.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429652.jpg" />
 </div>
 
 
@@ -328,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429648.jpg" />
 </div>
 
 
@@ -354,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429630.jpg" />
 </div>
 
 
@@ -380,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429617.jpg" />
 </div>
 
 
@@ -407,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429612.jpg" />
 </div>
 
 
@@ -433,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429572.jpg" />
 </div>
 
 
@@ -462,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429570.jpg" />
 </div>
 
 
@@ -490,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429567.jpg" />
 </div>
 
 
@@ -517,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429539.jpg" />
 </div>
 
 
@@ -543,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429535.jpg" />
 </div>
 
 
@@ -570,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429531.jpg" />
 </div>
 
 
@@ -597,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429514.jpg" />
 </div>
 
 
@@ -623,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429489.jpg" />
 </div>
 
 
@@ -649,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429446.jpg" />
 </div>
 
 
@@ -675,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429368.jpg" />
 </div>
 
 
@@ -688,6 +608,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DB3862A76ACD98C0BB97213BEAAE5D0D29B5B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411022   (429348) от 24.09.2020
+
+Алексей Имп | Рождение Черного генерала (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429348.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Землю вторгается жестокое инопланетное существо. Тварь затягивает саму душу, ядро человеческой сущности, в кибер-сеть и поглощает её! Но, что, если кто-то сможет совладать с ней в её же мире, где пришелец вынужден охотиться по правилам виртуальных игр? Даст ли это шанс на спасение или усугубит положение Землян?Жанр: Боевая фантастика, Киберпанк, LitRPGПродолжительность: 10:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF44C82A78A549CB4FE0CEC2593188E8D9478ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946096   (429314) от 12.10.2015
+
+Георгий Марков | Строговы (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпический роман "Строговы" известного писателя-сибиряка Георгия Мокеевича Маркова в полной мере можно назвать историческим. В своем произведении автор через судьбу крестьянской семьи Строговых ярко и образно рисует картину жизни Сибирского края в период крупных исторических событий - Русско-японской войны, революции 1905 года, Октябрьской революции 1917 (   Читать дальше...   )Жанр: Исторический романПродолжительность: 27:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DDF0F755D7779333D75AA220F2CFDA36B576681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249864   (428942) от 26.09.2018
+
+Ольга Крючкова | Ковчег могущества (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет, XIV век до Рождества Христова. У смертного одра фараона Тутмоса IV его внук, сын Аменхотепа, Тутмос провозглашен эрпатором - наследником. Пока правит новый фараон, Аменхотеп III, юный Тутмос изучает мир, много путешествует и однажды открывает для себя в затерянном городе Базальтовый дворец богов. Это событие перевернуло жизнь эрпатора. Он проходит сложный (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 18:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC5FD8952E8ED3D7EECD62256FA7F4A251041328
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1636157   (231728) от 29.05.2023
-
-Grim Tales 23: Dual Disposition / Страшные сказки 23: Двойственность (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей серии игр Grim Tales. Полиция предложила Анне Грей участвовать в расследовании ограбления странного сувенирного магазина. Однако дело получило неожиданный поворот - она стала главной подозреваемой. Оказалось, двойник Анны решила забрать ее способности, нарушив при этом поток магии. Сможет ли Анна не дать исполниться дьявольским планам Леди (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC04DE017D1F59A114A8717212F699D65556AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637111   (231076) от 02.06.2023
 
 Bridge to Another World 11: A Trail of Breadcrumbs (2023) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs (2023) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231076.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Alekon (2021) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230723.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.04.80648/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230618.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dark Moon (2025) [Ru/Multi] (2025-10-29 Build 20591880) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230605.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230599.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230593.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.3.6f1/dlc) Repack seleZen [Ultimate
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230586.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230578.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230568.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230562.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230531.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Incredible Machine Mega Pack (1993-2001) [En] (2.1.0.24/2.1.0.22/2.1.0.21/2.
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230339.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16494r) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230304.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Factorio (2020) [Ru/Multi] (2.0.72/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230234.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ NARUTO SHIPPUDEN Ultimate Ninja STORM Revolution (2014) [Ru/Multi] (1.0.0.0 upd2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230021.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Mortal Kombat: Legacy Kollection (2025) [Multi] (1.0.0.1) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230013.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ghostrunner (2020) [Ru/Multi] (0.30714.410/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229954.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Gloomy Tales: Horrific Show (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229734.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229641.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (23289/dlc) License GOG [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229463.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ CULTIC (2022) [En] (9714547) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229328.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ SuperPower 3 (2022) [Ru/Multi] (1.0b) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229292.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Omerta: City of Gangsters (2013) [Ru/En] (1.07/dlc) Repack R.G. Origami [Gold Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229032.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Fran Bow (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228999.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228934.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:610EE93AD317D91A989D0B0FC2D3A4E41924CB71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268119   (228910) от 09.12.2018
+
+My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228910.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Memory of Us – это воспоминание о дружбе между мальчиком и девочкой. Дружбой, которая объединяла их в трудные времена. Во времена террора, боли и изгнания, когда люди были вынуждены жить в двух искусственно разделенных мирах.Тип издания: RepackРазработчик: Juggler GamesЖанр: Adventure, Arcade, Action, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58F22C94B36E1832F4152795D24F208317AF479
 ```
 
 https://mybot314.ru/tekegram_catalog/

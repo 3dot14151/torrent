@@ -6,7 +6,7 @@ Eternal Idol - The Unrevealed Secret (2016) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290332.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Leah - The Quest (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal, Medieval 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289930.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Iron Maiden - The Book of Souls: Live Chapter (2017) 2CD [WavPack|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289525.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Stereo Nasty - Nasty By Nature (2015) [WavPack|image+.cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289220.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Reverence - Gods Of War (2015) Japan [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289056.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sacred Steel - Heavy Metal Sacrifice (2016) [FLAC|Lossless|image + .cue] <Epic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288542.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Evanescence - Fallen (2003) Japanese Edition [FLAC|Lossless]<Gothic Metal, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287495.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Danzig - Skeletons (2015) Limited Edition [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287444.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Elettra Storm - Evertale (2025) [FLAC|Lossless|image + .cue] <Melodic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_287036.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Batushka - Litourgiya (2015) [FLAC|Lossless|WEB-DL]<Black Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286969.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Antiquus Scriptum - Abi In Malam Pestem / In Pulverem Reverteris (2002) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286545.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286543.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286540.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286462.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Anubis Gate - Covered In Black (2017) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286450.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Vanden Plas - The God Thing (1997) Reissue, Special Edition, 2004, Inside Out Mu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286444.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Deafheaven - New Bermuda (2015) [FLAC|Lossless|image + .cue] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286439.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Witchery - I Am Legion (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286403.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Holter - Vlad The Impaler (2018) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286307.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Conjonctive - Until The Whole World Dies... (2013) [FLAC|Lossless]<Blackened Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286306.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Those Who Fear - 3 Альбома (2013-2016) [FLAC|tracks|Lossless]<Moshable Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284892.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Missa Mercuria - Missa Mercuria (2002) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284686.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Event Horizon - Naked On The Black Floor (2006) [FLAC|mage +.cue|Lossless]<Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284145.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Thomsen - Unbroken (2014) [FLAC|mage +.cue|Lossless]<Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284144.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Votum - Metafiction (2009)  [FLAC|Lossless|image + .cue]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283070.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Pagan's Mind - 5 Albums, 2 Lives (2000 - 2015) 13 CD [FLAC|APE|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281160.jpg" />
 </div>
 
 

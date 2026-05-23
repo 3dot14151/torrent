@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021908.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft Video Converter Ultimate 10.2.12 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021904.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LosslessCut 3.36.0 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021902.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Download Master 6.19.8.1661 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021900.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BitComet 1.76 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021895.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Native Instruments - Kontakt 6.5.2 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021892.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ YTD Video Downloader PRO 5.9.18.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021886.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Visual Studio 2019 Enterprise 16.9.3 (Minimal size, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021885.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ SYD.31 + side project: Kara And The Wolves - Discography 8 Releases (2014-2021) 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021873.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Vit Registry Fix Pro 14.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021867.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ AOMEI Backupper Technician Plus 6.5.0 (DC 08.04.2021) RePack by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021865.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ EOBD Facile v3.29.0752 [Ru] - Диагностика автомобиля OBD2 &
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021860.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Comedy Баттл (09.04.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021773.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Exif Pilot 6.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021769.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ SRWare Iron 89.0.4550.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021767.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ MusicBee 3.4.7764 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021760.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ SupRemo 4.4.0.2636 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021752.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ MKVToolNix 56.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021745.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Etcher 1.5.117 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021730.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021718.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ KSHMR - Tomorrowland Friendship Mix (2021-04-08) [MP3|320 Kbps] <Electro House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021620.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Opera GX 73.0.3856.427 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021616.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Juicy M - Live @ Vevo Celebrates Women's History Month, Ukraine (2021-03-31) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021595.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ GPS Map Camera Lite v1.3 [Ru/Multi] - Geotag Photo Location
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021571.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VoIP Recorder & Screen Recorder v2.2 [En] (обновляемая)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021564.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Whale Browser 2.9.116.13 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021447.jpg" />
 </div>
 
 

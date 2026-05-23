@@ -6,7 +6,7 @@ Paranormal Files 12: Fatal Flaw / Паранормальные явления 12
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30233.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dark Town Secrets: Lost Lulu / Секреты Темного города: В п
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29211.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Detective Club: Missing in the Fog / Детективный Клуб: Пропа
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28566.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ City of Stories 3: The Hunter's Heart / Город Историй 3: Сердц�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28342.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mind Echoes: The Lost Mysteries / Эхо разума: Утраченные та
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27726.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Secrets of Salem: Shadow of the Witch (2025) [Multi] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27319.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Puzzle Quest 3 (2023) [Ru/Multi] (3.5.0.41964/dlc) Repack Let'sРlay
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27257.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Living Legends 12: Frozen Destiny / Живые легенды 12: Замёрзш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26781.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ms. Holmes 7: The Death of Peter Blackheart (2025) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26154.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Secrets of Salem: Shadow of the Witch / Секреты Салема: Тень в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25939.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Reflections of Life 13: Sleep's Embrace / Отражения жизни 13: Об
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24808.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mirrors of Deception: The Silver Peaks Secret / Зеркала Обмана: С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24800.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Storykeepers: Hidden Mystery (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23969.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lost Lands X / Затерянные земли Х (2025) [Ru] (1.0) Unofficial [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23877.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Lucky Season 2: End of the Rainbow / Сезон удачи 2: Конец рад�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23509.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Icebound Secrets: The Frostwood Bane (2025) [Multi] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23402.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Harmony Chronicles 3: Cat Out of the Bag / Хроники Гармонии 3: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23201.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Enchanted Stories: Mystic Woods / Зачарованные Истории: Та�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23199.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Icebound Secrets: The Frostwood Bane / Тайны ледяного мира: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22890.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Whispered Secrets 16: In the Cards / Нашептанные секреты 16: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22592.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ StoryKeepers: Hidden Mystery / Хранители историй: Скрытая
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21137.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dark City 10: Barcelona (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21114.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mystery of Myths: Mystery of the Fjords (2025) [Multi] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21101.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Grim Tales 26: Prisoners of the Past (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20994.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20365.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Dark City 10: Barcelona / Мрачный город 10: Барселона (2025
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20062.jpg" />
 </div>
 
 

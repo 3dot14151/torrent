@@ -6,7 +6,7 @@ Sketch 99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160423.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DxO PureRAW 3 for Mac v.3.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160422.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Path Finder 2163 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160417.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160399.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Paste 4 v.4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160383.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Vellum 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160322.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Native Instruments Komplete Kontrol 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160320.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ PowerPhotos 2.5.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160318.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Xliff Editor 2.9.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160315.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160309.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Disk Xray 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160304.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ DJ Mix Pads 2 - Remix Version 6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160286.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Capture One 23 Enterprise 16.3.1.23 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160275.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ AlDente Pro fo Mac 1.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160233.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ PDF Reader Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160230.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160229.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Apeaksoft iOS Unlocker 1.0.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160228.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Aiseesoft AnyCoord for Mac 1.0.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160227.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Default Folder X 5.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160224.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160222.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Aiseesoft Audio Converter for Mac 9.2.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160220.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Aiseesoft Mac Blu-ray Player 6.6.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160208.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Amadeus Pro 2.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160207.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VueScan Pro for Mac 9.8.21 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160206.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ TunesKit AceMovi Video Editor 4.9.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160200.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ iCalamus 2 v.2.3 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160191.jpg" />
 </div>
 
 

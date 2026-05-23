@@ -1,82 +1,3 @@
-###  Публикация: 1744784   (45896) от 23.08.2024
-
-Особенности национальной охоты (1995) WEB-DLRip  [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молодой финский специалист по охоте, «финик», уговаривает своего русского друга помочь ему поучаствовать в настоящей русской охоте, дабы познакомиться с нравами и привычками русских охотников.
-До боли знакомые нам бесконечные застолья с последующими приключениями, насыщенными крепким запахом водки, непрестанно удивляют и поражают «финика», но все же, сопоставляя (   Читать дальше...   )Производство: Россия / Кинокомпания «Ленфильм», РоскомкиноЖанр: комедияРежиссер: Александр РогожкинАктеры: Вилле Хаапасало, Алексей Булдаков, Виктор Бычков, Семён Стругачев, Сергей Куприянов, Сергей Русскин, Сергей Гусинский, Игорь Сергеев, Игорь Добряков, Юрий Макусинский и другиеСубтитры: ОтсутствуютПродолжительность: 01:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C483B92B05F883A87AB1CA7C7C2BCFB2B1B0A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744640   (45839) от 24.08.2024
-
-Бар «МоскваЧики» (2024) WEBRip [H.265/2160p] [4K, SDR, 10-bit]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Три молодые подруги из Москвы едут развеяться в Питер. Неожиданно для самих себя на последние сбережения они покупают бар и знакомятся с тремя парнями, у которых есть одна тайна. Завязывается противостояние, полное интриг и неожиданных поворотов. Удастся ли девушкам достичь успеха, или придётся вернуться в Москву ни с чем?Производство: Россия / Берг Саунд, Кинокомпания «Темп», МоскиноЖанр: комедияРежиссер: Анарио МамедовАктеры: Яна Кошкина, Марк Богатырев, Михаил Тарабукин, DAVA, Екатерина Шкуро, Дмитрий Красилов, Екатерина Иванчикова, Александр Златопольский, Сергей Николаев, Максим СаетгараевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21DFE4BEF76A63160156BC6319CCABDCD3D74AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066011   (45736) от 25.08.2024
-
-Её звали Муму (2016) WEB-DL [H.264/1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня за нехитрые материальные блага соглашается – без угрызений совести – стать приманкой для оппозиционеров; соблазнить, снять секс скрытой камерой и обнародовать запись. Политолог, молодой лидер либерального движения, ветеран постсоветских войн с подвижной психикой, эстрадный артист на излете славы, поддерживающий протестные акции, – в постели девочки, (   Читать дальше...   )Производство: Россия, ООО «Фабула Филмс»Жанр: ДрамаРежиссер: Владимир МирзоевАктеры: Ирина Вилкова, Елена Коренева, Ефим Шифрин, Пётр Фёдоров, Ольга Лапшина, Ольга Лысак, Валерия Приходченко, Ирина Бутанаева, Евгений Буслаков, Игорь Воробьёв, Юрий СысоевПродолжительность: 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579B68C743BD05AC44E12D8B840137C863E2AB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745170   (45655) от 25.08.2024
 
 Век-волкодав (2023) WEBRip [H.264/1080p]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45655.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45382.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45218.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45114.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45048.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45041.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44997.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44371.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43921.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43890.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43748.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43531.jpg" />
 </div>
 
 
@@ -397,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43216.jpg" />
 </div>
 
 
@@ -423,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43060.jpg" />
 </div>
 
 
@@ -449,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43001.jpg" />
 </div>
 
 
@@ -475,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42949.jpg" />
 </div>
 
 
@@ -501,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42688.jpg" />
 </div>
 
 
@@ -527,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42634.jpg" />
 </div>
 
 
@@ -553,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42632.jpg" />
 </div>
 
 
@@ -579,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42484.jpg" />
 </div>
 
 
@@ -605,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42468.jpg" />
 </div>
 
 
@@ -631,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42459.jpg" />
 </div>
 
 
@@ -657,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42372.jpg" />
 </div>
 
 
@@ -668,6 +589,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6D50D49AB3D4C6D564A832A2C4D7F681D8E44F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751827   (42238) от 27.09.2024
+
+Бендер: Последняя афера (2021) BDRemux [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1919 год, Солнечноморск. Талантливые авантюристы стали слишком известны: теперь их разыскивает полиция России и Турции. Они отправляются на юг России, чтобы завладеть золотым жезлом графа Румянцева. В погоне за драгоценной вещицей им придется переодеться террористами, цирковыми артистами и даже путешествующими дамами. Тем временем мать Оси попадает в лапы мрачного (   Читать дальше...   )Производство: Россия / Продюсерская компания «Среда»Жанр: приключения, комедияРежиссер: Игорь ЗайцевАктеры: Сергей Безруков, Арам Вардеванян, Ольга Сутулова, Артём Ткаченко, Таисия Вилкова, Иван Кокорин, Алексей Дмитриев, Анна Бреннер-Вартаньян, Андрей Бурковский, Рихард ЛеперсПеревод: Не требуется (Русский)Субтитры: Русские (Forced)Продолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AE568544F10BC156BA4A43539142302866C324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752032   (42123) от 28.09.2024
+
+Заклятье. Шёпот ведьм (2023) BDRip [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сломленный и отчаявшийся детектив расследует убийства подростков в глухой деревне — и сталкивается с жуткой потусторонней сущностью, чей шепот грозит кошмарной смертью.Производство: Россия / KD StudiosЖанр: ужасыРежиссер: Серик БейсеуАктеры: Артур Бесчастный, Марьяна Спивак, Софья Шидловская, Игорь Грабузов, Сергей Сафронов, Валерия Кот, Кирилл Русин, Илья Виногорский, Артём Фадеев, Марина ГришаковаПеревод: Не требуется (Русский)Субтитры: Русские (Forced, Full | Al)Продолжительность: 01:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5B67014000A4EC2BA6DD1C4DF399384856548A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752034   (42111) от 28.09.2024
+
+Заклятье. Шёпот ведьм (2023) BDRip [H.264/720p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сломленный и отчаявшийся детектив расследует убийства подростков в глухой деревне — и сталкивается с жуткой потусторонней сущностью, чей шепот грозит кошмарной смертью.Производство: Россия / KD StudiosЖанр: ужасыРежиссер: Серик БейсеуАктеры: Артур Бесчастный, Марьяна Спивак, Софья Шидловская, Игорь Грабузов, Сергей Сафронов, Валерия Кот, Кирилл Русин, Илья Виногорский, Артём Фадеев, Марина ГришаковаПеревод: Не требуется (Русский)Субтитры: Русские (Forced, Full | Al)Продолжительность: 01:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6CC9D082C08A6C41E581CB9B6440E90513CAD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

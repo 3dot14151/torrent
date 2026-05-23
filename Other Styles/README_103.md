@@ -6,7 +6,7 @@ Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504510.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504499.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504400.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Lichtmond (Лунный свет) - Erwachen Fruhlingstanzerin (2010) [MP3|256 �
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504391.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504061.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503668.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503601.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Modern Sound Orchestras - Ave Maria (1992) [FLAC|Lossless|image + .cue] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503286.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503284.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ David Osborne - What the World Needs Now (2019) [MP3|320 Kbps] <Instrumental, Pi
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502503.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Gheorghe Zamfir - 2 альбома (1986, 1991) [MP3|320 kbps] <Instrumental, Pa
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502072.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501945.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (201
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501384.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501367.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500669.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500499.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Modern Sound Orchestras - Melody in Love (1992) [FLAC|Lossless|image + .cue
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500408.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Jean Michel Jarre - Magnetic Fields (1981) [FLAC|image + .cue]<Electronic, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500299.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ DYATHON - Recollection (2019) [MP3|320 Kbps] <Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499535.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ The Soul Stirrers - Les Genies du Rock - Peace In The Valley (1995) [MP3|320 к�
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499455.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA-New Age Style - Mystic Lounge (2012) [MP3|320 кб/с]<New Age, Tribal, PsyCh
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499175.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ David Hicken - 3 albums (2007-2008) [MP3|192, 320 кб/с]<New age, Instrumental
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499121.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498763.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498441.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, El
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498149.jpg" />
 </div>
 
 
@@ -770,7 +770,7 @@ VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498148.jpg" />
 </div>
 
 

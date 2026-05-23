@@ -1,56 +1,3 @@
-###  Публикация: 1321715   (456560) от 25.08.2019
-
-Кентервильское привидение / The Canterville Ghost (1996) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда американский миллионер Гирам Отис приобретает старинный замок Кентервиль Чейз, он не торопится что-то в нем менять. Единственная проблема, с которой сталкивается семейство, это наличие привидения сэра Саймона де Кентервиля, обитающее в приобретенном замке.
-Гирам считает, что проблему нужно решать с научной точки зрения, в то время как, по мнению его жены Лукреции, (   Читать дальше...   )Производство: США / Anasazi, Signboard Hill ProductionsЖанр: фэнтези, драма, семейныйРежиссер: Сидни МакартниАктеры: Патрик Стюарт, Нив Кэмпбелл, Джоан Симс, Дональд Синден, Шери Лунги, Эдвард Уайли, Лесли Филлипс, Дэниэл Беттс, Киаран Фицджералд, Рэймонд ПиккардПеревод: Многоголосый профессиональныйСубтитры: русские (форс., полные), английские (полные)Продолжительность: 01:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF08A834E4440C46CE6D60249B497C6D54BC3604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321645   (456446) от 25.08.2019
-
-Видок: Охотник на призраков / L'Empereur de Paris (2018) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Реальная история легендарного французского сыщика XIX века Эжена Франсуа Видока. Ловкий преступник и мастер по части побегов из тюрем Видок менял города и профессии, пока не был нанят наполеоновским правительством очистить улицы Парижа от криминала. Зная преступный мир изнутри, Видок стал самым успешным детективом своей эпохи и настоящим Императором Парижа.Производство: Франция, Mandarin Films, Gaumont, France 2 CinémaЖанр: Приключения, историяРежиссер: Жан-Франсуа РишеАктеры: Ольга Куриленко, Венсан Кассель, Фрейя Мавор, Аугуст Диль, Дени Меноше, Дени Лаван, Фабрис Лукини, Джеймс Тьерре, Патрик Шене, Уилльям СкьортиноПеревод: Дублированный iTunes), Многоголосый закадровый ( HDrezka Studio)Субтитры: Английские (full)Продолжительность: 02:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61C6DADAA97013891987158DEE9AF624829194C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321654   (456434) от 25.08.2019
 
 Видок: Охотник на призраков / L'Empereur de Paris (2018) BDRip [H.264/720p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456434.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456371.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456326.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456319.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456316.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456309.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456308.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456302.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456259.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456255.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455552.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455510.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455505.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455490.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455440.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455432.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455403.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455395.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455325.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455259.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455257.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455231.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455225.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455213.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B0CA958EFE7095F220A66816F90F0B05528A337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942067   (455145) от 30.09.2015
+
+Шпион / Spy (2015) BDRemux [H.264/1080p] [Unrated Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время секретной операции один из лучших агентов ЦРУ случайно убивает важного свидетеля, который знал местонахождение ядерной бомбы. Бомбу нужно срочно найти и обезвредить, иначе это грозит самой масштабной катастрофой в истории человечества. Операция оказывается на грани провала, но позже выясняется, что местонахождение ядерного оружия знает ещё один человек – (   Читать дальше...   )Производство: США / Chernin Entertainment, Feigco Entertainment, Twentieth Century FoxЖанр: боевик, комедия, криминалРежиссер: Пол ФигАктеры: Мелисса МакКарти, Джейсон Стэйтем, Джуд Лоу, Роуз Бирн, Миранда Харт, Бобби Каннавале, Морена Баккарин, Раад Рави, Джессика Чаффин, Сэм РичардсонПеревод: Дублированный (Лицензия BD EUR) + Авторский (М. Яроцкий) + УкраинскийЯзык субтитров: Русский, Английский, УкраинскийПродолжительность: 02:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB1CDCD54557A7FFED8A4AE1BE2A410105B6791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704428   (455087) от 27.09.2013
+
+Беги / Run (2013) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455087.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нью-йоркской школе появляется таинственный ученик по имени Дэниэл. Он виртуозно владеет паркуром и сразу находит себе друзей по интересам, с которыми он может «летать» над городом, пока тот спит. Среди новых друзей прекрасная Эмили, которая безоглядно влюбляется в новичка. Но откуда приехал Дэниэл? Кто он такой? Где он жил раньше? Ведь у него полно секретов, которые (   Читать дальше...   )Производство: США - 224 Entertainment, Intrinsic Value FilmsЖанр: Боевик, Триллер, МелодрамаРежиссер: Симон Бартесаги / Simone BartesaghiАктеры: Уильям Моусли, Адриан Пасдар, Келси Чоу, Крейг Хенингсен, Эдоардо Баллерини, Эрик Робертс, Сол Стайн, Джон Фреда, Джозеф Перрино, Альберт ВалладаресПеревод: Дублированный |лицензия|Продолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639793CB71250FC73F442670196048901F04C19E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ RedNotebook 2.38.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26566.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CherryTree 1.3.0.1 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26564.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EF Commander 25.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26559.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OneCommander Pro 3.95.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26558.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ EarthView 7.11.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26556.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PotPlayer 241216 (1.7.22398) RePack (& Portable) by elchupacabra (25.02.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26551.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ R-Drive Image Technician 7.3 Build 7300 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26531.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WSCC (Windows System Control Center) 10.0.0.3 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26499.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Atlantis Word Processor 4.4.4.3 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26485.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AVS Image Converter 7.0.2.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26466.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CudaText 1.221.5.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26465.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ FocusWriter 1.8.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26456.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ PotPlayer 250224 (1.7.22480) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26454.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Qalculate! 5.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26453.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ TagScanner 6.1.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26450.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VidCoder 11.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26447.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ZWCAD 2025 SP1.4 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26424.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VueScan Pro 9.8.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26423.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Topaz Gigapixel AI 8.2.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26419.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Ableton - Live 12 Suite 12.1.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26414.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ WinRAR 7.11 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26405.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Windows Repair Toolbox 3.0.4.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26399.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Adguard 7.20.0 (7.20.4960.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26394.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NVIDIA GeForce Desktop Game Ready 572.47 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26392.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PotPlayer 250226 (1.7.22492) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26382.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ GPU-Z 2.64.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26373.jpg" />
 </div>
 
 

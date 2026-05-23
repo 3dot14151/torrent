@@ -1,29 +1,3 @@
-###  Публикация: 1380705   (830851) от 04.05.2020
-
-The Walking Evil (2020) [Ru/Multi] (1.2) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-The Walking Evil переносит вас в великую классику ужасов выживания 90-х, управляя главным героем с помощью фиксированной системы камер, которая усиливает ощущение того, что вы находитесь в настоящем фильме ужасов, или с видом от третьего лица. Столкнитесь с множеством испытаний, головоломок и ужасными врагами, которые заставят вас не тратить пули, прятаться или даже (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CD452FE323629FA6E63E343007AC59682ABDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006101   (830191) от 10.04.2016
 
 Bunker - The Underground Game (2015) [Ru/De] (22.5) Repack ARMENIAC
@@ -32,7 +6,7 @@ Bunker - The Underground Game (2015) [Ru/De] (22.5) Repack ARMENIAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_830191.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Revenants [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827602.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack xata
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825817.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Waking the Glares - Chapters I and II (2017) [En/It] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825811.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825520.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Mind Scanners (2021) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824316.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Icon Of Hell (2016) [Ru/En] (0.99) Lisence
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822830.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Eliza (2019) [Ru/Multi] (08.31.2020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822690.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Death Gate (1994) [En/Ge] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820420.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru/En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820139.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Alien Cube (2021) [Ru/Multi] (1.0) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818913.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Curse of monkey Island  / Проклятие острова обезьян [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818611.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818552.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818467.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Alone in the Dark 3 (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818457.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ White Night (2015) [Ru/En] (1.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818369.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Impostor Factory (2021) [Ru/Multi] (1.0) License GOG [The Screw-It-Just-Gimme-Ev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817490.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (1.0.0.1) Unofficial Fairl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816429.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815561.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Poppy Playtime (2021) [Multi] (7543327) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813347.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Outpost 13 (2015) [Ru/Multi] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812961.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Goetia (2016) [En/Fr] (1.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812945.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное ус
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812629.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ The Witness (2016) [Ru/Multi] (964-Ansel(A)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812558.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Samorost 3 (2016) [Ru/Multi] (1.4.465) License GOG [Cosmic Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812544.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Samorost 3 - приключенческая исследовательская �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A70134102873CDD2C5B8897502A1A589742F84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118661   (810738) от 26.03.2017
+
+Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две группы из 9 невольных участников похищены и вынуждены принять участие в дьявольской игре Nonary Game. Одна группа находится на тонущем корабле, и у нее есть 9 часов для спасения, другая заперта в здании и вынуждена либо доверять, либо предавать друг друга. Если они нарушат правила или не успеют выбраться… они погибнут. Почему они были избраны для этой игры? Кто (   Читать дальше...   )Тип издания: LicenseРазработчик: Spike ChunsoftЖанр: Adventure, ViolentЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7640B45775C3C37F52C4AD67586526CAF66CCF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

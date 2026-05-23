@@ -6,7 +6,7 @@ Thad Jones - The Magnificent Thad Jones (1956) 1987, Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241722.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dave Douglas - Meaning And Mystery (2006) Greenleaf Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241718.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Von Freeman And Frank Catalano - You Talkin' To Me?! (2000) Delmark Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241713.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Andrew Hill - Time Lines (2006) Blue Note [FLAC|Lossless|tracks + .cue] <Avant-G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241708.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Eddie "Lockjaw" Davis - Cookbook, Vol.1 (1958) 1991, Original Jazz Classics 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241698.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dave Lambert & Jon Hendricks - Sing & Swing Along / Evolution of the Blues Song 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241685.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Andrew Cyrille Quartet - The Declaration of Musical Independence (2016) ECM [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241680.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bill Reichenbach & Rodger Fox - Something Juicy (1984) 1992, Circular Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241558.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Harry Allen - Blue Bossa (2013) Swingbros Co. [FLAC|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241510.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Nicholas Payton - Dear Louis (2001) Verve Music Group [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241474.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Woody Herman - 1940 (2002) Classics [FLAC|Lossless|image + .cue] <Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241429.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fred Astaire - The Astaire Story (1952) 2CD, 1988, Verve [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241420.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Graham Collier - British Conversations (2021) [FLAC|Lossless|tracks + .cue] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241386.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dave Brubeck - Les Incontournables (1996) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241333.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bireli Lagrene - Routes To Django (1980) 1987, Antilles [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241332.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dave Brubeck Quartet - Complete 1958 Berlin Concert (2008) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241305.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Michael Davis - Hip-Bone Big Band (2016) Hip-Bone Music [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241302.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Cedar Walton, Ron Carter, Billy Higgins - Sweet Basil Trio: My Funny Valentine (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241294.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Best of Winter Relaxing Warm Jazzy Tunes (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241278.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Jazz Renegades - A Summer To Remember (1988) Re-Elect the President [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241277.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ornette Coleman - Blue Note Best Jazz Collection, Vol. 32 (2013) EMI Music Japan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241274.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Barney Kessel, Shelly Manne, Ray Brown - The Poll Winners (1957) 1986, Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241270.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Eric Dolphy - Blue Note Best Jazz Collection, Vol. 59 (2014) EMI Music Japan [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241265.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Paul Motian - On Broadway, Vol. 3 (1991) 2004, Winter & Winter [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241259.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Easy Going Light Jazz Instrumentals to Chill and Relax (2023) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241236.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Michael Davis & Bill Reichenbach - Bonetown (1999) Hip-Bone Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241229.jpg" />
 </div>
 
 

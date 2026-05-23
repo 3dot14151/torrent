@@ -1,29 +1,3 @@
-###  Публикация: 1781501   (26737) от 23.02.2025
-
-Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack Pioneer
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Master of Orion предлагает игрокам исследовать безграничные просторы галактики, выступив на стороне одной из многочисленных разумных рас, населяющих вселенную. Возрожденная Master of Orion наследует лучшие черты своих знаменитых предшественниц, совмещая в себе традиционную философию 4Х (Explore, Expand, Exploit and Exterminate) и новейшие разработки индустрии.Тип издания: RepackРазработчик: NGD Studios и Wargaming.netЖанр: СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781413   (26736) от 23.02.2025
 
 Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
@@ -32,7 +6,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26736.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26735.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26734.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Crisis Core Final Fantasy VII Reunion (2022) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26733.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Smushi Come Home (2023) [Multi] (1.1.0.4.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26727.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack Wanterlude [Game of the Year Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26726.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26725.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26721.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26712.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26707.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Ru/Multi] (Build 12545762/dlc) Repack Let's
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26706.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Riders Republic (2021) [Ru/Multi] (1.26.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26703.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26702.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26701.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Piczle Cross: Rune Factory (2025) [Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26697.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Aground (2020) [Ru/Multi] (2.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26693.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26660.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26655.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack EXROW [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26649.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26644.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ NORCO (2022) [Ru/Multi] (1.5.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26642.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26632.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26626.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Shell Part II: Purgatorio (2024) [Multi] (1.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26620.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.25/dlc) Repack Let'sРlay [Year One 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26595.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.25/dlc) Repack Let'sРlay [Year One 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48ADFA15FC68719120D32BDC4C00B7FA592D0AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781600   (26590) от 24.02.2025
+
+The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закручивающиеся цепи одержимости, которые начались с "Раковины", теперь угрожают задушить детектива Рейджи Токисаку в третьей и последней части трилогии. Пока старые друзья и враги восстают для последнего противостояния, сможет ли кто-нибудь разорвать порочный круг - и сможет ли сердце Рейджи когда-нибудь вырваться на свободу?Тип издания: LicenseРазработчик: Innocent GreyЖанр: Приключенческие игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (традиционный, упрощенный)Язык интерфейса: Английский, Китайский (традиционный, упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACBD286F9DFB069C8658386957D999184974B82
 ```
 
 https://mybot314.ru/tekegram_catalog/

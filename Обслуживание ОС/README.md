@@ -7,7 +7,7 @@ Revo Registry Cleaner Pro 2.2.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070226.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WinScript 2.9.1 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070197.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Kudu 1.41.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070187.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FolderSizes Enterprise 10.1.54 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070095.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ USB Safely Remove 7.4.1.1336 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070090.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sparkle 2.19.0 beta + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070021.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ WinDirStat 2.6.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070019.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Duplicate File Detective 7.4.70 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069921.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ FolderSizes Enterprise 10.0.45 RePack (& Portable) by elchupacabra [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069920.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ PrivaZer Pro 4.0.122 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069917.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ R-Wipe & Clean 20.0.2559 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069913.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Abelssoft WashAndGo 25.29.04 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069908.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Glary Utilities Pro 6.42.0.46 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069899.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Wise Disk Cleaner 11.3.5.855 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069878.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Auslogics BoostSpeed 14.2.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069862.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Glary Utilities Pro 6.42.0.46 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069827.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ PrivaZer Pro 4.0.122 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069730.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ WinScript 2.8.0 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069693.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ashampoo WinOptimizer 29.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069433.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Privacy Eraser Pro 6.29.5 Build 5555 RePack (& Portable) by elchupacabra [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069432.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ WinScript 2.7.0 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069426.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ optimizerDuck 2.13.3 Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069381.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PrivaZer Pro 4.0.122 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069318.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Process Explorer 17.12 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069264.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ FluentCleaner 26.05.02 Portable + Extensions [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069260.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ optimizerDuck 2.12.0 Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069207.jpg" />
 </div>
 
 

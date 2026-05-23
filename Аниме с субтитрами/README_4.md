@@ -6,7 +6,7 @@ Okiraku Ryoushu no Tanoshii Ryouchi Bouei |  Весёлая защита вла�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051337.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051322.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Isekai no Sata wa Shachiku Shidai | Isekai Office Worker: The Other World's Book
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051315.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Maou no Musume wa Yasashi Sugiru!! / The Daughter of the Demon Lord is Too Kind!
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051311.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tasokare Hotel | Отель Тасокарэ [2025, TV, 1 из 12] WEB-DL 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051310.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mayonaka Heart Tune / Tune In to the Midnight Heart / Полуночный мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051308.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Yuusha Party ni Kawaii Ko ga Ita no de, Kokuhaku Shite Mita. / There Was a Cute 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051307.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Vigilante: Boku no Hero Academia Illegals 2 | Моя геройская акад
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051177.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kirei ni Shite Moraemasu ka. / Wash It All Away / Можете постират�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051134.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Osananajimi to wa Lovecome ni Naranai / You Can't Be In a Rom-Com with Your Chil
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051131.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Golden Kamuy Saishuushou | Golden Kamuy Final Season | Золотое божес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051129.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku / Sentenced to Be a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051058.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Nukitashi the Animation - Special | Нукитаси - Спэшл [2025, SP, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051052.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Majutsushi Kunon wa Miete Iru | Kunon the Sorcerer Can See Through | Волше�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051045.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Hanazakari no Kimitachi e | Hana-Kimi | Для тебя во всём цвету
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051041.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Ikoku Nikki | Дневник другой страны [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051035.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnat
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051026.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051016.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051001.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050836.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050826.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Ма
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050825.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Monster Strike: Deadverse Reloaded | Удар монстра: Перезагру
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049951.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Shuumatsu no Walkure III | Record of Ragnarok III | Повесть о конце
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049531.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Kingdom 6th Season | Царство [ТВ-6] [2025, TV, 11 из 13] WEB-DL 1080p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049240.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ New Panty and Stocking with Garterbelt | Панти, Стокинг и Гарт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048368.jpg" />
 </div>
 
 

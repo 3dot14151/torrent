@@ -1,81 +1,3 @@
-###  Публикация: 954674   (339257) от 08.11.2015
-
-Николай Стариков | Адмирал Колчак. Протоколы допроса. (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Протоколы допроса Колчака – важнейшее свидетельство истории. В ночь с 6 на 7 февраля 1920 года, А. В. Колчак был расстрелян, а его тело сброшено в прорубь реки Ангары. Это конец жизни адмирала, Верховного правителя России, полярного исследователя, моряка, отца, мужа, возлюбленного… Преданный союзниками, арестованный революционерами, Колчак прекрасно понимал, что (   Читать дальше...   )Жанр: Мемуары, документальная литература, историяПродолжительность: 08:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C2550D91009D22C898FA119DAB43CFDCC3D3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330600   (339104) от 11.10.2019
-
-Юрий Нагибин | Тьма в конце туннеля. Моя золотая тёща (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга произведений, которые представляют собой особый феномен позднего Ю.Нагибина: своеобразный итог, черту, которая подводится под литературной деятельностью этого неординарного писателя. Повести "Тьма в конце туннеля" и "Моя золотая теща" пронизаны болью о горькой судьбе России в XX веке.Жанр: ПовестьПродолжительность: 13:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5909462575FAE8BC669D47196D321DD76B8FAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330623   (339094) от 11.10.2019
-
-Наталья Нестерова | Дом учителя (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Как ни горько это признавать, но многие женщины, чьи дети покидают отчий дом, теряют почву под ногами. Куда теперь себя девать? Готовить завтраки, собирать в школу, стирать и чинить рваные джинсы, мазать зеленкой разбитые коленки, проверять уроки и ходить на классные собрания больше не нужно. Ну, а что тогда делать? «Судьба человека есть его характер», – много лет (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E08E7108B51A4DB5A720574CC117E2FD939CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330594   (339093) от 11.10.2019
 
 Любен Каравелов | Болгары старого времени (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339093.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339023.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338869.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338864.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ Aгата Фишер, Антон Войтов | Хрономаг (Книга 2) 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338726.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338687.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_338650.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ Aгата Фишер, Антон Войтов | Хрономаг (Книга 3) 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338576.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338575.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338560.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338522.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338419.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338332.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337817.jpg" />
 </div>
 
 
@@ -457,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337816.jpg" />
 </div>
 
 
@@ -483,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337808.jpg" />
 </div>
 
 
@@ -509,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337680.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337508.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337480.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337359.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337059.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336895.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336836.jpg" />
 </div>
 
 
@@ -677,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:831CDC19A4DEB5B37271CF69BA35543AD46C239D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330893   (336729) от 12.10.2019
+
+Арне Свинген | Баллада о сломанном носе (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336729.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Баллада о сломанном носе» — это история 13-летнего подростка по имени Барт. Он занимается боксом потому, что так хочет мама. «Вырастешь и еще поблагодаришь меня за это», — часто повторяет она. На самом деле Барт обожает музыку и, пока никто не слышит, поет арии из опер. Его подруга Ада решает во что бы то ни стало прославить Барта и сделать так, чтобы он выступил (   Читать дальше...   )Жанр: Зарубежная проза, детская литератураПродолжительность: 04:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1BC299D9A8F4A02E00987F65B42D3F99E690C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330707   (336722) от 12.10.2019
+
+Мария Пахомова, Павел Пахомов | Так и живем (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот так и живём. Крутимся в жизненных водоворотах . Думаем, спорим, сомневаемся... А жизнь льется... Сперва тоненьким ручейком, потом речкой бурлящей, а потом... Потом нас поглощает море-океан и мы все чаще начинаем смотреть на Небо. И снова... Думаем, спорим, сомневаемся... Вот так и живём...Жанр: рассказыПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2114AC2A2C0D5700B72BA79F410B37B46B2931BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258516   (336426) от 30.10.2018
+
+Андрей Самусев | Жизнь как игра (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файролл перестал быть для Тёма тем идеальным местом, о котором он мечтал, начиная игру. Как и сама игра для него давно перестала быть просто игрой. Слишком яркие краски, слишком честные чувства. Но и реал через призму игры тоже стал другим. Каким? На это Артем ответит после битвы. Сейчас не до этого. Его клан и союзники, которых он пригласил, чтобы выполнить квест, (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 13:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461CB05D20255F37D19068FCA50A7D560A9148AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

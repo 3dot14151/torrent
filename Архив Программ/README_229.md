@@ -6,7 +6,7 @@ AVS Video Software 12.9.6.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954110.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Acon Digital - Mastering Suite 1.1.1 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954107.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AMD Radeon Software Crimson Edition 16.1 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954105.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WirelessNetView 1.68 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954102.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Movavi Slideshow Maker 6.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954097.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Movavi Video Converter 20.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954063.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MAGIX SOUND FORGE Audio Cleaning Lab 2 24.0.1.16 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954060.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Bandicam 4.5.6.1647 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954055.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954045.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wondershare Filmora 9.3.5.8 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954041.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SoftPerfect Network Scanner 7.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954035.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ System Ninja 3.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953989.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ K-Lite Codec Pack 11.9.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953971.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ IObit Uninstaller Pro 5.2.5.126 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953955.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Movavi Video Converter 20.1.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953895.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ iSpring Suite 8.1.0 Build 12213 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953824.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Adobe Media Encoder CC 2015.2 9.2.0.26 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953822.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adobe After Effects CC 2015.2 13.7.0.124 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953820.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ EaseUS Data Recovery Wizard 9.9.0 Professional | Technician | AdvancedPE RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953806.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Teleport Pro 1.72 RePack by FoXtrot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953800.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Rufus 3.9 (Build 1622) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953787.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Xilisoft Video Converter Ultimate 7.8.24.20200219 RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953778.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ IK Multimedia - AmpliTube 4 Complete 4.9.1 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953771.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ IP-TV Player 50.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953758.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Movavi Video Suite 20.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953754.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ USDownloader 1.3.5.9 Portable (01.01.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953746.jpg" />
 </div>
 
 

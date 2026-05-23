@@ -6,7 +6,7 @@ HWiNFO 6.26 Build 4160 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813448.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813414.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VirtualBox 5.0.18.106667 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813404.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Easy CD-DA Extractor Ultimate v2011.0.0.0 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813319.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ USDownloader 1.3.5.9 Portable (25.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813301.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Icecream Screen Recorder PRO 6.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813262.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GOM Player 2.3.0 Build 5248 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813243.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813216.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Extreme Picture Finder 3.34.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813183.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Insofta 3D Text Commander 3.0.3 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813166.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Avira Antivirus Free 15.0.17.273 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813116.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ UC Browser 5.6.11651.1013 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813112.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Autodesk AutoCAD MAP 3D 2017 N009AE (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813106.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Autodesk AutoCAD Plant 3D 2017 I052.02.r2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813104.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TeamViewer 13.0.6447 RePack (& Portable) by elchupacabra (7.01.2018) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813062.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BELOFF 2018.1 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813056.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adguard Premium 6.2.437.2171 RePack by elchupacabra (7.01.2018) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813054.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Stellarium 0.15.2 + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813047.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ LibreOffice 5.3.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813045.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ MKVToolNix 10.0.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813031.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Advanced SystemCare Pro 13.5.0.264 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812965.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ACDSee Ultimate 9.2 Build 648 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812964.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ K-Lite Codec Pack 12.1.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812950.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Debut Video Capture Pro 4.00 RePack by 78Sergey
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812890.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Acronis True Image 2016 19.0 Build 6559 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812800.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Zoner Photo Studio Professional 12.0.1.8 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_812783.jpg" />
 </div>
 
 

@@ -1,31 +1,3 @@
-###  Публикация: 1143970   (624919) от 23.06.2017
-
-Путин / Интервью с Путиным / The Putin Interviews (2017) HDTV [H.264/1080i-LQ] (серии 1-4 из 4) Первый канал
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет четырехсерийный документальный фильм знаменитого американского режиссера Оливера Стоуна «Путин». Фильм предлагает зрителю портрет российского лидера — одного из самых влиятельных игроков на мировой политической арене — во всей его сложности и полноте.
-
-В ходе работы над фильмом Оливер Стоун получил беспрецедентные возможности для общения (   Читать дальше...   )Производство: Россия, США, SHOWTIMEЖанр: Документальный, биографияРежиссер: Оливер СтоунПеревод: Профессиональный многоголосый (Первый канал)Субтитры: ОтсутствуютПродолжительность: ~ 00:58:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F6E8BBE168A9E4930E0C0AB96CF98140F0E1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143969   (624917) от 23.06.2017
 
 Путин / Интервью с Путиным / The Putin Interviews (2017) HDTVRip [H.264/720p-LQ] (серии 1-4 из 4) Первый канал
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624917.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624838.jpg" />
 </div>
 
 
@@ -93,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624762.jpg" />
 </div>
 
 
@@ -124,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624727.jpg" />
 </div>
 
 
@@ -151,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624726.jpg" />
 </div>
 
 
@@ -178,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624725.jpg" />
 </div>
 
 
@@ -205,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624724.jpg" />
 </div>
 
 
@@ -232,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624723.jpg" />
 </div>
 
 
@@ -259,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624717.jpg" />
 </div>
 
 
@@ -286,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624716.jpg" />
 </div>
 
 
@@ -313,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624714.jpg" />
 </div>
 
 
@@ -340,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624656.jpg" />
 </div>
 
 
@@ -366,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624571.jpg" />
 </div>
 
 
@@ -392,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_624504.jpg" />
 </div>
 
 
@@ -420,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624487.jpg" />
 </div>
 
 
@@ -446,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624436.jpg" />
 </div>
 
 
@@ -472,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624383.jpg" />
 </div>
 
 
@@ -499,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624334.jpg" />
 </div>
 
 
@@ -525,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624331.jpg" />
 </div>
 
 
@@ -551,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624330.jpg" />
 </div>
 
 
@@ -577,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624325.jpg" />
 </div>
 
 
@@ -603,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624305.jpg" />
 </div>
 
 
@@ -629,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624226.jpg" />
 </div>
 
 
@@ -655,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624223.jpg" />
 </div>
 
 
@@ -681,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624208.jpg" />
 </div>
 
 
@@ -692,6 +664,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:441D16E923454C47840B45A88675EBA706F89EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229586   (624201) от 07.06.2018
+
+Полеты над островами Фиджи / Flying Above the Fiji Islands (2018) WEBRip [VP9/2160p] [4K, HDR]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расслабьтесь в течение полного часа, и пусть ваши заботы будут заменены на потрясающие виды с воздуха! Отправляемся в путешествие по самым красивым местам. Включите ваш телевизор и насладитесь расслабляющим и исцеляющим видом островов Фиджи - тщательно ограненного бриллианта Тихого океана, в потрясающем 4К качестве!Производство: США, Nature Relaxation FilmsЖанр: Видовой, природа, флора, фауна,Режиссер: Стефан Циммерман, Дэвид ХьютингПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1713E0023F4121057F50C3C0DE83650B86B38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

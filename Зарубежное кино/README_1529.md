@@ -1,55 +1,3 @@
-###  Публикация: 1633303   (254392) от 14.05.2023
-
-Паранормальные явления. Отель призраков / Mean Spirited (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Популярный видеоблогер, который ведет канал, где раскрывает тайны паранормальных явлений и устраивает розыгрыши, отправляется с компанией друзей на выходные в горы. Он хочет подшутить над своими старыми школьными приятелями, но его обычный пранк-стрим превращается в настоящее противостояние с потусторонними силами, когда в их отеле появляется злой демон.Производство: США / First-Names FilmsЖанр: Ужасы, комедияРежиссер: Джеффри РайанАктеры: Мишель Вентимилла, Невилл Арчамбо, Уилл Мэдден, Дэниел Рашид, Джефф Райан, Чарли Поллок, Мария ДеКотис, Саймон Вэл, Оуэн Уильямс, Джо АдамсПеревод: Дублированный (Велес)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06856F78BD619745112E62D5CEE22AE4DC199541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836591   (254317) от 11.11.2025
-
-Новичок / The Amateur (2025) WEB-DL [H.265/1080p] [10 bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Чарльз Хеллер — криптограф ЦРУ, чья жена погибает во время теракта в Лондоне. Однако его начальство затягивает расследование, поэтому Хеллер решает самостоятельно заняться поиском террористов. Так как у него нет необходимых навыков, он шантажирует агентство, чтобы его отправили на специальное обучение.Производство: США / 20th Century Studios, Hutch Parker EntertainmentЖанр: боевик, триллерРежиссер: Джеймс ХоузАктеры: Рами Малек, Лоренс Фишбёрн, Рэйчел Броснахэн, Джон Бернтал, Майкл Стулбарг, Катрина Балф, Джулианна Николсон, Холт Маккэллани, Дэнни Сапани, Адриан МартинесПеревод: Дублированный (MovieDalen), многоголосый (Kinoteatr TV)Язык озвучки: Русский, узбекский, английскийСубтитры: Английские (Forced)Продолжительность: 02:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4902906D6A25939E98BA20E277AEBF5BDA8C1BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906237   (254311) от 11.11.2025
 
 Последние рыцари / Last Knights (2015) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254311.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254303.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254279.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254263.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254225.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254216.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254213.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254208.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254204.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254182.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254163.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254161.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254154.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254121.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254112.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254108.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253876.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253831.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253819.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253774.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253736.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253689.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253499.jpg" />
 </div>
 
 
@@ -660,13 +608,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253295.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Три школьника делают невероятное открытие, что приводит к развитию у них опасных способностей, которые они не в силах понять. По мере того, как они учатся ими управлять и уметь ими пользоваться, их судьбы начинают лететь под откос, а тёмная сторона из сущности постепенно берёт верх.Жанр: Фантастика, Боевик, Триллер, ДрамаРежиссер: Джошуа ТранкАктеры: Дэйн ДеХаан, Алекс Расселл, Майкл Б. Джордан, Майкл Келли, Эшли Хиншоу, Бо Петерсен, Анна Вуд, Руди Малкольм, Люк Тайлер, Кристал-Донна РобертсПеревод: Одноголосый закадровый, любительскийЯзык субтитров: АнглийскийПродолжительность: 01:29:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497229   (253276) от 15.05.2012
+
+Бессонная ночь / Nuit blanche (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винсент — коп, который в ходе операции крадет у бандитов мешок кокаина. Гангстеры решают похитить сына Винсента, чтобы вернуть кокаин. Но к этому моменту герой уже не имеет при себе наркотики. Чтобы спасти своего сына он должен отложить столько, сколько может время обмена. Предстоящая ночь, кажется, самая длинная в его жизни и, возможно, даже последняя…Жанр: боевик, триллерРежиссер: Фредерик ЖарденАктеры: Томер Сислей, Джои Старр, Жюльен Буасселье Серж Рябукин, Лорен Стокер, Сами Сегир, Доминик Беттенфельд, Адель Беншериф, Бироль Унел, Лиззи БрошерПеревод: Многоголосый закадровыйПродолжительность: 01:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0513932054C20F2841DD2BFB123374F57BAECBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497213   (253268) от 15.05.2012
+
+Король Артур (Режиссёрская версия) / King Arthur (Director's Cut) (2004) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм - о легендарной исторической личности. В нем большое внимание уделено историческим фактам и политическим событиям, имевшим место в период правления короля Артура. Но картина обещает совместить в себе как реальные исторические события, имевшие место в провинции Британия сразу после распада Великой Римской Империи, так и мифы о подвигах рыцарей короля Артура...Жанр: боевик, приключения, военный, историяРежиссер: Антуан ФукуаПродюсер: Джерри Брукхаймер, Пол Таккер, Нед ДаудАктеры: Клайв Оуэн, Кира Найтли, Мадс Миккельсен, Рэй Уинстон, Стеллан Скарсгард, Тиль Швайгер, Йоан Гриффит, Джоэл Эдгертон, Хью Дэнси, Рэй СтивенсонПеревод: Дублированный, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 02:21:38
 
 ## Скачать торент
 ```bash

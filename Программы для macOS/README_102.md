@@ -6,7 +6,7 @@ Cookie 5 v 5.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374629.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ PictureCode Photo Ninja 1.3.8b [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374511.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Fidelia 1.6.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374363.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Caramba Switcher 2019.09.16 (beta) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374089.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Mixed In Key 8 v8.5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374088.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Templates Lab for MS Office 3.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374067.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373974.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ World Clock 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373776.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ FSMonitor 1.1 (116) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372542.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Entity 1.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372134.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Toast Titanium 14.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372058.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ ChatMate for WhatsApp 4.2.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371904.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Bundle for iWork 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371543.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Microsoft Office Standard 2019 for Mac v16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371156.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Recordam 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370969.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Mirror for Philips TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370967.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Mirror for Panasonic TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370954.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Mirror for Sony TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370827.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Mirror for Samsung TV 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370687.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Unibox 1.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370378.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VideoProc (former MacX Video Converter Pro) 3.9 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369656.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Business Templates 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369644.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Graphic Styles 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369142.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Adobe Muse CC 2018.0.0.685 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369098.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Corporate Packs for Pages 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369006.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ CalendarPro for Google 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368297.jpg" />
 </div>
 
 

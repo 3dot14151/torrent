@@ -1,55 +1,3 @@
-###  Публикация: 1679774   (135028) от 26.11.2023
-
-Искусство по понятиям / The Kill Room (2023) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Неудачливая хозяйка арт-галереи Патрис, киллер Реджи и его босс Гордон ввязываются в опасную авантюру по отмыванию денег. Дело принимает неожиданный оборот, когда Реджи становится восходящей звездой авангардной живописи. Так вдохновенное преступление превращается в настоящее искусство.Производство: США / Yale Productions, BKStudios, BondIt Media CapitalЖанр: триллер, комедияРежиссер: Николь ПаонАктеры: Ума Турман, Сэмюэл Л. Джексон, Джо Манганьелло, Эми Кым, Деби Мейзар, Николай Цанков, Александр Соковиков, Дженнифер Ким, Майя Хоук, Майк ДойлПеревод: Дублированный (Кириллица)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC00C579AE2B02A52BADB4A839E455416C48EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679684   (135022) от 26.11.2023
-
-Отель «Ройал» / The Royal Hotel (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Американские туристки Ханна и Лив устраиваются на работу в австралийский паб, чтобы заработать немного денег, и сталкиваются с кучей неуправляемых местных жителей. Ситуация быстро выходит из-под контроля.Производство: Австралия, Великобритания / Fulcrum Media Finance, Scarlett Pictures, See-SawЖанр: триллерРежиссер: Китти ГринАктеры: Джулия Гарнер, Джессика Хенвик, Херберт Нордрам, Dylan River, Keylan Devine-Ingerson, Бри Десборо, Урсула Йович, Алекс Мэлоун, Kate Cheel, Хьюго УивингПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A603B20C376C095DD466388BB101E32B493C613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371931   (135015) от 26.11.2023
 
 Хороший лжец / The Good Liar (2019) Blu-ray [H.264/1080p] [EUR]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135015.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134892.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134855.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134799.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134770.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134749.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134747.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134745.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134728.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134727.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134707.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134697.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134696.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134694.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134692.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134689.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134686.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134685.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134683.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134675.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134670.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134664.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134662.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134639.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B489B177E222C8C723B07D622BC88E85297A858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593370   (134558) от 24.12.2012
+
+Последнее желание / The Last Request (2006) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_134558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пути Господни неисповедимы… Джеф учится в семинарии, и мысли его далеки от женщин. Но находясь на смертном одре, его умирающий отец завещает своим двум сыновьям Тому и Джефу во что бы то ни стало продолжить их род. И когда Том покидает этот мир, не исполнив последней воли отца, Джеф вынужден покинуть семинарию для более мирских забот. Робкий и застенчивый, он ходит (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Джон ДеБеллисАктеры: Т.Р. Найт, Дэнни Айелло, Марио Кантоне, Фрэнк Винсент, Сабрина Ллойд, Джо Пископо, Винсент Пасторе, Тони Ло Бьянко, Барбара Фелдон, Мэри Бердсонг, Гилберт Готтфрид, Ник Скотти, Джинджер Р. Уильямс, Ирма Ст. Пауле, Бобби Альто, Тристан Карраско, Миранда Блэк, Винни Марз, Ирис Алмарио, Грета Тайсон, Джозеф ДеБеллис, Адам Феррара, Джоан Коуплэнд, Джон Хойт, Билл Рутковски, (   Читать дальше...   )Перевод: Многоголосый закадровыйСубтитры: Русский, отключаемыеПродолжительность: 01:28:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593537   (134514) от 24.12.2012
+
+День Святого Георгия / St George's Day (2012) DVDRip [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134514.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования двое печально известных лондонских кузенов-гангстеров Микки и Рэй, принадлежащих к верхнему эшелону преступной иерархии. Их мир переворачивается, когда они в бурных морских водах теряют партию кокаина, владельцем которого является русская мафия. Действие фильма происходит в Лондоне, Амстердаме и Берлине, и проходит в гонках на головокружительной скорости по всей Европе, когда Микки и Рей пытается опередить полицию хотя бы на один шаг. Чтобы исправить ситуацию они намерены украсть бриллианты, рассчитаться с долгом, после чего вернуться к законопослушной жизни.Жанр: Боевик, Триллер, КриминалРежиссер: Фрэнк ХарперАктеры: Чарльз Дэнс, Винсент Риган, Декстер Флетчер, Крэйг Фэйрбрасс, Шон Пертуи, Кили Хэзелл, Люк Тредэвэй, Фордхэм Сьюзэн, Ник Моран, Клеменси Бертон-ХиллПеревод: ОтсутствуетПродолжительность: 01:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DAA57A56AFC3AE4BAED041F9130744631BF2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

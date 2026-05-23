@@ -6,7 +6,7 @@ Digital Juice - Drag & Drop: Series 3 - Film Burns [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380523.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Digital Juice - Drag & Drop: Series 2 - Speed Lines [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380363.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Digital Juice - Drag & Drop: Series 3 - Party Time [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380180.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Digital Juice - Ready2Go: Collection 21 (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374889.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Digital Juice - Jump Backs: Volume 20 - Subtle Impact [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369196.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Digital Juice - Jump Backs: Volume 25 - All Music [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369194.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Digital Juice - Jump Backs: Volume 24 - Tunnel Vision [AVI]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367156.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Digital Juice - Jump Backs: Volume 23 - Clean Streak [AVI]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367153.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Digital Juice - Jump Backs HD: Volume 20 - Ethereal [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367075.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Digital Juice - Jump Backs HD: Volume 25 - Fresh Crawl [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367073.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Digital Juice - Toxic Type: Collection 09 Cool & Clean (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364990.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Digital Juice - Juice Drops 47: merryCHRISTMAS (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357156.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Digital Juice - VideoTraxx HD 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354622.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Digital Juice - Jump Backs HD: Volume 28 - High Impact X [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352848.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Digital Juice - Juice Drops 44: frameCUTS II (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352358.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Digital Juice - VideoTraxx HD 1 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352089.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Digital Juice - Juice Drops 59: allPARTICLES (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_342457.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Digital Juice - Juice Drops 62: reflectiveTHOUGHTS (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_340042.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Digital Juice - Juice Drops 69: multiCULTURAL (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337703.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Digital Juice - Juice Drops 45 halloweenHAUNTS (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307530.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Digital Juice - Juice Drops 54 jaggedEDGE (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307413.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Digital Juice - Canvases Heart (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307218.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Digital Juice - ToxicTraxx Volume 03: Cinematic Christmas (.djmusic)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_306859.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Digital Juice - Animated Canvases Collection 11: Clean Slates (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304515.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Digital Juice - Animated Revealers Collection 1: Dynamic Unveiling (.djrevealers
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304366.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Digital Juice - Editor's Toolkit Pro Single 146: Tech TV (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302308.jpg" />
 </div>
 
 

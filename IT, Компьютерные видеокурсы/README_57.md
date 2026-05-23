@@ -1,244 +1,3 @@
-###  Публикация: 930364   (514648) от 23.08.2015
-
-Виталий Куреннов, Владимир Дементьев | Профессиональная разработка на Ruby on Rails (2014) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если ты уже знаешь основы Ruby on Rails и имеешь небольшой опыт работы с этим фреймворком, а главное, хочешь стать профессиональным RoR-разработчиком и связать свою карьеру с Ruby и Rails, тогда этот курс для тебя.Жанр: Ruby on Rails, фреймворкПродолжительность: 22:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E84B9BC2A65809A8F2893B0E80C952DE9CE935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930607   (514642) от 23.08.2015
-
-Geekbrains | Node.js Серверное программирование на JavaScript (2015) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Курс для тех, кто уже хорошо знает и использует JavaScript на клиенте и хочет программировать на JavaScript на стороне сервера.Жанр: Вэб-программирование, Node.jsПродолжительность: 13:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10FF1269B715A75BC244E57116313FDACD04638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930474   (514635) от 23.08.2015
-
-Специалист | JavaScript. Уровень 3г. HTML5 API (2015) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В дополнение к определению разметки новый стандарт HTML5 устанавливает скриптовый интерфейс прикладного программирования (API). Новые API включают в себя: элемент-холст для непосредственного метода рисования в 2D, хранение баз данных оффлайн, определение местоположения пользователя, возможность управления файлами и другие.
-На курсе Вы познакомитесь с тонкостями работы (   Читать дальше...   )Жанр: Веб-программирование, JavaScriptПродолжительность: 09:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5454B7F7F96F4C187507614EC4366FFEEC7C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560927   (514344) от 05.07.2022
-
-Udemy, Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp (2021) PCRec [EN / RU Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на 100 Days of Code - The Complete Python Pro Bootcamp, единственный курс, который вам нужно научиться программировать на Python. С более чем 100 000 отзывов и средней оценкой 4,8 мои курсы являются одними из САМЫХ ВЫСОКИХ РЕЙТИНГОВ в истории Udemy!
-Что ты узнаешь:
-    - Уметь профессионально программировать на Python
-    - Овладейте языком программирования (   Читать дальше...   )Производство: UdemyЖанр: Python, программированиеЯзык озвучки: АнглийскийПродолжительность: 56:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D09019E929FAF90F93F32DFE0C4815DD8ACCAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930839   (513655) от 24.08.2015
-
-PluralSight | Check Point Certified Security Administrator Install & Deploy (2014) PCRec [H.264] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Установка и первоначальная настройка CheckPointЖанр: Системное администрированиеПродолжительность: 03:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB2EE7CF18ED725606047104C893BDCAB0B048C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536793   (513228) от 19.08.2012
-
-Виталий Лопатин | Как разблокировать компьютер от баннера [2012] SATRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Методы мошенников по вымогательству денег из кошельков незадачливых пользователей с помощью порно-баннеров все время совершенствуются. И без специальных программ для удаления баннера с рабочего стола зачастую не обойтись. В этом материале показан способ борьбы с баннерами-вымогателями, при помощи программы Kaspersky Rescue Disc.Жанр: Видео урок, ОбучающийПродолжительность: 00:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AAEC2EB2F7DBF0F5884FE35711B585E4935835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536464   (513217) от 19.08.2012
-
-Константин Веденский | PHP + CakePHP [2010] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс от k0stix по синтаксису и основам PHP, ООП PHP, обучение работе с фреймворком CakePhpЖанр: Web-программированиеПродолжительность: 35:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62A8DEEECBD75F127C7DD03A330F07123455406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315423   (512544) от 20.07.2019
-
-Udemy | Spring и Hibernate для новичков [включая Spring Boot] (2019) PCRec [H.264/720p-LQ] [EN / EN Sub]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Этот курс охватывает последние версии Spring 5 и Hibernate 5! Создайте полноценное веб-приложение Spring MVC + Hibernate CRUD ... все с нуля!
-
-Вы узнаете о Spring Core, AOP, Spring MVC, Spring Security, Spring REST и Hibernate.
-В конце этого курса вы создадите весь исходный код для полного приложения Spring MVC - Hibernate CRUD.(   Читать дальше...   )Жанр: Программирование, Java, SpringПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 41:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB30D4534BFC0CA2D1E26F9485175B6ECF18A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931757   (510628) от 27.08.2015
-
-Школа современных технологий | Среда знаний. CSS-препроцессор LESS (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если ты уже хорошо знаешь HTML и CSS, а теперь хочешь тратить меньше времени на написание CSS-кода и освоить препроцессор CSS — LESS. Тогда приходи к нам на семинар! Ведь в обычном CSS нет ни функций, ни переменных..., ни множества других преимуществ, которые есть у LESS! Конечно, ты можешь изучить эту тему сам, но: Сначала ты прочтёшь кучу мануалов. Вскипятишь себе (   Читать дальше...   )Жанр: Верстка, CSS-препроцессор LESSПродолжительность: 02:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE6E2C8F5831BB829C312733A17C051F3F2901F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931741   (510617) от 27.08.2015
 
 Школа современных технологий | Среда знаний. JQuery PRO (2015) PCRec [H.264]
@@ -247,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510617.jpg" />
 </div>
 
 
@@ -273,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509806.jpg" />
 </div>
 
 
@@ -299,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509481.jpg" />
 </div>
 
 
@@ -328,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508916.jpg" />
 </div>
 
 
@@ -354,7 +113,7 @@ Oleg Lav | Camtasia Studio — профессиональный видеоред
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508757.jpg" />
 </div>
 
 
@@ -381,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508744.jpg" />
 </div>
 
 
@@ -409,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506935.jpg" />
 </div>
 
 
@@ -437,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505056.jpg" />
 </div>
 
 
@@ -465,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504940.jpg" />
 </div>
 
 
@@ -494,7 +253,7 @@ Tuts+ | PSD to HTML: Flat Design Build  (2014) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504013.jpg" />
 </div>
 
 
@@ -520,7 +279,7 @@ Geekbrains | HTML5 и CSS3. Современные средства Web-разр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503940.jpg" />
 </div>
 
 
@@ -546,7 +305,7 @@ Slurm (Слёрм), Владимир Гурьянов | Prometheus (2022) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503173.jpg" />
 </div>
 
 
@@ -575,7 +334,7 @@ LearnVisualStudio.net | Visual C Sharp 2010 Express Edition for Absolute Beginne
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502012.jpg" />
 </div>
 
 
@@ -601,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501927.jpg" />
 </div>
 
 
@@ -627,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501914.jpg" />
 </div>
 
 
@@ -656,7 +415,7 @@ Geekbrains | 1С-Битрикс. Управление сайтом (2015) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501908.jpg" />
 </div>
 
 
@@ -683,7 +442,7 @@ HTML Academy | Подборка видеокурсов по вёрстке и р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501173.jpg" />
 </div>
 
 
@@ -697,6 +456,247 @@ HTML и CSS. Профессиональная вёрстка сайтов [21 я
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F661ED37E747D75338FECC5D9D6E61E092088ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564421   (500272) от 18.07.2022
+
+ItGid, Александр Лущенко | PHP Stage 2 (2019) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый распространенный язык для написания приложений на стороне сервера - PHP. Язык созданный и разработанный для WEB. Я рекомендую начинать изучение backend именно с него. После изучения PHP, языки Node, Python - изучаются значительно быстрее. Курс позволяет изучить все аспекты PHP для разработки сложного сайта статей с категориями и тегами, админ панелью, ролями (   Читать дальше...   )Производство: ItGidЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E97A6893A5362BF39EAF2AA6C5C04E50906B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399238   (500257) от 18.07.2022
+
+WebCademy | JavaScript разработчик: Уровень Developer (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повысьте свой уровень владения JavaScript. Станьте востребованным и высокооплачиваемым специалистом. Освойте JavaScript - один из самых популярных, востребованных и высокооплачиваемых языков программирования. JS используется во FrontEnd и Backend разработке.Жанр: Программирование, JavaScriptПродолжительность: 33:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F999161DF22127E081EB6643814E8B262D95D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564412   (500255) от 18.07.2022
+
+Яндекс Практикум | Мидл фронтенд-разработчик (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это продвинутая программа обучения для разработчиков, которые уверенно чувствуют себя с HTML, CSS и JavaScript, имеют опыт работы с одним из фреймворков.
+Мидл frontend-разработчик вдумчиво выбирает технологии для реализации проекта и может аргументировать свой выбор. Уверенно чувствует себя в процессах командной разработки и самостоятельно решает комплексные задачи. (   Читать дальше...   )Производство: Яндекс ПрактикумЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7DBA395AF9CE212300BF9AF006EDB2BFB38685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935459   (498956) от 08.09.2015
+
+Специалист | Реализация клиентской инфраструктуры (2014) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окончив курс, Вы получите знания и навыки, необходимые для планирования, проектирования и развертывания инфраструктуры рабочих станций Windows 8. Вы получите рекомендации по планированию и развертыванию клиентских компьютеров, используя технологии User State Migration Tool (USMT), Microsoft Deployment Toolkit (MDT), Virtual Desktop Infrastructure (VDI), и многое (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 10:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4CE7CDD1B8D8062F355F8F27394FAE11A9D521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934851   (498951) от 08.09.2015
+
+Роман Пушкин | Ruby School (2014) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео-курс по языку Ruby и платформе Rails на 100 часов, на русском языке.Жанр: ПрограммированиеПродолжительность: 91:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD5C0D8EE8EC541EE51AD375E3021BE3E7F7FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565022   (496564) от 22.07.2022
+
+EC-Council, Bred W. Beatty | The Computer Hacking Forensic Investigator (CHFI) (2017) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Certified Hacking Forensic Investigator (CHFI) EC-Council — это единственная на рынке комплексная программа, аккредитованная ANSI и ориентированная на лаборатории, которая предоставляет организациям независимое от поставщика обучение цифровой криминалистике. CHFI дает своим посетителям четкое представление о цифровой криминалистике, представляя подробный (   Читать дальше...   )Производство: EC-CouncilЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEF8F732C3B19405AD22C61FF26735CD2060216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243142   (495359) от 25.08.2018
+
+Pluralsight.com | Python Fundamentals (2013) PCRec [H.264] [RU/EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основы языка Python
+
+В этом курсе вы начнёте изучать Python – динамический язык, который применяется в веб-разработках, науке, используется при работе с большими данными и в написании скриптов.Производство: Pluralsight.comЖанр: ПрограммированиеПеревод: Дублированный (Helluvallyric)Язык озвучки: Русский, АнглийскийПродолжительность: 05:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68430CD661C0C3A5C0F15C691B3D0644AB1B2F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404218   (494919) от 24.08.2020
+
+PiterPy | Конференция PiterPy Online (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494919.jpg" />
+</div>
+
+
+###  Подробнее
+
+На PiterPy 2020 вы найдете только высоко технические доклады и реальные кейсы от спикеров со всего мира:
+Python & Web
+Python & Cloud
+Python & DevOps(   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 14:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55367208F17D8334F2D987683DF414860720B4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399900   (494618) от 24.08.2020
+
+OTUS | Разработчик Node.js (2020) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработка серверных приложений на Node.js с использованием Express, TypeScript, GraphQl, Apollo и Nest.js.
+Курс рассчитан на frontend-разработчиков или backend-разработчиков со знанием Javascript.Жанр: Программирование, Node.jsПродолжительность: 66:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B427CFFEC9D5AC14EB79EFA9A0FE02FFDE4DCDE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

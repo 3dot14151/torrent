@@ -1,85 +1,3 @@
-###  Публикация: 1686648   (126431) от 23.12.2023
-
-Джером К. Джером | Энтони Джон. Рассказы (2009) [MP3, Денис Недолугий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Terra-Super.
-Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
-Роман «Энтони Джон» является одним из редчайших «серьёзных» произведений знаменитого английского писателя-юмориста Джерома Клапки Джерома, автора бессмертной повести «Трое в лодке, не считая собаки». Поклонникам творчества Джерома будет интересно познакомиться с этой (   Читать дальше...   )Жанр: Зарубежная литература, классика, роман, рассказИздательство: Terra-SuperПродолжительность: 06:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C8E9EDC13E1C7C1967E7ED33AA3167221177CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686653   (126419) от 23.12.2023
-
-Джером К. Джером | Энтони Джон (2014) [MP3, Аркадий Бухмин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиокнига.
-Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
-Роман «Энтони Джон» является одним из редчайших «серьёзных» произведений знаменитого английского писателя-юмориста Джерома Клапки Джерома, автора бессмертной повести «Трое в лодке, не считая собаки». Поклонникам творчества Джерома будет интересно познакомиться с этой (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: МедиаКнигаПродолжительность: 06:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929AD019DCDDEF4DAF3EAB800CDBC6FEFC920CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686621   (126417) от 23.12.2023
-
-Чингиз Абдуллаев | Дронго (Книга 81). Второе рождение Венеры (2023) [MP3, Татьяна Некрасова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Женщины коварны и непредсказуемы. В этом лишний раз убедился эксперт-аналитик Дронго, случайно, пролетом, оказавшийся на одном из островов Мадейры. Так уж совпало, что он остановился в отеле, большая часть номеров в котором заселена представительницами прекрасного пола. И какими представительницами! Все они съехались на конференцию феминисток… В ночь перед закрытием (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 05:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BBC192A0A4305AD5BC5DA1C12AE659E8A41DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686719   (126396) от 23.12.2023
 
 Джером К. Джером | На сцене и за кулисами (2014) [MP3, Аркадий Бухмин]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126396.jpg" />
 </div>
 
 
@@ -117,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126370.jpg" />
 </div>
 
 
@@ -143,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126348.jpg" />
 </div>
 
 
@@ -169,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126347.jpg" />
 </div>
 
 
@@ -195,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126338.jpg" />
 </div>
 
 
@@ -221,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126325.jpg" />
 </div>
 
 
@@ -247,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126313.jpg" />
 </div>
 
 
@@ -273,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126301.jpg" />
 </div>
 
 
@@ -301,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126292.jpg" />
 </div>
 
 
@@ -327,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126290.jpg" />
 </div>
 
 
@@ -354,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126282.jpg" />
 </div>
 
 
@@ -383,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126266.jpg" />
 </div>
 
 
@@ -409,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126265.jpg" />
 </div>
 
 
@@ -437,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126261.jpg" />
 </div>
 
 
@@ -465,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126258.jpg" />
 </div>
 
 
@@ -491,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126257.jpg" />
 </div>
 
 
@@ -520,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126256.jpg" />
 </div>
 
 
@@ -549,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126255.jpg" />
 </div>
 
 
@@ -577,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126238.jpg" />
 </div>
 
 
@@ -603,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126229.jpg" />
 </div>
 
 
@@ -629,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126226.jpg" />
 </div>
 
 
@@ -658,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126219.jpg" />
 </div>
 
 
@@ -685,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126197.jpg" />
 </div>
 
 
@@ -696,6 +614,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E8C421106172E1842B6D29C107681872706FEB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823905   (126098) от 13.10.2025
+
+Роберт Мараско | Сожженные приношения (2025) [MP3, Варвара Сапова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом Нью-Йорк просто невыносим! Жара, пыль, шум… Мэриан мечтает провести лето за городом вместе с мужем и сыном. На глаза попадается объявление в газете: «Уникальный дом… Спокойный, уединенный. Идеален для большой семьи. Бассейн, частный пляж, причал… Очень разумная цена для правильных людей…» Невероятная удача! Такой дом может стать настоящим спасением. И не важно, (   Читать дальше...   )Жанр: Мистика, ужасыИздательство: Азбука-АттикусПродолжительность: 09:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B715A8A46D4EB4CE2F3B55AF0032EA5CC062054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823902   (126097) от 13.10.2025
+
+Ян Бадевский | Преддверье (Книга 3). Предельные Чертоги (2024) [MP3, Юрий Гаханов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стимбург – город пара и магии, последний оплот цивилизации в Предельных Чертогах. Николас Фламель, могущественный волшебник, представитель Ордена Серебряного Заката и страж Двери, обнаружен мертвым в собственном доме. Кто за этим стоит? Неужели Посторонние, давние враги человечества, сумели проникнуть на Землю?Разобраться в зловещих предзнаменованиях поручено Ольгерду, (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: ЛитРесПродолжительность: 08:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5674069058ED2A10B81526D850A799E5014301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823941   (126071) от 13.10.2025
+
+Виктор Гросов | Инженер Петра Великого (Книга 2) (2025) [MP3, Андрей Морозов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженер из XXI века попадает в тело подмастерья эпохи Петра I. Вокруг – грязь, тяжелый труд и война со шведами. А он просто хочет выжить и подняться.
+Ах, да, еще прогрессорство... очень много прогрессорства!Жанр: Попаданцы во времени, Альтернативная историяИздательство: ЛитРес: Аудио от автора, АвторПродолжительность: 09:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F0B42C3B60C42C35DA26D3CE76F79E0EBBB5A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

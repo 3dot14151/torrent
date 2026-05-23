@@ -1,29 +1,3 @@
-###  Публикация: 1784620   (24937) от 12.03.2025
-
-Remnant II (2) (2023) [Ru/Multi] (453.438/dlc) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Remnant 2 - это атмосферная и брутальная комбинация динамичного экшена и мрачных ужасов выживания. Сиквел развивает и дополняет традиции и игровые механики оригинала. Вы отправитесь в совершенно новое приключение, которое охватит множество захватывающих миров, каждый из которых кишит уникальными врагами, грозными боссами и сложными задачами. Независимо от того, решите (   Читать дальше...   )Тип издания: RepackРазработчик: Gunfire GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448D75D464330A3180F852C205CA3C6C1E7C5E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784632   (24923) от 12.03.2025
 
 The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Repack Let'sРlay [Ultimate Edition]
@@ -32,7 +6,7 @@ The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24923.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack seleZen [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24909.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Combat Mission: Black Sea (2021) [Multi] (2.18.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24850.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24843.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24836.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24825.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24819.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Sail Forth (2022) [Multi] (1.01) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24809.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Reflections of Life 13: Sleep's Embrace / Отражения жизни 13: Об
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24808.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Mirrors of Deception: The Silver Peaks Secret / Зеркала Обмана: С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24800.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24798.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack dixen18 [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24795.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24759.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24756.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.0720.01/dlc) License GOG [Digital Deluxe Bun
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24748.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ ORDER 13 (2025) [Ru/Multi] (1.02) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24746.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Assassin's Creed Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24745.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Robin Hood: Sherwood Defenders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24732.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Combat Mission: Final Blitzkrieg (2024) [Multi] (2.11.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24721.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29106/dlc) Scene Run
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24719.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24699.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Combat Mission: Cold War (2021) [Multi] (1.07.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24684.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Combat Mission: Fortress Italy (2023) [Multi] (2.20.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24683.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24673.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24672.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474F71B903B55344687B5F04B0F15F24D754F641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782668   (24660) от 15.03.2025
+
+Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Let'sРlay [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша история начинается в одном из уголков Аллраана, представляющем собой переплетение народов, разнообразнейших культур и ценностей. С помощью меча и магических предметов, известных как «рунические линзы», история земли была сформирована на основе альянсов и агрессивных действий проживающих на ней людей, зверолюдей, эльфов и пустынных жителей.Тип издания: RepackРазработчик: Rabbit & Bear StudiosЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD94B95916FFFD6878683FABF97FDFCBD7341DF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

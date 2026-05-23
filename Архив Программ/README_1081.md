@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 11.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498303.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aiseesoft HD Video Converter 8.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498297.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WinToUSB Free 2.3 Final (07.09.2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498277.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Format Factory 3.7.5 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498274.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Skype 7.10.73.101 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498237.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Lunascape 6.11.0 (Standard/Full) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498231.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ novaPDF Lite Desktop 8.3 Build 934 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498230.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Format Factory 3.7.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498227.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Windows 10 Login Changer 0.0.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498224.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VirtualBox 5.0.4 r102546 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498221.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Corel PDF Fusion 1.14 build 15.09.2014 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498197.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ jv16 PowerTools X 4.0.0.1502 Final RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498191.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Media Encoder CC 2015.0.2 9.0.2.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498182.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Zend Studio 12.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498179.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ SamDrivers 15.9 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498117.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DriverPack Solution 15.9 Full + Драйвер-паки 15.09.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498115.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Kaspersky Rescue Disk 10.0.31.4 (02.09.2012) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498084.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ MKVToolNix 5.8.0 Final + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497985.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Java SE Development Kit 17.0.4 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497725.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Process Lasso Pro v6.0.1.6 Final (x86/x64) [Multilanguage/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497706.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ AnyBurn 4.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497682.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ MassTube Plus 12.9.8.359 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497681.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Topaz DeNoise AI 1.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497677.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Wondershare Recoverit Ultimate 8.0.4.12 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497672.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Java SE Development Kit 18.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497649.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Java SE Development Kit 11.0.16 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497646.jpg" />
 </div>
 
 

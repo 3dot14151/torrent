@@ -6,7 +6,7 @@ VA - ЕвроХит Топ 40 Europa Plus 03.11.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342211.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 001 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342067.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Осенняя позитивная сотка. Выпуск 9 (2016) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340908.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Горячие осенние новинки. Русская версия (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340746.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Горячие Осенние Новинки 50х50 (2016) [MP3|256 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340740.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Мега хитовая осень на Europa Plus - 9 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340739.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Громкие новинки месяца Vol.15 (2018) [MP3|320 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340497.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Осторожно!!! Лавина хитов (2016) [MP3|256~320 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340366.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Feuerwerk der Schlagerhits (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340107.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 004 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340028.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 008 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340027.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 007 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340021.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 006 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340017.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 005 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339892.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 009 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339887.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Русская Дискотека. Волшебный Фонарь (2015) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339607.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - German Top 100 Single Charts 18.11. (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338750.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Бомба года от Хит FM (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338289.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Pop Sampler Chart: November Hits Collection (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337763.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Only Best Hits. Зажигательная дискотека (2015) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337029.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - German Top 100 Single Charts 11.10.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336721.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Shazam Хит-парад Russia Top 100 Сентябрь (2019) [MP3|320 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336365.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Музыкальный Заряд 5 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336222.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 013 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335585.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 010 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335477.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 011 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335474.jpg" />
 </div>
 
 

@@ -1,82 +1,3 @@
-###  Публикация: 1622343   (244546) от 28.03.2023
-
-Уильям Тенн | Освобождение Земли (2022) [MP3, Владимир Коваленко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Вся галактика стала ареной противостояния двух рас — денди и троххтов. Расы ведут войну за власть, и всё новые и новые виды оказываются втянутыми в их противостояние. Взрываются звёзды, рассыпаются в пыль миры. И однажды пришла очередь Земли....Жанр: ФантастикаПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DA005AA29007F1BC8E0911D8F4FC3BE8D86ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622207   (244501) от 28.03.2023
-
-Александр Тамоников | Александр Тимохин (Книга 2). И тогда он зачистил город (2022) [MP3, Андрей Финагин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Государство, использовав майора спецназа Александра Тимохина в Афганской войне, выбросило молодого офицера за борт жизни. Но он не пал духом, сумел удержаться на плаву. Александр занялся бизнесом, открыл кафе, прочно встал на ноги, и тут очередной удар судьбы – влиятельный бандит Мирза Левоев облюбовал кафе и решил сделать из него перевалочную базу для наркотиков. (   Читать дальше...   )Жанр: БоевикиПродолжительность: 10:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F977CBFB49376BD38E721ED1CC2DB0587F8A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621811   (244483) от 26.03.2023
-
-Виктор Точинов | Метро 2035. Защита Ковача (2020) [MP3, Владимир Овуор]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Идет война, жестокая и беспощадная, – правых и виноватых в ней нет.
-Военные, прожившие двадцать лет на подземном объекте, бьются за то, чтобы возродить хоть какое-то подобие прежнего мира, рухнувшего в Катастрофе. Их противники, выживавшие на поверхности и изуродованные мутациями, бьются за свое право жить как жили: их уклад и обычаи кажутся дикими и кровавыми, но (   Читать дальше...   )Жанр: Фантастика, ПостапокалипсисПродолжительность: 09:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683718270460FC3F894F7EA1E634873518E33007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622205   (244479) от 28.03.2023
 
 Александр Тамоников | Александр Тимохин (Книга 1). Афганский гладиатор (2022) [MP3, Андрей Финагин]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244479.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244431.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244406.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244400.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244392.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244356.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244352.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244302.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244299.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244283.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244243.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244238.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244212.jpg" />
 </div>
 
 
@@ -432,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244196.jpg" />
 </div>
 
 
@@ -460,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244186.jpg" />
 </div>
 
 
@@ -487,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244176.jpg" />
 </div>
 
 
@@ -516,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244148.jpg" />
 </div>
 
 
@@ -542,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244105.jpg" />
 </div>
 
 
@@ -568,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244095.jpg" />
 </div>
 
 
@@ -594,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244077.jpg" />
 </div>
 
 
@@ -620,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244067.jpg" />
 </div>
 
 
@@ -647,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244000.jpg" />
 </div>
 
 
@@ -673,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243981.jpg" />
 </div>
 
 
@@ -686,6 +607,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB7F3915E46B87E985D2512BEBB9E61CDC976351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626257   (243961) от 13.04.2023
+
+Тур Хейердал | Аку-аку. Тайна острова Пасхи (2021) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каменные статуи на острове Пасхи веками завораживали всех, кто их видел. Но как на почти безлюдном острове оказались каменные гиганты? Почему они стоят, отвернувшись от всесильного океана, и смотрят вглубь островных вулканов? Бесстрашный норвежский исследователь Тур Хейердал (1914–2002) берется разгадать эти загадки. Он снаряжает экспедицию на остров, на котором (   Читать дальше...   )Жанр: документальная литература, путешествияПродолжительность: 12:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC921B501FF8A7B348C7F4EF4A70969D4E636ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611216   (243928) от 11.02.2023
+
+Дана Данберг | Элитная школа магии (Книга 1). Чем дальше, тем страшнее.. (2022) [MP3, Ольга Дианова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243928.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чем дальше, тем страшнее…» – фантастический роман, первая книга цикла «Элитная школа магии», жанр любовное фэнтези, попаданцы.
+Она не хотела уходить, но у нее не было возможности остаться.
+Она хотела найти занятие по душе, но у нее не было возможности выбирать.
+Она хотела любви и дружбы, но оказалась в паутине интриг и лжи.(   Читать дальше...   )Жанр: Детективное фэнтези, Магические академии, ПопаданцыПродолжительность: 09:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814CC8861E47F67E37105C53B64BCFA5E6305865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567557   (243859) от 03.08.2022
+
+Вадим Панов | Чужие игры (Книга 1). Столкновение (2021) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звезда киберспорта, популярный видеоблогер, неординарная художница, талантливый биолог, гениальный математик и просто золотая молодежь… Ими они были на Земле.
+
+А здесь?
+На разбитом лунном клипере? Посреди бескрайнего космоса, где статус и деньги не значат ничего.(   Читать дальше...   )Жанр: Героическая фантастика, космическая фантастикаПродолжительность: 13:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9A6615E31213089F644C64EDF5D9230CA53B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Somali Yacht Club - Sandsongs (2011) [MP3|320 кб/с]<Stoner Psychedelic Rock /
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391937.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Unheilig - Lichter der Stadt Live (2012) [MP3|320 кб/с]<Gothic/Synth Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391931.jpg" />
 </div>
 
 
@@ -73,7 +73,7 @@ Madness - Oui, Oui, Si, Si, Ja, Ja, Da Da (2012) [MP3|320 кб/с ]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390880.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Voice of Deep Purple - The Gillan Years (2017) 3CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390411.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Brett Benowitz - Burn to Glow (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389773.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Robert Plant - Carry Fire (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389627.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Wish You Were Here (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388972.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Larry And His Flask  - Hobo's Lament(EP)(2012) [MP3|320 kbps] <Folk Rock, Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388187.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Pulatova - Рой (2018) [MP3|320 Kbps] <Post-Rock, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387904.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Molly Hatchet - Battleground (2019) 2xCD Live [MP3|320 Kbps] <Hard Rock, Souther
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387872.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ The Butterfly Effect - IV (2022) [MP3|320 Kbps] <Alt.Rock, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385708.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Martin Barre - 50 Years of Jethro Tull (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385506.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Roger Waters - Pros & Cons Of New York - The Classic 1985 Broadcast (2017) [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385438.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Super Deluxe Edition,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385259.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ The Jimi Hendrix Experience - 4 Releases (1967-1968) Japanese and USA Remasters 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384851.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Prox - At Last (1979) LP [MP3|320 Kbps] <Krautrock, Space Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383629.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Smooth Rock Classics (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383557.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Narcosatanicos - Body Cults (2016) [MP3|~245 Kbps (V0)] <Stoner, Psychedelic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383238.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ The Gift - Why The Sea Is Salt (2016) [MP3|320 Kbps] <Progressive Rock, Symphoni
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383225.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ John Lennon - GIMME SOME TRUTH. (2020) Deluxe Edition [MP3|320 Kbps] <Rock, Sing
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382881.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Green Bullfrog - Natural Magic (1971) Reissue, 1980, ECY Street Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382824.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Riverside - Eye Of The Soundscape (2016) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382819.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Two Door Cinema Club - Gameshow (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382653.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ The Beatles - 272 Albums, 39 Singles & EPs (1962-2014) Discography /EMI Music 19
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_381931.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Crippled Black Phoenix - Banefyre (2022) [MP3|320 Kbps] <Progressive Post, Folk,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381562.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Mendelbaum - Mendelbaum (1969-70) Compilation, 1991, Shadoks Music, 2CD [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381178.jpg" />
 </div>
 
 

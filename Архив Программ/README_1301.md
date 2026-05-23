@@ -6,7 +6,7 @@ Auslogics Duplicate File Finder 8.5.0.2 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376021.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Revo Uninstaller Pro 4.3.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376019.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ UnHackMe 11.99 Build 999 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376012.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Replay Video Capture 8.8 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375956.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SolveigMM Video Splitter 6.1.1611.2 Beta Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375949.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NirLauncher Package 1.17.05 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375924.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Display Driver Uninstaller 18.0.3.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375900.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Movavi Video Suite 21.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375894.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Movavi Photo Editor 4.4.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375865.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ashampoo Snap 9.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375816.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Total Uninstall 6.17.1 DC 27.10.2016 Professional Edition RePack by D!akov [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375814.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Internet Download Manager 6.12.24 Final RePack by KpoJIuK [Русский / Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375764.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Movavi Video Editor Plus 21.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375745.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kaspersky Internet Security 2021 21.1.15.500 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375742.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ iMazing 2.3.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375720.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Acronis True Image 2018 Build 9850 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375709.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Acronis True Image 2018 Build 9850 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375704.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Nero SoundTrax 14.0.0050 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375676.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ IObit Uninstaller 6.1.0.20 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375673.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ ZD Soft Screen Recorder 10.1.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375671.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ LibreOffice 5.2.3 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375664.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Internet Download Manager 6.12 Build 24 Final [Rus/Eng] RePack/Portable by D!ako
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375638.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ MediaMonkey Gold  4.1.30.1914 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375635.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Orfo Switcher 2.17 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375611.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Pepakura Designer 4.0.3 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375554.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Auslogics Driver Updater 1.9.1.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375480.jpg" />
 </div>
 
 

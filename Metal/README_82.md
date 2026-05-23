@@ -6,7 +6,7 @@ Vision Divine - When All the Heroes Are Dead (2019) [MP3|320 Kbps] <Melodic Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298952.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Edenbridge - Dynamind (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298944.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Art Nation - Transition (2019) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298943.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Beauty In Darkness Vol. 1-7 (1996-2004) [MP3|176-320 кбит/c]<Gothic, Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298808.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Saint Asonia - Flawed Design (2019) [MP3|320 Kbps] <Alternative Metal, Modern Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298358.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298148.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Light Field Reverie - Another World (2020) [MP3|320 Kbps] <Progressive Metal, Do
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298072.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Amorphis - His Story - Best Of (2016) [MP3|320 Kbps] <Progressive, Doom, Folk, M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298053.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Helloween - Sweet Seductions (2017) 3CD Compilation [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296945.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Megaherz - Erdwarts (2015) EP [MP3|320 кб/с]<Industrial Metal, NDH>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296800.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sombre Holiday - The Failed Sun (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296029.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Naberus - The Lost Reveries (2016) [MP3|320 Kbps] <Melodic Death, Thrash, Groove
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294277.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Summoning - With Doom We Come (2018) [MP3|320 Kbps] <Atmospheric Black Metal, Ep
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291555.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ In Flames - Down, Wicked & No Good (2017) EP [MP3|320 Kbps] <Modern Metal, Alt.M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291547.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Symphonic Metal - Dark & Beautiful I-9 (2010-2015) [MP3|320 кб/с]<Sympho
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290610.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Batushka - Litourgiya (2015) [MP3|320 кб/с]<Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290487.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Iron Savior - Reforged - Riding On Fire (2017) 2CD [MP3|320 Kbps] <Power Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289661.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lindemann - Knebel (2019) Single [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289577.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Almanac - Kingslayer (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288253.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Zgard - Totem (2015) [MP3|320 кб/с]<Pagan Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287648.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Cradle of Filth - Cruelty And The Beast: Re-Mistressed (Remixed & Remastered) (2
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287564.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mechina - 8 Альбомов, 1 EP, 6 Синглов (2005-2019) [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287361.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dreamshade - Vibrant (2016) [MP3|320 Kbps] <Modern Melodic Death Metal, Metalcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286435.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Royal Hunt - Show Me How To Live (2011) [MP3|320 kbps]<Melodic Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286249.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Those Who Fear - 3 Альбома (2013-2016) [MP3|320 кб/с]<Moshable Metalco
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284893.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Ghost Of Mary - Oblivaeon (2016) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284886.jpg" />
 </div>
 
 

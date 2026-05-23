@@ -6,7 +6,7 @@ Black Sabbath - Heaven and Hell (1980) 2xCD, Deluxe Edition, Reissue, Remastered
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842600.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bastian - Rock Of Daedalus (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841901.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Papa Serpiente - Rock Evolution (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841864.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Final Chapter - Legions Of The Sun (2016) [MP3|320 кб/с] <Symphonic Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841791.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Grimner - Frost Mot Eld (2016) [MP3|320 кб/с] <Folk Metal, Viking Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841705.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Confined By Yesterday - Blackmirrors (2016) [MP3|320 кб/с]<Deathcore, Metalco
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840310.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Condition Critical - Extermination Plan (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840309.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Novembre - Ursa (2016) [MP3|320 кб/с] <Progressive Metal, Doom-Death Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840202.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ KharmaGuess - Burn Your Own Church (2015) [MP3|320 Kbps] <Electronic, Metalcore,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840118.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FireForce - March On (2011) [MP3|320 kbps]<Power metal / Heavy metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839377.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Rammstein - 5/4 B-Sides (2002) Unofficial Release [MP3|320 Kbps] <Industrial Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837947.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Netra - Ingrats (2017) [MP3|320 Kbps] <Depressive Black Metal, Trip-Hop>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836818.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Dawn Protection - Eternal (2015) [MP3|320 кб/с]<Instrumental, Progressive Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836815.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Satyros - Riven (2011) [MP3|320 kbps]<Black metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836102.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Lethe - The First Corpse on the Moon (2017) [MP3|320 Kbps] <Avant-Garde Metal, E
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835337.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ I Am Revenge - Red Gold (2014) [MP3|320 кб/с] <Hardcore, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834697.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Killswitch Engage - 13 Releases (2000-2020) [MP3|320 кб/с] <Metalcore, New Wa
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834394.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Dream Theater - A View From the Top of the World (2021) [MP3|320 Kbps] <Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833528.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Lord Of The Lost - 5 Альбомов (2010-2015) Дискография [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832865.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Erdling - Supernova (2017) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828060.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Overkill / Kreator - Man In Black / Warrior Heart (2017) Split [MP3|320 Kbps] <T
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828056.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Pallbearer - Heartless (2017) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826546.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Immolation - Kingdom Of Conspiracy (2013) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825411.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Judas Priest - Reflections (2021) 50 Heavy Metal Years of Music [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824743.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ In Extremo - Kompass zur Sonne (2020) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824597.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Turmion Katilot - Dance Panique (2017) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824582.jpg" />
 </div>
 
 

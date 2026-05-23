@@ -1,116 +1,3 @@
-###  Публикация: 1531661   (720278) от 16.02.2022
-
-Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«PULSE» — видеоверсия концерта группы Pink Floyd, прошедшего 20 октября 1994-го года в Лондонском Earls Court. Концерт проходил в рамках тура в поддержку альбома The Division Bell. Музыка сопровождалась очень красочным шоу с применением огромного количества прожекторов и лазеров, двух больших надувных свиней, пролетающего над зрителями самолета, демонстрацией видеороликов (   Читать дальше...   )Shine On You Crazy Diamond - 0:10
-Learning to Fly - 13:23
-High Hopes - 19:04
-Take it Back - 27:17(   Читать дальше...   )Производство: Великобритания / Pyro SpectacularЖанр: RockРежиссер: Дэвид МалеСубтитры: ОтсутствуютПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFFDA3C95BC1001A41B6DFB754D7C2EEB0055EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327294   (720260) от 24.04.2011
-
-Музыкальный ринг на НТВ. Выпуск №19. Александр Маршал vs Вопли Видоплясова  (22.04.2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: Концерт, ТВ-ШоуПродолжительность: ~ 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DDB6C02C65B54815A184AE5AFEE2BDA1520748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892333   (719196) от 26.04.2015
-
-Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Заключительный концерт первого самостоятельного тура Queen в 1974 году, который группа записала и сняла в том же году и месте. Концерт получил название в честь шоу, которое состоялось в лондонском заведении Rainbow.01. Procession
-02. Now I’m Here
-03. Ogre Battle
-04. Father To Son(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9033EDE478CFF4EEA34BDDEF58FA8F1520B1B910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890414   (719078) от 26.04.2015
-
-Большая Дискотека 80-х полная версия.(Потреково) (2014) HDTV [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-XIII международный музыкальный фестиваль «Авторадио» - «Дискотека 80-х» - стал самым масштабным за всю историю. Тридцать легендарных исполнителей, музыка non-stop, слаженная работа звука и света, совершенно необычный видеоконтент - все это «Большая Дискотека 80-х»! Всеми любимые и неподвластные времени хиты исполнили Thomas Anders,C.C. Catch, Eruption, Silent Circle, (   Читать дальше...   )01. Авторадио представляет...
-02. Eruption - One way ticket
-03. Виктор Салтыков - Белая ночь
-04. Игорь Николаве - Такси, такси(   Читать дальше...   )Жанр: DiscoРежиссер: Герман СадченковАктеры: Eruption, Tomas Anders, Игорь Николав, Village people, Рома Жуков и т. д.Перевод: не требуетсяПродолжительность: 03:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46AC957ADFECD90DE2240E8122F8E02467CA3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 669765   (717497) от 18.06.2013
 
 VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
@@ -119,7 +6,7 @@ VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717497.jpg" />
 </div>
 
 
@@ -148,7 +35,7 @@ Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717388.jpg" />
 </div>
 
 
@@ -174,7 +61,7 @@ DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717386.jpg" />
 </div>
 
 
@@ -200,7 +87,7 @@ Led Zeppelin: The Song Remains The Same (2007) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_715304.jpg" />
 </div>
 
 
@@ -226,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_715300.jpg" />
 </div>
 
 
@@ -252,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714046.jpg" />
 </div>
 
 
@@ -279,7 +166,7 @@ Bryan Ferry - Nuits de Fourviere. Live in Lyon (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713803.jpg" />
 </div>
 
 
@@ -308,7 +195,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713698.jpg" />
 </div>
 
 
@@ -337,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713563.jpg" />
 </div>
 
 
@@ -368,7 +255,7 @@ AC/DC: Live at Donington (1991) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_713549.jpg" />
 </div>
 
 
@@ -397,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_713269.jpg" />
 </div>
 
 
@@ -423,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712657.jpg" />
 </div>
 
 
@@ -453,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712592.jpg" />
 </div>
 
 
@@ -479,7 +366,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711946.jpg" />
 </div>
 
 
@@ -508,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711788.jpg" />
 </div>
 
 
@@ -537,7 +424,7 @@ Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710865.jpg" />
 </div>
 
 
@@ -563,7 +450,7 @@ Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710863.jpg" />
 </div>
 
 
@@ -589,7 +476,7 @@ Gregorian - Masters Of Chant Chapter III (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710701.jpg" />
 </div>
 
 
@@ -615,7 +502,7 @@ U.D.O. - Steelhammer: Live From Moscow (2014) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709923.jpg" />
 </div>
 
 
@@ -644,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709819.jpg" />
 </div>
 
 
@@ -670,7 +557,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709437.jpg" />
 </div>
 
 
@@ -699,7 +586,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709325.jpg" />
 </div>
 
 
@@ -713,6 +600,116 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08CD4477EEE6B245ED78E994C44CC6C653E9DF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025605   (709322) от 12.06.2016
+
+The Alan Parsons Symphonic Project - Live In Colombia (2016) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алан Парсонс - британский музыкант, звукорежиссёр, продюсер. Известен своей работой с группой Pink Floyd — альбом Dark Side of the Moon, который стал звёздным часом для группы, Полом Маккартни и другими музыкантами, а также собственным музыкальным проектом The Alan Parsons Project.Жанр: Progressive RockПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3958B42C2820A7B102994F6372D5B40C32787727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329772   (709212) от 29.04.2011
+
+VH1 All Classics Hits (2005) 10xDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286610   (708974) от 04.03.2019
+
+Квартирник НТВ у Маргулиса. Zdob si Zdub (02.03.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708974.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла популярная рок-группа Zdob si Zdub. В России группа известна благодаря кавер-версии песни «Видели ночь». Участники команды исполнили известные композиции и поделились со зрителями интересными воспоминаниями из жизни и творчества. Евгений Маргулис признался, что очень давно знаком с музыкальным коллективом из Молдавии и их солистом (   Читать дальше...   )00:05 — Хаитура
+07:55 — Zubii bateti tare
+14:25 — Миорица
+20:27 — Видели ночь(   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656FBE971CBBC994EF265FE86E5E736E51518805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286385   (708721) от 04.03.2019
+
+Сборник клипов - Multinational Dance Hits - Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернациональный сборник танцевальных клипов, во имя мира во всем мире. Лучшее 2014 - 2019 г. Много позитива, тропического солнца и теплого моря в зимнюю стужу. Это 1я часть. Обложка и блины для дисков в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Multinational Dance Hits - Intro
+01. Dan Balan & Tany Vander & Brasco - Lendo Calendo
+02. Andrew Rayel & Emma Hewitt - My Reflection
+03. Jorge Gonzalez - Tu Boquita(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 05:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAE013E8E5CE504BCC9B3E06EE6AAC4D3EC494C
 ```
 
 https://mybot314.ru/tekegram_catalog/

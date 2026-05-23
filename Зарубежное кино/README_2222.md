@@ -1,55 +1,3 @@
-###  Публикация: 1773243   (30968) от 14.01.2025
-
-Странная парочка 2 / The Odd Couple II (1998) BDRip [H.265/1080p] [10-bit] [AUS Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Оскар и Феликс - полные противоположности: один может запросто надеть разные ботинки, другой - даже стрелки на брюках заглаживает по линейке. Раньше они сидели за одной партой, а теперь ходят по разным сторонам улицы. Но всё-таки им придётся снова встретиться, и даже стать настоящими родственниками. Ведь дочка одного собралась замуж за сына другого. А до места свадьбы (   Читать дальше...   )Производство: США / Cort/Madden Productions, Paramount PicturesЖанр: комедия, приключенияРежиссер: Ховард ДойчАктеры: Джек Леммон, Уолтер Мэттау, Ричард Рили, Джонатан Силверман, Лиза Вальц, Мэри Бет Пейл, Кристин Барански, Джин Смарт, Рекс Линн, Джей О. СэндерсПеревод: многоголосый профессиональный, двухголосый профессиональный, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C91C3B146007CC26F0C08F8B1A901819CED4A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773198   (30966) от 14.01.2025
-
-Индеец в Париже / Un indien dans la ville (1994) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий и очень занятой брокер из Парижа приезжает в дельту Амазонки, чтобы получить развод от жены, бросившей его много лет назад почти сразу же после свадьбы. Он с удивлением узнает, что она воспитала там, вдали от цивилизации, его сына, о существовании которого он и не подозревал. Отец берет дикого сынишку в Париж, где происходит масса забавных приключений, (   Читать дальше...   )Производство: Франция / Canal+, Ice Films, Société des Producteurs de Cinéma et de Télévision (Procirep), TF1 Films ProductЖанр: мелодрама, комедия, приключенияРежиссер: Эрве ПалюАктеры: Тьерри Лермитт, Патрик Тимси, Людвиг Бриан, Миу-Миу, Ариель Домбаль, Владимир Котляров, Соня Воллеро, Жакки Берруайе, Марк Де Йонге, Люба ГерчикоффПеревод: Многоголосый профессиональный (Екатеринбург Арт, ФильмЭкспорт, ОРТ, Мост Медиа)Язык озвучки: русский, французскийСубтитры: русскиеПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5393156B31A360896283FEF72A608C7B3C8C368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773163   (30936) от 14.01.2025
 
 Его три дочери / His Three Daughters (2023) WEB-DL [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30936.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30931.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30929.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30920.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30899.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30893.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30887.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30884.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30880.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30872.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30866.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30864.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30862.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30831.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30816.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30805.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30802.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30765.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30757.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30749.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30736.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30714.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30687.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30667.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0475AE5F9DE0AF2AAE8B0C240EFFF402D6F3FD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773828   (30649) от 17.01.2025
+
+Кровавая работа / Blood Work (2002) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Терри МакКалеб — бывший агент ФБР, специализирующийся на серийных убийствах, перенёс операцию по пересадке сердца и теперь находится на пенсии, теша себя починкой своей лодки. Но его талант вновь востребован, и он получает новое задание. А нанимает его некто Граселия Риверс для того, чтобы он расследовал причину гибели её сестры, сердце которой и было пересажено (   Читать дальше...   )Производство: США / Malpaso Productions, Warner Bros.Жанр: боевик, триллер, драма, криминал, детективРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Джефф Дэниелс, Анжелика Хьюстон, Ванда Де Хесус, Тина Лиффорд, Пол Родригес, Дилан Уолш, Мэйсон Лучеро, Джерри Бекер, Рик ХоффманПеревод: многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE9B49F030B269A83D71908537F4CB3927C05F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773792   (30645) от 17.01.2025
+
+В поисках галактики / Galaxy Quest (1999) BDRip [H.265/1080p] [10-bit] [US Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся Америка усаживалась к телеэкранам, когда начинался любимый зрителями сериал «В поисках галактики». Герои этой фантастической саги были воистину народными героями. Но прошли годы, и сериал надоел телевизионным боссам - «В поисках галактики» закрыли, а труппу распустили. Теперь безработные бедолаги-актёры вынуждены колесить по всей Америке, выступая на встречах (   Читать дальше...   )Производство: США / Dreamworks Pictures, Gran ViaЖанр: фантастика, комедия, приключенияРежиссер: Дин ПаризоАктеры: Тим Аллен, Сигурни Уивер, Алан Рикман, Тони Шэлуб, Сэм Рокуэлл, Дэрил Митчелл, Энрико Колантони, Робин Сакс, Патрик Брин, Мисси ПайлПеревод: многоголосый профессиональный, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, украинские, английские (SDH)Продолжительность: 01:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56ADF1716773123ABC122299DD9650B2E48DF509
 ```
 
 https://mybot314.ru/tekegram_catalog/

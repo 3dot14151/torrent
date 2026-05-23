@@ -6,7 +6,7 @@ GoneIn60s - утилита для восстановления закрытых 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479062.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaMonkey Gold 4.1.14.1812 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479029.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox Quantum 68.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479021.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AusLogics Disk Defrag Ultimate 4.11.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479017.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Topaz Studio 2.0.10 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479014.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TweakPower 1.154 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478994.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Easy CD-DA Extractor 16.0.8.2 Final RePack by elchupacabra [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478976.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Maxthon Browser 6.1.0.600 Beta + Portable (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478970.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Glary Utilities Pro 2.49.0.1600 RePack/Portable By Boomer [Русский/Анг
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478969.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Universal Document Converter 6.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478928.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vegasaur 2.7.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478927.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Luminant Music Ultimate 2.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478876.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Luminar 3.1.3.3920 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478867.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ IObit Driver Booster Pro 6.6.0.500 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478864.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ pdfFactory Pro 4.65 [Multi (русский отсутствует)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478855.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Easy CD-DA Extractor 16.0.8.2 Final RePack (& portable) by KpoJIuK [Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478854.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Windows 10 Manager 1.1.9 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478788.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Anvir Task Manager 9.3.3 RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478737.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Adobe Photoshop CC 2019 (20.0.6) x64 Portable by punsh (with Plugins) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478717.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Luminar 4.3.0.6175 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478660.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ MiniTool Partition Wizard Enterprise 12.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478654.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Kleptomania 4.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478601.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ O&O DiskRecovery 8.0 Build 335 Tech Edition unattended RePack By Boomer x86/x64 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478458.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Waterfox Current G4.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478422.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Ashampoo Burning Studio FREE 1.23.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478419.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ DirPrintOK 6.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478412.jpg" />
 </div>
 
 

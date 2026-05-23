@@ -6,7 +6,7 @@ Sybase Advantage Database Server 11.10.0.24 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265569.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft SQL Server 2025 17.0.1000.7 (RTM) + SSMS 22.0 [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261673.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Lync 2010 Client RUS x86 4.0.7577.0 [Русский]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260655.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Lync 2010 Client RUS x64 4.0.7577.0 [Русский]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249015.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft SQL Server 2012 Enterprise  Core  Edition (x86 and x64) (Russian)
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248108.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Endpoint Configuration Manager 2203 [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232838.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ HP Service Pack for ProLiant Gen 11 2023.04 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188476.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ HP Service Pack for ProLiant Gen 9 2022.08 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188381.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ HP Service Pack for ProLiant Gen 10 2023.09 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188194.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ HP Service Pack for ProLiant Gen 10 2023.03 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188187.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft® SQL Server® 2012 Express с пакетом обновления 1 (
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135074.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft SQL Server 2012 Developer Edition (x86 and x64)  (Russian)
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102549.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft SQL Server 2012  Enterprise Edition (x86 and x64) (Russian)
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102339.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Oracle Database 11g Release 2 11.2.0.3 [ENG]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81344.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ SolarWinds Platform 2025.2.1 [Multi]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2650.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1313526   (523567) от 09.07.2019
-
-Евгений Щепетнов | Справедливости – Всем (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бывший участковый Каргин становится оперуполномоченным. Под руководством некоего загадочного супермена Сазонова он набирает команду своих ровесников, с которыми в изнурительных тренировках оттачивает мастерство в боевых искусствах. Каргин ненавидит бандитов всех мастей и, чтобы раскрыть типичные преступления, зачастую идет на превышение власти. Согласно собственным (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 10:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B422E8165D35DD047157585470E1A71669C78555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313434   (523564) от 09.07.2019
-
-Владимир Поселягин | Школа (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Граф Арни Ки Сон в чужом незнакомом мире, где идёт 1941 год, начало той самой войны. Западные области и молодой маг на пути нацистских войск. Как он поступит, что сделает, как поведёт себя? Пока это неопределённо, но одно становится ясно: перед захватчиками не разбитые советские части, а всего лишь юнец с чарующей улыбкой и взглядом убийцы, и ещё неизвестно, кто (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 09:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DAD12659101CDAC9DBD0CD8F8952E15F5750A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559736   (523544) от 26.06.2022
-
-Александр Дюма | Женщина с бархоткой на шее (2017) [MP3, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Женщина с бархоткой на шее», также известная под названием «Мёртвая голова» была написана в 1849 году и вошла в состав сборника «Тысяча и один призрак» – литературный сборник, включающий пять мистико-приключенческих повестей и новелл Александра Дюма. Эти произведения впервые публиковались в парижской газете «Конституционалист». Сборник отражает интерес автора (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 06:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78207AB25BDCABBB54C0635F8CCB9E6A1CD4C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559761   (523534) от 26.06.2022
 
 Э.К. Уайз | Дорогая Венди (2022) [MP3, Ирина Патракова]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523534.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523491.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523489.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523485.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523420.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523409.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523279.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523239.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523209.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522962.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522927.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522901.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522898.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522869.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522865.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522843.jpg" />
 </div>
 
 
@@ -513,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522842.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522839.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522804.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522775.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522758.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522721.jpg" />
 </div>
 
 
@@ -674,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522714.jpg" />
 </div>
 
 
@@ -687,6 +609,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48AC990906415E57ADA0CE2B308398A4807E82E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560031   (522709) от 27.06.2022
+
+Роуз Карлайл | Девушка в зеркале (2021) [MP3, Лилия Власова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они не просто близнецы. Они – зеркальное отражение друг друга.
+Магнетический триллер о соперничестве двух сестер-близнецов, жадности, похоти, смертельных тайнах и лжи. Здесь все совсем не так, как кажется на первый взгляд. А финал поражает воображение даже самого искушенного читателя.Жанр: Детектив, ТриллерПродолжительность: 11:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969AABC8227CD8A3CAC9BBC92338E787A8DBE448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560012   (522705) от 27.06.2022
+
+Анна Иванова | Смотрящая со стороны (2021) [MP3, Ольга Глушко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гуру обольщения Аделина Пылаева пережила изнасилование и теперь боится выходить из дома одна. Она ведет вебинары для женщин, а вечерами любуется через веб-камеры красотами Сочи, города, в котором когда-то была счастлива.
+
+Однажды прямая трансляция из рая на земле превращается в самый страшный кошмар Аделины: она видит, как мужчина насильно запихивает в машину девушку. (   Читать дальше...   )Жанр: Современные детективы, ТриллерыПродолжительность: 09:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C061FEE990CCE1CF361899CDC1A5C8A938FA3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559971   (522700) от 27.06.2022
+
+Альбина Нури | Тайны уездного города (Книга  2). Отель «Петровский» (2021) [MP3, Валерия Егорова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старинное здание, где прежде располагались больница и городской морг, превратили в роскошный отель. Но за шикарными интерьерами таится нечто ужасное, а по коридорам и комнатам бродит Смерть. В прошлом веке больницу уже пробовали переделывать в дом – и для несчастных жильцов это обернулось бесконечным кошмаром. Журналист Илья, который пишет рекламную статью об открытии (   Читать дальше...   )Жанр: Мистика, Современные детективы, ТриллерыПродолжительность: 07:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE1FDEAAADEB5A09964D25BC98551208B0525DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

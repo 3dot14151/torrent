@@ -6,7 +6,7 @@ AOMEI Partition Assistant Pro 9.15.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201526.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AOMEI Backupper Pro 7.2.0 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201521.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows Repair Toolbox 3.0.3.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201519.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ eM Client Pro 9.2.1628.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201507.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ IObit Smart Defrag Pro 8.4.0.259 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201496.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.4 Build 9 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201494.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Dreadful River (2023) [En] (0.4.121.0) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201486.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Photoshop Lightroom Classic 12.2.1.1 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201485.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ LosslessCut 3.53.0 Standantalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201484.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ The Bat! Professional 10.3.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201480.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blackmagic Design Fusion Studio 18.1.3 Build 7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201476.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201471.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe Photoshop 2023 24.2.1.358 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201464.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Master PDF Editor 5.9.40 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201463.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ KiCad 7.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201460.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AIO Boot NewGen 23.3.10.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201456.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ uTorrent Pro 3.6.0 Build 46738 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201447.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201442.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Wondershare UniConverter 14.1.13.154 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201418.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Google Chrome 111.0.5563.65 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201417.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Firefox Browser 111.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201414.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ CPU-Z 2.05.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201412.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Stardock Fences 4.1.0.6 (x64) RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201410.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ ES File Explorer File Manager v4.4.0.2 Premium [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201402.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Torrent Merkle Root Reader (TMRR) 1.1.3b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201398.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ AIDA64 Extreme Edition 6.85.6345 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201392.jpg" />
 </div>
 
 

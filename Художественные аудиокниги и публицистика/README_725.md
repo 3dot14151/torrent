@@ -1,83 +1,3 @@
-###  Публикация: 1083722   (217510) от 19.12.2016
-
-Артем Каменистый | Горечь пепла (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Гигран – парадоксальный мир разделенный Срединным хребтом. Мир, где отдельные северные страны дошли до эпохи технической революции, а юг о сложной технике даже не помышляет. Зачем она, если там не забыли магию? С ее помощью собирают богатые урожаи на полях, ведут корабли по океанам и даже осваивают Крайний Юг – самое негостеприимное место на свете, где до сих пор (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 13:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33E7F50C061F99F54827E4486E5C1015F4C5B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514429   (217317) от 03.12.2021
-
-Джек Лондон | Мартин Иден (2019) [MP3, Вячеслав Манылов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В романе «Мартин Иден» писатель рассказывает о том, как трудно молодому человеку, одаренному литературным талантом, выбиться в люди, заставить поверить в свои силы других и себя. Наконец, чтобы доказать любимой девушке, что он достоин ее.
-Массу испытаний пришлось пройти Мартину, прежде чем его стали публиковать. А когда слава, известность и деньги приходят к нему, (   Читать дальше...   )Жанр: КлассикаПродолжительность: 20:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817BEC964644319B38DCF12A5E23192837DAB9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151413   (217296) от 06.12.2019
-
-Дмитрий Глуховский | Текст (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-«Текст» – первый реалистический роман Дмитрия Глуховского, автора «Метро», «Будущего» и «Сумерек». Эта книга на стыке триллера, романа-нуар и драмы, история о столкновении поколений, о невозможной любви и бесполезном возмездии. Действие разворачивается в сегодняшней Москве и ее пригородах.
-Телефон стал для души резервным хранилищем. В нем самые яркие наши воспоминания: (   Читать дальше...   )Жанр: криминальная драма, психологический детективПродолжительность: 12:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A0FEFB2200EEDB839F8B52E27EF62BDEDEEBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084812   (217118) от 20.12.2016
 
 Братья Бри | Явление чувств (2016) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217118.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217115.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217111.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217103.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217075.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217068.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217039.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217032.jpg" />
 </div>
 
 
@@ -294,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217026.jpg" />
 </div>
 
 
@@ -320,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217016.jpg" />
 </div>
 
 
@@ -346,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217015.jpg" />
 </div>
 
 
@@ -372,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216993.jpg" />
 </div>
 
 
@@ -398,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216965.jpg" />
 </div>
 
 
@@ -424,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216961.jpg" />
 </div>
 
 
@@ -452,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216956.jpg" />
 </div>
 
 
@@ -478,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216943.jpg" />
 </div>
 
 
@@ -504,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216937.jpg" />
 </div>
 
 
@@ -530,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216933.jpg" />
 </div>
 
 
@@ -559,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216926.jpg" />
 </div>
 
 
@@ -585,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216923.jpg" />
 </div>
 
 
@@ -613,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216917.jpg" />
 </div>
 
 
@@ -639,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216912.jpg" />
 </div>
 
 
@@ -665,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216894.jpg" />
 </div>
 
 
@@ -676,6 +596,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1526C51814F5ADBE423DBC9E8A5AE549DB385C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652607   (216892) от 12.08.2023
+
+Кикути Кан | Портрет дамы с жемчугами (2021) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216892.jpg" />
+</div>
+
+
+###  Подробнее
+
+В силу сложившихся традиций на протяжении веков уделом женщины считались ведение домашнего хозяйства и воспитание детей, а её поведение регламентировалось строгими нормами морали. Особенно ярко это проявлялось в странах Восточной Азии, в том числе и в Японии. Тем удивительнее сюжет романа «Портрет дамы с жемчугами», главная героиня которого решила доказать себе и (   Читать дальше...   )Жанр: классическая прозаПеревод: М. ОгусиИздательство: СОЮЗПродолжительность: 10:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4EB2973D2545473A42C80088B33C9F93363FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514536   (216882) от 03.12.2021
+
+Кир Булычев | Театр теней (Книга 1). Вид на битву с высоты (2021) [MP3, Анастасия Жаркова, Иван Забелин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Землянин инопланетного происхождения Гарик Гагарин стал сотрудником института Экспертизы, занимающегося изучением необъяснимых явлений и людей со сверхъестественными способностями. Сам Гарик владеет левитацией и даром внушения.
+
+В небольших городах стали пропадать целые группы мужчин, прошедших службу в «горячих точках». Все они были одинокими и состояли в ветеранских (   Читать дальше...   )Жанр: Классика фантастики, Социальная фантастикаПродолжительность: 14:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709FE8B63AC75C084D539DD546F1198A1225F643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652727   (216845) от 12.08.2023
+
+Павел Виноградов | Время исканий (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216845.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сорок тысяч лет существует Домен из тысяч миров и сотен разумных рас. Личность древнего правителя Доминуса каждый раз перерождается, постепенно восполняя знания и навыки, но для пробуждения нового Воплощения его необходимо обнаружить среди триллионов существ. Какие силы первыми найдут новое воплощение и пробудят его? От этого будет зависеть следующая эпоха (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57CBF25B62EB5626B5813DD2B7BD3098272B2E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

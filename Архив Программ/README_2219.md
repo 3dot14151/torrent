@@ -6,7 +6,7 @@ VueScan Pro 9.8.36.17 RePack (& Portable) by elchupacabra (DC 2024.09.21) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42768.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VirtualBox 7.1.0 Build 164728 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42755.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42730.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4894 (Updated September 2024) by FaTa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42694.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ZWCAD 2025 SP1.2 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42683.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ PreSonus Studio One 7 Professional 7.0.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42667.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Stellarium 24.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42659.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ HDCleaner 2.081 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42656.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Synchro Arts - RePitch 1.5.13 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42641.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ RedNotebook 2.35.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42628.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PDF24 Creator 11.20.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42625.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ RegCool 2.013 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42604.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ AnyMP4 Video Converter Ultimate 8.5.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42593.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Icecream PDF Editor Pro 3.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42578.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Blender 4.2.2 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42577.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Revo Uninstaller Free 2.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42573.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ JetBrains Rider 2024.2.5 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42572.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Opera One 113.0.5230.132 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42569.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ IceCream Ebook Reader Pro 6.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42565.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ OCCT 13.1.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42550.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Icecream Video Editor Pro 3.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42545.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Format Factory 5.18.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42542.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Icecream Video Converter Pro 1.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42540.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Blender 3.6.16 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42535.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ FanControl V204 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42527.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ HiBit Uninstaller 3.2.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42455.jpg" />
 </div>
 
 

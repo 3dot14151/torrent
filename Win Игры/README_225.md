@@ -1,29 +1,3 @@
-###  Публикация: 1156163   (528400) от 06.08.2017
-
-Algotica - Iteration 1 (2017) [Ru/En] (1.0) Repack Covfefe
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алготика — это игра-приключение и одновременно пазл, посвященный обучению программированию с повествованием, разрушающим “четвертую стену”. В Алготике глубокая история, нетипичный геймплей, стиль и атмосферная музыка. Если вы хотели начать изучать программирование, но оно вам кажется слишком сложным, или просто не доходили руки, то эта игра — хорошая отправная точка (   Читать дальше...   )Тип издания: RepackРазработчик: Alexander KhoroshavinЖанр: Adventure, IndieЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57975DF606C5805713F6BFE4969D943714A01ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156275   (528365) от 06.08.2017
 
 Distorted Reality (2017) [En] (1.0) License PLAZA
@@ -32,7 +6,7 @@ Distorted Reality (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528365.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Witches Legacy 6: The Dark Throne / Наследие ведьм 6: Трон Ть
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528058.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Uncharted Tides: Port Royal (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528038.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ STASIS (2015) [Ru/Multi] (1.09.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527885.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pathologic 2 (2019) [Ru/En] (1.4.25127) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527877.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Survive on Raft (2019) [Ru/En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527876.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.2) Lice
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527763.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ RIVE (2016) [En/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527714.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Avadon 3: The Warborn (2016) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527713.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Metro Redux Dilogy (2014) [Ru/Multi] (1.0.0.3/1.0.0.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527699.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6421.30108/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527525.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Vanishing of Ethan Carter Redux (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527515.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Outbreak: Pandemic Evolution (2016) [En] (Patch 8) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527093.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ City Legends 2: Trapped in Mirror (2022) [En] (1.0) Unofficial [Colleсtors's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527061.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Kyn (2015) [En/De] (4.6.6.11209528/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527043.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Cosmonautica: A Space Trading Adventure (2014) [Ru/Multi] (2.6.0.7 GOG) License 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527024.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Cursed Island: Mask of Baragus / Проклятый Остров: Маска
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526955.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Evil Genome (2017) [En/Ch] (1.2.022) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526822.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Toki Tori Dilogy (2010-2013) [Ru/Multi] (1.0.7526.8583/1.0.15191.9550) Repack Le
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526507.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526490.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Myths of the World 11: The Black Sun / Мифы народов мира 11: Че
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526348.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Sine Mora EX (2017) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526258.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Peregrin (2017) [Ru/Multi] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526251.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dead or Alive 5: Last Round (2015) [Ru/Multi] (1.10A/upd25/dlc) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526248.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Running Gods (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525904.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Running Gods (2016) [Ru/Multi] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A50AF5BF0DDF4452F400B92565CCBF28E918A6A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157223   (525877) от 10.08.2017
+
+Vermillion Watch 3. Order Zero (2017) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы начинаете расследование по краже редкого антиквариата, но быстро понимаете, что это больше, чем мелкая кража.Пришло время объединится с друзьями и найти преступника, который терроризирует Лондон.Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7616C749FBA2EABFFA7950981E3B0FBA6DAA971C
 ```
 
 https://mybot314.ru/tekegram_catalog/

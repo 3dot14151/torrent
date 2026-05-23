@@ -1,29 +1,3 @@
-###  Публикация: 1755554   (3678) от 09.09.2025
-
-Satisfactory (2019) [Ru/Multi] (1.1.1.4 CL#433351) Repack Pioneer
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Satisfactory - это игра от первого лица в открытом мире, вы которой вам нужно строить заводы, с упором на исследования и бои. Играйте в одиночестве или с друзьями, исследуйте незнакомую планету, возводите многоэтажные заводы и вступите в конвейерный рай!Тип издания: RepackРазработчик: Coffee Stain StudiosЖанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4F247EEFA5FF0BFD4E0EEE7C9441C9DFCC6154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774621   (3664) от 09.09.2025
 
 Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflict Edition]
@@ -32,7 +6,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3664.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Kaptain Brawe: A Brawe New World (2011) [Ru/Multi] (3.1.4.33) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3655.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ No Man's Sky (2016) [Ru/Multi] (6.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3652.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3634.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3549.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Metal Eden (2025) [Ru/Multi] (1.01) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3545.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3540.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Factorio (2020) [Ru/Multi] (2.0.66/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3537.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-5/dlc) Repack Let'sРlay [Enhan
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3535.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3534.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Shattered Pixel Dungeon (2022) [Ru/Multi] (3.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3533.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3532.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mortal Sin (2025) [Ru/Multi] (1.0 HF1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3527.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3522.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Look Outside (2025) [Ru/En] (1.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3521.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Sunkenland (2023) [Ru/Multi] (0.7.04) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3520.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.12R/dlc) Repack Let'sРlay [Complete Bu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3519.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3514.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack FitGirl [Collection
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3511.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.70.1_m/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3510.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack seleZen [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3490.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.19) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3422.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3420.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.03.79909 HF/dlc) Repack Let'sРlay [Reso
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3415.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3412.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12BFBA9C0256BDEB8312A807761659A9DBE97A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815149   (3398) от 11.09.2025
+
+The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэр Лайонстоун, самый могучий из рыцарей и защитник великого города Клессия, не вернулся со своего последнего задания. Вам, как верному подмастерью пропавшего рыцаря, предстоит вооружиться оставленным им щитом, взять на себя обязанности героя и отыскать Лайонстоуна, пока королевство не пало под натиском опасностей. Откройте многочисленные регионы и тайны Клессии, (   Читать дальше...   )Тип издания: RepackРазработчик: TwirlboundЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4103490720009B42E5DE978797C3EDE49F1056
 ```
 
 https://mybot314.ru/tekegram_catalog/

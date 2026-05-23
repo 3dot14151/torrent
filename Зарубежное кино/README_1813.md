@@ -1,56 +1,3 @@
-###  Публикация: 1664488   (185021) от 26.09.2023
-
-Никто тебя не спасет / No One Will Save You (2023) WEBRip [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Бринн живёт в лесном доме в отдалении от небольшого городка. Из-за одного события в прошлом она обречена на одиночество — местные дружно её осуждают и активно игнорируют. Однажды ночью девушка просыпается от странных звуков и обнаруживает, что в её дом забралось внеземное существо с явно недобрыми намерениями. Поскольку помощи ждать неоткуда, Бринн придётся противостоять (   Читать дальше...   )Производство: США | 20th Century Studios, Star Thrower EntertainmentЖанр: Ужасы, фантастика, триллерРежиссер: Брайан ДаффилдАктеры: Кейтлин Дивер, Elizabeth Kaluev, Зэк Дуэйм, Лорен Л. Мюррэй, Джеральдин Сингер, Дэйн Родс, Daniel Rigamer, Evangeline Rose, Dari Lynn Griffin, Gabrielle BordleeПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B3F58832ABC71F970FAC8D0E011791EADB8CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592024   (185018) от 20.11.2022
-
-Поцелуй дракона / Kiss of the Dragon (2001) BDRip [H.265/1080p] [10-bit] [US Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Офицер китайской разведки приезжает из Гонконга в Париж, чтобы участвовать в опасной операции, цель которой - заманить в ловушку и взять с поличным крупного наркобарона. Но дела идут совершенно непредсказуемо.
-Герой попадает в двойную ловушку и становится подозреваемым в убийстве c неопровержимыми уликами против него. Его жизнь теперь зависит от того, сумеет ли он (   Читать дальше...   )Производство: Франция, США / 20th Century Fox Film Corporation, Canal+Жанр: боевик, триллер, криминалРежиссер: Крис НаонАктеры: Джет Ли, Бриджит Фонда, Чеки Карио, Рик Янг, Берт Квук, Лоуренс Эшли, Сирил Раффаэлли, Дидье Азулай, Джон Форджэм, Пол БарретПеревод: дублированный, многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F7F0F2C19A0983FB4A6E8A7492F229F3EB69E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496062   (185016) от 26.09.2023
 
 THE FANIMATRIX: Run Program (2003) WEBRip [H.264/1080p] [En]
@@ -59,7 +6,7 @@ THE FANIMATRIX: Run Program (2003) WEBRip [H.264/1080p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185016.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185009.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185008.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185004.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184983.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184924.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184887.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184885.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184882.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184865.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184861.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184845.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184828.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184826.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184824.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184822.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184815.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184812.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184793.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184777.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184771.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184765.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184739.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184733.jpg" />
 </div>
 
 
@@ -669,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC616EAC33B2068230FA1E37D9DC63B238743DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427036   (184724) от 26.11.2020
+
+Октагон: Боец vs Рестлер / Cagefighter (2020) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисс – величайший чемпион ММА и легенда октагона. Оказаться с ним в одной клетке – все равно что поставить себя под ядерный удар. Но его следующим соперником – в рамках «боя века» – неожиданно выбран знаменитый рестлер Рэнди Стоун – ярый провокатор и шоумен, готовый на всё, чтобы развлечь зрителей. Два мира, и только одна победа.Производство: Великобритания / Anamorphic Media, Echolands Creative Group, Trilight EntertainmentЖанр: Боевик, спортРежиссер: Джесси КиньонесАктеры: Алекс Монтаньяни, Джина Гершон, Джонатан Гуд, Бренна Коутс, Чак Лиделл, Элайджа Бэйкер, Джейсон Ресо, Джорджия Браднер, Лео Фафард, Лоуелл ДинПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66CC65B5FC01353671B2C0FCBBF0D5059FEA9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383637   (184723) от 20.11.2022
+
+На игле / Trainspotting (1996) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбирай жизнь. Выбирай работу. Выбирай карьеру. Выбирай семью. Выбирай большие телевизоры, стиральные машины, автомобили, компакт-диск плэйеры, электрические консервные ножи. Выбирай хорошее здоровье, низкий уровень холестерина и стоматологическую страховку.
+Выбирай недвижимость и аккуратно выплачивай взносы. Выбери свой первый дом. Выбирай своих друзей. Выбери себе (   Читать дальше...   )Жанр: Драма, Комедия, КриминалРежиссер: Дэнни БойлАктеры: Юэн МакГрегор, Юэн Бремнер, Джонни Ли Миллер, Кевин МакКидд, Роберт Карлайл, Келли Макдоналд, Питер Маллан, Джеймс Космо, Айлин Николас, Сьюзэн ВидлерПеревод: Многоголосый закадровыйЯзык субтитров: Русские / АнглийскиеПродолжительность: 01:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201D32BA180C5B697867C6AC6A4097CDC00A65C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

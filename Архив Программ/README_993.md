@@ -6,7 +6,7 @@ AutoHideMouseCursor 2.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546475.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox 49.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546463.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NetLimiter 4.0.20.0 Enterprise RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546352.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bandicam 3.2.2.1111 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546343.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WinScan2PDF 3.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546308.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sony DVD Architect Studio 5.0.186 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546280.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Take Command 20.00.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546263.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ StressMyPC 2.84 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546260.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TheAeroClock 3.96 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546257.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Resource Hacker 5.1.5.336 Final Portable by alexalsp [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546193.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PicPick 5.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546185.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VueScan Pro 9.6.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546154.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546135.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DriverEasy Pro 5.6.4.5551 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546116.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Privacy Eraser Free 4.51.6 Build 3012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546061.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ ActivePresenter Pro Edition 7.5.7 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546039.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Vivaldi 2.6.1566.44 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546036.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ TogetherShare Data Recovery 6.8 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546033.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Opera GX 60.0.3255.51199 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546032.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Dr.Web Security Space 12.0.1.2280 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545927.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ USDownloader 1.3.5.9 Portable (31.08.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545804.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ FlipBuilder Flip PDF 4.4.3.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545745.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Flip PDF Professional 2.4.3.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545677.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ AMT Studio Tools 20.0.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545604.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Far Manager 3.0 Build 4747 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545597.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Readygo Screen Recorder 1.0.1.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545523.jpg" />
 </div>
 
 

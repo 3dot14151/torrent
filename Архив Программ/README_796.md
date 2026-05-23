@@ -6,7 +6,7 @@ Skype Ad Remover 1.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645037.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Balabolka 2.15.0.815 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645029.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Opera 58.0.3135.127 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644986.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Winstep Nexus Ultimate 14.11 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644960.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644959.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ priPrinter Professional 6.3.0.2363 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644958.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AS SSD Benchmark 1.8.5636.37293 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644956.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Comodo Internet Security Premium 8.2.0.4591 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644954.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ IP Hider Pro 5.6.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644953.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Kerish Doctor 2015 4.60 DC 09.04.2015 RePack by D!akov (Upd. 08.06.2015) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644950.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ iZotope - VocalSynth 2 2.4.1 VST, VST3, AAX RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644920.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ iZotope - Ozone 9 Advanced 9.11.1 STANDALONE, VST, VST3, AAX (x64) RePack by R2R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644913.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ocenaudio 3.11.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644907.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FontViewOK 7.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644905.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644873.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CCleaner 5.31.6104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644870.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Allavsoft Video Downloader Converter 3.14.6.6373 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644869.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ CCleaner 5.31.6104 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644861.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644850.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ummy Video Downloader 1.10.3.2 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644849.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Aiseesoft Video Converter Ultimate 9.2.62 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644846.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ CareUEyes 1.1.22 Portable by Joo Seng [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644837.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Hotspot Shield Elite 4.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644819.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Microsoft Windows 10 Insider Preview 10.0.10135 Language Pack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644817.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ DipTrace 2.4.0.2 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644808.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Windows 10 Pro Insider Preview 10.0.10135 (x86) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644806.jpg" />
 </div>
 
 

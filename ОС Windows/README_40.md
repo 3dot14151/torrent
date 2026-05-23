@@ -6,7 +6,7 @@ Microsoft Windows 11 [10.0.22631.5039], Version 23H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24311.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows Server [10.0.25398.1486], version 23H2 (Updated March 2025) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24273.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows 11 [10.0.22631.5039], Version 23H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24242.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows 11 [10.0.26100.3476], Version 24H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24227.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 10, 22H2 [19045.5608] 64in2 (x86-x64) by adguard (v25.03.12) [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23815.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 11, 23H2 (22631.5039) 36in1 (x64) by adguard (v25.03.12) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23793.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 11, 24H2 [26100.3775] 38in1 (x64) by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21503.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows 11, 23H2 (22631.5189) 36in1 (x64) by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21474.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows Server 2025 LTSC [10.0.26100.3775], Version 24H2 (Updated April 2025) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21403.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows 10 22H2 (19045.5737) 64in2 x86/x64 by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21396.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Windows 10 [10.0.19045.5737], Version 22H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21382.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Windows Server 2022 LTSC [10.0.20348.3453], Version 21H2 (Updated April 2025) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21377.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Windows 11 [10.0.26100.3775], Version 24H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21372.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft Windows 11 [10.0.22631.5189], Version 23H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21367.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Microsoft Windows 11 [10.0.22631.5189], Version 23H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21360.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows Server [10.0.25398.1551], version 23H2 (Updated April 2025) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21354.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Windows 10 [10.0.19045.5737], Version 22H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21286.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Microsoft Windows 11 [10.0.26100.3775], Version 24H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21187.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Windows 11 Pro 24H2 (v.26100.2605) with AtlasOS Игровая сборка  [Ru
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18068.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Microsoft Windows 10 [10.0.19045.5854], Version 22H2 (Updated May 2025) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17741.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Microsoft Windows 11 [10.0.26100.4061], Version 24H2 (Updated May 2025) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17733.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Microsoft Windows 11 [10.0.22631.5335], Version 23H2 (Updated May 2025) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17724.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Windows Server 2025 LTSC [10.0.26100.4061], Version 24H2 (Updated May 2025) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17718.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Microsoft Windows 10 [10.0.19045.5854], Version 22H2 (Updated May 2025) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17708.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Windows Server 2022 LTSC [10.0.20348.3692], Version 21H2 (Updated May 2025) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17706.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Windows Server [10.0.25398.1611], version 23H2 (Updated May 2025) - Оригин
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17685.jpg" />
 </div>
 
 

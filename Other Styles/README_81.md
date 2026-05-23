@@ -6,7 +6,7 @@ Argishty - Трубка мира (2018) [MP3|320 Kbps] <Instrumental Folk, World
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627949.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627948.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Wright - Beyond the Airwaves Vol. 1 (2014) [MP3|320 кб/с]<Electronic, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627927.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobi
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627635.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World mu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627629.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627296.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627138.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Era - Greatest Hits 2 CD (2008) [MP3|320 kbps]<New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626959.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Spirit Horse (2016) [MP3|320 Kbps] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626708.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sean Christopher - Mystique (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626662.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626624.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626580.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626517.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626463.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626378.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626241.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Empire Of Love - Mysterious I-II (2016-2017) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625526.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624720.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624662.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624583.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624576.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624489.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624117.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ David Wright - Beyond the Airwaves, Vol. 2 (2015) [MP3|320 кб/с]<Electronic, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624070.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ The London Studio Orchestra - The Love Themes (1991) [MP3|320 kbps]<Instrumental
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623627.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623596.jpg" />
 </div>
 
 

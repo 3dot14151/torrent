@@ -1,137 +1,3 @@
-###  Публикация: 502191   (258972) от 27.05.2012
-
-Большая библиотека научной и образовательной литературы СССР [1918-1991] [PDF,DJVU,CHM,TXT,MP3]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Большая подборка научной и образовательной литературы СССР (в том числе учебники для ВУЗов и профессиональных училищ, плюс различные материалы по военному, техническому, медицинскому делу)1918-1991Жанр: Обучающий, познавательныйФормат: PDF,DJVU,CHM,TXT,MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF16626DF98EC8B55233C2D60A02AAF7B151127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501537   (258345) от 25.05.2012
-
-А.Х.Тлеуов | Нетрадиционные источники энергии [2009] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом учебном пособии излагаются основные научные и практические положения использования возобновляемых источников энергии; основы метеорологии; характеристики солнечного излучения и ветровых потоков, их устройства; методические положения расчета гелиосистем и ветроустановок, которые могут быть полезны для определения возможностей эффективного применения подобных систем и установок. Данное учебное пособие предназначено для учащихся организаций технического и профессионального образования, а также может быть использовано студентами вузов технических специальностей.2009Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134D0DAEA4E5F1906A1C6124717C0F9D1FAE1ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498577   (255821) от 19.05.2012
-
-И.Ф.Турук, В.Н.Стойкова | Пособие по переводу научно-технических текстов с английского языка на русский (4-е изд.) [1975] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие включает грамматические основы перевода и систему упражнений, направленных на развитие навыков понимания и перевода научно-технических текстов. Упражнения сгруппированы по узловым грамматическим темам. Предложения, включенные в упражнения, подобраны с оригинальной научно-технической литературы. К сводным упражнениям дается ключ.
-Пособие предназначается для студентов технических вузов.1975Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECCC3CE8D26B5E6EFFB9BD0078EF1797E121430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626689   (255165) от 15.04.2023
-
-В.В. Кузнецов и лр. | Химия p-элементов. Элементы 17 группы (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Систематически описана химия элементов 17 группы Периодической системы Д. И. Менделеева. В процессе работы авторы обобщили материал, содержащийся в учебной и научной литературе, во многих случаях опираясь на оригинальные исследования, представленные в научной периодике и пока не вошедшие в учебные издания.
-Предназначено для обучающихся в магистратуре по направлению (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D8341561B7E667B54976CBB33BF96B1D27309A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627805   (254982) от 20.04.2023
-
-О.В. Голуб и др. | Стандартизация, метрология, сертификация (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены основные положения техническо­го регулирования, стандартизации, метрологии и сертификации.
-Представленный материал основан на законах «О техническом ре­гулировании», «О внесении изменений в Федеральный закон “О техни­ческом регулировании”» и «Об обеспечении единства измерений».
-Настоящее издание соответствует Государственному образователь­ному (   Читать дальше...   )Жанр: Стандартизация, метрология, сертификацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75FD27289F49701CEB7DD297A9E4D1BE158DE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628221   (254914) от 22.04.2023
 
 Э.Дж. Сински, Т.Г. Волова (ред.) | Современные аппаратура и методы исследования биологических систем (2013) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254914.jpg" />
 </div>
 
 
@@ -167,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254584.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254406.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254389.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253457.jpg" />
 </div>
 
 
@@ -273,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252080.jpg" />
 </div>
 
 
@@ -300,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251946.jpg" />
 </div>
 
 
@@ -326,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251897.jpg" />
 </div>
 
 
@@ -352,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251839.jpg" />
 </div>
 
 
@@ -378,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251664.jpg" />
 </div>
 
 
@@ -404,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251216.jpg" />
 </div>
 
 
@@ -430,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251194.jpg" />
 </div>
 
 
@@ -457,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250302.jpg" />
 </div>
 
 
@@ -484,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250258.jpg" />
 </div>
 
 
@@ -510,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250226.jpg" />
 </div>
 
 
@@ -537,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250221.jpg" />
 </div>
 
 
@@ -564,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250054.jpg" />
 </div>
 
 
@@ -590,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249982.jpg" />
 </div>
 
 
@@ -616,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249856.jpg" />
 </div>
 
 
@@ -642,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249808.jpg" />
 </div>
 
 
@@ -668,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249676.jpg" />
 </div>
 
 
@@ -679,6 +545,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9089E0C9A429256C7E29E51411FFDA8F39386A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564698   (249666) от 20.07.2022
+
+В.С. Пантюшин | Общая электротехника (1970) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249666.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются все вопросы программы курса «Общая электротехника». Материал изложен на основе методики преподавания, принятой в МЭИ.
+Предназначается в качестве учебника для студентов неэлектротехнических специальностей высших технических учебных заведений.Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DDC615E18875056EA8C9A3D71DB06D193011BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619795   (249608) от 17.03.2023
+
+А.М. Копылов, А.В. Левашов | Химические основы биологических процессов (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс лекций по химическим основам биологических процессов.Жанр: Химия, биологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579868B8FB555F937954DFE70444E9EF50A3CADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538531   (249607) от 23.03.2022
+
+Карлащук В.И. | Электронная лаборатория на IBM PC (в 2-х томах) [2 книги] (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том 1. Книга посвящена применению программы Electronics Workbench фирмы Interactive Image Technologies (Канада) для схемотехнического моделирования аналоговых и цифровых радиоэлектронных устройств различного назначения, представленных большим количеством практических схем, что делает книгу своеобразным «живым» справочным пособием. Она может быть использована в технических (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1891E5D8C09D4DE3D7DE4E4E1F1269349DD5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619546   (249601) от 17.03.2023
+
+В.И. Иверонова (ред.) | Физический практикум. Механика и молекулярная физика (1967) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное и интереснейшее издание в котором можно изучить и практически "пощупать" начиная от НОНИУСа до распределения Максвелла.
+Учебное пособие по экспериментальной физике составлено в соответствии с программами по общему курсу физики и по физическому практикуму для физических и физико-математических факультетов университетов и педагогических институтов. (   Читать дальше...   )Жанр: Учебное пособие по экспериментальной физикеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2A5059BEE6288DF6FA0039773E1048A42FE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619295   (249596) от 17.03.2023
+
+ЛУЗИН Николай Николаевич | Дифференциальное исчисление (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий в понимании, замечательно изложенный материал.
+Классический курс дифференциального исчисления, автор которого --- выдающийся советский математик, академик АН СССР Н.Н.Лузин. Этот курс успешно выдержал несколько изданий и стал настольной книгой не одного поколения советских математиков, инженеров и педагогов. В книге рассмотрен широкий круг понятий и определений, (   Читать дальше...   )Жанр: Учебное пособие, математикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C825D302484221D0B6FAAC8AD03F4E32072A427F
 ```
 
 https://mybot314.ru/tekegram_catalog/

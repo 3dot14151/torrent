@@ -1,29 +1,3 @@
-###  Публикация: 1808937   (10114) от 28.07.2025
-
-Beff Jezos Simulator (2024) [Ru/Multi] (1.1.0.0711) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Beff Jezos Simulator предлагает геймерам почувствовать себя в роли начинающего магната электронной коммерции. Проект начинается в скромном офисе, а затем юзерам предоставляются инструменты для создания своей виртуальной империи розничной торговли. Цель - управлять всеми аспектами растущего онлайн-бизнеса. С самого начала задача ясна: разработать бренд, найти товары (   Читать дальше...   )Тип издания: RepackРазработчик: tiplay studioЖанр: Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55B754AC257840E48D8E56A02CC072820D609FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809076   (10110) от 28.07.2025
 
 M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
@@ -32,7 +6,7 @@ M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10110.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10035.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10030.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sР
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10028.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10018.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9979.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1145/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9926.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9922.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9918.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ratopia (2023) [Ru/Multi] (1.0.0510) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9908.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ My Garage (2021) [Ru/Multi] (0.836) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9907.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Luto (2025) [Ru/Multi] (Build 19401226) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9905.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2.s.de/dlc) Repack Let'sРlay [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9895.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9886.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Through the Nightmares (2025) [Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9885.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.38/dlc) Repack FitGirl [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9883.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Our War: Firepower Suppression (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9875.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.38/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9869.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104.0611.1642/dlc) Repack FitGir
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9834.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Fragments of Truth: An MCF Story / Осколки истины: История �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9829.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9826.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.2.64310/dlc) Repack Let'sРlay [Deluxe E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9825.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack FitGirl [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9824.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ ASTRONEER (2016) [Ru/En] (1.34.47.0) Repack Pioneer
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9822.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9818.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702251   (9816) от 31.07.2025
+
+Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1145/dlc) Repack FitGirl
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terminator: Dark Fate – Defiance позволяет окунуться в суровый мир боевых действий, что происходит на территории разрушенных городов. Игра выполнена в сеттинге постапокалипсиса, где между человечеством и сетью интеллектуальных машин Legion происходит конфликт. Люди вынуждены сопротивляться восставшим роботизированным киборгам, чтобы положить конец наступлению противника (   Читать дальше...   )Тип издания: RepackРазработчик: Slitherine Ltd.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

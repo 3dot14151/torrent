@@ -1,55 +1,3 @@
-###  Публикация: 1127535   (357678) от 20.10.2020
-
-ADV Screen Recorder v4.3.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Приложение под названием ADV Screen Recorder предлагает солидный набор возможностей в плане захвата картинки с дисплея: можно ставить запись на паузу в нужный момент, рисовать на экране любым цветом, захватить изображения с фронтальной или основной камеры вместе с записью экрана. Внутри ADV Screen Recorder присутствует видео-редактор, который позволяет обрезать ненужные (   Читать дальше...   )Тип издания: Пиратка (Mod: Pro)Релиз состоялся: 14.08.2020Разработчик: ByteRevПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756713FBB2BCD5C49A4171D85B3EE7907B1C3463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952592   (355720) от 01.11.2015
-
-Garmin: City Navigator East & West Africa NT 2016.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Карты Западной и Восточной Африки для навигаторов Гармин.Тип издания: карты заблокированы (таблетка есть в комплекте)Релиз состоялся: октябрь 2015Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656C83341D559CBED3DDCB7471E9C4CAD97B6DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952348   (354947) от 01.11.2015
 
 Doom: 1 и 2 части [En]
@@ -58,7 +6,7 @@ Doom: 1 и 2 части [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354947.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ XCOM: Enemy Unknown v1.1.01 + Mod Money [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354932.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Assassin's Creed Pirates  v2.4.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354927.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ VPN Украина: VPN IP в Украине 1.107 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354283.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354251.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ Package Disabler Pro 6.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354017.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353878.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ Garmin: Дороги Беларуси 7.20 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353010.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ Rotation - Orientation Manager v25.0.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352306.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351658.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ Radio Garden v2.1.3 [En] - радиостанции мира на интерак
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349702.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349630.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ Yokee Караоке по-русски v3.14.016 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349601.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349543.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349523.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ Sonic Mobius Evolution 1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349303.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ ProgTV Android 2.26.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349237.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ Sonic Lost Worlds 1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348996.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ Dig Out!: Короли подземелий 2.17.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348656.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ KingoRoot 2.5 Beta[Ru/En]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348294.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ Prisma 1.1.63 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347396.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ ImageMeter - photo measure v3.6.2 (1) Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347222.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ Action Strike Герои: Онлайн PVP FPS v0.9.33 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346679.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ SkySafari 6 Pro v6.7.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346449.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ SkySafari 6 Pro революционизирует ваши астрономич
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26197BD3D5DB396B7B1A20D8468746C8D64223F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418688   (346292) от 25.10.2020
+
+TikTok v17.7.6 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346292.jpg" />
+</div>
+
+
+###  Подробнее
+
+TikTok – это социальная сеть, в которой вы можете создавать и публиковать забавные музыкальные видео на суд ваших друзей и подписчиков. Для работы с приложением необходимо создать учётную запись, что занимает лишь считанные секунды, и может быть сделано с использованием аккаунта Instagram, Facebook, или Google.Тип издания: ПираткаРелиз состоялся: 20 октября 2020 г.Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03401AE904A5D0ACBA8BC3BA4A41017621BC3B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298729   (345121) от 08.10.2019
+
+InstaSave v1.3.3 [Ru/Multi] - загрузки фото и видео из Instagram
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345121.jpg" />
+</div>
+
+
+###  Подробнее
+
+InstaSave - приложение для загрузки фото и видео из Instagram. Приложение Instagram может бесплатно загрузить изображение и видео из Instagram. С этим загрузчиком Instagram вы можете быстро сохранить любую фотографию и видео из Instagram или IGTV. Всего одним щелчком мыши Insta Saver для instagram сохранит ваши фото и видео в вашей галерее. Более того, это 100% бесплатно (   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 04.10.2019Разработчик: MeepoDevПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B60B263AD4997901A81FCBCB507108768FD320C
 ```
 
 https://mybot314.ru/tekegram_catalog/

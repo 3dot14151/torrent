@@ -1,55 +1,3 @@
-###  Публикация: 1772522   (31279) от 11.01.2025
-
-Просто Радио онлайн v13.5 Mod by 0x7d [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-В приложении Вы найдете более 1500 радиостанций всех жанров: Наша музыка, Поп, Рок, Ретро, Диско, Танцевальная музыка, Шансон, Реп, R&B, Хип-хоп, Джаз, Электронная, Deep, House, Этническая, Фолк, Релакс, Классическая музыка, Разговорное радио. Просто радио онлайн. Вы можете слушать любимые радиостанции онлайн. Для прослушивания воспользуйтесь соединением wifi (   Читать дальше...   )Тип издания: FullРелиз состоялся: 10.01.2025Разработчик: a-labПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCE043D61405A12433C14221DCDBF7D778F8719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772519   (31267) от 11.01.2025
-
-SnapEdit - AI photo editor v7.2.8 Mod by Maximoff⁠ [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 10.01.2025Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772526   (31254) от 11.01.2025
 
 Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [Ru/Multi]
@@ -58,7 +6,7 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31254.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Background Video Recorder Pro v11.3.59 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31252.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31193.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30979.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30976.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ Gif Me! Camera Pro v1.90 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30937.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30583.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ WPS Office + PDF v18.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30543.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30524.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ English LinDuo HD v5.33.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30518.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ AudioBooks v6.0 Plus Mod by smold2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30451.jpg" />
 </div>
 
 
@@ -352,7 +300,7 @@ Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30407.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30368.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30332.jpg" />
 </div>
 
 
@@ -433,7 +381,7 @@ Art Me: ИИ-художник v5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30246.jpg" />
 </div>
 
 
@@ -460,7 +408,7 @@ Gallery Plus: Photo Vault v2.3.37 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29915.jpg" />
 </div>
 
 
@@ -486,7 +434,7 @@ HD Music Player v3.4.1.164 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29836.jpg" />
 </div>
 
 
@@ -512,7 +460,7 @@ DailyRoads Voyager v8.1.1 (62) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29819.jpg" />
 </div>
 
 
@@ -538,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29801.jpg" />
 </div>
 
 
@@ -564,7 +512,7 @@ ES File Explorer File Manager v4.4.2.18 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29736.jpg" />
 </div>
 
 
@@ -590,7 +538,7 @@ PlayerPro Music Player 5.37 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29731.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29698.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ Textra SMS v4.79 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29682.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ GPS АнтиРадар v48.0 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29521.jpg" />
 </div>
 
 
@@ -679,6 +627,60 @@ GPS АнтиРадар v48.0 Mod by 0x7d [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48F2A3641868B111E0342F3180024C3242BF01ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775841   (29520) от 28.01.2025
+
+Антирадар HUD Speed v69.0 Mod by 0x7d [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
+HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 27.01.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE73237B4ED1D4F91AD4417F527B899DE5B5E212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775818   (29500) от 28.01.2025
+
+VideoShow - AI Видео Редактор v10.2.5.2 Mod by AppZombie [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29500.jpg" />
+</div>
+
+
+###  Подробнее
+
+ВидеоШоу - Редактор видео и создатель фильмов с ИИ.
+С помощью этого создателя фильмов легко и весело создавать видео с музыкой, стикерами, фильтрами и звуковыми эффектами. Персонализируйте свои работы с помощью текста прокрутки, FX, GIF, переходов или живого дубляжа, чтобы создать уникальные влоги, мемы или развлекательные видео. Легко запечатлейте ценные моменты, (   Читать дальше...   )Тип издания: VIPРазработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2609DACD8E6798B35DDCAC2773486F5CC641D9DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

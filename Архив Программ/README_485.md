@@ -6,7 +6,7 @@ MAGIX Sound Forge Pro 14.0 Build 65 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795227.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinSCP 5.17.6 Build 10516 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795223.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VirtualBox 5.0.20 Build 106931 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795210.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WinPE 10 Sergei Strelec (x64) 2016.04.28 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795208.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CCleaner 5.17.5590 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795203.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sleipnir 6.4.6.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795201.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Comodo Internet Security Premium 8.2.0.5027 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795181.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795172.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adobe Photoshop Lightroom 6.5.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795169.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Acronis True Image 2016 19.0.6569 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795162.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft Windows Server 2016 Technical Preview 5 (10.0.14300) MSDN [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795144.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ ASUS Xonar D1 Driver 8.0.8.1812 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795139.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NVIDIA GeForce Desktop 446.14 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795138.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Google Earth Pro 7.3.3.7721 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795137.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MAGIX Sound Forge Pro 14.0 Build 65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795127.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Windows 10 Manager 3.2.7.0 Final RePack (& Portable) by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795125.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MAGIX Vegas Pro 17.0 Build 452 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795104.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795090.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ SketchUp Pro 2020 20.1.235 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795080.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Adobe Illustrator 2020 24.1.3.428 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795078.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Futuremark 3DMark 2.11.6911 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795075.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Brave Browser 0.58.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794992.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Wise Memory Optimizer 3.6.4.108 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794989.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wise Registry Cleaner Pro 10.1.4.672 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794987.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ CoolUtils Total CSV Converter 3.1.1.180 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794968.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ CoolUtils Total PDF Converter 6.1.0.141 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794967.jpg" />
 </div>
 
 

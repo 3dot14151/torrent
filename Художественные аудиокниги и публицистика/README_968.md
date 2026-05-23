@@ -1,82 +1,3 @@
-###  Публикация: 1773987   (71621) от 18.01.2025
-
-Жюль Верн | Замок в Карпатах (2024) [MP3, Валерий Толков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Аудиостудия Ардис предлагает вашему вниманию готический роман Жюля Верна, опубликованный в 1892 году, за 5 лет до «Дракулы» Брэма Стокера, действие которого также происходит в Трансильвании. Как всегда у Жюля Верна, наука и технологии играют в книге немаловажную роль.
-В деревне Верст пастух замечает, что из разрушенного замка Рудольфа Горца поднимается дым. Эта новость (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: АРДИСПродолжительность: 04:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196F1595C4359BA6E950C4352E53831CC1D5C1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773952   (71620) от 18.01.2025
-
-Вальтер Скотт | Аббат (2024) [MP3, Юлия Тархова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию исторический роман знаменитого английского писателя Вальтера Скотта «Аббат» (1820), вместе с романом «Монастырь» составляющий цикл «Рассказы из бенедиктинских источников». Эти произведения связаны несколькими действующими лицами и общей темой: в них описывается развитие и торжество протестантизма в Шотландии. Действие «Аббата» вращается (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: АРДИСПродолжительность: 18:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EE7C3D8720EAE1801A3E0F26272A94EBDF8625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773935   (71616) от 18.01.2025
-
-Вальтер Скотт | Талисман, или Ричард Львиное Сердце в Палестине (2024) [MP3, Дмитрий Филимонов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Талисман» – исторический роман Вальтера Скотта, опубликованный в 1825 году, действие которого происходит во время Третьего крестового похода и сосредоточено на отношениях между Ричардом Львиное Сердце и Саладином. Книга входит в так называемую серию «романов Уоверли»: так как Скотт открыл своё авторство только в 1827 году, автором множества исторических романов (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: АрдисПродолжительность: 18:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960C127AE1807E32B57F0EDDB749BE8DBAF52EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773968   (71611) от 18.01.2025
 
 Вальтер Скотт | Айвенго (2024) [MP3, Константин Корольков]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71611.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71610.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71606.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71605.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71601.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71593.jpg" />
 </div>
 
 
@@ -245,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71590.jpg" />
 </div>
 
 
@@ -271,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71589.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71584.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71577.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71573.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71570.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71555.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71554.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71553.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71552.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71551.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71503.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71459.jpg" />
 </div>
 
 
@@ -587,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71457.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71353.jpg" />
 </div>
 
 
@@ -644,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71350.jpg" />
 </div>
 
 
@@ -671,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71342.jpg" />
 </div>
 
 
@@ -684,6 +605,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D89E274D77FF60181A50BA56EA3A3A2C1C9CD8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776158   (71339) от 30.01.2025
+
+Антон Чехов | Рассказы (2016) [MP3, Александр Клюквин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена.
+За свою короткую жизнь Антон Павлович Чехов (1860–1904) создал около 300 различных произведений: очерков, рассказов, повестей, пьес, многие из которых стали классикой мировой литературы и переведены более чем на сто иностранных языков. В этом сборнике вас ждет аудиоверсия избранных рассказов писателя, как известных, так и незнакомых (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 01:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41FAC72E78D3D7DDD2248A30FA49BCAC345F1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776386   (71317) от 31.01.2025
+
+Марина Степнова | Женщины Лазаря (2022) [MP3, Марина Степнова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная сага длиною в столетие рассказывает об острых гранях любви между гениальным учёным и тремя женщинами его жизни.Жанр: современная русская литератураИздательство: ВимбоПродолжительность: 15:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A121184355ACAA0B39E2D126DE183AAD88D11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776531   (71290) от 01.02.2025
+
+Джей Кристофф | Хроники Неночи (Книга 2). Годсгрейв (2023) [MP3, Ольга Миронова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мия Корвере стала ассасином и обрела своё место среди клинков Матери Священного Убийства, однако ничуть не приблизилась к желанной цели — возмездию. Когда по стране расходится весть о том, что её смертельные враги появятся в финале грандиозных игр в Годсгрейве, Мия продаёт себя в коллегию гладиатов — ради возможности прикончить злодеев.Жанр: боевое фэнтези, героическое фэнтези, зарубежное фэнтези,тёмное фэнтезиПеревод: Анастасия ХарченкоИздательство: АСТПродолжительность: 25:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED968AA44BCC90640EEA9AEAEB507C574E92436
 ```
 
 https://mybot314.ru/tekegram_catalog/

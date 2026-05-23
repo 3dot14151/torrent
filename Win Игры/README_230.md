@@ -1,29 +1,3 @@
-###  Публикация: 1174863   (513303) от 06.07.2022
-
-Furi (2016) [Ru/Multi] (1.7.224/dlc) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы в плену врага. Взгляните, что они сделали с вами... Тюремщик - это ключ. Убейте его, и окажетесь на свободе. Сражайтесь на мечах, стреляйте и с боем прорывайтесь на свободу в этой динамичной и напряженной игре. Дизайн боссов - Такаси Оказаки. Музыка в исполнении Carpenter Brut, Danger, The Toxic Avenger, Lorn, Scattle, Waveshaper и Kn1ght!Тип издания: LicenseРазработчик: The Game BakersЖанр: Action, Сражения, ФантаcтикаЯзык озвучки: Английский, Французский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAD5C3CFF93E91BEB2D52C5D51F376D0AE67A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536749   (513178) от 19.08.2012
 
 Virtua Tennis 3 [Ru] (RePack/1.1) 2007 | Skorp1oN
@@ -32,7 +6,7 @@ Virtua Tennis 3 [Ru] (RePack/1.1) 2007 | Skorp1oN
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513178.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ The King’s Bird (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512733.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Bit Trip Presents Runner 2: Future Legend of Rhythm Alien (2013) [En] (1.0/dlc) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512640.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ BRAWL (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512573.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ ENKI (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512493.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Alien Rage: Unlimited (2013) [Ru/En] (1.0.9084.0/upd6) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512490.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Angry Birds: Anthology / Angry Birds: Антология (2011-2013) [En] (4.0 /
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512489.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Tales of Sorrow: Strawsbrough Town [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512418.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Dungeon Siege 3 Limited Edition + 5 DLC [Ru] (Repack/Upd2) 2011 | R.G. Packers
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512002.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Queens Quest 5: Symphony of Death / Королевский Квест 5: Сим�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511666.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Ship Simulator Extremes [Eng] (L) 2010
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511648.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ TerraTech (2018) [Ru/Multi] (1.3/dlc) License PLAZA [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511599.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Corpse of Discovery (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511544.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Disgaea 6: Defiance of Destiny (2022) [Multi] (8848380/dlc) License SKIDROW [Com
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511387.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Legend of Kay Anniversary (2015) [En/Multi] (Build cs:6416) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510654.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Kyn (2015) [En/De] (1.0/upd4) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510610.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.0.1.3005) Repack R.G. Ме�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510600.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Snowy: Treasure Hunter 3 / Снежок. Охотник за сокровища�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510237.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ The Amazing Spider-Man / Новый Человек-паук [Multi6\+] (L) 2012 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510225.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Galaxy on Fire 2 Full HD [Multi11/+] (L/1.0) 2012 | RELOADED
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510148.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ PixelJunk Nom Nom Galaxy (2014) [En/Multi] (1.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509855.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Valdis Story Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509831.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Invisible, Inc. (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509830.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509822.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509816.jpg" />
 </div>
 
 
@@ -673,6 +647,34 @@ Calvino Noir (2015) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2E124DA6D29812CD45CB22CB8F63D1499695E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538330   (509308) от 23.08.2012
+
+Mad Riders + DLC [Multi5] (Steam-Rip/1.0.1.0) 2012 | R.G. Игроманы
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрокам предстоит промчаться по 45 трассам самой различной сложности. Однако, эти состязания ничем не будут напоминать обычный заезд «по кругу». Для победы в гонке по бездорожью придется искать самый короткий путь к финишу. Нужно будет также исполнять и разные трюки в воздухе, чтобы получить ускорение и увеличить свои шансы на триумф.
+
+Mad Raiders обладает также предельной простотой геймплея, что позволяет принимать участие в виртуальных заездах даже тем, кто столкнулся с играми такого рода впервые. Добавляет остроты в игровой процесс и наличие мультиплеера, благодаря которому бороться за звание сильнейшего смогут до 12 человек одновременно.(   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Жанр: Arcade / Racing (Motorcycles) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Multi4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773043D0243DFADB4358769BAF6C807E4C077D28
 ```
 
 https://mybot314.ru/tekegram_catalog/

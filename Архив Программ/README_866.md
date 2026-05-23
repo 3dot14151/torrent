@@ -6,7 +6,7 @@ Autodesk Maya 2017 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605905.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 1.61.125 + Portable by Valx [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605889.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ HitPaw Screen Recorder 2.0.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605815.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ FileOptimizer 15.70.2705 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605814.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Auvisoft Audio Converter 1.20 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605784.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ WinToHDD 5.8 Pro / Enterprise / Technician RePack (& Portable) by 9649 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605680.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Pointstone System Cleaner 6.5.5.120 + Portable  by Valx [Eng+Rus(русифик�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605649.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Tipard Video Converter Ultimate 9.2.18 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605631.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Total Directory Report 7.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605619.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Icecream Ebook Reader Pro 5.31 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605604.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ EasiestSoft Movie Editor 5.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605572.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Daum PotPlayer 1.7.2710 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605561.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Kinza Browser 4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605558.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Emsisoft Emergency Kit 2017.6.0.7694 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605528.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Daum PotPlayer 1.7.2710 DC 04.07.2017 Stable RePack + Portable by 7sh3 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605521.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ CPU-Z 1.61.3 Portable [Русский by loginvovchyk]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605500.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605494.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ MInstAll v.23.04.2022 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605480.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ WinRAR 5.50 Beta 5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605427.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Pale Moon 3.6.32 (x86) Portable [Multi+Rus] (сборка)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605426.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Sound Normalizer 3.95 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605328.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Acoustica - Mixcraft 6.0.191 [Rus/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605314.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Daum PotPlayer 1.6.54871 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605270.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Slimjet 19.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605237.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Symantec Endpoint Protection 11.0.7 MP2 Xplat 11.0.7200.1147 x86+x64 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605229.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Total Uninstall Pro 6.2.0 Portable by Valx [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605223.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1834859   (250565) от 05.11.2025
-
-Escape Simulator 2 (2025) [Ru/Multi] (16494r) Repack seleZen
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Escape Simulator 2 - это продолжение самого продаваемого квеста в реальности. Новые захватывающие локации, еще более глубокие головоломки и инновационный конструктор - встречай лучший эскейп-рум с видом от первого лица. Исследуй новые локации, разработанные в сотрудничестве с мастерами жанра эскейп-рум и легендарными создателями уровней из нашего сообщества.Тип издания: RepackРазработчик: Pine StudioЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25CF56D9AE5DD77A628C70F9B985039DEEFC984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835205   (250517) от 05.11.2025
 
 Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
@@ -32,7 +6,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250517.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250504.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Phantom Squad (2025) [Ru/Multi] (1.0.0.fb6954) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250502.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Repack FitGirl [Bundles Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250482.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ GODBREAKERS (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Juice Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250481.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Rogue Hex (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250475.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Death Roads: Tournament (2023) [Ru/Multi] (1.0.9.127) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250474.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250467.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Microtopia (2025) [Ru/Multi] (1.1.2f2/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250466.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Vellum (2025) [En] (1.2.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250465.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Earth vs Mars (2025) [Ru/Multi] (001.000.4207100) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250436.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Shrine's Legacy (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250356.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Dementium: The Ward (2025) [Multi] (1.1.5) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250355.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Wanterlude [Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250354.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Asterix & Obelix - Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack Let
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250353.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Remains And The Residue (2025) [Multi] (Build 19745628) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250352.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Bench (2025) [Ru/Multi] (Build 20633602) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250351.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ House Flipper 2 / Хаус Флиппер 2 (2023) [Ru/Multi] (1.10.2/dlc) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250350.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack FitGirl [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250347.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250346.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Scouring (2025) [Ru/Multi] (02.11.25) Repack R.G. Freedom [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250345.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Plus Ultra: Legado (2025) [Ru/Multi] (1.0.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250344.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Little Nightmares (2017-2025) [Ru/Multi] (build 19756066/1160/build 20018821/dlc
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250343.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250342.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Thief's Shelter (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250341.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Thief's Shelter - это игра, где мир отражает разруша
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4ADFB0E095048AB6814F7F6493E8DD3DA1C2C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834683   (250340) от 04.11.2025
+
+The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0 Build 20467470/dlc) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250340.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Outer Worlds 2 - долгожданное продолжение титулованной научно-фантастической ролевой игры от первого лица от Obsidian Entertainment (оцените эти эпитеты!) Пора выделить время в расписании - готовьтесь к захватывающему приключению с новой командой и новым оружием в новой колонии, где поджидают новые враги! Кто на новенькое?Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB465E6C97AE8ADA6E7B1C6A911592A88C66566
 ```
 
 https://mybot314.ru/tekegram_catalog/

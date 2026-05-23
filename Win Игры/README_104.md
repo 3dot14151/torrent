@@ -1,29 +1,3 @@
-###  Публикация: 1000629   (856959) от 26.03.2016
-
-Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главная особенность Train Fever — встроенная в транспортную стратегию автономная градостроительная игра, которая неподвластна нам. Но не расстраивайтесь — вместо нас ей управляет кремниевый мэр. Небольшие деревни, фермы, поселки, районные центры и мегаполисы находятся во власти искусственного интеллекта. Населяют этот мир различные персонажи. Как это водится, они (   Читать дальше...   )Тип издания: LicenseРазработчик: Urban GamesЖанр: Simulation, Strategy, Economy, TrainsЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870C4497F7A3DDC2A5DBD04EE741F6F6AEB36CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000805   (856823) от 26.03.2016
 
 Subterrain (2016) [Ru/Multi] (1.0.5.8) SteamRip Аnimanyak
@@ -32,7 +6,7 @@ Subterrain (2016) [Ru/Multi] (1.0.5.8) SteamRip Аnimanyak
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856823.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Family Mysteries 2: Echoes of Tomorrow (2020) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856676.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Nevertale 9: Hearthbridge Cabinet / Несказки 9: Шкаф семейст�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856578.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Evil Within (2014) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856213.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Actraiser Renaissance (2021) [Multi] (7413691) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855710.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Death's Door (2021) [Ru/Multi] (1.1.5) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855694.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Forgotten Tales: Day of the Dead / Забытые истории. День ме�
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855424.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855233.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Count Lucanor (2016) [En/Multi] (1.0.16) Repack ARMENIAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855128.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ WWE 2K16 (2016) [En/Multi] (1.0/dlc) Repack VickNet
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854984.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Final Cut 3: Homage (2014) [En] Unofficial [Collector's Edition / Коллекц
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854727.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.7) License GOG (обнов
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854466.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Hoa (2021) [Ru/Multi] (1.05) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853986.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Ni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853618.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853520.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Punch Club (2016) [Ru/Multi] (1.1/dlc) Repack ARMENIAC [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853517.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ben and Ed: Bencalypse (2015) [En] (1.2.2) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853513.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack R.G.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853348.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Expeditions: Conquistador (2013) [Ru/Multi] (1.6.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853230.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Club MStar / Клуб MStar (2016) [Ru] (22.02.17) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853223.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Hero of the Kingdom: The Lost Tales 1 (2020) [Ru/Multi] (1.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852776.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852537.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ NEO: The World Ends with You (2021) [Multi] (1.00) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852324.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ I Saw Black Clouds (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852321.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Rooms: The Unsolvable Puzzle / Rooms. Неразрешимая загадка (2
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851800.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Rooms: The Unsolvable Puzzle / Rooms. Неразрешимая загадка (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D4402DC72C34B7AD32B792CDBBDF0C2F2D1CB88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001845   (851715) от 29.03.2016
+
+Terrarium Land (2016) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851715.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Terrarium Land” это аркадная экшн-приключенческая игра с логическими задачами. Робот Тикс терпит крушение на космическом корабле. Теперь начинаются приключения и борьба с механическими противниками ”сайбозургами” в мире ”Terrarium Land”.Тип издания: LicenseРазработчик: Layer gamesЖанр: Adventure, Arcade, Logic, 3DЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0AD1D161E8F668467BA952C4EC62E13872FA0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603258.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mitsurugi Kamui Hikae (2014) [En/Jap] (1.1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602810.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602356.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Outland (2014) [Ru/En] (1.13) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599466.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fly and Destroy (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597086.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Black The Fall (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596126.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cast of the Seven Godsends - Redux (2016) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594143.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Omensight (2018) [Ru/Multi] (1.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593193.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Oddworld: Munch’s Oddysee HD (2010) [En] (1.0/upd 14) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588095.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Swords of Ditto (2018) [Ru/Multi] (1.15.04-202) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587829.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587746.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.0.41.212) RePack xGhos
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587608.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Alien Shooter 2: Золотое издание [Ru] (L) (2007)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586721.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Inked (2018) [Ru/Multi] (20180528-1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583027.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Bubsy: Paws on Fire! (2019) [Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578958.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Lock's Quest (2017) [Multi] (20170716) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577520.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Mortal Kombat Anthology (1997-2015) [Ru/En] Repack R.G. Catalyst [Fatality Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577389.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574255.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Dark Future: Blood Red States (2019) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573894.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Risky Wings (2018) [Ru/Multi] (502) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572181.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Risky Wings (2018) [Ru/Multi] (502/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572159.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Milanoir (2018) [Ru/Multi] (1.1.0.213) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572140.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ice Age 4: Continental Drift - Arctic Games [Ru] (RePack/1.0) 2012 l R.G. Elemen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572037.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Grow Up (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571901.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Marvel: Ultimate Alliance 2 (2016) [En] (1.0/upd20160804) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571864.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Foreign Legion: Buckets Of Blood [Ru] (P) 2009
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570774.jpg" />
 </div>
 
 

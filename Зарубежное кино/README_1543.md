@@ -1,59 +1,3 @@
-###  Публикация: 493095   (248679) от 07.05.2012
-
-Перси Джексон и похититель молний / Percy Jackson & the Olympians: The Lightning Thief (2010) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Юноша по имени Перси Джексон живет в обычном реальном мире. Он также как и все дети ходит в школу, посещает музеи… греческой мифологии. Но он даже не подозревает, что те боги и существа, о которых рассказывает гид-в-инвалидном-кресле на самом деле не выдумка, а полноценная реальность и он (Перси Джексон) не кто иной как сын самого Посейдона, бога морей и океанов и, как следствие, он полубог.
-Как и следует из названия картины «Перси Джексон и похититель молний» некто похитил те самые молнии. Естественно Зевс не может это просто так оставить, ведь молнии есть не что иное как самое могущественное орудия, принадлежащее Зевсу. И вот тут-то появляется невиновный Перси. Зевс обвиняет Посейдона в том, что это именно его сын (Посейдона, коим является Перси) украл молнии. Зевс дает две недели на то, чтобы Перси их вернул… любой ценой. Отсюда все и начинается...Жанр: Фэнтези, Приключения, СемейныйРежиссер: Крис КоламбусАктеры: Логан Лерман, Брэндон Т. Джексон, Александра Даддарио, Джэйк Абель, Шон Бин, Пирс Броснан, Стив Кугэн, Розарио Доусон, Мелина Канакаредес, Кэтрин Кинер и др.Перевод: 1 - Профессиональный (полное дублирование)
-2 - Профессиональный (полное дублирование)Продолжительность: 01:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCAA9DF31A47BA706B6FCB9885E53285A50A8F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492812   (248661) от 07.05.2012
-
-Чрево / Womb (2010) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. Семилетние Ребекка и Томас живут в небольшом прибрежном городке и дружат с самого детства. После окончания школы семнадцатилетняя Ребекка возвращается в родной городок и у нее завязывается бурный роман с подросшим Томасом.
-Спустя несколько месяцев Томас погибает в нелепой автокатастрофе. Отчаявшаяся Ребекка не находит себе места до тех пор, пока ей не приходит в голову безумная идея. В недалеком будущем вполне обыденным явлением стало клонирование людей, пусть общество и не до конца принимает это научное изобретение. Ребекка решает дать новую жизнь своему потерянному возлюбленному…
-В доме на берегу моря повзрослевшая Ребекка растит обаятельного сына Томаса, который уверен, что его отец погиб в автокатастрофе. Ребекка никогда не говорит вслух о клонировании. Пока не появляется кое-кто из прошлой жизни и тайное не становится явным...Жанр: ДрамаРежиссер: Бенедек ФлигауфАктеры: Эва Грин, Мэтт Смит, Лесли Мэнвиль, Питер Уайт, Иштван Ленарт, Наталья Тена, Аманда ЛоуренсПеревод: Многоголосый закадровыйПродолжительность: 01:51:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493145   (248657) от 07.05.2012
 
 Большой Стэн / Big Stan (2007) [H.264] BDRip
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248657.jpg" />
 </div>
 
 
@@ -89,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248653.jpg" />
 </div>
 
 
@@ -115,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248634.jpg" />
 </div>
 
 
@@ -141,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248615.jpg" />
 </div>
 
 
@@ -168,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248589.jpg" />
 </div>
 
 
@@ -194,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248582.jpg" />
 </div>
 
 
@@ -220,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248572.jpg" />
 </div>
 
 
@@ -246,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248528.jpg" />
 </div>
 
 
@@ -272,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248523.jpg" />
 </div>
 
 
@@ -298,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248522.jpg" />
 </div>
 
 
@@ -324,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248504.jpg" />
 </div>
 
 
@@ -350,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248489.jpg" />
 </div>
 
 
@@ -376,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248250.jpg" />
 </div>
 
 
@@ -402,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248095.jpg" />
 </div>
 
 
@@ -428,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248090.jpg" />
 </div>
 
 
@@ -454,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248081.jpg" />
 </div>
 
 
@@ -480,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248079.jpg" />
 </div>
 
 
@@ -507,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248070.jpg" />
 </div>
 
 
@@ -533,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248067.jpg" />
 </div>
 
 
@@ -559,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248025.jpg" />
 </div>
 
 
@@ -586,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248022.jpg" />
 </div>
 
 
@@ -612,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_247962.jpg" />
 </div>
 
 
@@ -638,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247867.jpg" />
 </div>
 
 
@@ -664,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247809.jpg" />
 </div>
 
 
@@ -675,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906A7B7E264645AEC85D47C051A1E93546BA9D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637550   (247804) от 05.06.2023
+
+Бун / Boon (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бун — один из самых опасных наёмных убийц в Америке. После жестокой перестрелки его находит раненым мальчик-подросток, живущий с матерью Кэтрин. Благодаря её заботам Бун быстро встаёт на ноги. Он с удивлением узнаёт, что Кэтрин — пастор в протестантской общине и одновременно невольная соучастница преступной аферы. А всё из-за того, что её покойный муж задолжал бандитской (   Читать дальше...   )Производство: США / Muscular PuppyЖанр: Боевик, триллер, драма, криминал, детективРежиссер: Дерек ПрэслиАктеры: Нил Макдонаф, Томми Флэнаган, Джейсон Скотт Ли, Джеймс Мадио, Кристина Очоа, Гэбриэлль Картерис, Деметриус Гросс, Кристиана Сидел, Пэт Монахэн, Джон Патрик Джордан, Джейк МелрозПеревод: Дублированный (Zone Vision), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E727526255D57633094667AA222C7BE55F7875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637508   (247803) от 05.06.2023
+
+Человек из Рима / The Man from Rome (2022) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взломав компьютер Папы Римского, неизвестный хакер оставляет сообщение о загадочных событиях, произошедших в старинной церкви Севильи. Ватикан поручает отцу Куарту тайно расследовать это дело. Но согласится ли древний храм поделиться своими секретами или накажет любого, кто осмелится до них добраться?Производство: Испания, Колумбия, США / Amazon Prime Video, Augustus Color, Enrique Cerezo Producciones Cinematográficas S.A.Жанр: триллер, детективРежиссер: Серджо ДауАктеры: Ричард Армитедж, Амайя Саламанка, Пол Гилфойл, Пол Фримен, Родольфо Санчо
+Франко Неро, Финола Флэнаган, Карлос Куэвас, Алисия Боррачеро, Виктор МальяриноПеревод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF14308F3D1CB51A144798FA71BE09C4E81C18B
 ```
 
 https://mybot314.ru/tekegram_catalog/

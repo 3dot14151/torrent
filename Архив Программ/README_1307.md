@@ -6,7 +6,7 @@ Text Editor Pro 23.4.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373054.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373046.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.14959 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373039.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Driver Updater 1.9.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373038.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CocCoc 75.4.124 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373006.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Brave Browser 0.25.2 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373001.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PDF-XChange Viewer Pro 2.5.207 [Multi/Rus] + Portable by SoftLab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372950.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hallo northern sky 4.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372924.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ MyLanViewer 5.6.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372906.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sumatra PDF 3.5.15239 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372896.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ SiSoftware Sandra Lite 20/21 R16a (версия 31.104) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372889.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WinUtilities Professional Edition 12.02 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372885.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Antivirus Removal Tool 2022.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372877.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Kerish Doctor 2022 4.90 (Update 10.09.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372867.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ O&O DiskImage Professional + Workstation + Server 12.3 Build 201 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372826.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PDF-XChange 2012 Pro 5.0.266.0 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372770.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Google Chrome 25.0.1323.1 Dev [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372769.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ SMPlayer 22.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372749.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ AAF DCH Optimus Sound 6.2329.9389 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372741.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ iZotope - Ozone 10 Advanced 10.0.0 VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372738.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Advanced SystemCare Pro 15.6.0.274 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372724.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.80.4000 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372690.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ SIV (System Information Viewer) 5.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372645.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VKBot 2.4.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372599.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Avira Internet Security 2013 v 13.0.0.512 Beta (Официальная русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372595.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Arturia - V Collection 6 6.2 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372538.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2430.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2355.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Darkest Dungeon II (2) (2023) [Ru/Multi] (2.03.79909/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2120.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2119.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.2.0.1/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2116.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2097.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack seleZen [Gold Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1930.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack Wanterlude [Gold
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1927.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1765.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Last Epoch (2024) [Ru/Multi] (1.3.3.1/dlc) Repack Other s [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1743.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1705.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1690.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FATE: Reawakened (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1512.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Go
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1395.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1384.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1380.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1373.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1349.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1262.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1258.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Let'sРlay [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1250.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1216.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.3/dlc) Repack SE7EN [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1112.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1082.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1080.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.37/dlc) License GOG [Gol
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_930.jpg" />
 </div>
 
 

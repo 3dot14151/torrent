@@ -1,55 +1,3 @@
-###  Публикация: 1507717   (798225) от 05.11.2021
-
-Последняя капля / On the Rocks (2020) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лаура думает, что она счастлива замужем, но когда её муж Дин начинает проводить вечера в офисе с новой коллегой, в её голову закрадываются сомнения. Лаура обращается за помощью к своему харизматичному и импульсивному отцу Феликсу, который предлагает начать слежку за Дином. Когда отец и дочь отправляются в приключение по ночному Нью-Йорку, неожиданно для себя они (   Читать дальше...   )Производство: США / A24, American ZoetropeЖанр: драма, комедияРежиссер: София КопполаАктеры: Билл Мюррей, Рашида Джонс, Марлон Уайанс, Джессика Хенвик, Дженни Слейт, Лиянна Мускат, Александра Мэри Реймер, Анна Шанель Реймер, Барбара Бэйн, Джулиана КэнвилдПеревод: дублированный (Apple TV+), профессиональный многоголосый (HDRezka Studio)Субтитры: русские (надписи и места без перевода; полные), английские (SDH)Продолжительность: 01:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D26D4E13F75F63C4FAE70154ABD9D21934169CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507696   (798216) от 05.11.2021
-
-Неуловимый аромат любви / Love Hard (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Журналистке из Лос-Анджелеса Натали постоянно не везет в любви. Она пытается устроить личную жизнь с помощью приложения для знакомств и влюбляется в Тэга. Ради него Натали едет через всю страну, чтобы сделать парню сюрприз на Рождество. Но, приехав в город, девушка понимает, что ее возлюбленный не тот, за кого себя выдавал.Производство: США /  Wonderland Sound and VisionЖанр: Мелодрама, комедияРежиссер: Эрнан ХименесАктеры: Нина Добрев, Локлин Манро, Ребекка Стааб, Гарри Шам мл, Даррен Барнет, Микаела Хувер, Джимми О. Ян, Дариен Мартин, С. Эрнст Харт, Джеймс СаитоПеревод: Дублированный (Netflix)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), украинские (Full), английские (SDH)Продолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DD1EE553BBB182A64DE4EEE8692471CB4680B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507715   (798214) от 05.11.2021
 
 Поездка / I onde dager / The Trip (2021) BDRip [H.264/1080p] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798214.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798211.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798209.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798195.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798189.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798188.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798172.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798080.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798058.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798047.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798040.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798024.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797939.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797937.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797911.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797900.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797888.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797859.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797851.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797837.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797834.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797829.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797751.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797749.jpg" />
 </div>
 
 
@@ -668,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1A3262FF5E0176BED12A790290D21013E2C89BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385242   (797744) от 24.05.2020
+
+Ложное Искушение / The Good Shepherd (2006) WEB-DL [H.264/1080p-LQ] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдвард Уилсон, целеустремленный молодой человек, полный идеалов, поступает на службу в OSS. Это решение изменяет не только ход его жизни, но и мировую историю. Уилсон создает самую мощную секретную организацию в мире — ЦРУ.
+Он должен вести двойную жизнь, где двуличность — часть тебя. Никто, включая и его жену, и любимого сына, не может заставить Уилсона изменить (   Читать дальше...   )Производство: США / Universal Pictures, Morgan Creek, American Zoetrope, Tribeca ProductionsЖанр: триллер, драма, историяРежиссер: Роберт Де НироАктеры: Мэтт Дэймон, Анджелина Джоли, Алек Болдуин, Роберт Де Ниро, Тэмми Блэнчард, Билли Крадап, Кир Далли, Майкл Гэмбон, Мартина Гедек, Уильям ХертПеревод: Многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 02:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE538B643780D5CF3B772B525929FE9C9D080AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381290   (797738) от 24.05.2020
+
+Убийцы / Tueurs (2017) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о высокопоставленных грабителях, замаскировавшихся под министров и политиков, которые решают обвинить в убийстве судьи местных преступников.Производство: Бельгия, Франция / Versus Production, Capture The Flag Films, Savage FilmЖанр: ТриллерРежиссер: Жан-Франсуа Хенсгенс, Франсуа ТрукинсАктеры: Оливье Гурме, Лубна Азабаль, Кевин Янссенс, Були Ланнерс, Наташа Ренье, Daniel Scarcella, Renaud Cagna, Александр Пико, Marco Vaes, Robert FumièreПеревод: Профессиональный, многоголосый (Первый канал)Субтитры: ОтсутствуютПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6496AEFDA7434753CC7E9701866361DFF93AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

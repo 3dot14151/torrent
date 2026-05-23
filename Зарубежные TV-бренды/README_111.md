@@ -1,29 +1,3 @@
-###  Публикация: 1498469   (195035) от 28.07.2023
-
-NG. Самая огромная акула-бык / World's Biggest Bull Shark (2021) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Морской эколог доктор Нил Хаммершлаг объединяется с бывшим бойцом королевской морской пехоты Джеймсом Глэнси и эволюционным биологом доктором Тоби Дейли-Энгелем, чтобы выяснить, как Биг Булл, одна из самых крупных когда-либо пойманных тупорылых акул, выросла такой гигантской. А также узнать, не существуют ли другие подобные громадины.Производство: США, Red Rock Films, National GeographicЖанр: Документальный, фаунаРежиссер: Дэвид С. ФальконеПеревод: Одноголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAA2A4A3B69AEEE8EB488019EACBF4BD009FA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484897   (195004) от 29.07.2023
 
 NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
@@ -32,7 +6,7 @@ NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195004.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194981.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194978.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194581.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194543.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194499.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194038.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193776.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193602.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192809.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192632.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Discovery: Тайны катакомб Ватикана / Mystery Of The Lost Ca
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192623.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Discovery: В поисках Святого Грааля / In Search of the Holy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192385.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192224.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191796.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191172.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ NG: Секреты истории - Эксперименты ЦРУ: Контр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190955.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Discovery. Потерянный город Тутанхамона / Tut's Lost C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190541.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2021) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190510.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190462.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189498.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ History Channel: Жизнь после людей / Life after people (2008) HDR
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189495.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ NG: 11 сентября - хроника террора / Inside 9/11 (2007) TVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189484.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189018.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188938.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D989A106DBEE4A5BE758B8A047BFEA4E88228C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590699   (188364) от 15.11.2022
+
+BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265/2160p] [4K, HLG, 10-bit] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188364.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой эпической серии из шести частей исследуется обширное волшебное царство и застывшие миры удивительного разнообразия природы. От замёрзшего океана Арктики - до снежных лесов и великих равнин Крайнего Севера, от высокогорных вершин наших гор - до юга Антарктиды. Это последние места дикой природы на Земле, в которых могут обитать только животные с уникальными (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документальный, флора, фауна, исследованияРежиссер: Алекс Лэнчестер, Джейн Аткинс, Орла ДоэртиПеревод: одноголосый профессиональный (Jaskier)Субтитры: английские, английские (SDH)Продолжительность: 6x ~00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCE1D387D45BD49B6EB610D8DEC8EB2188CD641
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1035366   (626719) от 17.07.2016
-
-Дмитрий Чурсин | Непраздные на распутье - дорога скорби или путь испытаний (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Беременность бывает разной. Часто женщина с волнением и трепетом ждет ее прихода, чутко прислушиваясь к своему организму, и порой узнавая о своем новом статусе еще до появления первых признаков задержки. Тогда две полоски на тесте вызывают такую бурю радости и восторга, что этот день запоминается на всю жизнь, а сам тест порой занимает достойное место в собрании (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9302A21D8A160D2062F46A11AFB467005CBB313C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035168   (626714) от 17.07.2016
-
-Сэм Шепард | Века Луны (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Обладатель Пулитцеровской и других литературных премий, автор пьес «Город ангелов», «Проклятие голодающего класса», «Уловка разума», «Узы любви», «Шоковое состояние», Шепард не менее известен и как киносценарист — автор сценариев к фильмам «Забриски пойнт» (реж. М. Антониони), «Париж — Техас» (реж. В. Вендерс), «Дурак в любви» и др. И это не всё: Сэм Шепард — режиссер (   Читать дальше...   )Жанр: ДрамаПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F93A2BFCFA195ADDCA0C67492EB36E4F0EEB65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035152   (626654) от 17.07.2016
-
-Мария Метлицкая | Второе дыхание (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Спортсмены знают – как бы ни было тяжело на дистанции, нельзя сдаваться: у самых упрямых обязательно открывается второе дыхание.
-Жизнь очень напоминает бег на длинную дистанцию – чего только не случается, пока бежишь, и никогда не знаешь, что ждет на финише.
-Бывает, что отчаяние перехлестывает, ты задыхаешься, кажется – нет больше сил. Но тем, кто сумел побороть (   Читать дальше...   )Жанр: Современная проза,РассказыПродолжительность: 08:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52CC2FE4D7ACCDFB0497C922FF0AA782DD251D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035004   (626588) от 17.07.2016
 
 Александр Ковган | По следам памяти (2016) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626588.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626514.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626072.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625842.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625767.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625653.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625648.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625562.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625541.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625536.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625535.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625524.jpg" />
 </div>
 
 
@@ -404,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625515.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625416.jpg" />
 </div>
 
 
@@ -457,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625276.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625140.jpg" />
 </div>
 
 
@@ -511,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625110.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624448.jpg" />
 </div>
 
 
@@ -563,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624398.jpg" />
 </div>
 
 
@@ -589,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624348.jpg" />
 </div>
 
 
@@ -616,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624255.jpg" />
 </div>
 
 
@@ -644,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624205.jpg" />
 </div>
 
 
@@ -670,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624197.jpg" />
 </div>
 
 
@@ -681,6 +601,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5EA42006DBC3FE05D5D2FBAF47DA9C5DB6D2255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294833   (624113) от 10.04.2019
+
+Шеридан Ле Фаню | В зеркале отуманенном (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, которую читатель держит в руках, представляет зрелое и позднее творчество Шеридана Ле Фаню — ирландского писателя, который посвятил последнее десятилетие своей жизни (начиная с 1860 г.) исключительно готической прозе и получил признание английской читающей публики как выдающийся мастер такого рода повествований.
+Готическая традиция складывается в английской (   Читать дальше...   )Жанр: УжасыПродолжительность: 14:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BA90500A05C1EA1217D86D2B1ADA15B7318727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287968   (624110) от 10.04.2019
+
+Хадзимэ Камосида | Кошечка из Сакурасо [Том 6] (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японская школа искусств Суймэй славится своим общежитием и домом под названием «Сакурасо». Жизнь общежития регламентирована сводом строгих правил, но совсем другое дело «Сакурасо». Здесь запретов и правил нет, именно поэтому его и называют психушкой. В «Сакурасо» живут неординарные личности , выделяющиеся из толпы. Именно благодаря этому, здесь всегда интересно и (   Читать дальше...   )Жанр: Комедия, ПовседневностьПродолжительность: 05:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850E63054188944D9B136A9570A6D3DDB8924C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294846   (623979) от 10.04.2019
+
+Пётр Проскурин | Горькие травы (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие романа «Горькие травы» происходит в 40-50 годы в одной из центральных областей России, в Брянской деревне. Автор возвращается к впечатлениям своей юности. Герои романа, вернувшиеся с фронтов Великой Отечественной войны, из партизанских отрядов, из плена, включаются в трудную работу по восстановлению разрушенного врагом хозяйства.
+«Я так никогда и не смог (   Читать дальше...   )Жанр: Советская классическая прозаПродолжительность: 19:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3AD5CCD5BA97F32F8F52A53B51E02946DEAF68
 ```
 
 https://mybot314.ru/tekegram_catalog/

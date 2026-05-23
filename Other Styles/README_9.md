@@ -6,7 +6,7 @@ Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001645.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <Ne
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001252.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Garrett - Music (2012) [FLAC|Lossless|image + .cue] <Instrumental Pop, Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001163.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Karunesh - Sounds of the Heart (1987) [FLAC|Lossless|tracks + .cue] <New Age, Do
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000966.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Era & Arielle Dombasle - Arielle Dombasle By Era (2013) /Special Edition/ [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000958.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000894.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000892.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000880.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999148.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999120.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999119.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999116.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999103.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999092.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ New Sun Pops Orchestra - Sax Mood 2 and Guitar Mood 2 (1976) [MP3|320 кб/с]<J
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999082.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999059.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997585.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997545.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997522.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Ethnico - Prophecy for Montezuma (2013) [MP3|320 кб/с]<Ehno-meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997034.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Maneesh de Moor - 4 albums (2001-2007) [MP3|320 кб/с]<New age, Meditative, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996980.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996714.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Yoyo International Orchestra - Abba Instrumentals. Greatest Hits (2007) [MP3|320
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996708.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Sam Taylor - Mood Kayou Best (2CD) (2008) [MP3|320 кб/с]<Instrumental, Saxoph
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996702.jpg" />
 </div>
 
 
@@ -790,7 +790,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996683.jpg" />
 </div>
 
 
@@ -825,7 +825,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996457.jpg" />
 </div>
 
 

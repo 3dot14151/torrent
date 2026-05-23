@@ -1,55 +1,3 @@
-###  Публикация: 566124   (398805) от 27.10.2012
-
-Вампирши / Vamps (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Две сексуальные современные вампирши живут в свое удовольствие среди нью-йоркской ночной тусовки до тех пор, пока любовь не встречается на их пути и не ставит под угрозу их бессмертие.Жанр: Мелодрама, КомедияРежиссер: Эми ХекерлингПродюсер: Мари Тереза Арида, Лоурен Версель, Адам БрайтманАктеры: Алисия Сильверстоун, Кристен Риттер, Дэн Стивенс, Ричард Льюис, Сигурни Уивер, Уоллес Шоун, Джастин Кирк, Малкольм МакДауэлл, Зак Орт, Мэрилу ХеннерПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC1D4444ED964B644B226DED0418DF60FAE8796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566138   (398722) от 27.10.2012
-
-Они были солдатами 2 / Saints and Soldiers: Airborne Creed (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-15 августа 1944 года взвод 517-ого парашютно-десантного полка был заброшен на территорию южной Франции для поддержки наступления союзных войск на Берлин. Приземляясь на вражеской территории десантники вступают в непосредственное боестолкновение с противником. При выполнении миссии трое парашютистов встречаются с участниками группы Французского Сопротивления. Они (   Читать дальше...   )Производство: США, Go FilmsЖанр: ВоенныйРежиссер: Райан ЛиттлАктеры: Корбин Оллред, Джасен Вэйд, Бренден Уитни, Линкольн Хопп, Нишелль Эйден, Эндрю В. Джонсон, Иван Р. Бёрд, Лэнс ОттоПеревод: Одноголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDACD9C9A0220A2CEAD374784FB04A152290C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565579   (398656) от 27.10.2012
 
 Новый Человек-паук / The Amazing Spider-Man (2012) [1080p] BDRip [Горизонтальная анаморфная стереопара 3D]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398656.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398591.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398587.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398524.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398466.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398449.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398448.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398444.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398443.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398442.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398414.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398401.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398399.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398384.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398383.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398382.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398332.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398277.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398276.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398274.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398268.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398265.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398099.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398072.jpg" />
 </div>
 
 
@@ -672,6 +620,60 @@ https://mybot314.ru/tekegram_catalog/
 
 Великая Клеопатра заключила пари с римским императором Юлием Цезарем о том, что ее подданные смогут всего за три месяца построить грандиозный золотой дворец. Этой опасной чести был удостоен архитектор Нумеробис, которого — в случае неудачи — должны растерзать крокодилы.
 Нумеробис вызывает на помощь своего старого друга — друида Панорамикса с зельем, дарующим сверхъестественную (   Читать дальше...   )Производство: Франция, Германия / Pathe!, Canal+, Centre National de la Cinématographie (CNC), Chez WamЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Ален ШабаАктеры: Жерар Депардье, Кристиан Клавье, Жамель Деббуз, Моника Беллуччи, Ален Шаба, Клод Риш, Жерар Дармон, Эдуард Баэр, Дьедонне, Мусс ДиуфСубтитры: Русские, АнглийскиеФормат: MKVПродолжительность: 01:48:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 400041   (398061) от 15.10.2011
+
+Дом у озера / The Lake House (2006) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм "Дом у озера" — фильм о любви, о большой, чистой и необычайно грустной.
+Зима 2006 года. Ощутив необходимость изменить свою жизнь, доктор Кейт Форестер покидает свой необычный дом у озера в пригороде Иллинойса и устраивается на работу в чикагскую больницу. Единственное, о чем жалеет Кейт, так это о своем красивом доме с огромными окнами, который дарил (   Читать дальше...   )Производство: США, АвстралияЖанр: Фэнтези, Драма, МелодрамаРежиссер: Алехандро АгрестиАктеры: Кеану Ривз, Сандра Баллок, Шоре Агдашлу, Кристофер Пламмер, Эбон Мосс-Бакрак, Уиллек Ван Аммелрой, Дилан Уолш, Линн Коллинз, Майк Бакарелла, Кевин Бреннан, Фрэнк Каети, Скотт Елиас, Лори Энн Гердиш, Майкл Эндрю Горман, Дженнифер Керн, Синтия Кэй МакУильямс, Индия Нейлан, Нора Ньюбро, Миа Парк, Пегги Родер, Джейсон УэллсПеревод: 1 - Профессиональный (полное дублирование)
+2 - Двухголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDCC4A70F6F9E0459D57A4E69A8242DAE3763A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399666   (398054) от 15.10.2011
+
+Инопланетное вторжение: Битва за Лос-Анджелес / Battle: Los Angeles (2010) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Землю пытается захватить инопланетная цивилизация, истребляя все живое на своем пути. По всему миру начинается широкомасштабное сражение человечества за выживание. Отряду морских пехотинцев поручено во что бы то ни стало освободить осажденный город ангелов от таинственных и смертоносных тварей…Жанр: Фантастика, боевикРежиссер: Джонатан ЛибесманАктеры: Аарон Экхарт, Бриджет Мойнэхэн, Мишель Родригес, Майкл Пенья, Рамон Родригез, Кори Хардрикт, Джино Энтони Песи, Шаффер Смит, Джеймс Хироюки Лиао, Ноэль ФишерПеревод: ДублированныйСубтитры: RussianПродолжительность: 01:56:10
 
 ## Скачать торент
 ```bash

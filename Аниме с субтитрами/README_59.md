@@ -6,7 +6,7 @@
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615815.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Haiyore! Nyaruko-san F | Няруко-сан: Крадущийся хаос F [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615787.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Just Because! | Просто так! [2017, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615412.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Break Blade / Broken Blade / Сломанный Меч [2014, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615031.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ultraman Season 2 | Ультрамен 2 [2022, Web, 6 эп.] WebRip 720p raw+en
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614791.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Eromanga Sensei | Эроманга-сенсей [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614216.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614206.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Triage X | Отбор Икс [2015, TV, 10 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613237.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612786.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Fukumenkei Noise / Не скрывая крик [2017, TV, 12 из 12] HDTV 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612540.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Gekijouban Shingeki no Kyojin | Вторжение гигантов (фильм)
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612534.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Gunslinger Stratos: The Animation | Небо стрелков [2015, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611979.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Subete ga F ni Naru: The Perfect Insider | Everything Becomes F: The Perfect Ins
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609395.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Punch Line / Punchline / Трусы всему виной [2015, TV, 12 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608177.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Peace Maker Kurogane / Железный миротворец [2003, TV, 24 из 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607373.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Outlanders / Гости с далеких планет [1986, OVA, 1 ep.] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607335.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Kyokuguro no Tsubasa / Legend of Lemnear / Легенда о Лемнеар [198
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607333.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Supernatural | Supernatural The Anime Series | Supernatural the Animation | Св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606727.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] BDRip 1080p R
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606669.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Major Complete Collection | Мэйджор Полное собрание (6 Се
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606559.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606452.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Мой п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606310.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Mushishi Zoku Shou / Мастер Муси [ТВ-2] [2014, TV, 10 ep] HDTVRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605778.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Gokushufudou | The Way of the Househusband | Путь домохозяина [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604328.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Enen no Shouboutai | Fire Force | Пламенный отряд [2019, TV, 24 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604298.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Enen no Shouboutai Ni no Shou | Fire Force (2020) | Пламенный отря�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604284.jpg" />
 </div>
 
 

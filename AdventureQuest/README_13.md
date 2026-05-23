@@ -1,29 +1,3 @@
-###  Публикация: 1489414   (925159) от 16.08.2021
-
-Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Каждый год многие дети пропадают без вести и их больше не найти... Это история маленькой девочки, которую похитили и привезли в место, которое можно представить только в кошмаре. Как Вы можете выжить и избежать ада на земле, если Вам всего 10 лет? Что происходит, когда происходящее переходит за границы понимания хрупкого детского разума? Жуткая история, полная неизвестности. (   Читать дальше...   )Тип издания: LicenseРазработчик: Beer Night StudioЖанр: Horror, Adventure, StealthЯзык субтитров: Русский, Английский, Корейский, Китайский (упрощённый)Язык интерфейса: Русский, Английский, Корейский, Китайский (упрощённый)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3D7E61A891D10D62931F1BE0CF84C077FBF129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489580   (925080) от 16.08.2021
 
 Fragile (2020) [Ru/Multi] (Build 5896114) Repack Other s
@@ -32,7 +6,7 @@ Fragile (2020) [Ru/Multi] (Build 5896114) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925080.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u7) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923993.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Devotion (2019) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921603.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Uncertain: Episode 1 - The Last Quiet Day / The Uncertain: Эпизод 1 - 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920210.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919901.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0/upd4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919776.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dreamfall: The Longest Journey / Dreamfall: Бесконечное путеше�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919571.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/upd7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_916689.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ STELA (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916685.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ CAYNE (2017) [Ru/Multi] (1.24) SteamRip Let'sPlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915004.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ CAYNE (2017) [Ru/Multi] (1.24) Repack Other s [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914993.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ The Blind Prophet (2020) [Multi] (1.20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914967.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Magdalena / Магдалина (2016) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914594.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Valley (2016) [En] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913641.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Valley (2016) [En] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913373.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Shenmue III (3) (2019) [Multi] (1.05.03) License CODEX (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913323.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd15) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912913.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ The Book of Unwritten Tales 2 (2015) [Ru/Multi] (1.0.3.132) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912910.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Drizzlepath: Genie (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912902.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911914.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ AntVentor (2018) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911775.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (1.1.0_02) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910331.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Fahrenheit: Indigo Prophecy - Remastered (2015) [Ru/Multi] (1.0) Repack R.G. М�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909652.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.8244/dlc) Repack West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908257.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ The Walking Dead: Season Two (2013-2014) [Multi] (3.00) License GOG [A Telltale 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907884.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ The Walking Dead: Season Two - продолжение первого сезон�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71FD6D112935B1302C313A1C7A2F050DB8CD7393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491919   (906733) от 27.08.2021
+
+Tormented Souls (2021) [Ru/Multi] (7256155) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906733.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Уинтерлейке таится нечто зловещее. Каролина Уолкер расследует исчезновение девочек-близнецов и в процессе с ней происходит кое-что ужасное. Она очнулась посреди ночи в ванне, голая и подключенная к древним медицинским приборам. Теперь Каролине нужно сражаться за свою жизнь, исследуя коридоры заброшенного особняка.Тип издания: LicenseРазработчик: Dual Effect, Abstract DigitalЖанр: HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6252C11D85592E9E488C0F949B1129E92951B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

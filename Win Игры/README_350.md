@@ -1,29 +1,3 @@
-###  Публикация: 1827448   (186310) от 21.10.2025
-
-Erannorth Renaissance (2024) [En] (1.0.03) Scene Tenoke
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Erannorth Renaissance - это RPG, в которой каждое решение формирует разворачивающееся путешествие. Игроки перемещаются по обширному миру, свободно прокладывая свой собственный путь, участвуют в пошаговых сражениях и взаимодействуют с целым рядом уникальных героев. Игра сочетает в себе настольную механику и экспансивное повествование, предлагая множество возможностей (   Читать дальше...   )Тип издания: SceneРазработчик: Spyridon ThalassinosЖанр: Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA9B73ADB757F5B306037EF3CD6306129CEF3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663977   (186156) от 24.09.2023
 
 InfraSpace (2023) [Ru/Multi] (1.0) Scene Rune
@@ -32,7 +6,7 @@ InfraSpace (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186156.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186148.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186144.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ CrossCode (2015) [Multi] (1.4.2-3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186129.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Lessaria: Fantasy Kingdom Sim (2025) [Ru/Multi] (1.0.1034/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186081.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Thief's Shelter (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186080.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Let'sРlay [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186079.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mystery Case Files 22: Crossfade (2020) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186041.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Pride and Prejudice. Blood Ties / Гордость и предубеждение
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185899.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dark City 5: Budapest / Мрачный город 5: Будапешт (2020) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185880.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Heart of the Woods (2019) [Multi] (2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185849.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Shank (2010) [Ru] (1.3) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185765.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185761.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185634.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Detectives United 6: Beyond Time / Союз детективов 6: Вне вр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185179.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Paranormal VHS (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185043.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Royal Romances: Battle of the Woods / Королевские романы: Би�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185033.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184832.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184767.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (7.3.0/dlc) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184725.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Hidden Object Secrets: Family Revenge (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184533.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184233.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183850.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Mystery Case Files 24: The Last Resort (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183619.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183497.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:132B6884A2CD7A9ACF097B0E7D56E40ADA5D88F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651163   (183464) от 28.09.2023
+
+Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к партизанам и уничтожайте врагов на своем транспортном средстве в этом 3D-шутере от третьего лица! Получайте опыт и улучшения, побеждая врагов, выбирайте новое оружие и боевые навыки. Используйте золото, полученное в битвах, чтобы покупать тактические наборы, объединять их в свои собственные комбо и побеждать врагов!Тип издания: SceneРазработчик: What‘s Up LabsЖанр: Экшены, Казуальные игры, Инди, СтратегииЯзык субтитров: Английский, Китайский, Японский, КорейскийЯзык интерфейса: Английский, Китайский, Японский, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E8E871330CF338EEEDDF8203CA2815D5C4537B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ AIMP 3.20 Build 1148 RC 1 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405168.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Juicer 3.89b Build 248 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405154.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WPI DVD 18.10.2012 By Andreyonohov & Leha342 [Русский] (Авторска�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405143.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Recovery Partition for MSI Wind U180 / Windows 7 Starter (х86) SP1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405142.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ SolidWorks 2013 SP0.0 x32 / x64 Full Multilanguage Editions 2013 SP0.0 [Multilan
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405120.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Maxthon Browser 5.1.2.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404988.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Process Lasso Pro 6.0.1.68 [Rus|Eng] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_404918.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Pale Moon 27.4.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404881.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Silhouette 6.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404831.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Auslogics Driver Updater 1.10.0.0 RePack (& Portable) by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404650.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nikon Capture NX-D 1.4.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404597.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Autodesk AutoCAD Map 3D 2018.1.1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404590.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ WYSIWYG Web Builder 8.5.1 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404575.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ uTorrent  Pro 3.5.0 Build 44090 Stable RePack (& Portable) by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404518.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ FileMenu Tools 6.3.0 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404495.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404261.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ CoolUtils Total Image Converter 7.1.1.157 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404054.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Amazing Slider Enterprise 6.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404049.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Pepakura Designer 4.0.6a [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403992.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Allavsoft Video Downloader Converter 3.15.1.6477 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403990.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Pale Moon 27.5.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403873.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Opera 48.0.2685.32 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403822.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ AV Uninstall Tools Pack 2017.09 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403819.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ IObit Driver Booster Pro 5.0.3.360 Final RePack (& portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403814.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Auslogics Driver Updater 1.10.0.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403754.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Kaspersky Virus Removal Tool 2011 Version 11 (11.0.0.1245) от 21.10.2012 [ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_403385.jpg" />
 </div>
 
 

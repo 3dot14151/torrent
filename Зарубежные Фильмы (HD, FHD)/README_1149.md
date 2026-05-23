@@ -1,55 +1,3 @@
-###  Публикация: 1813261   (7080) от 18.08.2025
-
-Сорокалетний девственник / The 40 Year Old Virgin (2005) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-40-летний Энди Стицер добился в жизни многого. У него непыльная и хорошо оплачиваемая работёнка в магазине по продаже электронной бытовой техники, хорошие друзья, а также милая квартирка, в которой находится гордость Энди — коллекция игрушечных героев и комиксов. Однако его жизнь лишена простых человеческих радостей, которые доступны большинству людей его возраста. (   Читать дальше...   )Производство: США / Apatow Productions, Universal PicturesЖанр: комедия, мелодрамаРежиссер: Джудд АпатоуАктеры: Стив Карелл, Кэтрин Кинер, Пол Радд, Романи Малко, Сет Роген, Элизабет Бэнкс, Лесли Манн, Джейн Линч, Джерри Бедноб, Кэт Деннингс, Шелли Мэлил, Джорди Мастерсон, Челси Смит, Джона Хилл, Эрика Виттина ФиллипсПеревод: дублированный, профессиональный двухголосый (Tycoon)Язык озвучки: русский, английскийСубтитры: русские (надписи и полные), английскиеПродолжительность: 02:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A579E5999DCA3A74B1EDD20D03651C3490053235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559523   (7008) от 19.08.2025
-
-Всё везде и сразу / Everything Everywhere All at Once (2022) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В жизни Эвелин царит бардак. Она никак не может составить налоговый отчёт, пожилой отец постоянно требует внимания, муж витает в облаках, а ещё и дочка привела свою девушку знакомиться с семьёй. Во время визита в налоговую всё запутывается ещё сильнее — оказывается, Эвелин может скакать по параллельным вселенным и получать доступ к воспоминаниям и навыкам других (   Читать дальше...   )Производство: США / A24, AGBO Production, Hotdog HandsЖанр: Фантастика, комедия, боевик, приключения, драмаРежиссер: Дэн Кван, Дэниэл ШайнертАктеры: Мишель Йео, Джейми Ли Кёртис, Ке Хюи Куан, Стефани Сюй, Джеймс Хун, Тэлли Медел, Дженни Слейт, Гарри Шам мл., Бифф Уифф, Сунита МаниПеревод: Дублированный (CPI Films), Многоголосый профессиональный (Jaskier)Субтитры: Русские (Forced, 2x Full) Украинские (Forced), Английские (Full, SDH, Hardsub - на китайскую речь)Продолжительность: 02:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1326A85334E3BAE1DADBA8DF786C18FA9CCB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813474   (6958) от 19.08.2025
 
 Тогда. Сейчас. Потом / Here (2024) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6958.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6898.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6823.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6805.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6803.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6691.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6690.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6681.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6631.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6566.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6526.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6500.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6338.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6336.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6311.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6300.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6230.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6224.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6208.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6174.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6140.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6139.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6066.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6059.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B9F82921C1EF5581E24FD857131786B72D9ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813734   (6029) от 25.08.2025
+
+Загар / Suntan (2016) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже немолодой Костис назначен врачом на небольшой остров, где и проводит скучную зиму. Однако с наступлением лета все кругом оживает, пляжи заполняются отдыхающими, нудистами, безумными вечеринками. Костис по уши влюбляется в молодую кокетливую Анну и во что бы то ни стало хочет произвести на нее впечатление. Теперь почти все время он тратит на пьянки и вечеринки. (   Читать дальше...   )Производство: Греция, Германия / Faliro House Productions, Marni Films, Oxymoron FilmsЖанр: драмаРежиссер: Аргирис ПападимитропулосАктеры: Макис Пападимитру, Элли Трингу, Хара Котсали, Милоу Ван Гроссен, Дими Паллис, Маркус Коллен, Гианнис Цортекис, Павлос Оркопулос, Яннис Экономидес, Костас ГузелисПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, греческийСубтитры: русские, английскиеПродолжительность: 01:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383D82D87150FD7AF36D1711C8094F1A8FCA8B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814562   (6025) от 25.08.2025
+
+Тренер Картер / Coach Carter (2005) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальной истории, происшедшей в 1999 году в Ричмонде, штат Калифорния. Тренер школьной команды по баскетболу Кен Картер принял в середине сезона беспрецедентное решение, запретив игрокам, не испытавшим еще ни одного поражения, выходить на площадку из-за низкой успеваемости в школе. В итоге команда пропустила две игры в чемпионате, а юным баскетболистам (   Читать дальше...   )Производство: США, Германия / Coach Carter, MTV Films, Expedition FilmsЖанр: биография, спорт, драмаРежиссер: Томас КартерАктеры: Сэмюэл Л. Джексон, Роб Браун, Роберт Ричард, Рик Гонсалес, Нана Гбивонио, Энтвон Тэннер, Ченнинг Татум, Ашанти, Тексас Бэттл, Дениз ДаузПеревод: Многоголосый (DDV), двуголосый (НТВ+), авторский (Е.Рудой, М.Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 02:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF93A1531C9C64983611EA9569208F6CB3B2B72B
 ```
 
 https://mybot314.ru/tekegram_catalog/

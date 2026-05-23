@@ -6,7 +6,7 @@ FinePrint 10.43 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227394.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PTE AV Studio Pro 10.0.14 Build 1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227385.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ashampoo Burning Studio 20.0.1.3 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227380.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ R-Drive Image Technician 7.0 Build 7008 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227375.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Desktop Calendar 2.3.82.5284 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227368.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AutoPowerOptionsOK 5.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227362.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ CherryTree 0.99.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227358.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Don't Sleep 9.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227342.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Macrorit Partition Expert 7.9.4 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227327.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Macrorit Disk Scanner 6.6.4 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227319.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ SQL Dynamite 2.5.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227310.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ iZotope - RX 10 Audio Editor Advanced 10.1.0 STANDALONE, VST3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227292.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Volume2 1.1.5.359 Beta  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227283.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Shotcut 23.07.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227277.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Freemake Video Converter 4.1.11.103 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227266.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PrivaZer 3.0.83 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227258.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Ashampoo Burning Studio 20.0.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227254.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Emsisoft Emergency Kit 2020.5.1.10518 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227253.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ K-Lite Codec Pack Update 16.5.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227235.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Floorp Browser 11.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227222.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ AkelPad 4.9.7 + Portable + All Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227211.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227202.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AllDup 4.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227156.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VueScan Pro 9.7.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227138.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Ummy Video Downloader 1.10.3.1 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227108.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ MediBang Paint Pro 24.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227104.jpg" />
 </div>
 
 

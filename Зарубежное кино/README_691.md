@@ -1,56 +1,3 @@
-###  Публикация: 206110   (752436) от 31.05.2010
-
-Телепорт / Jumper (2008) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Подросток из неблагополучного района Дэвид Райс всегда считал себя обычным парнем, пока однажды он не узнал, что он может телепортироваться с места на место. Новые способности открыли перед ним весь мир. Он может побывать в Нью-Йорке и Токио, посетить античные развалины в Риме, увидеть «крышу мира» с горы Эверест, увидеть 20 рассветов и 20 закатов. И все — в один (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Даг Лайман.Актеры: Хейден Кристенсен, Джэми Белл, Рэйчел Билсон, Дайан Лэйн, Сэмюэл Л. Джексон, Майкл Рукер, Анна-Cофия Робб, Макс Тириот, Джесси Джеймс, Том Хульц и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782131   (752373) от 30.04.2014
-
-Полуденная нега / Afternoon Delight (2013) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-• Рэйчел — образованная и привлекательная домохозяйка, тридцати с лишним лет, живущая среди творческой богемы Лос-Анджелеса в одном из самых богатых районов города — Сильвер-Лейк. На первый взгляд у неё есть всё: роскошный благоустроенный дом, успешный муж, прелестный ребёнок и огромное количество хипстерской одежды. Однако почему же она изнывает от тоски?
-• Измученная (   Читать дальше...   )Производство: США | 72 Productions, Rincon EntertainmentЖанр: КомедияРежиссер: Джилл СолоуэйАктеры: Кэтрин Хан, Джуно Темпл, Джош Рэднор, Джейн Линч, Джессика Ст. Клэр, Михаэлла Уоткинс, Джош Стэмберг, Джон Капелос, Кигэн-Майкл Ки, Энни МумолоПеревод: Двуголосый закадровый, профессиональныйОзвучка / Автор перевода: Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117EBD4F193F3B3ECD52E325BC3C87ECD1442AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 206159   (752347) от 31.05.2010
 
 Банды Нью-Йорка / Gangs of New York (2002) [H.264] BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752347.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752141.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752103.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752056.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752029.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752025.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751947.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751894.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751743.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751706.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751695.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751640.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751633.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751625.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751574.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751573.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751571.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751558.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751554.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751548.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751518.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751511.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751507.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751499.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:099EB172AADC15E0B6019347709E52DF429A8355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395913   (751455) от 12.07.2020
+
+Брачная история / Marriage Story (2019) BDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супруги - нью-йоркский театральный режиссёр Чарли и актриса его театра Николь - находятся в процессе развода. Чарли всё устраивало в их браке, но Николь считает, что потеряла себя и, забрав сына, переезжает к маме в Лос-Анджелес. Там ей уже предложили роль в сериале и посоветовали высококлассную адвокатессу по разводам. Теперь Чарли тоже придётся искать адвоката, (   Читать дальше...   )Производство: США / Heyday Films, NetflixЖанр: Драма, мелодрама, комедияРежиссер: Ноа БаумбакАктеры: Скарлетт Йоханссон, Адам Драйвер, Мерритт Уивер, Лора Дерн, Рэй Лиотта, Уоллес Шон, Джули Хэгерти, Алан Алда, Марк О Брайэн, Кайл БорнхаймерПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (Full), английские (Full)Продолжительность: 02:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7F5712007BBD141F8A3C009E4A9DDADDB471F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395898   (751453) от 12.07.2020
+
+Сержиу / Sergio (2020) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь и карьера дипломата ООН Сержиу Виейра ди Меллу оказывается на волоске после вторжения армии США в Ирак.Производство: США / Black Rabbit Media, Anima Pictures, Desert Motion PicturesЖанр: ДрамаРежиссер: Грег БаркерАктеры: Вагнер Моура, Ана де Армас, Брайан Ф. О`Бирн, Гаррет Диллахант, Клеменс Шик, Уилл Далтон, Джейсон Каннинг, Кутаиба Абдельхак, Самира Асир, Алисе АссефПеревод: Многоголосый закадровый, профессиональный (IdeaFilm)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C8C23CFD9EE7250971511949468D1EEF141E0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

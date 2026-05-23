@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465124.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cumulative Update KB4039396 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465101.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465098.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Unlocker 1.1.2.1 Final Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465040.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Teorex Inpaint 4.6 Portable by Baltagy [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465013.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Enterprise Foxit Reader 542.0901 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465010.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ TeamViewer Free 14.5.1691 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464960.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Windows 10 Manager 3.1.3.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464958.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Adobe Acrobat Pro DC 2017.012.20098 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464929.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464924.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Acrobat Pro DC 2017.012.20098 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464918.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sam Broadcaster Studio 2015.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464905.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Slimjet 5.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464903.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WinKey 2.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464854.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ PC-RADIO Плеер радио 1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464819.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ CCleaner 5.61.7392 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464630.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AkelPad 4.9.6 + Plugins (х86 & х64) RePack + Portable by San_dr (24.09.15) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464608.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ R-Studio 7.7 Build 159747 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464603.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ O&O Defrag Professional 16.0 Build 139 [ENG+RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464541.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ O&O Defrag Professional 19.0 Build 87 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464466.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ AOMEI Partition Assistant 5.8 Technician Edition Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464465.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sam Broadcaster PRO 2015.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464454.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VeraCrypt 1.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464449.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Glary Utilities Pro 5.150.0.176 Repack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464443.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Cyber Style pack Seven [Rainmeter скин]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464352.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Skype 7.11.64.102 Portable by Padre Pedro [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464304.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ xrecode II 1.0.0.230 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864624.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TheWorld Browser 7.0.0.106 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864619.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AdwCleaner 5.105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864613.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinScan2PDF 3.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864612.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cent Browser 1.8.9.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864610.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows and Office Genuine ISO Verifier v10.10.22.21 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864583.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MediaHuman YouTube Downloader 3.9.9.61 (2109) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864581.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Wise Program Uninstaller 1.99.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864531.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Glarysoft Malware Hunter 1.6.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864509.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Insofta Cover Commander 3.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864500.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NetSetMan 4.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864496.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ XnView Classic 2.50.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864462.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ OEM Info Updater 9.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864456.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864341.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CCleaner 5.16.5551 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864326.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Acronis True Image WD Edition 25.0.1.39200 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864283.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Allavsoft Video Downloader Converter 3.13.9.6263 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864271.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Reg Organizer 7.35 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864190.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ CCleaner 5.16.5551 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864184.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Autodesk Product Design Suite Ultimate 2015 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864169.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hex Editor Neo Ultimate Edition 6.24.00.5920 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864142.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864138.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ CCleaner 5.16.5551 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864084.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.70.3800 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864076.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ DriverPack Solution Online 17.6.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864069.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.70.3800 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864068.jpg" />
 </div>
 
 

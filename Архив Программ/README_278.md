@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.0.055 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919877.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919875.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 7 SP1 6.1 (Build 7601.24549) (13in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919782.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ RusLive v.2020.03.13 by Nikzzzz [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919769.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Simple Port Forwarding Pro 3.0.20 [Multi\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919577.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Windows 7 Recovery Media for Windows 7 Products UNIT [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919562.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ CyberLink YouCam Deluxe v 4.0.1318.14546  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919561.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Total Commander 8.51a DC 20.01.2015 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919509.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ ESET Smart Security 6.0.314.2 RePack (x86/x64) by SmokieBlahBlah [Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919383.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ DeviceLock 7.2.46357 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919286.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mixxx 1.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919258.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ IDrive 6.5.0.14 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919241.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ JottaCloud 3.1.45.377 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919183.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Icecream Screen Recorder PRO 6.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919128.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ MetaProducts Offline Explorer Enterprise 7.4.4560 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919062.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ FinePrint Software (FinePrint 10.20 / pdfFactory Pro 7.20) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919059.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ ProduKey 1.88 Portabe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919056.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ R-Studio 8.2 Build 165337 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919051.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Trojan Killer 2.1.16 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919049.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ R-Studio 8.2 Build 165337 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919031.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Complete Internet Repair 3.1.3.2852 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919021.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Dropbox 3.14.7 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918999.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Gilisoft Secure Disc Creator 7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918997.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Extreme Picture Finder 3.48.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918982.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Freemake Video Converter 4.1.10.523 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918978.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Loaris Trojan Remover 3.1.18.1423 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918973.jpg" />
 </div>
 
 

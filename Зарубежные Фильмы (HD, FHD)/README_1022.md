@@ -1,55 +1,3 @@
-###  Публикация: 1699121   (118205) от 11.02.2024
-
-Гнев материнский / The Good Mother (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Отчаянная мать и профессиональная журналистка Марисса берётся самостоятельно расследовать дело о жестоком убийстве собственного сына. Пока второй ее сын — полицейский — пытается скрыть детали следствия, девушка погибшего решает вступить в опасное расследование и помочь матери. Вместе они должны докопаться до правды, какой бы страшной она ни была.Производство: США / SSS Entertainment, Artemis, Priority PicturesЖанр: триллер, драма, криминал, детективРежиссер: Майлз Джорис-ПейрафитАктеры: Хилари Суэнк, Оливия Кук, Джек Рейнор, Дилон, Норм Льюис, Мэдисон Харрисон, Хоппер Пенн, Карен Элдридж, Jason Giampietro, Маджестик ТиллманПеревод: Дублированный (Велес)Язык озвучки: Русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB4E18B7FA5ECC74128354BDD1013ABBC704E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698965   (118186) от 11.02.2024
-
-Укус / Bite (2022) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Две молодые мошенницы, Нина и Яз, ввязываются в очень опасную аферу, связанную с дерзким ограблением банды наркоторговцев. Однако затея проваливается, и девушки в спешке сбегают от преследователей. По дороге они встречают безобидную гостеприимную старушку Берилл из пригорода, и думают, что она станет легкой мишенью для ограбления. Вскоре Нина и Яз понимают, что, (   Читать дальше...   )Производство: Великобритания / ArthrofilmЖанр: ужасы, драмаРежиссер: Джеймс ОуэнАктеры: Шиан Дэнован, Нанси Нсуе, Аннабель Лэнйон, Энтони Айлотт, Стюарт Сешнс, Синди Скотт Джонстон, Джек Лой, Victor Itang, Пол Бэйли, Джон КэмплингПеревод: Многоголосый профессиональный (Официальный)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B0156A4D1862443305FC6CCED733A51612259F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698959   (118182) от 11.02.2024
 
 Разборки в стиле Кунг-фу / Kung Fu (2004) WEBRip [H.264/1080p-LQ] [Open Matte]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118182.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118072.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118067.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118065.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118064.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118062.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118038.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118037.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118025.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118014.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118011.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117975.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117904.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117887.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117880.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117848.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117794.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117751.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117727.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117695.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117673.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117672.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117670.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117663.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0C7B2DB0EF793D250B1A008153D71CA062ACF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823141   (117594) от 10.10.2025
+
+Что ещё остаётся / What Still Remains (2018) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потерявшая свою семью молодая девушка выживает в мире, охваченном смертельной болезнью. Когда одинокий путник предлагает ей место в своей общине, героине приходится выбирать между возможностью лучшей жизни и риском довериться ему.Производство: США, Strike the Sun EntertainmentЖанр: триллер, драма, фантастикаРежиссер: Джош МендозаАктеры: Лулу Антарикса, Колин О’Донохью, Мими Роджерс, Дон Норвуд, Джефф Кобер, Питер О’Брайен, Рошон Феган, Сиена Гоинс, Крис Эллис, Тобиаш ЭлинекПеревод: Многоголосый любительскийЯзык озвучки: Русский, АнглийскийСубтитры: русские (forced), английскиеПродолжительность: 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5B0C4D7F6E21F4875B00CBEF6FFDDDC9E27486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823168   (117561) от 10.10.2025
+
+Лох-Несс / Loch Ness (1996) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117561.jpg" />
+</div>
+
+
+###  Подробнее
+
+У озера Лох-Несс неожиданно погибает доктор Эбернетти. Из США прибывает криптозоолог Джонатан Демпси, который должен разоблачить надувательства, связанные с озером Лох-Несс. Он рассчитывает за неделю провести эхолокацию озера и собрать данные, что таинственное ископаемое чудовище, о котором все говорят и пишут, всего лишь миф, раздуваемый и подогреваемый для привлечения (   Читать дальше...   )Производство: США, Великобритания / PolyGram Filmed Entertainment, Working Title FilmsЖанр: фэнтези, приключенияРежиссер: Джон ХендерсонАктеры: Тед Дэнсон, Джоэли Ричардсон, Иэн Холм, Харрис Юлин, Джеймс Фрейн, Кит Аллен, Ник Бримбл, Кирсти Грэхэм, Гарри Джонс, Филип О'Брайен, Джозеф Грег, Джон Дэйр, Джон Вереа, Дебора Уэстон, Вольф КалерПеревод: профессиональный двухголосый (HTB), авторский (AVO Сергей Визгунов; Юрий Сербин), любительский одноголосый (NIKA L (VHS))Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBD6C3CB40B791675991737B35393965BFAC21D
 ```
 
 https://mybot314.ru/tekegram_catalog/

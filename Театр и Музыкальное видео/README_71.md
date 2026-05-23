@@ -1,107 +1,3 @@
-###  Публикация: 1307851   (554427) от 12.06.2019
-
-Квартирник НТВ у Маргулиса. Группа "Несчастный случай" (08.06.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске «Квартирника» атмосферную студию пришла популярная российская рок-группа «Несчастный случай». Образованная в далеком 1983 году Алексеем Кортневым и Валдисом Пельшем группа прошла путь от студенческого дуэта до мегапопулярного театрально-музыкального коллектива, выступающего на лучших площадках России и зарубежных стран. Артисты исполнили свои самые (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C51B65F58A22D64B0F87EE68BFF04A1C061F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538471   (553441) от 25.08.2016
-
-Лесь Подервянский - Павлик Морозов / Лесь Подерв'янський - Павлік Морозов (2012) DVDRip [UKR]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эпическая трагедия "ПАВЛИК МОРОЗОВ" по пьесе популярного и одновременно скандального украинского драматурга и художника Леся Подервянского.Производство: УкраинаЖанр: Эпическая трагедия, ТеатрРежиссер: Андрей КритенкоАктеры: Евгений Капорин, Елена Репина, Елена Хижная, Владимир Ямненко, Олег Примогенов, Егор Пчелкин, Георгий Фомин, Сергей Калантай, Николай Вересень, Андрей Середа, Светлана Вольнова, Иван Денисенко, Павел Пронтенко, Ирина Стригина, Екатерина ШаминаЯзык озвучки: Украинский. Присутствует ненормативная лексикаПродолжительность: 01:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49FA92F5BE9A340DF63C11391C12CB463F793CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237062   (553209) от 22.07.2018
-
-Владимир Ждамиров. За забором весна (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Владимир Ждамиров и группа Вольный Ветер в Минске! Отличное качество, живой звук! Презентация программы За забором весна. 2015. МинскПроизводство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3B88023ED28DBD4341974090FBC734A983D4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237138   (553198) от 22.07.2018
-
-Стинг. Концерт в „Олимпии“ / Sting a l'Olympia de Paris (13.04.2017) DVB [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концерт в рамках мирового гастрольного тура Стинга «57th & 9th Tour» в поддержку 12-го (одноименного) сольного альбома исполнителя. Выступление было записано в апреле 2017 года в парижском концертном зале «Олимпия». Яркое исполнение новых песен, включая заразительную гитарную композицию «I Can’t Stop Thinking About You» и похожую на гимн «50 000», а также классика (   Читать дальше...   )Телекомпания: Великобритания / EAGLE ROCKЖанр: Документальный, ИскусствоПеревод: Не требуется (нет диалогов и комментариев)Субтитры: Русские, телетекстПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC173EFB59869D00FB72A9D64116D318A034A858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045892   (552861) от 26.08.2016
 
 Николай Римский-Корсаков, Александр Пушкин - Моцарт и Сальери (1962) TVRip
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552861.jpg" />
 </div>
 
 
@@ -137,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552857.jpg" />
 </div>
 
 
@@ -163,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552844.jpg" />
 </div>
 
 
@@ -190,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552794.jpg" />
 </div>
 
 
@@ -217,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552618.jpg" />
 </div>
 
 
@@ -243,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552281.jpg" />
 </div>
 
 
@@ -274,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551381.jpg" />
 </div>
 
 
@@ -300,7 +196,7 @@ Hatebreed - Live Dominance (2008) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551377.jpg" />
 </div>
 
 
@@ -329,7 +225,7 @@ VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550320.jpg" />
 </div>
 
 
@@ -358,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550092.jpg" />
 </div>
 
 
@@ -384,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550014.jpg" />
 </div>
 
 
@@ -411,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549295.jpg" />
 </div>
 
 
@@ -438,7 +334,7 @@ Just Play - Концерт в клубе "Вермель" (2017) WEBRip [H.264/1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549262.jpg" />
 </div>
 
 
@@ -467,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549170.jpg" />
 </div>
 
 
@@ -493,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548765.jpg" />
 </div>
 
 
@@ -522,7 +418,7 @@ Eric Clapton - Live At Baloise Session (2013) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548721.jpg" />
 </div>
 
 
@@ -551,7 +447,7 @@ Santana & McLaughlin: Live at Montreux - Invitation to Illumination 2011 (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548168.jpg" />
 </div>
 
 
@@ -580,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547700.jpg" />
 </div>
 
 
@@ -609,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547647.jpg" />
 </div>
 
 
@@ -638,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547443.jpg" />
 </div>
 
 
@@ -664,7 +560,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547305.jpg" />
 </div>
 
 
@@ -693,7 +589,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547303.jpg" />
 </div>
 
 
@@ -707,6 +603,122 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ED05EC4E38EFC2225FE58593E494774AC392C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694564   (546670) от 29.08.2013
+
+VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alexander Popov - Moscow Subway (Official Music Video)
+02.Ali - Cocoon (Official Music Video)
+03.Armin van Buuren feat. Cindy Alma - Beautiful Life (Official Music Video)
+04.Armin van Buuren feat. Jacqueline Govaert - Never Say Never (Official Music Video)(   Читать дальше...   )Жанр: Музыка, TranceПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4830C0249FD0F1C5AC67F9159372EB956149836A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238537   (546127) от 30.07.2018
+
+Сборник клипов - Lite Fitness от ALEXnROCK часть 1 (2018) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник делал на заказ для фитнесс зала. В него вошли ритмичные клипы с танцевальной поп музыкой периода 2010 - 2018. Он подойдет для любых физических упражнений и танцев, да и просто побалдеть под крутую попсу. Обложка и блин для диска есть в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
+001 Andreea Balan - Trippin
+002 Armin van Buuren feat. Josh Cumbee - Sunny Days (Club Mix)
+003 Alex Spite - Sky(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 03:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37945BF39FFA59100F1EE383AA34A089C2598F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694861   (545822) от 30.08.2013
+
+Серия "SOLOS: The Jazz Sessions" - James Blood Ulmer (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Are You Glad To Be In America?
+02. Black Sheep
+03. Satisfy (Story Of My Life)
+04. Secret(   Читать дальше...   )Жанр: Jazz, harmolodics, free funk, blues, electric bluesПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275F678F173D160DF93338509B5063CF9C607BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694871   (545780) от 30.08.2013
+
+Серия "SOLOS: The Jazz Sessions" - John Abercrombie (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Open Land
+02. Improvisation #3 (Improvisation on How Deep Is the Ocean)
+03. Alice in Wonderland
+04. Jazz Folk(   Читать дальше...   )Жанр: Progressive jazz, jazz fusion, post-bop, hard bop, avant-garde jazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F121EA600F57B12642BC96BF6DD5459A3E3D07
 ```
 
 https://mybot314.ru/tekegram_catalog/

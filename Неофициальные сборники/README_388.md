@@ -1,32 +1,3 @@
-###  Публикация: 1051884   (531065) от 12.09.2016
-
-VA - Trance 55 Week Start Melody (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila meets Roger Shah & Susana  -  Unbreakable (Extended Mix)  7:46
-02. Richard Durand  -  Dark Rising (Original Mix)  6:09
-03. Rene Ablaze & Jam Da Bass  -  Sunstream (Original Mix)  6:13
-04. Alan Morris  -  Julie (Extended Mix)  6:36(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 05:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563BEC15738E102022FDE47E4A2EE3737AEE7483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051730   (531015) от 12.09.2016
 
 VA - Sunshine And Happiness House Mixtape (2016) [MP3|250-320 Kbps] <Progressive, Club House, Dance>
@@ -35,7 +6,7 @@ VA - Sunshine And Happiness House Mixtape (2016) [MP3|250-320 Kbps] <Progressive
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531015.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Now Thats What I Call Drivetime (Pre-Release) (2016) [MP3|128-320 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530998.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Kiss FM - Top-40 (09.08.2012) [MP3|320 кб/с]<Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530758.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ VA - Музыкальные Новинки Интернета Осенний В�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530578.jpg" />
 </div>
 
 
@@ -157,7 +128,7 @@ VA-Sky.Fm - Dreamscapes (2010) [MP3|256 кб/с]<Chillout, Lounge, Downtempo>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530383.jpg" />
 </div>
 
 
@@ -192,7 +163,7 @@ VA - Download Now (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529983.jpg" />
 </div>
 
 
@@ -221,7 +192,7 @@ Bombay Lounge - Sexy Lounge Music Sensuality Chill Songs Summer Collection (2015
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529944.jpg" />
 </div>
 
 
@@ -250,7 +221,7 @@ VA - Best Of Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529940.jpg" />
 </div>
 
 
@@ -279,7 +250,7 @@ VA - Club Nights Summer Edition (2015) [MP3|320 кб/с]<Electro, Future House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529938.jpg" />
 </div>
 
 
@@ -308,7 +279,7 @@ VA - Summer Breeze (2015) [MP3|320 кб/с]<Vocal, Euro, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529838.jpg" />
 </div>
 
 
@@ -337,7 +308,7 @@ VA - Sexy Ambient Music (2015) [MP3|320 кб/с]<Ambient, Lounge, ChillOut>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529828.jpg" />
 </div>
 
 
@@ -366,7 +337,7 @@ VA - Best Of Eurodance (2015) [MP3|224 - 320 кб/с]<Eurodance, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529724.jpg" />
 </div>
 
 
@@ -395,7 +366,7 @@ VA - Gym Is Better Motivation (2015) [MP3|320 кб/с]<Progressive House, Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529723.jpg" />
 </div>
 
 
@@ -424,7 +395,7 @@ VA - Золотые семидесятые vol. 4-6 (2017) [MP3|192-320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529562.jpg" />
 </div>
 
 
@@ -453,7 +424,7 @@ VA - Record Super Chart #497 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529559.jpg" />
 </div>
 
 
@@ -482,7 +453,7 @@ VA - EuroDance Party Vol.4 (2017) [MP3|320 Kbps] <Eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529552.jpg" />
 </div>
 
 
@@ -511,7 +482,7 @@ VA - Мега Хиты Discoteka 80 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529536.jpg" />
 </div>
 
 
@@ -540,7 +511,7 @@ VA - My Favourite Hits of 1969 (9CD) от DON Music (2017) [MP3|320 Kbps] <Blues
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529474.jpg" />
 </div>
 
 
@@ -569,7 +540,7 @@ Fair Warning - Beautiful Rock Ballads (Compiled by Виктор31Rus) (2017) [MP
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529465.jpg" />
 </div>
 
 
@@ -598,7 +569,7 @@ VA - Dancing Machines: Techno House Set (2016) [MP3|320 Kbps] <Minimal, Tech Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529293.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ VA - LUXEmusic - Dance Super Chart Vol.85 (2016) [MP3|192~320 Kbps] <House, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529277.jpg" />
 </div>
 
 
@@ -656,7 +627,7 @@ VA - Promo September Technology (2016) [MP3|256-320 Kbps] <UK Garage, Speed Gara
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529267.jpg" />
 </div>
 
 
@@ -683,7 +654,7 @@ VA - Только хиты Хит FM 6 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529069.jpg" />
 </div>
 
 
@@ -712,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528721.jpg" />
 </div>
 
 
@@ -741,7 +712,7 @@ VA - Sexy & Deep Feelings (2015) [MP3|320 кб/с]<Deep House, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528694.jpg" />
 </div>
 
 
@@ -755,6 +726,35 @@ VA - Sexy & Deep Feelings (2015) [MP3|320 кб/с]<Deep House, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AEB2FAD967CDEB8A2CA6DF5BB002797C7D93554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927603   (528689) от 13.08.2015
+
+VA - Dance Around The World (2015) [MP3|320 кб/с]<Club, Indie Dance, Nu Disco, Funky, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cicada - The Things You Say (Modjuno & Casey Cover Remix)
+02. Ferreck Dawn - Heaven Sent (Original Mix)
+03. Major Lazer x DJ Snake feat. MO - Lean On (TVKiller Remix)
+04. Man Of Goodwill Vs Lala Hattaway – My Everything (Original Mix)(   Читать дальше...   )Жанр: Club, Indie Dance, Nu Disco, Funky, HouseПродолжительность: 09:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F28C44FDC338587DC40B507F190E35D157EBC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

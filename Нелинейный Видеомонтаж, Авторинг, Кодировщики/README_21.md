@@ -1,55 +1,3 @@
-###  Публикация: 1704013   (114755) от 02.03.2024
-
-VSDC Video Editor Pro 9.1.5.532 [Multi/Ru] (акция Winning PC)
-
->>След.
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ищете профессиональный видеоредактор, в котором сочетаются широкий функционал и низкие системные требования? Встречайте VSDC Pro. VSDC Pro создан для тех, кто хочет освоить нелинейный монтаж и не готов при этом работать в программах с заоблачной стоимостью. VSDC идеально подойдёт как для быстрой обработки видео, так и для создания роликов с нуля с использованием (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C93CF002FC856BA4105E94AB1D166D6687807C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745271   (105142) от 25.08.2024
-
-Aiseesoft Video Converter Ultimate 10.8.68 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9BC96957FEE953FEE51A24671E8A0E58AEA4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745270   (105104) от 25.08.2024
 
 Aiseesoft Video Converter Ultimate 10.8.68 Portable by 7997 [Multi/Ru]
@@ -58,7 +6,7 @@ Aiseesoft Video Converter Ultimate 10.8.68 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105104.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Xilisoft AVI to DVD Converter 7.0.1.1122  Portable [Русский]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102128.jpg" />
 </div>
 
 
@@ -116,7 +64,7 @@ CyberLink PowerDirector 2026 Ultimate 24.0.1003.0 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101601.jpg" />
 </div>
 
 
@@ -142,7 +90,7 @@ StaxRip 2.50.3.5 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101068.jpg" />
 </div>
 
 
@@ -169,7 +117,7 @@ Adobe Media Encoder 2025 25.5.0.13 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100840.jpg" />
 </div>
 
 
@@ -195,7 +143,7 @@ Fast Video Cutter Joiner 6.9.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100805.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ Flash Decompiler Trillix 5.3.1370.0 Portable [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86267.jpg" />
 </div>
 
 
@@ -251,7 +199,7 @@ DivFix++v0.34 [Multi/Русский]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83998.jpg" />
 </div>
 
 
@@ -278,7 +226,7 @@ Camstudio 2.6 Build r294 Beta [Английский/Немецкий]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83981.jpg" />
 </div>
 
 
@@ -304,7 +252,7 @@ Kdenlive 25.04.3 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64900.jpg" />
 </div>
 
 
@@ -330,7 +278,7 @@ Wondershare UniConverter Ultimate 15.5.3.36 (х64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61589.jpg" />
 </div>
 
 
@@ -356,7 +304,7 @@ AquaSoft Stages 15.2.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61523.jpg" />
 </div>
 
 
@@ -382,7 +330,7 @@ VideoProc Converter AI 6.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61102.jpg" />
 </div>
 
 
@@ -408,7 +356,7 @@ WonderFox HD Video Converter Factory Pro 27.0 RePack (& Portable) by TryRooM [Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61059.jpg" />
 </div>
 
 
@@ -434,7 +382,7 @@ Bigasoft Total Video Converter 6.6.0.8858 RePack (& Portable) by TryRooM [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60778.jpg" />
 </div>
 
 
@@ -460,7 +408,7 @@ Spine 2D Pro v3.8.75 x64 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58460.jpg" />
 </div>
 
 
@@ -486,7 +434,7 @@ Cyberlink ColorDirector Ultra 12.1.3723.0 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57736.jpg" />
 </div>
 
 
@@ -512,7 +460,7 @@ Apeaksoft Video Editor 1.0.50 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57613.jpg" />
 </div>
 
 
@@ -538,7 +486,7 @@ Blackmagic Design DaVinci Fusion Studio 18.6.6 Build 4 (x64) Portable by 7997 [M
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57600.jpg" />
 </div>
 
 
@@ -565,7 +513,7 @@ MAGIX Video Pro X16 22.0.1.216 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57361.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ MediaHuman Video Converter 2.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55950.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ Machete 5.1 Build 44 Repack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55942.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ HitFilm Pro 11.0.8319.47197 (x64) RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55551.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ MAGIX Movie Studio 2025 24.0.1.199 Suite (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55262.jpg" />
 </div>
 
 
@@ -682,6 +630,59 @@ Movie Studio 2025 - это мощное, но простое в использо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1154F1E9E0345F15DFEEE04C7974A8E32B6D80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728199   (54233) от 06.06.2024
+
+Boris FX Silhouette 2024.0.0 Build 254 (x64) RePack by KpoJIuK [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий в отрасли инструмент для ротоскопирования и рисования оснащен основными функциями создания композиций. Silhouette поддерживает более 400 узлов VFX, в том числе Boris FX Sapphire, Mocha Pro и Particle Illusion.
+Ведущие художники уже более пятнадцати лет используют Silhouette для создания крупнейших фильмов Голливуда. Созданный художниками по визуальным эффектам (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C24380C92B7D950BB002C737492B9166472DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728688   (53987) от 08.06.2024
+
+CyberLink PowerDirector 2024 Ultimate 22.5.3003.0 RePack (x64) [Multi]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53987.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и др. (Русского нет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9614A9497E91101F44769AE39DB5A64BB8F3E032
 ```
 
 https://mybot314.ru/tekegram_catalog/

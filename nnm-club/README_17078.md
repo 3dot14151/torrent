@@ -1,31 +1,189 @@
-###  Публикация: 578928   (350435) от 22.11.2012
+###  Публикация: 1256872   (350034) от 24.10.2018
 
-VA - Зарубежная дискотека (2012) [MP3|320 кб/с]<Pop>
+Guardians of Time - Tearing Up the World (2018) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tearing Up the World
+02. Raise the Eagle
+03. We'll Bring War
+04. Burning of Rome(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB0583A3EF5E717791A5FE2EDC291E07BB03BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256801   (350033) от 24.10.2018
+
+Duplicate Photos Fixer Pro 2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
+
+Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD8DECDD2FCBBE6F55786EBFD14797796626F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256913   (350032) от 24.10.2018
+
+VA - Fern World: Magical Sounds Of Lo Fi Music (2018) [MP3|320 Kbps] <Lo Fi, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350032.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ambitus - Eternal Sunset
+002. Citizen Maze - Serenity In The Woods
+003. Field Works - Imprints
+004. Matas - Flutter(   Читать дальше...   )Жанр: Lo Fi, LoungeПродолжительность: 07:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25211E2848344D8DE595867E948488625E85422F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256884   (350031) от 24.10.2018
+
+Canary Mail - Encrypted Email 2.14 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF77A38968074A9E62E10E1DB5252D1FAABC12E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578075   (350029) от 21.09.2022
+
+Opera 91.0.4516.20 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDD5CFE9DA243429F001C94D9D047E684960B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257048   (350028) от 24.10.2018
+
+Олег Яковлев - 1 альбом + 2 сингла (2013-2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олимпиада 14 (4:12)Жанр: PopПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4C1FE3DBE405F692F15F072519C46350F2D472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329387   (350027) от 06.10.2019
+
+VA - Dj Nejtrino: Remixes (2019) bootleg [320 kbps|Mp3|CBR]<Pop, Club, House>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Secret Service - Ten O, Clock Postman
- 02 - Eraption - One Way Ticket
- 03 - Murray Head - One Night In Bangkok
- 04 - Dschinghis Khan - Rocking Son Of Dschinghis Khan
- 05 - Laura Branigan - Selfcontrol
- 06 - Neoton Familia - Marathon
- 07 - Fancy - Flames Of Love
- 08 - Videokids - Do The Rap
- 09 - C.C. Cath - Midnight Gambler
- 10 - Arabesque - Midnight DancingЖанр: PopПродолжительность: 04:36:25
+1.  Artik & Asti -  Номер 1 (Nejtrino & Baur Radio Mix)  (3:10)
+2.  A-Sen & Samoel -  Сладкие ночи (Nejtrino & Baur Radio Mix)  (3:19)
+3.  A-Sen feat DJ Nejtrino & DJ Baur -  Я Рисую (Radio Edit)  (3:47)
+4.  Burito -  По волнам (Nejtrino & Baur Radio Mix)  (3:04)(   Читать дальше...   )Жанр: Pop, Club, HouseПродолжительность: 01:50:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CD21EB2EC1E220EF06647E0F726D614456A3D5E
+magnet:?xt=urn:btih:EEB8807D44494E0741C3BF8E4D5BA90F7C301156
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,25 +191,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579288   (350430) от 22.11.2012
+###  Публикация: 1256951   (350026) от 24.10.2018
 
-Джон и Кэтрин Патерсон | Каменное сердце [2012] [FB2]
+Simple Recorder PRO 1.6.2 [Multi/Ru]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каменное сердце - это волшебная история, придуманная известным сказочником Иденом Филлпотсом. Писатели Кэтрин и Джон Патерсон предложили новое прочтение этой истории, а художник Джон Рокк проиллюстрировал ее сказочными картинками.Формат: FB2
+Вы можете найти его значок в меню справа. Нажмите его, чтобы открыть меню. Вы найдете этот значок в панели инструментов. Нажмите на этот значок, чтобы начать запись, а также чтобы ее окончить. Нажмите на правую кнопку мыши (или command) и значок, чтобы открыть меню.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Happy TapПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C093D8E34F17DB0D2FDAA09B2C3C48F871CDCE9
+magnet:?xt=urn:btih:53DB57D1BB03DBC29F11DE6FC898670897DC5C66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,25 +217,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579179   (350429) от 22.11.2012
+###  Публикация: 1256939   (350025) от 24.10.2018
 
-Газета | Мой друг компьютер №23 [ноябрь 2012] [PDF]
+Acon Digital - Mastering Suite 1.0.1 VST, VST3, AAX (x86/x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acon Digital Mastering Suite состоит из пяти плагинов для мастеринга аудио, которые были разработаны для создания максимальной прозрачности сигналаЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488E0A94BA8B824E207CE1BB483413356B59E0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256966   (350023) от 24.10.2018
+
+Дмитрий Емец | Таня Гроттер и посох волхвов (2003) [MP3]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мой друг компьютер - газета для пользователей ПК, в котором рассказывается, как выбрать компьютерную технику, установить и настроить программы, модернизировать компьютер с минимальными финансовыми затратами.Формат: PDF
+Между Потусторонними Мирами и миром магов существует строгий закон равновесия. Ничто не может перейти из мира в мир, не нарушив хрупкого баланса сил. Но вот веками оберегаемое равновесие нарушено: из Потусторонних Миров похищено нечто исключительно ценное… Одновременно по Таниной неосторожности в зеркале поселяется сильный дух, который открывает проход между мирами. (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 11:24:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAFFF81D2119F4E7DCD151C2F859BF35ACF1C3E9
+magnet:?xt=urn:btih:70E95A53EE132D2E6A04E31A52BF31417EADE0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,34 +269,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579367   (350428) от 22.11.2012
+###  Публикация: 1256876   (350022) от 24.10.2018
 
-Christian Cannabich - Contemporaries of Mozart Symphonies Matthias Bammert & London Mozart Players (2006)/[FLAC|Lossless]<Classical, Symphony>
+Impellitteri - The Nature of the Beast (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Классика
->>Оркестровая (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Symphony in G major
-01. Allegro  (06:13)
-02. Andantino    (04:24)
-03. Minuet And Trio   (04:26)
-04. Presto Assai    (04:45)
-Symphony in A major
-05. Allegro    (03:17)
-06. Andante    (03:44)
-07. Allegro Ma Non Tanto   (04:55)
-Symphony in E flat major, No 57(   Читать дальше...   )Жанр: Classical, Symphony
+01. Hypocrisy
+02. Masquerade
+03. Run for Your Life
+04. Phantom of the Opera (Andrew Lloyd Webber Cover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93954FC0820F5814F461A92986EBAF9036CE246B
+magnet:?xt=urn:btih:9AB882591BAEDA3210EED7BD9D87886408D85499
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -120,25 +298,267 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 578524   (350427) от 22.11.2012
+###  Публикация: 1578104   (350021) от 21.09.2022
 
-DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
+VideoSolo Video Converter Ultimate 2.2.16 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертировать видео / аудиоматериалы между форматами 300 +
+VideoSolo Video Converter Ultimate позволяет конвертировать практически все существующие форматы, включая AVI, FLV, MP4, M4V, MKV, MOV, 3GP, 3G2, SWF, WMV, ASF, AAC, AC3, AIFF, FLAC, M4A, MP3, OGG, WAV, WMA и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.5Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1C98BEC9EBBAD031719B0CF9594B0C4D9D5AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329827   (350020) от 06.10.2019
+
+HDlife: Путешествия / Европа / HDlife: Smart Travels / Europe (2012) HDTV [H.264/1080i] (Часть 2, 14 фильмов)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Travels: Европа - от города знаменитой статуи Давида, работы Микеланджело, до неоновых ночных клубов Парижа и уютных деревенских церквей, предлагает лучшие сюжеты о Европе от Руди Максы.Производство: США, Small World Productions Inc., SeattleЖанр: Документальный, история, путешествияПеревод: Одноголосый закадровый, профессиональный (Видеопродакшн)Субтитры: отсутствуютПродолжительность: серии x ~00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0D3EA637C8A47052474E271556ECA23BC5ED75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254745   (350019) от 10.11.2010
+
+Bully: Scholarship Edition [Wii] [PAL] [Multi 5] (2008)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дети злы и жестоки — этот феномен объяснит любой психолог. Но что делать тому, на кого направлена подростковая агрессия? Пространные рассуждения ученых нужны ему в последнюю очередь. Привыкайте решать детские проблемы по-взрослому. Оказавшись в студенческом городке, забудьте о жизни на "гражданке". Новая среда требует иного, гораздо более жесткого поведения. (   Читать дальше...   )Разработчик: Rockstar VancouverЖанр: Action, adventureЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEF7738A9393AC293BFD574C27CD81D1ABD6A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577731   (350018) от 21.09.2022
+
+Motley Crue & Vince Neil - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motley Crue это целая эпоха в мире музыки. В сборник вошли лучшие песни группы. Некоторые альбомы сохранил полностью, из каких то, что то вырезал. Так что, любители ранних полноценных альбомов проходите с камнями мимо. Начиная с 94 года, как и многие рокеры того времени, команда отравилась альтернативой и слушать их стало пыткой. Очухались ребята только к 2000 году. (   Читать дальше...   )01. Motley Crue - Wild Side
+02. Motley Crue - Girls, Girls, Girls
+03. Motley Crue - Dancing On Glass
+04. Motley Crue - Bad Boy Boogie(   Читать дальше...   )Жанр: RockПродолжительность: 05:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577983   (350017) от 21.09.2022
+
+DxO PhotoLab 5 ELITE Edition 5.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DFD7E3BC6F80D1F61C3966676B1A66FB8E0109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257008   (350016) от 24.10.2018
+
+360 Security Browser 10.0.1472.0 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350016.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Security Browser - китайский браузер, аналог 360 Extreme Explorer, c возможностью переключаться между движками Webkit и IE.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C417AE0E40DED8F37B9555FC1589F7E792776F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329826   (350015) от 06.10.2019
+
+HDlife: Путешествия / Европа / HDlife: Smart Travels / Europe (2012) HDTV [H.264/1080i] (Часть 1, 11 фильмов)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Travels: Европа - от города знаменитой статуи Давида, работы Микеланджело, до неоновых ночных клубов Парижа и уютных деревенских церквей, предлагает лучшие сюжеты о Европе от Руди Максы.Производство: США, Small World Productions Inc., SeattleЖанр: Документальный, история, путешествияПеревод: Одноголосый закадровый, профессиональный (Видеопродакшн)Субтитры: отсутствуютПродолжительность: серии x ~00:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D610A585C03F680C19FA3188519790EC105B753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256842   (350013) от 24.10.2018
+
+VA - Relaxing Meditation (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flokkendof - Lounge Experience (Original Mix) 4:06
+02. Alex Barattini - My Play (Chill Out Mix) 4:12
+03. Gold 'n' Chic & Scarlet Blue - Cool Girl (Lounge Version) 4:28
+04. Glory - Sun's Rise (Lounge Version) 2:50(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE409C5F213F3417B49E920DF12926E453C24C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578164   (350012) от 21.09.2022
+
+Spectrasonics Omnisphere Software 2.8.4d (x64) Update [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновление для флагманского синтезатора Spectrasonics Omnisphere - инструмент необычайной мощности и универсальности. Лучшие исполнители во всем мире полагаются на Omnisphere как на основной источник звукового вдохновения. Это отмеченное наградами программное обеспечение объединяет множество различных типов синтеза в один удивительно звучащий инструмент, который (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9D5A6C0CB8BEE247CFFB76EF4C8E1DC95ADEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329706   (350011) от 06.10.2019
+
+Квартирник НТВ у Маргулиса. Грузинский вечер (05.10.2019) WEB-DL [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
->>Музыкальные клипы
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ElectroПродолжительность: 00:03:27
+В эту субботу на «Квартирнике НТВ у Маргулиса» состоялся настоящий праздник: в уютной атмосфере певец Ираклий Пирцхалава, джазовый музыкант Гия Дзагнидзе, музыкант Нэш Тавхелидзе, актриса Екатерина Волкова и режиссер Михаил Довженко исполнили народные песни и произнесли много грузинских тостов. Артисты пришли к Евгению не с пустыми руками: они преподнесли ему настоящий (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9B5B64C898F8C0023269FFD970B197C07F56AC6
+magnet:?xt=urn:btih:320044EA26FBF0216D5CECFDFD0C569B6AB22AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -146,25 +566,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579445   (350425) от 22.11.2012
+###  Публикация: 1329607   (350010) от 06.10.2019
 
-Digital Artist Pete Tapang [Графика]
+Михаил Бочкарёв | Москва-Поднебесная (2016-2017) [MP3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Artist Pete Tapang
+"Москва-Поднебесная, или Твоя стена - твоё сознание"
+
+В небе над Москвой пропадают самолёты, Останкинская башня превращается в источающую непотребности аорту, а люди, пьющие водку, оборачиваются самыми натуральными свиньями, и во всей этой неразберихе явно прослеживается троица главных действующих лиц: молодой человек Василий, его ангел хранитель и холодильник (   Читать дальше...   )Жанр: Фэнтези, КомедийныйПродолжительность: 07:39:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4326C2BC685DF38FCE0D6FFF303620FCB0BF0750
+magnet:?xt=urn:btih:AB690AA2691935F115C6176345AF9019D59E1EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,25 +594,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 255941   (350414) от 10.11.2010
+###  Публикация: 1329766   (350009) от 06.10.2019
 
-Самурай / Le Samourai (1967) DVD5
+Анна Калинкина | Метро 2033: Сетунь (2019) [FB2]
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (DVD)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наёмный убийца Джеф Костелло выполняет заказ, убивая незнакомого ему человека в ресторане. Во время облавы он попадает в полицию. Любовница подтверждает его алиби; свидетельница-пианистка говорит, что не видела его в ресторане. Костелло выпускают, но он оказывается между двух огней: с одной стороны — заказчики убийства, которые считают, что он провалился, а с другой (   Читать дальше...   )Жанр: Детектив, Триллер, ДрамаРежиссер: Жан-Пьер МельвильАктеры: Ален Делон, Франсуа Перье, Натали Делон, Кати Розье, Жак Лерой, Мишель Буарон, Жан-Пьер ПозьеПеревод: Двухголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:45:12
+Роман из межавторского цикла «Вселенная Метро 2033»
+
+Сетунь. Древнее таинственное место на территории нынешней Москвы. Предания прошлого смешиваются здесь с историями настоящего и будущего, и, несмотря на произошедшую Катастрофу, тут кипят нешуточные человеческие страсти.
+(   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BD0A7BFABABD29EF5CB2575B570F652EB4A31AA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,26 +623,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 256526   (350413) от 10.11.2010
+###  Публикация: 1329654   (350008) от 06.10.2019
 
-Вера Ковальчук | Собрание сочинений (16 книг) [2005-2010] [FB2]
+Лев Симкин | Собибор / Послесловие (2019) [FB2]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-...Магия вернулась в мир, и привычный порядок рухнул. Некоторые пи простых обывателей превратились в чародеев, и жизнь остальных стала зависеть от их капризов. ОСH — Организация Спецназначения — была создана для того, чтоб навести в новом мире хоть какой-то порядок. Но захватившие власть маги не слишком-то расположены расставаться с нею. Справиться сразу со множеством врагов не под силу даже сильной Организации и даже с помощью союзников из иного мира. Нечеловеческая магия, подкрепленная мощью источников силы, кажется необоримой. Невозможно победить сразу весь мир. Правда, среди сотрудников ОСH встречаются не только люди...
-ФЭНТЕЗИ ...Среди множества миров есть один, который жители его называют Провал. Власть там принадлежит владеющим магией бессмертным, а верховная власть – сильнейшему из них, чье имя – Руин Арман. Не было еще мага могущественней его, но чем больше могущества – тем больше кругом зависти, а чем больше власть – тем больше врагов.Формат: FB2
+В основе этого издания – дополненная и переработанная книга “Полтора часа возмездия” (2013), вызвавшая широкий резонанс. В ней Львом Симкиным впервые была рассказана биография Александра Печерского – советского офицера, возглавившего восстание в нацистском лагере смерти Собибор, предназначенном для “окончательного решения еврейского вопроса”. История героя основана (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15C014EFA61A0871F64CAEF85CAF9A7BEB4755CA
+magnet:?xt=urn:btih:3ADEDACAA1129857158EEEA7E346B4021611B5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +649,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577800   (350404) от 21.09.2022
+###  Публикация: 1329702   (350007) от 06.10.2019
 
-4 Chambers Of Ivory - ...A Bitter Taste Of Sin (2001) EP [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+Enchanted Kingdom 6: Arcadian Backwoods (2019) [En] (1.0) Unofficial [Collector's Edition]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introduction (00:50)
-02. The Devil Inside (02:40)
-03. Closed Doors (04:40)
-04. Almost Sterile (04:00)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:14:56
+Продолжение увлекательной мистической серии игр Enchanted Kingdom. Добро пожаловать в Аркадию! Почти сто лет тому назад произошла эпическая битва между аркадианами и кинзулами, поэтому многое забылось, а мистические воины стали легендой... или так только казалось? До вашей Академии дошли слухи о том, что в Аркадийском Лесу обитатели тех мест видели кинзулов. Это (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01C2BB7FEAF60C9970BA51DEEA8026A69C64BCE6
+magnet:?xt=urn:btih:F31C03F907D7E66AF30E1EDF215C2C83EED5E420
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,487 +675,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577802   (350403) от 21.09.2022
+###  Публикация: 1329707   (350006) от 06.10.2019
 
-Aegeon - Nocturnal Glorification (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+Танцы (05.10.2019) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 8)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Transient, Ethereal Veil
-02. Glorification Of The New Pandemia
-03. From The Sins In Perpetual Darkness
-04. Awakening(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:54
+На ТНТ стартует новый сезон шоу «ТАНЦЫ» – проекта, который давно вышел за рамки развлекательного шоу и стал для танцовщиков и миллионов зрителей со всей России и ближнего зарубежья чем-то большим. «ТАНЦЫ» – это бренд, «ТАНЦЫ» – это проект национального масштаба, на котором выросло целое поколение, «ТАНЦЫ» – это сотни изобретательных постановок от лучших хореографов (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:34:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F26EF8F20F0E63428FF6DADCEA1C9B12936A9AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578051   (350402) от 21.09.2022
-
-High Grind - The Loud Bong Chronicles (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01 Skatopia
-02 Hombre de Conocimiento
-03 Vortice (Parte II)
-04 Realidad aparte(   Читать дальше...   )Жанр: Heavy Psych, Stoner, DoomПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A437207E1E5C9C2A67BBD2BCA6C60D98AE06B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577928   (350401) от 21.09.2022
-
-Spectrum Mortis - Bit Meseri -The Incantation (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Doom Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. An [00:00:58]
-02. Utu-Abzu [00:06:07]
-03. U-Anne-Dugga [00:07:34]
-04. Bit Meseri [00:05:58](   Читать дальше...   )Жанр: Black Metal, Doom Metal, Death MetalПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD9C504345A93CB1C4488AFB1340813213F0F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577842   (350400) от 21.09.2022
-
-Osculant Brutality - The Ides (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude: The Soothsayer [00:04:42]
-02. A Triumphant Return [00:00:57]
-03. The Ides [00:07:13]
-04. A Terrible Choice [00:00:40](   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365BD989A76AB9E0AE1FBA5D9EBA43BAF06FAA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577827   (350399) от 21.09.2022
-
-The Mighty Wraith - Elegies (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. To Fall And Rise Again
-02. Bridge To Betrayal
-03. Face In The Mirror
-04. Deceitful Intentions(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EBC926D32709EAFE8296E27A2A21C52903C01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577933   (350398) от 21.09.2022
-
-Massface - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Born (Instrumental) [00:03:15]
-02. Now (Instrumental) [00:03:14]
-03. Remember (Instrumental) [00:03:50]
-04. Black Water (Instrumental) [00:03:28](   Читать дальше...   )Жанр: Alternative Metal, Progressive RockПродолжительность: 3 CD, 01:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECE5C6DEF1D7F54DC6A28287900206D18E02B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577846   (350397) от 21.09.2022
-
-Aeternia - The Quest (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01 - Gates Of Aeternia (01:25)
-02 - Chasing The Wind (03:45)
-03 - Siren's Wrath (03:43)
-04 - Across The Aegean (01:05)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384B3309A19A217375B738DAF21E8531C62F463C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577955   (350396) от 21.09.2022
-
-Scarlean - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. The Hand on Your Skin [00:04:28]
-02. A Wolf Inside [00:04:52]
-03. Wake up Right Now [00:05:48]
-04. Keep Your Secret [00:04:09](   Читать дальше...   )Жанр: Alternative, Progressive MetalПродолжительность: 3 CD, 02:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101690D9613CF5731AB00F1D910BEFCC19BA2A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578022   (350395) от 21.09.2022
-
-Red Holloway - Legends Of Acid Jazz (1963, 1965) 1998, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Monkey Sho' Can Talk [3:41]
-02. Brethren [5:10]
-03. Crib Theme [10:16]
-04. The Burner [10:39](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104163C5DA359B2F6D321FF4390DDC24D2F630ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578039   (350394) от 21.09.2022
-
-Adventure - Tales Of Belle Part 2 - Unveiled By Fire (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Cruel Mind (5:08)
-02. I Finally Knew (5:37)
-03. Belle's Lament The Heat (3:01)
-04. Absurd Scenes (4:46)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog
-Country: Trondheim, NorwayПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7356FA7A2D843EBD8FF6493B5721614650BB211F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578048   (350393) от 21.09.2022
-
-Hellcord - Digital Murder (2022) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Blackened Sky
-02.Ignite
-03.What Nemesis Means
-04.Pain Is Eternal(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17257F0100BA9E3C0F2332FD9CB2814D668C2868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578056   (350392) от 21.09.2022
-
-Mobius - Le Ne Merd Irni (2022) [MP3|320 Kbps] <Progressive Rock, Art Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Tavasszal oszre (04:14)
-02. Altato (04:04)
-03. Erdo (04:09)
-04. Csendelet (04:10)(   Читать дальше...   )Жанр: Progressive Rock, Art Rock, Female VocalПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3932E400B3869DDAA2860265CBE65DD8ED8816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329603   (350391) от 06.10.2019
-
-7th Circle - Collective Minds (2000) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Collective Minds
-02. Broken Jar
-03. Silent Sentence
-04. Black Feathers(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0383F7FD58CCC770D1CC546B2FED50E7745ABD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329824   (350390) от 06.10.2019
-
-James Dymond - Live @ Tranception, Taipei, Taiwan 2019-09-28 [MP3|320 Kbps] <Trance, Goa / Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Species & Menog - One Mind
-02. Starlab & Mono Sapiens - Inside The Atom
-03. Astrix - Disco Valley (Volcano & Outsiders Remix)
-04. Bryan Kearney - Adrenaline (James Dymond Remix)(   Читать дальше...   )Жанр: Trance, Goa / Psy-TranceПродолжительность: 02:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE154B5A17D0684C22133AF821CD6D1BF9C5735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329609   (350389) от 06.10.2019
-
-Crystal Eyes - In Silence They March (2000) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Time Flight 06:17
-02. Cursed And Damned 04:43
-03. Sons Of Odin 06:22
-04. The Grim Reaperґs Fate 05:10(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6E2E69A6291E975A8175BF32CF74BDBE1788CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723179   (350362) от 20.11.2013
-
-Харчевня в Шпессарте / Das Wirtshaus im Spessart (1957) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Графиня Франциска с женихом едут в свой родовой замок Зандау. На ночь им приходится остановиться в харчевне в глухом месте Шпессарт. Ночью в харчевню врываются бандиты, чтобы похитить графиню и получить за нее выкуп…Производство: Германия (ФРГ) / Bavaria Film, Georg Witt-FilmЖанр: Мюзикл, Комедия, ПриключенияРежиссер: Курт ХоффманнАктеры: Лизелотте Пульвер, Карлос Томпсон, Гюнтер Людерс, Рудольф Фогель, Хуберт фон Майеринк, Херберт Хюбнер, Пауль Эссер, Ина Петерс, Кай Фишер, Вероника ФицПеревод: Многоголосый закадровый (5-ый канал)Субтитры: ОтсутствуютПродолжительность: 01:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C0982C1C1CAA0FEB9E037CEC9D5ED16E1A1BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579207   (350358) от 22.11.2012
-
-Исповедь / The Confession (1999) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На руках у родителей из-за равнодушия врачей умирает маленький Стив. Отчаявшийся отец Гарри Фертиг, убивает трех человек — секретаря, врача и медсестру. Защищать его берется успешный адвокат Рой Блейки. Герою предстоит сделать выбор, что для него важнее: победить и получить вожделенную должность районного прокурора или проиграть, а значит покарать убийцу.Жанр: Триллер, ДрамаРежиссер: Дэвид Хью ДжонсАктеры: Алек Болдуин, Бен Кингсли, Эми Ирвинг, Райан Марсини, Бойд Гэйнс, Энн Тауми, Лазаро Перез, Бекки Энн Бейкер, Майк Ходж, Марк ЭтанПеревод: Одноголосый закадровый (Живов)Продолжительность: 01:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BE1237067C0E886BD96BC79C8F7A456072DC00
+magnet:?xt=urn:btih:335B33289D4EBC5250B11A6C21F2DA9D1ED00711
 ```
 
 https://mybot314.ru/tekegram_catalog/

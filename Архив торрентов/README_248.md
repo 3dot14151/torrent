@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 15.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000867.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Driver Booster Pro 7.2.0.598 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000865.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KeePassXC 2.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000863.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Disk Drill Enterprise 3.8.961 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000859.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ IObit Driver Booster Pro 7.2.0.598 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000858.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VKM - Музыка для ВКонтакте 1.0.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000857.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Laxenanchaos - Transform Ordinary Events Into Miracles (2018) Virgin Babylon [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000851.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ SAS: Zombie Assault 4 v1.9.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000848.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ NetLimiter 4.0.58.0 Pro RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000847.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Adobe Bridge 2020 10.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000845.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Helium Music Manager Premium 14.4.16330 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000844.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ RAM Saver Professional 20.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000839.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Games AdBlock 0.6.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000831.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Daum PotPlayer 1.7.21093 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000829.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Reg Organizer 8.41 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000822.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Cockos - REAPER 6.03 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000821.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Hard Disk Sentinel Pro 5.50 Build 10482 Final RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000799.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Adobe Audition 2020 13.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000790.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Need For Speed Shift v2.0.29 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000786.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VirtualBox 6.1.2 Build 135662 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000782.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Benvista PhotoZoom Pro 8.0.6 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000780.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000776.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ IObit Driver Booster Pro 7.2.0.598 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000763.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VirtualBox 6.1.2 Build 135662 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000748.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Minecraft - Pocket Edition 0.11.0/0.15.0/0.16.0/0.17.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000745.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Futuremark 3DMark 2.11.6857 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000736.jpg" />
 </div>
 
 

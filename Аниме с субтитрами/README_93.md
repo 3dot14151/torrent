@@ -6,7 +6,7 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237676.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237461.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237419.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234578.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Thermae Romae Novae | Новые римские бани [2022, Web, 11 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234525.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234369.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY: Ледяная импери
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234106.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Kumichou Musume to Sewagakari | The Yakuza's Guide to Babysitting | Дочка �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233676.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233659.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233203.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232556.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Senkaiden Houshin Engi | Soul Hunter | Охотник за душами [ТВ-1]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232059.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Bai Yao Pu 3 | Manual of Hundred Demons 3 | Руководство сотен д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231547.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Estab-Life: Great Escape | Утверждение в жизни [2022, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231502.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230988.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230913.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230850.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230804.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единств�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230782.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Для ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230755.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Mahou Tsukai no Yome: Nishi no Shounen to Seiran no Kishi | Невеста ча�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230724.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Koukyoushihen: Eureka Seven - Hi-Evolution | Эврика Семь: Высока
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230620.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Yatogame-chan Kansatsu Nikki Yonsatsume | Заметки Ятогамэ [ТВ-4]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230303.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ One Piece Movie 3 - Chinjou Shima no Chopper Oukoku / One Piece: Chopper Kingdom
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229590.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ One Piece: Episode of Arabasta - Sabaku no Oujo to Kaizoku-tachi / One Piece: Th
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229586.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ One Piece Movie 4 - Dead end no Bouken / One Piece: Dead End / Ван-Пис: Ф
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229567.jpg" />
 </div>
 
 

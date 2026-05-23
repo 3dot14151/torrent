@@ -6,7 +6,7 @@ Brave Browser 1.42.97 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440501.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ jv16 PowerTools 7.5.1.1480 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440496.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Chromium 104.0.5112.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440495.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vivaldi 5.4.2753.37 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440493.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Advanced SystemCare PRO 6.0.6.149 Beta 3 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440479.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NewBlue Titler Pro (with NewBlue Starter Pack v3.0) for CS6 v1.0 build 111223 [�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440473.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Xara Web Designer MX Premium 8.1.3.23942 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440470.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Wise Care 365 Pro 5.5.8.553 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440463.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Kerish Doctor 2020 4.80 [DC 18.09 upd 18.09 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440459.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Balabolka 2.15.0.753 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440458.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Reg Organizer 8.55 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440431.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Win10 All Settings 2.0.0.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440428.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Punto Switcher 4.1.3 Build 536 Beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440372.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Vivaldi 1.0.291.18 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440371.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ AdwCleaner 5.011 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440367.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Emurasoft EmEditor Professional 21.9.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440361.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ SamDrivers 22.08 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440359.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Free Download Manager 6.17.0.4792 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440354.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ IObit Uninstaller Pro 11.6.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440349.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ DriverX 2.2 (2.02) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440322.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Microsoft Toolkit 2.4 Beta 2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440309.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Everything 1.4.1.992 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440308.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ ACDSee Pro 6.0 Build 169 Final (x86) by loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440306.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440286.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Total Uninstall 6.27.0.565 Professional Edition RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440284.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Slimjet 5.0.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440238.jpg" />
 </div>
 
 

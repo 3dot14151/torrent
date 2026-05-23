@@ -6,7 +6,7 @@ VA - No name compilation part 10 Instrumental, Other (2025) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257959.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Music News For Forum vol.148 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257753.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Чарочка та шкварочка (2011) [MP3|256 кб/с] <Folk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257262.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Radio DFM - Рашн Дэнс (21.05.2012) from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256942.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ VA - Клубные Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256873.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Music News For Forum vol.147 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256833.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Santa Baby Sexy New Year (2025) [MP3|320 Kbps] <Insrumental, Easy Listening
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256722.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Sexy Bath 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256675.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Fitness Health Creator (2012) [MP3|320 кб/с]<Funky, Club House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256341.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - National Pop Dance Music Vol.122 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256337.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Зарубежные Новинки Vol.52 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256315.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Танцевальная Dискотека from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256294.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Клубные Новинки Vol.81 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256261.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - XXXL Союз: Super новинки 50/50 (2012) [MP3|236-320 кб/с]<Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256097.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Ночное движение хитов (2012) [MP3|256-320 кб/с]<Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256068.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Weekend Freestyle (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255629.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - The Official UK Top 100 Singles Chart 06-04-2023 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255373.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Лучшие рок баллады 20-го века Vol.1 (2023) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255294.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Disco Party Weekend Plays (2023) [MP3|320 Kbps] <Indie Dance, Soulful, Disc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255059.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Disco Generation Freedom (2023) [MP3|320 Kbps] <Disco, House, Soulful, Nu-D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255017.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Понемногу отовсюду by Yuridar #O-P-Q (1962-2023) Compilati
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254899.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Remix NNM 6 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254507.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - Shazam Хит-парад Top 100 Russia 09.05.2023 (2023) [MP3|256-320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254449.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ VA - Зарубежные Новинки Vol.51 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254344.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ VA - Avto Club Май Vol.6 (2012) [MP3|320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254304.jpg" />
 </div>
 
 
@@ -788,7 +788,7 @@ VA - Сборник тяжёлых песен 9 (2012) [MP3|128-320 кб/с]<Met
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253989.jpg" />
 </div>
 
 

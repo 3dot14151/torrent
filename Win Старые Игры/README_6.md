@@ -6,7 +6,7 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881329.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878533.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876271.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876213.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Shadowgrounds (2005) [Ru/En] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875590.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874385.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873244.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Rally Championship 2000 [Ru] (L) 2000
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872222.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870229.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869504.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869370.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869368.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869216.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Crime Cities (2000) [En] (1.0) Licence
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867615.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864290.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ X-COM: Enforcer (2001) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863792.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863789.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863672.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Command & Conquer: Tiberian Sun + Tiberian Sun: Firestorm [Ru] (P) 1999 - 2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862677.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862180.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ X-COM: Interceptor (1998) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862024.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861963.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860902.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860187.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859352.jpg" />
 </div>
 
 

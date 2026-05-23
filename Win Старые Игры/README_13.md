@@ -6,7 +6,7 @@ Sid Meier's Pirates! (2004) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662654.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656477.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656441.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EuroCops / Полиция Европы: Спецподразделения [Ru] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656398.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654403.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654279.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650835.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646346.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646313.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646200.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Merchant Prince 2 / Венецианский купец 2 (2001) [Ru] (1.1) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644387.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ABZU (2016) [Ru/Multi] (1.1) License STEAMPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644261.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636901.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636812.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636687.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636585.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Aquaria (2007) [En] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635080.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Outcast [Ru/En] (Repack/1.0.46.7) 1999 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628443.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622147.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Massive Assault (2003) [En/Fr] (1.2.204) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613296.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613187.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613012.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612547.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612536.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612458.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612060.jpg" />
 </div>
 
 

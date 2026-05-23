@@ -6,7 +6,7 @@ Urusei Yatsura OVA Series | Those Obnoxious Aliens OVA | Несносные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002292.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Urusei Yatsura | Those Obnoxious Aliens | Несносные пришельцы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002276.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Azumanga Daiou The Animation | Azumanga Daioh | Адзуманга [2002, TV, 26
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002166.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gekijouban Kyochuu Rettou | Остров насекомых-гигантов (ф
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001880.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kono Oto Tomare! | Задержите этот звук! [2019, TV, 26 из 26] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001825.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001449.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Natsume Yuujinchou: Ishi Okoshi to Ayashiki Raihousha | Тетрадь друж�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001429.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Shin Evangelion Gekijouban:|| | Evangelion: 3.0+1.0 Thrice Upon a Time | Ева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001366.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Kimi to Boku. 2nd Season / You and Me 2 / Ты и я. 2 [2012, TV, 13] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000176.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ The Epic of Zektbach / Эпос о Зектбач [2011, OVA, 1 ep] DVDrip 552p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997512.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Neko Ramen / Pussy Soup / Суп с котом [2006, TV, 13 ep.] DVDRip upconve
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996685.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Interstella 5555 / Интерстелла 5555 [2003, MV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995724.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Gamba no Bouken | Adventure of Gamba | Приключения Гамбы [1975, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993279.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Higurashi no Naku Koro ni Rei / Когда плачут цикады ОВА [200
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991889.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Fate/Prototype / Судьба:Прототип [2011, OVA] BDrip 1080р raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988469.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Slayers OVA / Рубаки ОВА [1996-1999, OVA, 6] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988403.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Slayers Movie / Рубаки Фильмы [1995-2001, Movie, 5] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988315.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Arete Hime | Arite Hime | The Adventure of Princess Arete | Принцесса �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986990.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Roujin Z | Old Person Z | Старик Зет [1991, Movie] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986044.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Rifle is Beautiful | Винтовка прекрасна [2019, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985871.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kannagi: Crazy Shrine Maidens / Хранительницы: веселые де�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985539.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bishoujo Senshi Sailor Moon Super S: Sailor 9 Senshi Shuuketsu! Black Dream Hole
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984862.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito | Pretty Soldier Sailor Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984857.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Bishoujo Senshi Sailor Moon Gaiden: Ami-chan no Hatsukoi | Pretty Soldier Sailor
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984856.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Bishoujo Senshi Sailor Moon Super S Special | Pretty Soldier Sailor Moon Super S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984831.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Bishoujo Senshi Sailor Moon S | Pretty Soldier Sailor Moon S | Красавиц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984825.jpg" />
 </div>
 
 

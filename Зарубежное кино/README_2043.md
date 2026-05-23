@@ -1,55 +1,3 @@
-###  Публикация: 384601   (94730) от 04.10.2025
-
-Разрисованная вуаль / The Painted Veil (2006) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1920-е, молодой врач и его неверная жена Китти отправляются в отдалённую китайскую деревушку, чтобы бороться со вспышкой эпидемии холеры. Там поражённая преданностью мужа работе Китти начинает видеть его в ином свете и влюбляется в него.Производство: США, Канада, Китай / Bob Yari Productions, Class 5 Films, Colleton Company, TheЖанр: Драма, мелодрамаРежиссер: Джон КерранАктеры: Наоми Уоттс, Эдвард Нортон, Лив Шрайбер, Дайана Ригг, Тоби Джонс, Катрин Эн, Ли Бинь, Бин Ву, Алан Дэвид, Мари-Лор Дикуру, Салли ХокинсПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236335603377D782002E34BC7764E34B8D44E4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506820   (94698) от 04.10.2025
-
-Зола / Zola (2020) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Официантка из Детройта по имени Зола поддается на уговоры новой знакомой и отправляется на короткую гастроль во Флориду подработать стриптизершей. Уик-энд обещал быть интересным, но девушка не ожидала, что настолько.Производство: США /  Killer Films, Gigi Films, Ramona FilmsЖанр: Драма, комедия, криминалРежиссер: Яница БравоАктеры: Тейлор Пейдж, Райли Кио, Колман Доминго, Николас Браун, Ari'el Stachel, Джейсон Митчелл, Ts Madison, Nelcie Souffrant, Насир Рахим, Amelia Rose MonteagudoПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665EB17D37EFCD890DB22153780548174C9771E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822055   (94649) от 05.10.2025
 
 Золушка / Cinderella (2015) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94649.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94613.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94579.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94540.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94514.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94417.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91298.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91291.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91232.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91204.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91198.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91180.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91163.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91135.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91132.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ LOL [pжунимагу] / LOL (Laughing Out Loud)® (2008) HDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91128.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90955.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90952.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90950.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90763.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90762.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90760.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90753.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90730.jpg" />
 </div>
 
 
@@ -670,6 +618,60 @@ Cовременная версия одноименного фильма 1939 г
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487741   (90725) от 25.04.2012
+
+Площадь Колумба / Columbus Circle (2012) [H.264/720p-LQ] HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма строится вокруг нелюдимой и одинокой наследницы состояния своей семьи Эбигейл, которая не покидает квартиры на Манхэттене уже два десятка лет. Она общается только с двумя людьми: через записки с консьержем своего дома и с доктором Реймондом Фонтейном, старинным другом семьи Эбигейл и поверенным во всех ее делах.
+
+Героине приходится столкнуться со своими (   Читать дальше...   )Производство: СШАЖанр: Криминал, Мистика, ТриллерРежиссер: Джордж ГаллоАктеры: Сэльма Блэр, Эми Смарт, Джейсон Ли, Джованни Рибизи, Кевин Поллак, Бо Бриджес, Джейсон Антун, Джерри Пенаколи, Роберт Гийом, Сэмм ЛивайнПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Сергей Фурман / по субтитрам kato_raptureПродолжительность: 01:25:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487450   (90711) от 25.04.2012
+
+Выход Дракона / Enter the Dragon (1973) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90711.jpg" />
+</div>
+
+
+###  Подробнее
+
+События переносят нас на остров, превращенный в крепость главарем боевиков, открывшим там школу боевых искусств, которая является лишь ширмой, маскирующей контрабандный бизнес. В эту цитадель проникает герой Брюса Ли и становится участником жестокого турнира…Жанр: боевик, триллер, драма, криминалРежиссер: Роберт КлаузАктеры: Брюс Ли, Джон Сэксон, Кьень Ши, Ана Капри, Анджела Мао, Джим Келли, Роберт Уолл, Боло Йенг, Бетти Чюн, Джефри Уикс, Питер Арчер, Ли-Джен Хи, Марлен Кларк, Аллан Кент, Уильям Келлер, Мики Карузо, Пэт Э. Джонсон, Дарнелл Гарсиа, Майк Бисселл, Хинди Очиаи, Джеки Чан, Рой Чяо, Пол М. Хеллер, Саммо Хунг Кам-Бо, Тони Лю, Хой Ман, Стив Сандерс, Чин-Лаи Сунг, Вэй Тунг, Донни (   Читать дальше...   )Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3B031EC0422B645E8C38C768C6D5371B885D65
 ```
 
 https://mybot314.ru/tekegram_catalog/

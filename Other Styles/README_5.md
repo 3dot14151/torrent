@@ -6,7 +6,7 @@ Romantic Piano Music Masters - Спокойное фортепиано: Инст
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027363.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marc Canham - I Care A Lot (2021) Original Motion Picture Soundtrack [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026734.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Baulta - 4 Альбома + 1 EP (2011-2021) [MP3|320 кб/с] <Post-Rock, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026713.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blackmore's Night - Nature's Light (2021) [FLAC|24/48|Lossless|WEB-DL|tracks] <F
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026709.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Empyrium - 7 Studio Albums (1996-2021) 7xCD [FLAC|Lossless|image + .cue] <Neofol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026576.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indi
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026120.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025415.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025411.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025266.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Blackmore's Night - Nature's Light (2021) 2xCD, Jараnese Еditiоn [FLAC|Loss
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024572.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classic
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024563.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024209.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024200.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024060.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024056.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023679.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Romantic Melodies: Enigmatic (2008) [MP3|320 Kbps] <New Age, Folk, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023669.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumenta
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023660.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - More Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023475.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Corrado Carosio & Pierangelo Fornaro - Rocco Schiavone 1-4 (Colonna Sonora Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023468.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023466.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023464.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023463.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023462.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023305.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Liste
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023284.jpg" />
 </div>
 
 

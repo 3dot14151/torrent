@@ -6,7 +6,7 @@ Athentech Perfectly Clear Complete 3.9.0.1694 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275020.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ FilePane 1.10.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275018.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Duplicate Manager Pro 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275016.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275015.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Wirecast Pro 13.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275012.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275009.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275006.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Elimisoft App Uninstaller 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275005.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ To Travel Without Any Certain Destination - Traveling For The Pleasure Of It (20
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275000.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Зимний Best Hits (2010) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274993.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Trance Asylum 2 (2016) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274989.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Новогодний Музыкальный Коктейль (2010) [MP3|25
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274988.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - JOOF Anthology - Volume 3 (2010) [MP3|320 kbps] <Psytrance, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274987.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Best Vocal Trance (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274984.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Новогодняя вечеринка Mуз TV (2010) [MP3|256 kbps]<Pop/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274979.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Топ 200 Музыкайф Зарубежный 7 (2010) [MP3|128 kbps]<Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274974.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ KCNcrew Pack 12-15-16 + Bonus [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274969.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Downie 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274967.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Поцелуй меня, удача! Праздничный зимний (2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274920.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - С Новым годом, Крошка ! (2010) [MP3|192 kbps]<Pop, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274916.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Raise The Bar LP (2010) [MP3|320 kbps]<Drum n Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274912.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Various Artists - Super Black Blues (1969) [MP3|320 kbps]<Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274908.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Wondershare Recoverit 8 v8.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274905.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Russian XXL Night (2010) [MP3|320 kbps]<Pop, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274904.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Aeoliah - Elixir Immortale (2010) [MP3|320 kbps]<New age, Meditative>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274899.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Black Earth - 20 Years Of Dark Insanity: Japan Tour 2016 (2017) [FLAC|Lossless|i
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274891.jpg" />
 </div>
 
 

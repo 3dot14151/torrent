@@ -1,81 +1,3 @@
-###  Публикация: 1192803   (262796) от 18.12.2017
-
-Алан Брэдли | Сладость на корочке пирога (2013) [MP3, Наталья Карпунина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о младшей дочери полковника де Люса, Флавии, расследующей убийство загадочного незнакомца, чей труп она обнаружила на территории родного поместья Букшоу. Следующий за этим арест отца и необъяснимые загадки прошлого заставляют Флавию пуститься на поиски правды. Действие романа происходит в Англии во времена правления короля Георга VI.Жанр: Иронический детектив, история, приключенияИздательство: Нигде не купишьПродолжительность: 10:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C280E7D21B94170C0F9C85D052CDAD102447D397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192711   (262790) от 18.12.2017
-
-Харлан Эллисон | Мальчик и его собака / Парень и его пёс (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Америка после ядерной войны. Везде руины, грязь и нищета. Везде свирепствуют банды убийц и мародёров. Выживают только сильные. Именно в таком мире живет Вик, бродяга-одиночка, свободный охотник. Впрочем, он не один. Его сопровождает необычный пёс-телепат, его друг, его попутчик, его соратник, его боевой товарищ. Генетический мутант, он просто незаменим для выживания. (   Читать дальше...   )Жанр: Фантастика, постапокалиптикаПродолжительность: 01:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8198DDB008DBFDC131C12885D50F4E3B15710A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192759   (262761) от 18.12.2017
-
-Мария Ясинская | Чужой Дозор (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь отдохнуть вместе с семьей на далекой экзотической Кубе, Вика, Иная из Москвы, и представить себе не могла, чем обернется для нее эта поездка: муж и дочка пропали, а ее саму арестовал гаванский Ночной Дозор по обвинению в убийстве Темной Иной. Вика оказывается в эпицентре невероятных событий, когда местные колдуны решают возродить величайшего Иного, которого (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0140C215CC4B7EEC4EFC66D1EADD997A24C78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192634   (262741) от 18.12.2017
 
 Сергей Сезин | Кольцо Зеркал (2017) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262741.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262708.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262697.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262696.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262694.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262691.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262688.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262685.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262676.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262671.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_262595.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262575.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262567.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262564.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262555.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262480.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262408.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262353.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262350.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262348.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262336.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262334.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262329.jpg" />
 </div>
 
 
@@ -672,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501151950D4BBA1DA7F98DCD0CEFF5C1C306C23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341447   (262316) от 28.11.2019
+
+Анжела Марсонс | Инспектор полиции Ким Стоун (Книга 2). Злые игры (2018) [MP3, Вячеслав Задворных]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расследуя дело об убийстве бывшего насильника, совершенного его жертвой, Ким вдруг обнаруживает себя втянутой в страшную схватку не только с изощренным преступником и социопатом, но и собственными пороками, слабостями и болевыми точками. И каждое ее движение, которое она предпринимает, чтобы поймать убийцу, вот-вот станет смертельно опасным и для нее. Увязнув в этой (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655AAC5A2DE1FA3E1B60A9E8FC2126B3BFFF4CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341442   (262310) от 28.11.2019
+
+Агата Кристи | Второй удар гонга [Сборник рассказов]  (2019) [MP3, Егор Серов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262310.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту книгу вошло восемь рассказов Агаты Кристи. В некоторых из них читатель встретится с любимыми сыщиками королевы детектива – Паркером Пайном, Харли Кином, Эркюлем Пуаро. Некоторые – совершенно самостоятельны и наглядно демонстрируют, как сложный детективный сюжет можно развить в столь небольшом объеме текста.Жанр: ДетективПродолжительность: 05:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979632A6572DF3019A3358DBC07D7A4D24215BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341425   (262290) от 28.11.2019
+
+Сергей Недоруб | Светлая тень (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262290.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Москве, прямо у ворот Дневного Дозора, совершено нападение на пражских инквизиторов. У них украден уникальный эликсир, серьезно расширяющий боевые возможности любых Иных, даже низших. Расследовать атаку берется Сергей Воробьев – Темный первого уровня. Для него это вопрос чести – организатором атаки считается его старый знакомый, оборотень Клумси. Но Сергею куда (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиПродолжительность: 11:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF22B8079438362C69789038FB8DF3FA7632682
 ```
 
 https://mybot314.ru/tekegram_catalog/

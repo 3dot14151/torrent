@@ -1,29 +1,3 @@
-###  Публикация: 1247015   (456402) от 13.09.2018
-
-Mines of Mars (2018) [En] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вас отправили на Марс. Всё, что вам нужно делать – это исследовать эту планету, а именно – её природные ресурсы. Под вашим управлением окажется ученый, на которого одет специальный костюм, позволяющий дышать на Марсе, а также небольшой ранец, который позволит вам кратковременно летать. Вы будете исследовать различные шахты. В них вам придётся добывать ресурсы с помощью (   Читать дальше...   )Тип издания: RepackРазработчик: Wickey WareЖанр: Adventure, Arcade, Action, 2DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12D8B582704DB4CD78E2F453B41AFB6A553FD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247000   (456394) от 13.09.2018
 
 Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
@@ -32,7 +6,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456394.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Unravel Two (2018) [En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456388.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Planet Coaster (2016) [Multi] (1.3.6.45104/dlc) License STEAMPUNKS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456365.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Death Point (2017) [Ru/En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456254.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Unfinished Swan (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455010.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Samurai Warriors 4-II (2015) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454971.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shadowplay 4: Harrowstead Mystery / Театр теней 4: Тайна Харр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454601.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Syndrome (2016) [En] (1.03f) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454491.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Brave: The Video Game / Храбрая сердцем [Ru] (RePack/1.0) 2012 | A
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454395.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Disneyland Adventures (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454305.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (1.0.0.51) License SKIDROW [Pocket
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454302.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) License GOG [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454301.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Tiny Echo (2017) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454237.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454214.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Rise of Venice (2013) [Ru/En] (1.1.2.4789/3dlc) Repack z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454213.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Midnight Calling: Anabel (2015) [En] Unofficial [Collector's Edition / Колл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453908.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Paranormal State: Poison Spring (2013) [En/Multi] (1.0) License PROPHET [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453762.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tony Hawk's Pro Skater HD (2012) [Ru/En] (1.0.8788.0) Repack Audioslave
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452894.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Real Boxing (2014) [Ru/Multi] (1.0.1.1) Repack R.G. RealGaMeRs
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452848.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.1.0246) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452571.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Witches Legacy 5: Slumbering Darkness / Наследие ведьм 5: Дрем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452502.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Witches Legacy 6: The Dark Throne / Наследие ведьм 6: Темный 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452491.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Dreamfall Chapters (2016) [ui/sub/res] (5.0) Unofficial Well-DING! Team & ZoG Fo
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452465.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452412.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Agatha Christie: The ABC Murders (2016) [Ru/Multi] (1.02) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452364.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ ABC Murders — это приключенческая игра с расслед
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5A84249B107F0DB2A317E1F8A87956B74FAF7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551645   (452348) от 24.09.2012
+
+Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition / Темные притчи. Сёстры Красной Шапочки. Коллекционное издание [Ru] (P) 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите на себя роль легендарного детектива и одолейте королеву волков в увлекательном продолжении серии игр жанра "я ищу" Dark Parables от Blue Tea Games. Несколько столетий назад волк был повержен и основан орден Сестер в красных капюшонах. Но совсем недавно коварная королева волков заманила сестер в ловушку и планирует натравить опустошающие легионы волков на наш мир...(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DD5DFA0401A81D46FF5692A76D71F1380348F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

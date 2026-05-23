@@ -6,7 +6,7 @@ Half-Life: Source (2004) [Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690960.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Swords of Ditto v1.04.01-108 [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687003.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Call of Duty: Modern Warfare 2 (2009) [En/Ru] [macOS Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684554.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Call of Duty: Modern Warfare 3 (2011) [En/Ru] [macOS Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682320.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Cat Quest  [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680655.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ HITMAN™ - Game of The Year Edition (2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680558.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Mafia III (2017) [Multi/Ru] [macOS Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680401.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ JYDGE [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678991.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Salt and Sanctuary v.1.0.0.8 (2016) [Multi] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674181.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Borderlands: The Pre-Sequel v1.0.7 (2014) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667056.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ The Last Leviathan v.0.3.1 (2018) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665953.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Saints Row: The Third  v. 1.0.0.1 (2011) [Multi/Ru] [OS X WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665083.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Hitman: Absolution. Elite Edition-1.1.1 (2017) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661848.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ The Signal From Tolva v1.0.51 (2017) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660714.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Niffelheim v0.9.022(2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659625.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Dead Effect 2 (2016) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659615.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Batman: Arkham Asylum - Game of the Year Edition v1.1 (2010) [Multi] [macOS Nati
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657648.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Metro 2033 [WineSkin] [Rus]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_657458.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Borderlands 2 v1.8.4 (2012) [Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656644.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ BioShock 2 v. 1.3 (2010) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654543.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Neon Chrome v1.1.5 (2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653765.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Batman: Arkham Asylum - Game of the Year Edition (2010) [Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651819.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Enter the Gungeon v1.0.1 (2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644733.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Borderlands Game Of The Year v1.0.3 (2009) [Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642627.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635409.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Don't Starve: Reign of Giants v. 1.0 (115739) (2014) [Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633212.jpg" />
 </div>
 
 

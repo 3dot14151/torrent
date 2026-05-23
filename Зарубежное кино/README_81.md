@@ -1,55 +1,3 @@
-###  Публикация: 1611756   (1040677) от 13.02.2023
-
-Империя света / Empire of Light (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1980 год. Хилари — женщина средних лет, которая живёт в приморском городке на юге Англии и работает начальницей смены в кинотеатре Empire, переживающем не лучшие времена. Работу Хилари любит, но фильмы никогда не смотрит. Её одиночество слегка разбавляют безрадостные сексуальные отношения с женатым директором кинотеатра. Когда в Empire устраивается чернокожий молодой (   Читать дальше...   )Производство: Великобритания, США / Neal Street Productions, Searchlight PicturesЖанр: драма, мелодрамаРежиссер: Сэм МендесАктеры: Оливия Колман, Сара Стюарт, Майкл Уорд, Колин Фёрт, Тоби Джонс, Том Брук, Таня Муди, Ханна Онслоу, Кристал Кларк, Моника ДоланПеревод: Профессиональный многоголосый (TVShows, Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (translate), Английские (full, CC), MultiSubПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6EC06E4621B2608CF791D12ABEB35E96870F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611777   (1040673) от 13.02.2023
-
-Море страха / В глубину / Into the Deep (2022) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Джесс знакомится с молодым привлекательным парнем по имени Бен, который приглашает ее к себе на яхту. Романтический круиз принимает неожиданный поворот, когда они подбирают терпящую бедствие Лекси, утверждающую, что Бен — маньяк, похищающий девушек. Кому верить и кто из пассажиров на борту — настоящий серийный убийца?Производство: США, Великобритания / Tea Shop Productions, Capstone Studios, Signature FilmsЖанр: ТриллерРежиссер: Кейт КоксАктеры: Элла-Рэй Смит, Джессика Александр, Мэттью Даддарио, Никкита Чадха, Джек Моррис, Эндрю Стил, Майкл ВоркайПеревод: Профессиональный многоголосый (Okko)Субтитры: Английские (Full, SDH)Продолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E02424EE5C70FB8221D4CE68ACD04999E1C753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611708   (1040672) от 13.02.2023
 
 Загадка / Искорёженная / Twisted (2022) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040672.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040670.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040669.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040667.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040664.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040591.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040544.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040543.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040531.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040529.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040528.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040508.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040505.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040496.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040490.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040485.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040484.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040483.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040481.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040471.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040465.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040464.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040462.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040460.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B788BBE07EF60FFD77CE4ACBF04C0DCE1A65F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438811   (1040456) от 10.01.2021
+
+Крестная мама (Наркомама) / La Daronne / Mama Weed (2020) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливая переводчица работает в полиции, помогая раскрывать преступления. Однажды ей становится известно о крупной партии наркотиков. Соблазн изменить жизнь слишком велик. И вот она превращается в НаркоМаму, которая строит свою империю. Теперь вся полиция охотится за ней.Производство: Франция / Les Films du Lendemain, La Boétie Films, Le PacteЖанр: Драма, комедия, криминалРежиссер: Жан-Поль СаломеАктеры: Изабель Юппер, Ипполит Жирардо, Фарида Ушани, Лилиан Ровер, Ирис Бри, Надя Нгуйен, Ребекка Мардер, Рашид Гуэллаз, Мурад Будауд, Юссеф СарауиПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C17F4E9A6510923AB9E7256934B70FB56033DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428789   (1040454) от 10.01.2021
+
+Соседка / The Girl Next Door (2004) BDRip [H.265/1080p-LQ] [10-bit] [Unrated]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Меттью, мечтая о карьере политика, между тем обнаруживает, что у него появилась новая соседка, неотразимая 19-летняя блондинка Дениэль. Цветочно-конфетная стадия пролетает мимолетно, и вот уже ослепленной любовью Меттью уверен, что он нашел женщину всей своей жизни. Каково же было его изумление, когда он вместе со всем городом узнаёт, что она — бывшая (   Читать дальше...   )Производство: США / New Regency Productions, Daybreak, Epsilon Motion PicturesЖанр: мелодрама, комедияРежиссер: Люк ГринфилдАктеры: Эмиль Хирш, Элиша Катберт, Тимоти Олифант, Джеймс Римар, Крис Маркетт, Пол Дано, Тимоти Боттомс, Донна Баллок, Джейкоб Янг, Брайан КолодзейПеревод: Дублированный, многоголосый, авторскийСубтитры: Русские (форсированные, полные), английскиеПродолжительность: 01:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22564135C793AEEB5B83054E477B572E432BFED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

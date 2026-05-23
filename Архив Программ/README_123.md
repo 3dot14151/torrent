@@ -6,7 +6,7 @@ Tor Browser Bundle 10.0.17 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012646.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.1 Build 12 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012638.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ W10Privacy 3.7.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012630.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PicPick 5.1.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012585.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FBackup 9.0.307 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012571.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Brave Browser 1.25.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012562.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Edge 91.0.864.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012558.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Calibre 5.20.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012555.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Freeplane 1.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012552.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Sandboxie 5.49.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012550.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WhatsApp 2.2121.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012549.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012544.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Soft4Boost Document Converter 6.8.1.717 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012543.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PicPick 5.1.6  Pro + portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012535.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ WhatsApp 2.2121.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012534.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Whale Browser 2.9.118.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012525.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ KMS Tools Portable by Ratiborus 01.06.2021 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012459.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Lacey Free Music & Video Downloader 2.57 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012430.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ K-Lite Codec Pack Update 16.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012421.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ XYplorer 21.80.0300 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012418.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Brave Browser 1.25.70 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012410.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ YT Downloader 7.5.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012409.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.13 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012403.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Media Player Classic Home Cinema 1.9.13 RePack (& portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012382.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Youtube Downloader HD 3.5.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012373.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Maxthon Browser 6.1.2.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012363.jpg" />
 </div>
 
 

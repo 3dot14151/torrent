@@ -1,29 +1,3 @@
-###  Публикация: 1727984   (9505) от 03.08.2025
-
-ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Survivor Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мир - ARK: Survival Evolved - это полный опасностей сеттинг, в котором не только динозавры, но и прочие существа будут пытаться вас убить. Особенно опасными становятся люди. В игре нет никакого интересного сюжета, зато есть огромный открытый мир, в котором вам предстоит строить свою базу, охотиться с группой людей (ваших друзей), атаковать, обороняться, делать оружие (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Wildcard, Instinct Games, Efecto Studios, Virtual Basement LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC887AA7C9A5E4A1C720E8A2D966AF76A81F4E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810328   (9504) от 03.08.2025
 
 Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Other s
@@ -32,7 +6,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9504.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9501.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Cosmoteer: Starship Architect & Commander / Cosmoteer: Конструктор и
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9489.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Decepticon [Campaign]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9487.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9485.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Craft The World (2014) [Ru/Multi] (1.11.006/dlc) Repack Pioneer
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9482.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9480.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ No Plan B (2024) [Ru/Multi] (1.2/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9479.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack seleZen [Ultim
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9475.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9463.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9459.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9458.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9448.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Chasers Dash & Bash (2020) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9444.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9438.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36158) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9437.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9434.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9433.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Forest 6174 (2025) [Ru/Multi] (build 19378140) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9419.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9383.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Bus Flipper: Renovator Simulator (2025) [Ru/Multi] (1.0.22r) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9380.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9378.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250731/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9375.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9354.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9351.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15CA5C1CBD5B5DA8E2FA619E4F9C9E1E9E0976D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810382   (9347) от 04.08.2025
+
+Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы думаете, что ленивцы медлительны? Эдди готов доказать вам, что вы ошибаетесь. В Driftwood вы испытаете высокоскоростной спуск на лонгборде в роли аэродинамического ленивца. Дрифтинг - это суть игры, так как он поможет вам найти идеальный баланс между скоростью и контролем. Дрифтуйте по крутым поворотам, чтобы избежать столкновения с машинами и препятствиями, и (   Читать дальше...   )Тип издания: RepackРазработчик: Stoked Sloth InteractiveЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Гонки, Симуляторы, СпортЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0DFF8557B8A68F1F3CF6FDF37907066DC5FF87
 ```
 
 https://mybot314.ru/tekegram_catalog/

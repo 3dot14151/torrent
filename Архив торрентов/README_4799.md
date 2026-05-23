@@ -6,7 +6,7 @@ Wise Care 365 Pro 7.0.5.686 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42301.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 129.0.6668.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42291.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Krita 5.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42290.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r17 Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42278.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Skype 8.129.0.201 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42267.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AMD Ryzen Master 2.14.0.3205 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42265.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Topaz Photo AI 3.2.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42252.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ultimaker Cura 5.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42247.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Wise Care 365 Pro 7.0.6.688 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42235.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Zoom Player MAX 19.5.1 Build 1951 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42234.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ FanControl V205 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42223.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ FinePrint 12.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42219.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Autorun Organizer 5.45 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42218.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Soft Organizer Pro 9.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42212.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Calibre 7.19.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42209.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ PdfFactory Std & Pro 9.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42188.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Vivaldi 6.9.3447.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42184.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ IObit Driver Booster Pro 12.0.0.354 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42140.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Disk Drill 5.6.913 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42127.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VirtualBox 7.1.2 Build 164945 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42117.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ StartAllBack 3.8.10 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42115.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Office Installer & Office Installer+ 1.18 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42074.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tor Browser Bundle 13.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42053.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AOMEI Partition Assistant Technician Edition 10.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42043.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ IObit Driver Booster Pro 12.0.0.354 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42042.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Fast Video Cutter Joiner 6.0.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42037.jpg" />
 </div>
 
 

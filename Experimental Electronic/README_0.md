@@ -6,7 +6,7 @@ ScAnDroid Experiment's - From Everything (2018) [MP3|320 Kbps] <Experimental Ele
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523580.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520485.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Phantogram - 2 альбома,4 EP,1 сингл (2007-2011) [MP3|~210-320 kbps]<
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497072.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Double Fantasy - Food For Fantasy (1994) [MP3|320 Kbps] <Electronic>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446191.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ ScAnDroid Experiment's - Autumno Iterum... Pluvia Iterum (EP) (2019) автор�
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442197.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Major Lazer - Major Lazer Essentials (2018) [MP3|320 Kbps] <Electronic,Dance,Pop
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358742.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Amon Tobin - Fear In A Handful Of Dust (2019) [MP3|320 Kbps] <Experimental, Abst
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349853.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ScAnDroid Experiment's - Outside the Atmosphere (2017) Авторская раз
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341955.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ ScAnDroid Experiment's - Mechanical Music Box (2018) Авторская разд
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340709.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Starforce 1 - Starforce 1 (1981) LP [MP3|320 Kbps] <Electronic, Experimental, Am
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301254.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ ScAnDroid Experiment's - Ambientable (2017) Авторская раздача [M
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287800.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ ScAnDroid Experiment's - A Trap For The Traveller (2017) Авторская ра
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263380.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ In The Nursery - 35 albums (1986-2011) [mp3|320 kbps] <Neoclassical, Darkwave, I
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248971.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Archon Satani - 8 albums (1991-2002) [mp3|192-320 kbps] <Dark Ambient, Ritual Am
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247980.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ScAnDroid Experiment's - Mental Solubility (2023) авторская разда�
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184632.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160965.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81213.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Didier Marouani & Space - JUST BLUE (2002) [MP3|320 kbps]<Electronic>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72785.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Tangerine Dream - One Night In Africa (2013) [MP3|320 кб/с]<Traditional Elect
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31952.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jean-Michel Jarre - Live In Bratislava (Special Guest Brian May) (2025) Live [MP
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3890.jpg" />
 </div>
 
 

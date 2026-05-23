@@ -1,29 +1,3 @@
-###  Публикация: 1177198   (365169) от 24.10.2017
-
-Ominous Objects 3: Trail of Time / Зловещие вещи 3: Тропами времени (2015) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Городок в горах Глокенверк скован холодом. Однако это не обычное явление погоды.... Люди замерзают прямо на дорогах, а животные превращаются в диковинных зверей. Башня с часами - центр всего происходящего, и скоро смертельным холодом будет скован весь мир, это всего лишь вопрос времени. Вам вместе с вашим верным помощником, мистером Дженкинсом, предстоит удивительное (   Читать дальше...   )Тип издания: UnofficialРазработчик: Daily MagicЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC6499BF5C29E1602AE8F69AC88E075B8EB2A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263136   (365086) от 29.09.2019
 
 Thief Simulator (2018) [Ru/Multi] (1.2.6) Repack R.G. Механики
@@ -32,7 +6,7 @@ Thief Simulator (2018) [Ru/Multi] (1.2.6) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365086.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Book of Demons (2018) [Ru/Multi] (1.03.19279/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365085.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Fatal Evidence 3: Art of Murder / Роковые улики 3: Искусств�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364828.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Final Fantasy IV / Последняя фантазия 4 (2014) [Ru/Multi] (1.0.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364805.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Debris (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364787.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129/dlc) Repack xatab [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364708.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Spelunker Party! (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364707.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Welcome to Hanwell (2017) [En] (1.0/Hotfix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364697.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Inmates (2017) [Ru/Multi] (1.0.2) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364688.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Jack Keane / Джек Кейн (2008) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364145.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Batman: Arkham Origins Blackgate (2014) [Ru/Multi] (F1-RLS-33278) SteamRip R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363281.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wanderlust 3: Shadow of the Monolith (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363109.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Midnight Calling 5: Arabella / Полуночный зов 5: Арабелла (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363107.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The 9th Gate (2018) [En/Ch] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363058.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Reflections of Life 8: Dream Box / Отражения жизни 8: Ларец �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362950.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Rite of Passage 7: Sword and the Fury / Обряд посвящения 7: Ме�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362830.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augm
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362659.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.20/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362650.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Yomawari: Midnight Shadows (2017) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362437.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Alan Wake's American Nightmare (2012) [Ru/En] (1.03.17.1893) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362436.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Numantia (2017) [Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362299.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) License EMPRESS [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362186.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Total War Saga: TROY (2020) [Ru/Multi] (1.2.0/dlc) License CPY
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362076.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361049.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dreamwalker: Never Fall Asleep / На Просторах Снов: Кошмар�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361026.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dreamwalker: Never Fall Asleep / На Просторах Снов: Кошмар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F2426E4343AABE315D81FA3204F5929123E7642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328643   (360855) от 01.10.2019
+
+Dark Romance 11: The Ethereal Gardens / Мрачная история 11: Воздушные Сады (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение романтической серии игр Dark Romance. Ваш отец был убит злой королевой фей. Вы хотите не только отомстить, но и более того - вам нужны крылья королевы для оживления отца. Однако путешествие будет не простым, потому что магические существа попытаются вас остановить. Сможете ли вы защитить свое королевство от врагов? Или сами станете жертвой темной магии, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DDAB6526BD28E1FDB6D2DE2BB9EA848AA74BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

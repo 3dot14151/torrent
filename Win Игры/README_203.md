@@ -1,29 +1,3 @@
-###  Публикация: 914758   (596495) от 03.07.2015
-
-Chronicle Keepers: The Dreaming Garden (2015) [En] License RELOADED [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы потратили всю свою жизнь на поиск информации о вашем прошлом. Кто был вашей матерью и что стоит за таинственным медальоном, который она оставила для вас? Вы не можете избавиться от странных снов в последнее время, и запутанные, далекие, воспоминания не дают вам покоя. Случайно в местном книжном магазине ваше внимание привлекает старая пыльная книга, на которой (   Читать дальше...   )Тип издания: ЛицензияРазработчик: PlayWayЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC8C9B8168D913E532691524C7581AF781221A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 356996   (596458) от 29.06.2011
 
 Super Mario Brawl (P) [En] 2011
@@ -32,7 +6,7 @@ Super Mario Brawl (P) [En] 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596458.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sacred Almanac: Traces of Greed (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596365.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Rune Classic / Руна (2001) [Ru/Multi] (1.11/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596023.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Rise of Industry (2019) [Ru/Multi] (1.0.0.0205A) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595882.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Partisans 1941 / Партизаны 1941 (2020) [Ru/Multi] (1.1.02.5/dlc) Licens
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595879.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Hegemony III: Clash of the Ancients (2015) [En] (3.3.6.4/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595699.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Vector Thrust (2015) [Ru/Multi] (1.0) Repack xGhost
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595658.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Eyes of Ara (2016) [En] (1.0.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595596.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Eyes of Ara (2016) [En] (1.0.01) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595591.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Whispers (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595546.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/upd2/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595486.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Captain Morgane And The Golden Turtle [Multi5/+] (RePack) 2012 l Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595321.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Haunted Legends 7: The Secret of Life / Легенды о призраках 7: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595219.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Witches Legacy 6: The Dark Throne (2015) [En] Unofficial [Collector's Edition / 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594931.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Banner Saga Dilogy (2014-2016) [Ru/Multi] (2.42.50/2.39.03/dlc) Repack R.G. 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594815.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ New York Mysteries 4: The Outbreak (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594709.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ FIFA 17 (2016) [Ru/En] (1.0) Repack xatab [Super Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594689.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Death and Betrayal in Romania: A Dana Knightstone Novel 5 / Роман Даны 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594653.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Hidden Expedition 8: Smithsonian Castle / Секретная экспедици�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594542.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Dead In Vinland (2018) [Ru/Multi] (1.4/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594525.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Grim Facade 6: Hidden Sins / За гранью жестокости 6: Тайн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594494.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (1.0.2) License FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594465.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dead In Vinland (2018) [Ru/Multi] (1.4/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594300.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Clue/Cluedo: The Classic Mystery Game (2018) [Multi] (2.4.1-511565/dlc) License 
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594298.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd6) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594287.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd6) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6013D7FDE5B5775541CEAA29C10207592771F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039895   (594201) от 02.08.2016
+
+Rising Islands (2016) [Ru/Multi] (1.010) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в этом мире царили хаос и раздор. Лишь создав реликвии, Древние сумели восстановить мир и гармонию. Постепенно мир восстановился после эпохи междоусобиц. Но зло не побеждено, и скоро хаос вернется, чтобы нарушить природное равновесие. Только вы, молодая женщина по имени Хайро, можете спасти мир. Используя уникальную способность, позволяющую перемещаться (   Читать дальше...   )Тип издания: LicenseРазработчик: Lone Hero StudiosЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06766CB19EEC3296F5BCE891C749EF4426936DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

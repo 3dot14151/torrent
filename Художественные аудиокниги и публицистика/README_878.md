@@ -1,84 +1,3 @@
-###  Публикация: 1824694   (136831) от 16.10.2025
-
-Саша Фишер | На стороне солнца (Книги 1-4) (2024-2025) [MP3, Павел Архипов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Все страны, события и герои вымышлены, но совпадения и ассоциации не случайны.
-Действие книг происходит в вымышленном государстве, созданном по образу и подобию Германии 1900 - 1937 годов XX века. С небольшим допущением - в этом мире есть люди с паранормальными способностями.
-Источники вдохновения - шпионские романы середины прошлого века.
-P.S. Слово "фюрер" (   Читать дальше...   )Жанр: Фэнтези, триллер, шпионскийИздательство: ЛитРесПродолжительность: 37:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DECC069F8E527EB978B21A0350DE110E16A45A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824870   (136823) от 16.10.2025
-
-Дмитрий Коровников | Адмирал Империи (Книги 1-52) (2022-2025) [MP3, Один, Обухов Михаил]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пограничные звёздные системы Российской Империи атакованы ударными флотами Американской Сенатской Республики. Мы начинаем наши «Хроники» с описания одного из самых кровопролитных и беспощадных столкновений начала 23 века. В мировой историографии этот конфликт назван – «Второй Александрийской войной». В наши учебники истории его первый этап вошёл под названием: «Отечественная (   Читать дальше...   )Жанр: Фантастика, космосИздательство: ЛитРесПродолжительность: 236:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E656F3B658FB80701CA7648BAC3854A7ADC137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825199   (136792) от 16.10.2025
-
-Уильям Тенн | Игра для детей (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сэм Вебер, юрист, получил на Рождество коробку из 22 века. Все это похоже на розыгрыш, но инструкция к набору «Собери человека» и все компоненты выглядят очень правдоподобно. После нескольких неудачных попыток Сэм понимает, что сможет изготовить себе женщину, о которой всегда мечтал.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40A6935318B2943833145D0CDBF225F320211AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825455   (136745) от 17.10.2025
 
 Михаил Лермонтов | Герой нашего времени. Тамань (2021) [MP3, Юрий Елагин, Татьяна Михалевкина]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136745.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136744.jpg" />
 </div>
 
 
@@ -143,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136742.jpg" />
 </div>
 
 
@@ -172,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136700.jpg" />
 </div>
 
 
@@ -199,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136677.jpg" />
 </div>
 
 
@@ -225,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136666.jpg" />
 </div>
 
 
@@ -251,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136656.jpg" />
 </div>
 
 
@@ -279,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136472.jpg" />
 </div>
 
 
@@ -306,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136391.jpg" />
 </div>
 
 
@@ -335,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136380.jpg" />
 </div>
 
 
@@ -362,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136360.jpg" />
 </div>
 
 
@@ -389,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136102.jpg" />
 </div>
 
 
@@ -415,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136075.jpg" />
 </div>
 
 
@@ -445,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_136065.jpg" />
 </div>
 
 
@@ -472,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135887.jpg" />
 </div>
 
 
@@ -498,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135820.jpg" />
 </div>
 
 
@@ -525,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135554.jpg" />
 </div>
 
 
@@ -551,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135530.jpg" />
 </div>
 
 
@@ -577,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135241.jpg" />
 </div>
 
 
@@ -605,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135230.jpg" />
 </div>
 
 
@@ -631,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134997.jpg" />
 </div>
 
 
@@ -657,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134931.jpg" />
 </div>
 
 
@@ -685,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134894.jpg" />
 </div>
 
 
@@ -696,6 +615,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D4A1B4A0A637B1C1908425AA627922AF3167B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352753   (134769) от 27.11.2023
+
+Борис Лавренев | Сорок первый (2006) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Союз классика. Советская классическая проза.
+Борис Андреевич Лавренев (1891-1959), русский советский писатель, прозаик, публицист, драматург, лауреат двух Сталинский премий (1946, 1950).
+По желтым пескам Средней Азии идет отряд красноармейцев. Всего вырвались из смертельного круга в бархатной котловине Евсюков, двадцать три и Марютка - лучший стрелок отряда, (   Читать дальше...   )Жанр: Русская литература, классика, драма, повестьИздательство: Издательский дом «Союз»Продолжительность: 01:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71857C60B3FC07CE878108BC9829F11742F833F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680191   (134581) от 28.11.2023
+
+Алан Александер Милн | Слишком поздно (2018) [MP3, Сергей Дадыко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алан Александр Милн (1882—1956) в первую очередь известен как автор повестей о Винни-Пухе, однако его перу принадлежат также и «взрослые» романы, пьесы и эссе.
+«Слишком поздно» – остроумная и необыкновенно честная книга. Писатель создал великолепное произведение о времени и себе, близкое скорее к художественной, нежели к мемуарной прозе. Читателю предстоит окунуться (   Читать дальше...   )Жанр: Зарубежная литература, классика, биография, мемуарыИздательство: Нигде не купишьПродолжительность: 10:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D2E4C2FADD6BBABF9CA0D9E34552F5AD2D2E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680205   (134573) от 28.11.2023
+
+Мигель де Сервантес Сааведра | Хитроумный идальго Дон Кихот Ламанчский (2013) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Хитроумный идальго Дон Кихот Ламанчский» был написан великим испанским писателем Мигелем де Сервантесом Сааведрой (1547-1616). Автор рассказывает, как герои его книги рыцарь и оруженосец, странствуют в поисках добра, справедливости и красоты по необъятным просторам своей многострадальной родины.
+Идеи Сервантеса о защите слабых и угнетенных, как о священном (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 54:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FA60DCCC9717D526901484D0EF2258C9D0FA7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

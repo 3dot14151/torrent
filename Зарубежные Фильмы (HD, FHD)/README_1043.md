@@ -1,56 +1,3 @@
-###  Публикация: 451894   (77395) от 20.02.2012
-
-Вальс с Баширом / Vals Im Bashir / Waltz with Bashir (2008) BDRip [H.264/720p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Первый полнометражный документальный мультфильм – глубоко личная работа израильского режиссера Ари Фольмана. Друг автора страдает от ночных кошмаров, связанных с 1980-ми годами, когда оба они были юными солдатами израильской армии.
-Сам Фольман понимает, что из его памяти выпали большие куски воспоминаний о том времени. Он начинает разыскивать друзей и сослуживцев, (   Читать дальше...   )Производство: США, Германия, Финляндия, Франция, Швейцария, Австралия, Бельгия, ИзраильЖанр: Военный, драма, исторический, анимационныйРежиссер: Ари ФольманПеревод: MVO (лицензия)Язык субтитров: Русские, украинские (vatah)Продолжительность: 01:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB3F9F4FBA468C0CCC89B996B2A4B37B14C7F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454188   (77048) от 18.02.2012
-
-Грибы 3D / One Way Trip 3D (2011) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В центре событий группа молодых людей отправившихся в лес на поиски галлюциногенных грибов. Добравшись до места, они начинают сбор грибов, а вечером решают немного оттянуться. Веселье заканчивается, когда один из ребят, отлучившийся за пивом, возвращается с разбитым в кровь лицом. Что с ним случилось, он понятия не имеет. Ребята решают срочно уйти из леса, но обнаруживают, (   Читать дальше...   )Производство: HesseGreutert Film AG / SuperfilmЖанр: Ужасы, ТриллерРежиссер: Маркус ВельтерАктеры: Сабрина Рейтер, Мелани Винигер, Херберт Лайзер, Мартин Лус, Аарон Хиц, Маттиас Бритшджи, Саймон Кэсер, Изабелль Барт, Гарри Лампль, Таня РаунигПеревод: ДублированныйСубтитры: Вшитые (отключаемые)Язык субтитров: Английский (форсированные)Продолжительность: 1:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C19A7283F587D8C44BF9F133F91BFE83A89F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453411   (77025) от 18.02.2012
 
 Война Богов: Бессмертные / Immortals (2011) [1080p] BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77025.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76958.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76819.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76429.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76341.jpg" />
 </div>
 
 
@@ -193,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76182.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76180.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76150.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76017.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75972.jpg" />
 </div>
 
 
@@ -326,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75970.jpg" />
 </div>
 
 
@@ -353,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75591.jpg" />
 </div>
 
 
@@ -380,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75576.jpg" />
 </div>
 
 
@@ -406,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75562.jpg" />
 </div>
 
 
@@ -433,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75561.jpg" />
 </div>
 
 
@@ -465,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75558.jpg" />
 </div>
 
 
@@ -491,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75493.jpg" />
 </div>
 
 
@@ -517,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75334.jpg" />
 </div>
 
 
@@ -543,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75331.jpg" />
 </div>
 
 
@@ -569,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75147.jpg" />
 </div>
 
 
@@ -597,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74955.jpg" />
 </div>
 
 
@@ -623,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74950.jpg" />
 </div>
 
 
@@ -649,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74903.jpg" />
 </div>
 
 
@@ -675,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74704.jpg" />
 </div>
 
 
@@ -684,6 +631,58 @@ https://mybot314.ru/tekegram_catalog/
 Лента поставлена по книге писателя Артура Бернеда, прославившегося тем, что он писал небольшие мистико-детективные истории.
 На заре нового тысячелетия мумия, обладающая злыми силами, порождает демона по имени Белфегор, который разгуливает по Лувру по ночам. Мониторы взрываются, камеры видеонаблюдения сходят с ума, сигнализации не срабатывают, а египетские древности (   Читать дальше...   )Жанр: Ужасы, Мистика, ДетективРежиссер: Жан-Поль СаломеАктеры: Софи Марсо, Мишель Серро, Фредерик Дифенталь, Джули Кристи, Жан-Франсуа Балмер, Паташу, Лионель Абелански, Франсуа Леванталь, Жак МарсальПеревод: 1 - Профессиональный (дублированный)
 2 - Авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:36:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447998   (74434) от 06.02.2012
+
+Что-то не так с Кевином / We Need to Talk About Kevin (2011) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отложив в сторону все личные и профессиональные амбиции, Ева посвящает жизнь рождению и воспитанию сына. Однако их отношения с самого начала оказываются крайне сложными. В пятнадцать лет Кевин совершает непоправимое, и Ева мучается сознанием ответственности и собственной вины. Достаточно ли она любила своего сына? Какова доля ее вины в происшедшем?Жанр: триллер, драмаРежиссер: Линн РэмсиАктеры: Тильда Суинтон, Джон Си Райли, Эзра Миллер, Джаспер Ньюэлл, Рок Дер, Эшли Герасимович, Шаван Фэллон, Алекс Манетт, Кеннет Франклин, Лесли ЛайлсПеревод: Профессиональное (двухголосое)Формат: MKVПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447430   (74360) от 05.02.2012
+
+Охотники за головами / Headhunters / Hodejegerne (2011) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роджер Браун — блестящий «охотник за головами», незаменимый специалист по подбору топ-менеджеров для крупнейших фирм. Он может найти нужного человека на любую должность и его рекомендация — залог получения работы. Чтобы удержать красавицу жену, открывшую на деньги мужа картинную галерею в модном районе, Роджер давно уже живет не по средствам, и, пользуясь своим служебным (   Читать дальше...   )Производство: ГерманияЖанр: Боевик, Триллер, КриминалАктеры: Николай Костер-Вальдау, Юлье Ольгорд, Аксель Хенни, Бор Ове, Йоахим Рафаелсен, Эйвинд Сэндер, Нильс Йорген Каалстад, Карре Хаген Сиднесс, Рейдар СеренсенПеревод: ДублированныйСубтитры: нетПродолжительность: 01:40:06
 
 ## Скачать торент
 ```bash

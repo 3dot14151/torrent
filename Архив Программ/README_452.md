@@ -6,7 +6,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807180.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ACDSee Pro 9.2 Build 524 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807174.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2016 Standard 16.0.4366.1000 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807173.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ReviverSoft PC Reviver 2.16.0.20 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807107.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cacheman 10.10.6.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807104.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinCatalog 2017 17.04 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807100.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MediaHuman YouTube Downloader 3.9.8.10 (2203) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807096.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cacheman 10.10.0.5 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807092.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Geek Uninstaller 1.3.3.46 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807090.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wise Care 365 Pro 3.59.319 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807088.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ LibreOffice 4.4.2 Stable Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807085.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Novicorp WinToFlash Professional 1.4.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807036.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807017.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wise Care 365 Pro 4.58.436 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806964.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Novicorp WinToFlash Professional 1.6.0000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806954.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ SAM CoDeC & DeCoDeR Pack 2015 5.81 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806940.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Baidu Antivirus 2015 5.4.3.118812 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806927.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Zero Assumption Recovery (ZAR) v9 build 32 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806860.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ DP Animation Maker 3.3.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806838.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.90.4200 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806837.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wise Care 365 Pro 4.58.436 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806833.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.90.4200 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806828.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AdwCleaner 6.045 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806827.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ WindowsPlayer 3.5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806825.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Avast Internet Security 17.3.2290 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806823.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Skype 7.3.0.101 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806799.jpg" />
 </div>
 
 

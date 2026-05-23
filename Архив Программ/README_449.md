@@ -6,7 +6,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809237.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.39 (4/19/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809225.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Autodesk AutoCAD Plant 3D 2017 HF1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809218.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4815.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809215.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Foundry MARI 3.0 v3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809213.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4815.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809210.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Screenshot Captor 4.20.1 Portable by Kopejkin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809128.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kaspersky Rescue Disk 10.0.20.6 Build 06.05.2010 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809122.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AkelPad 4.9.3 + Plugins (х86/х64) RePack + Portable by San_dr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809027.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ pdfFactory Pro 6.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809024.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Corel PaintShop Pro X8 18.2.0.61 Retail + Ultimate Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808970.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Malware Hunter Free 1.32.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808905.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SpeedyFox 1.4.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_808894.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FinePrint 9.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808871.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ qBittorrent 3.1.12 Portable by PortableApps Rev 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808866.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MKVToolNix 10.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808810.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Zemana AntiMalware Free 2.72.2.324 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808729.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Kaspersky System Checker 1.1.0.228 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808655.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ CorelDRAW Graphics Suite X5 RETAIL DVD 15.0.0.486 [Dutch, English, French, Germa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808608.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ RS Recovery Software 2017 (26.03.17) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808558.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ JetBrains PyCharm Professional 2017.1 Build #PY-171.3780.115 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808554.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Zemana AntiMalware Premium 2.72.2.327 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808550.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ SMPlayer 18.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808291.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Internet Download Manager 6.30 Build 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808283.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Glary Utilities Pro 5.174.0.202 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808219.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Sandboxie 5.53.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808218.jpg" />
 </div>
 
 

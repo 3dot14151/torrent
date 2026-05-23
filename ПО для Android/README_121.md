@@ -1,58 +1,3 @@
-###  Публикация: 1720142   (57861) от 02.05.2024
-
-Malwarebytes Mobile Security 5.7.0+297 Mod by Balatan [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes Mobile Security – это антивирусное приложение для мобильных устройств, которое может полностью удалить даже самые передовые вредоносные программы. Продукты Malwarebytes доказали свою эффективность в защите компьютеров путем полного удаления всех видов вредоносных программ, включая вирусы, трояны, шпионское ПО, рекламное ПО и руткиты. Когда дело доходит (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.04.2024Разработчик: MalwarebytesПоддерживаемая ОС: Android 9.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D3AD582B0DA6D18D8BB48AFA1A853F3323C062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720481   (57792) от 03.05.2024
-
-VPN Servers for OpenVPN 46 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-400 открытых VPN-серверов.
-Для этого приложения требуется приложение «OpenVPN для Android» для подключения к серверам (другие клиенты OpenVPN также могут работать).
-
-Все перечисленные серверы размещены добровольцами проекта VPN Gate Университета Цукуба, Япония. Они не так надежны, как платные VPN-сервисы, но они действительно бесплатны и доступны по всему миру.(   Читать дальше...   )Тип издания: FreeРазработчик: DSchmidtПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0140672F3CCD41D113530F21F772251429AB26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720354   (57756) от 03.05.2024
 
 Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
@@ -61,7 +6,7 @@ Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57756.jpg" />
 </div>
 
 
@@ -90,7 +35,7 @@ tvQuickActions Pro 3.4.0 (172) Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57728.jpg" />
 </div>
 
 
@@ -116,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57633.jpg" />
 </div>
 
 
@@ -143,7 +88,7 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.1.615 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57504.jpg" />
 </div>
 
 
@@ -169,7 +114,7 @@ BSPlayer Pro 3.20.248-20231218 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57413.jpg" />
 </div>
 
 
@@ -195,7 +140,7 @@ Melon VPN - Secure Proxy VPN 8.0.032 Mod By Derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57381.jpg" />
 </div>
 
 
@@ -224,7 +169,7 @@ Smart AudioBook Player Pro v10.8.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57277.jpg" />
 </div>
 
 
@@ -250,7 +195,7 @@ Spotify 8.9.38.494 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57220.jpg" />
 </div>
 
 
@@ -279,7 +224,7 @@ GPS АнтиРадар v44.1 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57214.jpg" />
 </div>
 
 
@@ -305,7 +250,7 @@ Mirror Plus: Mirror with Light / Зеркало Плюс v4.3.12 Mod by srajawwa
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57207.jpg" />
 </div>
 
 
@@ -331,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56964.jpg" />
 </div>
 
 
@@ -357,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56901.jpg" />
 </div>
 
 
@@ -383,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56827.jpg" />
 </div>
 
 
@@ -409,7 +354,7 @@ VirusTotal Mobile 2.5 Lite-Mod by cvvar00 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56793.jpg" />
 </div>
 
 
@@ -435,7 +380,7 @@ ibis Paint X 12.1.0 Lite-Mod by NURIK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56708.jpg" />
 </div>
 
 
@@ -461,7 +406,7 @@ D Notes - заметки и списки 2.6.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56687.jpg" />
 </div>
 
 
@@ -487,7 +432,7 @@ Via Браузер / Via Browser 5.5.1 Mod by AnBo39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56680.jpg" />
 </div>
 
 
@@ -513,7 +458,7 @@ Via Браузер / Via Browser 5.5.1 Mod by bot3.14 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56669.jpg" />
 </div>
 
 
@@ -539,7 +484,7 @@ Via Браузер / Via Browser 5.5.1 Mod by person10301 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56661.jpg" />
 </div>
 
 
@@ -565,7 +510,7 @@ ibis Paint X 12.1.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56657.jpg" />
 </div>
 
 
@@ -591,7 +536,7 @@ Adobe Acrobat Reader для PDF 24.4.1.33150 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56623.jpg" />
 </div>
 
 
@@ -617,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56596.jpg" />
 </div>
 
 
@@ -643,7 +588,7 @@ PhotoTune - Улучшитель фото v4.6.0 Mod by Mixroot, 0x7d [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56594.jpg" />
 </div>
 
 
@@ -669,7 +614,7 @@ Colorize Images v4.0.72 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56573.jpg" />
 </div>
 
 
@@ -680,6 +625,58 @@ Colorize Images - это сервис, основанный на автомат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA179F82C72C82B7DFA28334D5C5124AD4661B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718464   (56490) от 15.05.2024
+
+Кино HD v3.4.7 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный клиент онлайн кинотеатра. Множество фильмов, сериалов, трейлеров. Абсолютно бесплатно. Способен искать фильмы и сериалы во множестве источников. Работает весьма быстро. Удобный интерфейс.Тип издания: ModРелиз состоялся: 15.05.2024Разработчик: a-apps.cnПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F0F0F74D8AEC0F76D0170D426907F5739101E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723325   (56468) от 15.05.2024
+
+Adobe Photoshop Express 13.5.31 (ARM64) Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop Express - ещё одно крайне нужное и полезное для фотографов приложение, которое не нуждается в представлении. Здесь, в отличие от других, пользователям предлагается более профессиональный аспект возможностей фоторедакторов. Они смогут редактировать фотографии, устранять шумы и прочие дефекты, скрывать огрехи композиции кадрированием, изменять угол, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 09.05.2024Разработчик: AdobeПоддерживаемая ОС: Android 9.0+ (Только для ARM64)Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE3BF96CE6D04D22662A458F358FB3D9F9993D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

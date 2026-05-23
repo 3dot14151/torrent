@@ -1,57 +1,3 @@
-###  Публикация: 1175556   (378183) от 18.10.2017
-
-Набережная Орфевр, 36 / 36 Quai des Orfevres (2004) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в Париже. Два полицейских, которых играют Даниэль Отёй и Жерар Депардьё, стремятся занять вакантное место начальника полиции, расследуя серию вооружённых ограблений.
-Банда преступников, нападающих на инкассаторские автомобили, уже более полугода работает в Париже, и остаются неуловимыми. Двое хороших полицейских, работающих в разных (   Читать дальше...   )Производство: Франция. Кинокомпания:  «Gaumont»Жанр: Боевик, Триллер, Драма, КриминалРежиссер: Оливье МаршальАктеры: Даниель Отёй, Жерар Депардье, Андре Дюссолье, Рошди Зем, Валерия Голино, Даниэль Дюваль, Милен Демонжо, Катрин Маршаль, Франсис Рено, Ален ФиглажПеревод: Дублированный, одноголосый закадровыйСубтитры: Русские, французские, английскиеПродолжительность: 01:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDCB15C240B41B262F66D22142DE041F12BC334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339836   (378127) от 11.10.2020
-
-Полночное Солнце / Taiyo no uta / Midnight Sun (2006) BDRip [H.264/1080p] [MVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Шестнадцатилетняя Каору больна редкой болезнью — ей нельзя появляться под солнечным светом. Днем она спит, а ночью играет на гитаре свои песни недалеко от железнодорожной станции. Но ровно в 4:40 она должна быть уже дома — до восхода солнца.
-Однажды, из своего окна она видит юношу с доской для серфинга. С того момента она ежедневно наблюдает за тем, как он и его (   Читать дальше...   )Производство: Япония / Geneon Entertainment, Nippon Shuppan Hanbai (Nippan) K.K., Robot CommunicationsЖанр: драма, мелодрама, музыкаРежиссер: Норихиро КоидзумиАктеры: Юи, Такаси Цукамото, Кунико Асаги, Эри Фусэ, Гаку Хамада, Кинтаро Хара, Дзюн Канамэ, Горо Киситани, Ken Koba, Такаси КобаясиПеревод: Многоголосый закадровыйСубтитры: Русские (перевод от drunken_master2), английскиеПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FED66A9B4A26A8E3CE7609B2DDF07949213F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410696   (378125) от 11.10.2020
 
 Пароль "Рыба-меч" / Swordfish (2001) BDRemux [VC-1/1080p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378125.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378113.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378107.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378053.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378021.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378012.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378010.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377997.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377972.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377922.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377884.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377882.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377841.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377764.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377755.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377753.jpg" />
 </div>
 
 
@@ -482,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377739.jpg" />
 </div>
 
 
@@ -508,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377729.jpg" />
 </div>
 
 
@@ -534,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377725.jpg" />
 </div>
 
 
@@ -560,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377714.jpg" />
 </div>
 
 
@@ -587,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377684.jpg" />
 </div>
 
 
@@ -613,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377665.jpg" />
 </div>
 
 
@@ -639,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377621.jpg" />
 </div>
 
 
@@ -665,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377612.jpg" />
 </div>
 
 
@@ -676,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D2644B4FF771930D0CFECB8D6204F39975DF10B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573791   (377545) от 11.11.2012
+
+На дороге / On the Road (2012) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377545.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти отца начинающий нью-йоркский писатель Сэл Парадайз знакомится с молодым и очаровательным Дином Мориарти, только что вышедшим из тюрьмы и женатым на соблазнительной красотке Марилу. Они мгновенно становятся неразлучными друзьями. Стремясь к свободе, Сэл, Дин и Марилу порывают с условностями жизни и отправляются в путешествие навстречу миру, людям и самим (   Читать дальше...   )Производство: France 2 Cinéma / Jerry Leider Company / France Télévisions / Film4Жанр: Драма, приключенияРежиссер: Уолтер СаллесАктеры: Гаррет Хедлунд, Сэм Райли, Кристен Стюарт, Эми Адамс, Том Стёрридж, Дэнни Морган, Алиси Брага, Элизабет Мосс, Кирстен Данст, Вигго МортенсенПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 02:14:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573930   (377540) от 11.11.2012
+
+В белом плену / Снежная тюрьма / Into the White (2012) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним холодным зимним днем над территорией Норвегии разгорается жаркое сражение двух самолетов — немецкого и английского. В результате столкновения обе машины получают серьезные повреждения и падают в глухом норвежском лесу. Здесь, в изоляции от внешнего мира, враги вынуждены выживать вместе. Тяжелые условия и необходимость поддерживать друг друга постепенно превращают врагов в товарищейЖанр: Боевик, Драма, ВоенныйРежиссер: Петтер НессАктеры: Флориан Лукас, Дэвид Кросс, Стиг Хенрик Хофф, Локлен Нибор, Руперт Гринт, Ким Хёуген, Кнут Йонер, Мортен Фальдаас, Сондре Крогтофт ЛарсенПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: zamezЯзык субтитров: Русский, Норвежский, ФинскийПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

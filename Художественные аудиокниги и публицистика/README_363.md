@@ -1,83 +1,3 @@
-###  Публикация: 327425   (721768) от 23.04.2011
-
-Герман Гессе | Степной волк (2006) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Золотой фонт мировой классики».
-Герман Гессе (1877–1962) – немецкий писатель, лауреат Нобелевской премии (1946), создатель интеллектуальной прозы 20 века.
-Степной волк» (1927) – один из культовых романов писателя – в значительной мере посвящен проблемам взаимоотношений между обывателями и богемой общества. Мечущийся художник Гарри Галлер, раздираемый фаустовскими (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: : Студия «АРДИС»Продолжительность: 09:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF69B181EDDA4667037D94FA4E1391BA7860CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023532   (721619) от 06.06.2016
-
-Сергей Лысак | От Гудзона до Ла-Платы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Экипаж «Тезея» прочно становится на ноги и с боем завоевывает место под солнцем в чужом для себя мире. Но… Если тебе сопутствует успех, то всегда найдутся те, кто посчитает себя несправедливо обойденным. И русский город Форт Росс, возникший в Новом Свете на два века раньше, станет для них сродни Карфагену, который должен быть разрушен…Жанр: Боевая фантастикаПродолжительность: 12:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE743005F85C7CF642ADC8261930C02DBD264F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218541   (721548) от 10.04.2018
-
-Эндрю Тейлор | Анатомия призраков (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Богатая и знатная меценатка, патронирующая один из элитных колледжей в Кембридже, нанимает Джона Холдсворта, автора популярной книги о призраках, провести частное расследование. Джон должен выяснить, почему ее сын Фрэнк, студент того же колледжа, внезапно тронулся рассудком. Считается, что причиной умопомешательства стало привидение, которое Фрэнк увидел в университетском (   Читать дальше...   )Жанр: Фантастика, МистикаПродолжительность: 15:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D351900FB67ADBC790DA5C5A3AEDE19988C2B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400240   (721293) от 04.08.2020
 
 Джозефина Тэй | Мистификация (2020) [MP3, Александр Бордуков]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721293.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721155.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721149.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720955.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720922.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720859.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720855.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720798.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720796.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720774.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720683.jpg" />
 </div>
 
 
@@ -379,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720672.jpg" />
 </div>
 
 
@@ -405,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720650.jpg" />
 </div>
 
 
@@ -433,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720641.jpg" />
 </div>
 
 
@@ -462,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720574.jpg" />
 </div>
 
 
@@ -488,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720562.jpg" />
 </div>
 
 
@@ -514,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720560.jpg" />
 </div>
 
 
@@ -541,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720539.jpg" />
 </div>
 
 
@@ -567,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720531.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720525.jpg" />
 </div>
 
 
@@ -620,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720462.jpg" />
 </div>
 
 
@@ -646,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720447.jpg" />
 </div>
 
 
@@ -675,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720429.jpg" />
 </div>
 
 
@@ -686,6 +606,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:042091E363310931C1CB6F16ECD45DBABB7D0733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024130   (720427) от 07.06.2016
+
+Виктор Корчной | Антишахматы Записки злодея Возвращение невозвращенца (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720427.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге выдающийся шахматист современности В. Корчной рассказывает о своей драматической судьбе. В центре повествования - многолетнее единоборство с Анатолием Карповым.Жанр: МемуарыПродолжительность: 09:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA34D71F9F4E0DE8ED5EE68B662DD576A10B818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023889   (720426) от 07.06.2016
+
+Рой Медведев | Андропов (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Владимирович Андропов пятнадцать лет занимал пост Председателя Комитета государственной безопасности СССР и лишь пятнадцать месяцев руководил страной, будучи Генеральным секретарем ЦК КПСС. Находясь в политике почти всю свою жизнь, пережив три исторические эпохи и поднявшись на верхнюю ступень государственной власти, он был и остается самым закрытым политическим (   Читать дальше...   )Жанр: БиографияПродолжительность: 10:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D590404CA974B619D8807B0A52BCE00B72C335E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531639   (720418) от 16.02.2022
+
+Лаэндэл | Эпоха стражей (Книга 3). Бастион «Блокада» (2022) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон достиг цели к которой шёл долгое время. Вступление в Бастион! Больше не понадобиться беспокоиться о ресурсах для культивации, теперь их будет в достатке. Тем не менее, в планах у глав города очередная экспедиция, а это значит нужно подготовить достойную замену ушедшим стражам. Ожидается жёсткая конкуренция среди кадетов на звание лучшего!Жанр: Боевая фантастика, Городское фэнтези, LitRPGПродолжительность: 08:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8994146766F40882594CAB4BADC4B68826A94657
 ```
 
 https://mybot314.ru/tekegram_catalog/

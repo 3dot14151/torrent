@@ -6,7 +6,7 @@ TeamViewer 15.14.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029107.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Find Any File (FAF) 2.4b12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029096.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ISO Workshop 11.9 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029089.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Feeder 4 v4.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029084.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FontBook 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029083.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ SnapNDrag Pro Screensho‪t‬  4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029082.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Keep It 1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029081.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Affinity Publisher 1.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029080.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ TextMate 2 v2.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029079.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Affinity Designer 1.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029078.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VideoDuke 1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029077.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ GraphicConverter 11 v11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029074.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ File Juicer 4.91 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029073.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Noizio — focus, relax, sleep 2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029070.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ AnyGo 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029068.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ beaTunes 5 v5.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029065.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Micromat Drive Scope 1.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029064.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ DSLR Assistant 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029063.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Cocktail Big Sur Edition 14.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029059.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ djay Pro AI 3.0.5  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029056.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ ExactScan Pro 21.2.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029053.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Affinity Photo 1.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029045.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Microsoft Visual Studio 2019 Professional 16.8.5 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029044.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ WiFi Explorer Pro 3 v3.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029042.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Capture One 21 Pro Beta 3 v14.1.0.213 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029040.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Deflexity - 5 Albums (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Glit
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029038.jpg" />
 </div>
 
 

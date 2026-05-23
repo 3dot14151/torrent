@@ -1,56 +1,3 @@
-###  Публикация: 1823632   (125944) от 12.10.2025
-
-Добыча / Prey (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Север Великих равнин, 1719 год. Девушка Нару из племени команчей больше всего на свете хочет стать достойной охотницей, но близкие не воспринимают её увлечение всерьёз. Когда отряд бывалых охотников идёт в лес на поиски атакованного пумой соплеменника, Нару как опытный следопыт отправляется с ними и вскоре замечает странные следы. Спасение товарища проходит успешно, (   Читать дальше...   )Производство: США / 20th Century Studios, Davis EntertainmentЖанр: ужасы, фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эмбер Мидфандер, Дэйн Дильегро, Харлан Блейн Китвейхат, Дакота Биверс, Джеронимо Вела, Стефани Матиас, Сторми Кипп, Майк Патерсон, Джулиан Шэмп, Нельсон Картер ЛейсПеревод: Дублированный (RHS), многоголосый (Jaskier), авторский (Яроцкий)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF36A3048E5B6126DDED8558BEB7BAA250F393DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510937   (125941) от 12.10.2025
-
-Август Раш / August Rush (2007) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молодой харизматичный ирландский гитарист и американская виолончелистка из престижной семьи полюбили друг друга. После волшебной встречи в Нью-Йорке обстоятельства оказываются сильнее их, и они вынуждены расстаться. Родившийся ребёнок, Август Раш, по столь же несчастливому стечению обстоятельств оказывается в одном из нью-йоркских приютов.
-Двенадцать лет спустя Август (   Читать дальше...   )Производство: США - Warner BrosЖанр: драма, музыкаРежиссер: Кёрстен ШериданАктеры: Фредди Хаймор, Робин Уильямс, Кери Рассел, Джонатан Риз-Майерс, Терренс Ховард, Уильям Сэдлер, Мэриэн Селдес, Майкелти Уильямсон, Леон Дж. Томас III, Аарон СтэтонПеревод: Многоголосый профессиональныйСубтитры: Русские (полные), английские (полные)Продолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5744DBDF0983516F89DC572E7DA06AFE35994A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 117310   (125940) от 12.10.2025
 
 Бегущий за ветром / The Kite Runner (2007) BDRip [H.264/720p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125940.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125936.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125882.jpg" />
 </div>
 
 
@@ -141,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125856.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125830.jpg" />
 </div>
 
 
@@ -193,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125825.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125812.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125782.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125780.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125778.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125774.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125767.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125686.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125677.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125673.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125666.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125619.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125617.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125591.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125557.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125555.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125546.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125530.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125528.jpg" />
 </div>
 
 
@@ -673,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4D9F17074BE638D799092FA05441BCBF382BD4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920772   (125527) от 27.12.2023
+
+Ватель / Vatel (2000) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125527.jpg" />
+</div>
+
+
+###  Подробнее
+
+1671 год. Франция готовится к войне с Голландией. «Король-Солнце» Людовик XIV считает, что лучшим полководцем во Франции является опальный еще со времён Фронды принц Конде. Однако первый министр Франции Кольбер имеет и другую кандидатуру на этот пост.
+Для самого Конде, уже пожилого и тяжело больного подагрой, назначение главнокомандующим — это последний шанс вернуть (   Читать дальше...   )Производство: Франция, Великобритания, Бельгия / Canal+ fr, Gaumont, Légende Entreprises, Nomad FilmsЖанр: драма, мелодрама, биографияРежиссер: Роланд ЖоффеАктеры: Жерар Депардье, Ума Турман, Тим Рот, Тимоти Сполл, Джулиан Гловер, Джулиан Сэндс, Мюррэй Лачлан Янг, Хайвел Беннетт, Ричард Гриффитс, Ариель ДомбальПеревод: Дублированный (CP-Digital), многоголосый (Инис), авторский (Ю.Сербин, Ю.Живов)Язык озвучки: Русский, английскийСубтитры: Русские, французские, английскиеПродолжительность: 01:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF95FAE6244EEDCCC9CCE99780693F1E2A2FEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687306   (125523) от 27.12.2023
+
+Демоны дома Гарретов / Raging Grace (2023) WEB-DLRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нелегальная иммигрантка Джой перебивается подработками горничной и, не имея собственного жилья, втайне от работодателей в каждый дом приводит дочку Грейс — девочку активную и шаловливую. Однажды она устраивается в особняк Гарретов, где престарелый хозяин тяжело болен и не приходит в себя, а всем заправляет его племянница. Ночью Грейс выбирается похулиганить и, проследив (   Читать дальше...   )Производство: Великобритания, Филиппины / Last ConkerЖанр: триллер, драмаРежиссер: Пэрис ЗарсильяАктеры: Макс Эйгенманн, Джейден Боадилья, Лиэнн Бест, Дэвид Хейман, Стефани Коннелл, Seb Yates Cridland, Jodie Davey, Caleb Johnston-Miller, Eugenia Low, Софи Моррис-ШеппардПеревод: Многоголосый профессиональный (TVShows, AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938009ED0A46A5BA093E68CB12763D53459DD2E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

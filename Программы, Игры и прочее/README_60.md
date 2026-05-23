@@ -1,56 +1,3 @@
-###  Публикация: 882710   (647005) от 07.06.2015
-
-MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Не всегда бывает удобно работать как советует нам Google – через облака. Иногда хочется просто подключить компьютер напрямую к телефону, чтобы поработать с контактами, распланировать дела в календаре или разгрести СМС переписку. Некоторые производители смартфонов Android выпускают для этого специальное ПО, которое подходит только для их устройств. А я расскажу вам (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 5 мая 2015 г.Разработчик: FJ SoftwaredevelopmentПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DAA00314403B9CF1FE0DC25220EB8C03E55130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907058   (641367) от 10.06.2015
-
-Настоящие Ретро Игры / Real Retro Games 1.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настоящие ретро игры, это сборник лучших игр с самой популярной консоли 90х – Brick Games. Вы устали от сложных и непонятных игрушек? Соскучились по любимым классическим играм? Попробуйте, хотя бы раз, чтобы вспомнить, как здорово это было!
-Теперь, настоящие ретро игры доступны для ваших телефонов и планшетов. Оригинальный звук, удобное управление, различные обложки (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 5 июня 2015 г.Разработчик: NOMOCПоддерживаемая ОС: Android 2.3+Жанр: ArcadeЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E4FE1A60DD2D4C23769AFD4BD78CB737B7B10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897231   (641108) от 10.06.2015
 
 Angry Birds Seasons 5.2.0 [En]
@@ -59,7 +6,7 @@ Angry Birds Seasons 5.2.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641108.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639048.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ Muscle Premium v4.1.13 Unlocked [En] - анатомия мышц человек�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639045.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ Maths Formulas 9.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634972.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ Garmin: CarteBlanche Ukraine NT 2016.06 (КартБланш Украина) [Ru/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633805.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633325.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ Garmin: CarteBlanche Ukraine NT 2015.03 [Ru/Multi]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633215.jpg" />
 </div>
 
 
@@ -247,7 +194,7 @@ Runtastic GPS Бег 5.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631710.jpg" />
 </div>
 
 
@@ -273,7 +220,7 @@ Power Media Player Pro v6.1.1 Unlocked [Ru/Multi] - Android версия PowerDV
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631500.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ Fotoo v2.3.7 Premium [En] - цифровая фоторамка и скринс�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629639.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ Angry Birds 5.1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629462.jpg" />
 </div>
 
 
@@ -352,7 +299,7 @@ World of Goo 1.2.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629212.jpg" />
 </div>
 
 
@@ -378,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629140.jpg" />
 </div>
 
 
@@ -405,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628906.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ Tasker 4.7u1m [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627382.jpg" />
 </div>
 
 
@@ -457,7 +404,7 @@ Major GUN v 3.5.6 Mod [Infinite Coins] [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626232.jpg" />
 </div>
 
 
@@ -483,7 +430,7 @@ Call Of ModernWar: Warfare Duty 1.1.1 Mod [Money] [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626084.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ Swamp Attack 2.1.2 Mod [Money] [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626074.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ Garmin: City Navigator Thailand 2015.10 (Dual + Thai) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625671.jpg" />
 </div>
 
 
@@ -561,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625461.jpg" />
 </div>
 
 
@@ -587,7 +534,7 @@ Garmin: TOPO Norway Experience PRO v3 [No]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625427.jpg" />
 </div>
 
 
@@ -613,7 +560,7 @@ Garmin: City Navigator East & West Africa NT 2016.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623731.jpg" />
 </div>
 
 
@@ -639,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623061.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ Garmin: City Navigator Middle East & Northern Africa NT 2016.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621564.jpg" />
 </div>
 
 
@@ -678,6 +625,61 @@ Garmin: City Navigator Middle East & Northern Africa NT 2016.10 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D00BD090D169A570C609379A3E8333C172E13B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292441   (620345) от 12.04.2019
+
+Стихи русских поэтов v2.0.34 AdFree [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи русских поэтов - содержит более 19000 стихи 260 русских поэтов.
+
+Александр Пушкин
+Сергей Есенин(   Читать дальше...   )Тип издания: Пиратка (удалена реклама и разблокированы покупки)Релиз состоялся: 07.04.2019Разработчик: TTdictionaryПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03A7A1A14EFB1EBE609AF1BD86C0B0EEC37A5BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544742   (620044) от 16.04.2022
+
+IELTS® Speaking Pro v4.0 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение IELTS Speaking Pro позволяет легко улучшить результаты IELTS Speaking Band для пользователей, которые стремятся получить высокий балл в разговорной речи на IELTS. Поскольку в этом приложении есть 70 полных тестов и более 1000 образцов карточек разговорных тестов IELTS, они совершенно бесплатны , и пользователи могут практиковаться , запишите, поделитесь (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 12 ноября 2021 г.Разработчик: Milinix - Learn English EasilyПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D527CEDF5B0E128BC97EDCB695728726E05513
 ```
 
 https://mybot314.ru/tekegram_catalog/

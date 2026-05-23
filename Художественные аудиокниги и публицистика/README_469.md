@@ -1,82 +1,3 @@
-###  Публикация: 690651   (563781) от 18.08.2013
-
-Аркадий и Борис Стругацкие | Хищные вещи века. Второе нашествие марсиан [Владимир Левашёв] [2013] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Хищные вещи века» – фантастический детектив, главный герой которого проводит расследование в маленькой курортной стране, где появился новый смертельно опасный наркотик. В обществе изобилия – сытом мире, изнывающем от скуки, – благополучная жизнь соседствуют с убогостью духовных запросов. Здесь люди желают лишь «хлеба и зрелищ» и наслаждаются разрушением прекрасного, (   Читать дальше...   )Жанр: Научная фантастикаИздательство: Студия «АРДИС»Продолжительность: 11:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6889C826F951139E4C3C655CC671C510D5D226CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 813877   (563717) от 18.08.2014
-
-Лев Славин | Интервенция (1995) [MP3, Анатолий Папанов и др.]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пьеса Л. Славина «Интервенция» появляется в театрах страны спустя три года после романа «Наследник». Пьеса эта, кажется, ничем не подготовленная в отечественной драматургии, дерзкая, карнавально яркая, порой резкая до плакатности и гротеска, наивная и правдиво точная одновременно, не имевшая подражании, гак и стоящая на особицу, – она и сегодня живая и сущая.
-1919 (   Читать дальше...   )Жанр: аудиоспектакль
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0405ED4ED425E1793E6551EAD9D41224AE897F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152779   (563603) от 24.07.2017
-
-Леонид Пивер | Воспоминания провинциального телевизионщика (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга воспоминаний старейшего режиссера челябинского ТВ – это отнюдь не только рассказ о становлении и развитии областного телевидения, не только рассказ о профессии. Это яркое, ироничное и трогательное повествование о жизни, какой она была полвека назад и какой остается сегодня. Это осененные мягким авторским юмором и всем опытом пережитого короткие истории минувшего, (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 03:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3907193B889C20E32230FFBB3D9DC9B92320EEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152790   (563602) от 24.07.2017
 
 Владимир Набоков | Другие берега (Главы из романа). Рассказы (2017) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563602.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563578.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563576.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563574.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563556.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563456.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563444.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563436.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563429.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563419.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563405.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563403.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563396.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563394.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563380.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563362.jpg" />
 </div>
 
 
@@ -509,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563241.jpg" />
 </div>
 
 
@@ -535,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563228.jpg" />
 </div>
 
 
@@ -561,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563224.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563156.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563118.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563105.jpg" />
 </div>
 
 
@@ -670,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563104.jpg" />
 </div>
 
 
@@ -682,6 +603,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E20C1465BA1E30E89DB2C39E4C1400A9BF75D2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044717   (563103) от 21.08.2016
+
+Бернар Вербер | Муравьи (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот многомиллионный город занимает на поверхности земли всего два квадратных метра!
+Его жильцы – самые трудолюбивые существа в мире!
+Их умение подчиняться правилам – мечта любого диктатора!
+Их интеллекту можно только позавидовать!(   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 10:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10161EC5211A18AF0A1EB9738C7A1972264DF625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556083   (563092) от 07.06.2022
+
+Михаил Ахметов | Разрушители звезд (2021) [MP3, Юрий Белик]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563092.jpg" />
+</div>
+
+
+###  Подробнее
+
+2334 год. Великая Война началась двадцать два года назад. Цивилизации Земли и Васуды, которые долго и ожесточенно сражались за доминирование в космосе, были вынуждены заключить мир и основать союз, ставший новым Альянсом. Теперь они вместе противостояли неожиданной и страшной угрозе, вдруг появившейся из темных глубин пространства. И враг был повержен. Повержен в (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 25:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350DF4E41414C6A785952C51EFAC0177AD188E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556152   (563084) от 07.06.2022
+
+Андрей Булычев | Егерь Императрицы (Книга 7). Крым (2022) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563084.jpg" />
+</div>
+
+
+###  Подробнее
+
+На границе между Османской и Российской империями неспокойно, а уж на Бугской линии тем более! На западе нависает огромная Очаковская группировка турок, на востоке – бескрайняя Дикая степь, а на юге, за Перекопом, Крым ждет десант из Стамбула. Выстоит ли рота Егорова, сможет ли удержать свой рубеж или поляжет в приграничных сражениях? Егеря-волкодавы готовятся к (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, Исторические приключения, ПопаданцыПродолжительность: 09:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5345478EBB8A37A617B1E507A353D1427681B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

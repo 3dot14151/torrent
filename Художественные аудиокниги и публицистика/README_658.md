@@ -1,81 +1,3 @@
-###  Публикация: 1265280   (274075) от 28.11.2018
-
-Александр Терентьев | Миссия "Двойник" (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Июль 1941 года. Белоруссия. Трое мужчин в гражданской одежде пробираются лесами на восток. Это Яков Джугашвили, политрук Шорохов и сержант Тохандзе. В стычке с немцами все трое попадают в плен. Причем только Шорохов сдается добровольно. Вскоре над позициями Красной армии немцы начинают разбрасывать листовки, в которых говорится, что "сам сын Сталина добровольно (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 09:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C04BD1B3CA20A75916350CBC07EDF4B4AD788E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265557   (274066) от 28.11.2018
-
-Уильям Гаррисон Эйнсворт | Джон Лоу. Игрок в тени короны (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Май 1705 года. Франция на грани банкротства. Эпоха «короля-солнца» закатилась. Кутила и бонвиван Филипп Орлеанский, племянник Людовика XIV и регент при малолетнем Людовике XV, в перерывах между балами и альковными похождениями ищет выход из тяжелой ситуации. И выход найден. Шотландский финансист-чародей Джон Лоу представляет регенту революционную идею: заменить звонкую (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034E3588A22F66042774EE5A1897D0B7475D65F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265306   (274020) от 28.11.2018
-
-Евгений Щепетнов | Ветер с севера (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У вчерашнего найденыша, а ныне мага-демонолога Неда Черного серьезные проблемы. Его бывшая супруга Санда стала королевой, но была отравлена врагами и уснула вековым сном. Чтобы пробудить ее, требуется добыть вещество, содержащееся в яде дракона. Но даже успешное пробуждение королевы не избавит Неда от других проблем. Одной из них, по имени Амела, нет и восемнадцати (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 12:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9BCD51D11271EF297749F20FB2E806C0DC6EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265311   (273999) от 28.11.2018
 
 Евгений Щепетнов | Перекресток судеб (2018) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273999.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273992.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273989.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273948.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273933.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273762.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273733.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273709.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273670.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273666.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273660.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273654.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273625.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273612.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273538.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273445.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273366.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273352.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273351.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273099.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272968.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272847.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272610.jpg" />
 </div>
 
 
@@ -678,6 +600,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E041F96475CA9D4B37A001155E995ABC4C6604A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274619   (272602) от 24.12.2010
+
+Александр Дюма | Изабелла Баварская (1994) [MP3, Николай Козий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272602.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1835 опубликовал первый исторический роман Александра Дюма «Изабелла Баварская» - исторический роман, действие которого разворачивается в переломную для Франции эпоху. Как всегда убедительно и достоверно Дюма описывает драматичные эпизоды Столетней войны и кровавые распри высшей французской знати в конце XIV — начале XV века (под Столетней войной, понимают серию (   Читать дальше...   )Жанр: Исторический, классика, приключенияПродолжительность: 20:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51EB2385B74399D09051C6D581B7980C0EE7344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274695   (272590) от 24.12.2010
+
+Александр Дюма (отец) | Полина (1996) [MP3, Лина Музырь]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой увлекательный роман, написанный Александром Дюма в 1839 году о трагической судьбе молодой женщины, графини Безеваль, вышедшей замуж за грабителя и убийцу. Она не остаётся без защитника и покровителя, но всю жизнь вынуждена прятаться от общества. Любовь приходит к Полине тогда, когда поделать уже ничего нельзя...
+
+ Александр Дюма (отец) на NoNaMe ClubЖанр: Классика, приключения, романтикаПродолжительность: 05:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1097BD77E8E769E30B5B44F35C0CB93ADCC99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274613   (272565) от 24.12.2010
+
+Александр Дюма (отец) | Роман о Виолетте (2009) [MP3, Сергей Гамов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прославленный эротический роман XIX века – «Роман о Виолетте» – впервые был выпущен в 1870 году в Лиссабоне издателем Боа-Виста с подзаголовком «Посмертное произведение Замаскированной знаменитости». Несмотря на то, что роман не был подписан Александром Дюма, однако стиль Дюма-отца проглядывается в каждой странице этого автобиографического повествования.
+Прообразом (   Читать дальше...   )Жанр: Зарубежная литература, классика, проза, эротикаПеревод: Элина БраиловскаяИздательство: Институт соитологииПродолжительность: 03:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5EF454AAD0CAECF93FF158B6AD44FF54CEDE97
 ```
 
 https://mybot314.ru/tekegram_catalog/

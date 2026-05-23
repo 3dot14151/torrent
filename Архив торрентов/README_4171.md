@@ -6,7 +6,7 @@ Windows and Office Genuine ISO Verifier 11.12.43.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164205.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Volume2 1.1.7.444 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164200.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ EZ CD Audio Converter 9.0.5.1 (x86) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164198.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AIDA64 (Mobile) v1.84 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164197.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Easy Data Transform 1.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164189.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Topaz Video AI 4.0.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164185.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PotPlayer 231102 (1.7.22031) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164182.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ FiLMiC Pro: Mobile Cine Camera v6.13.2 Mod by EasyApk Team, biN32 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164181.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ PrivaZer 4.0.60 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164176.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ K-Lite Codec Pack 15.3.0 Mega_Full_Standard_Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164173.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Q-Dir 9.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164168.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ExtraDisks 23.10.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164160.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FastStone Capture 10.3 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164158.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PotPlayer 231102 (1.7.22031) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164150.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Skype 8.67.0.96 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164146.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164144.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Macrorit Partition Expert 7.2.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164141.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Truecaller BETA: определитель номера и запись звон�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164139.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Windows 10 Manager 3.1.9.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164136.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ TechSmith Camtasia 2020 Studio v2020.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164131.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mountain Duck 4.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164126.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ FastStone Capture 10.3 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164117.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Total Commander 11.01 (01.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164109.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ OCCT 7.2.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164106.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ The Bat! Professional 10.5.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164049.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ TechSmith Snagit 2022.0.0 Build 14113 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164046.jpg" />
 </div>
 
 

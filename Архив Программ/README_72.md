@@ -6,7 +6,7 @@ NetLimiter Pro 4.1.6.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030190.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.38 Build 17 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030188.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.88.6400 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030167.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MathWorks MATLAB R2023a v9.14.0.2206163 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030165.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AAF DCH Optimus Audio 10.11.2353.9492 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030163.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Acrobat Pro DC 2021.001.20138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030135.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Acrobat Pro DC 2021.001.20138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030127.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kerish Doctor 2021 4.85 [DC 20.02.2021] (Repack & Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030124.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ IObit Driver Booster Pro 8.3.0.370 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030090.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Perfectly Clear WorkBench 4.3.0.2463 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030040.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AIMP 5.11 Build 2426 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030028.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sumatra PDF 3.5.15391 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030024.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Opera GX 96.0.4693.127 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030020.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Visual Studio 2019 Professional 16.8.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030015.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Athentech Perfectly Clear WorkBench 3.11.2.1926 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029989.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Soft4Boost Document Converter 6.6.7.643 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029986.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Unity Pro 2019 4.20f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029984.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Microsoft Visual Studio 2019 Community 16.8.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029978.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ CyberLink PowerDVD Ultra 22.0.2716.62 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029964.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Athentech Perfectly Clear Complete 3.11.2.1926 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029942.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Unity Pro 2020 2.5f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029941.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ GIMP 2.10.22 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029930.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PDF24 Creator 10.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029928.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029927.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ MAGIX Samplitude Pro X5 Suite 16.2.0.412 + справка [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029906.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ LosslessCut 3.33.1 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029899.jpg" />
 </div>
 
 

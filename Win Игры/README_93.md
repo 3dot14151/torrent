@@ -1,29 +1,3 @@
-###  Публикация: 1369717   (901478) от 24.03.2020
-
-Whispered Legends: Tales of Middleport / Шепот легенд: Истории Миддлпорта (2014) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Тьма накрыла сонный приморский городок Миддлпорт, и с его улиц стали пропадать горожане. Загадочные исчезновения людей сопровождаются слухами о призрачных монстрах, мистических явлениях и каком-то проклятье. Ситуация стала настолько критичной, что Вас, в качестве Инспектора по особым делам, отправляют расследовать это странное дело. Раскроете ли Вы тайну Миддлпортского (   Читать дальше...   )Тип издания: UnofficialРазработчик: Gogii GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07732B2799A2ED5AF0D1EE0FD0CDC0185631153D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369620   (901404) от 24.03.2020
 
 Paranormal Files 5: Trials of Worth / Паранормальные явления 5: Испытание для достойных (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Paranormal Files 5: Trials of Worth / Паранормальные явлени�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901404.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901155.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Galactic Civilizations III (2015) [Ru/En] (2.00) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900765.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Emptiness / Пустота (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900525.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900415.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900406.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Evan's Remains (2020) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900326.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Banzai Escape (2016) [En/Jp] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900293.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900276.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Trulon: The Shadow Engine (2016) [Ru/Multi] (1.0) License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900273.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Insurmountable (2021) [Multi] (1.3.1) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900202.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.25) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899481.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Pac-Man Museum (2014) [Multi] (1.0) License Reloaded
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899125.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Agatha Christie's The ABC Murders (2016) [Ru/En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898490.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Fae Tactics (2020) [Multi] (1.010) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898487.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898462.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cosmic Star Heroine (2017) [En] (1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898437.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Shovel Knight: Treasure Trove (2014) [Ru/Multi] (4.1a/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898426.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Living Legends 4: Bound by Wishes (2016) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897434.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Twin Mind 2: Power of Love (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897373.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Shadow Wolf Mysteries 6: Curse of Wolfhill (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897223.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Coyote's Tale: Fire and Water / Байка Койота. Огонь и вода 
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897182.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ World of Horror (2020) [En] (0.9.17h1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897151.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Mystery Tales 3: Alaskan Wild / Загадочные истории 3: Дика�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897042.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Mysteries of the Mind: Coma / Тайны сознания. Кома (2012) [Ru] 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896980.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Mysteries of the Mind: Coma / Тайны сознания. Кома (2012) [Ru] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB4AACE7E402E30EA4B17DD2B9C42BD5D0A4CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493238   (896956) от 02.09.2021
+
+The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключение о поиске пропавшего охотника и встрече с внеземным разумом! Исследуй дикую природу. Взберись на скалу, вымани кабана, встреться с волчицей и выживи в камнепаде. Помоги оленям и перехитри чудовище! Встреть Неизвестное и раскрой тайну!Тип издания: RepackРазработчик: Ivan SukhanovЖанр: Adventure (Top-Down)Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB14BC1F30F4AFD78B8CA88E834E644D35F86807
 ```
 
 https://mybot314.ru/tekegram_catalog/

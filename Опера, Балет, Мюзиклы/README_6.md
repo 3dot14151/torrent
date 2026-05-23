@@ -1,29 +1,3 @@
-###  Публикация: 104987   (47195) от 11.08.2024
-
-Кошки / Cats (1998) DVD5 (Мюзикл)
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Описание: Кошки (мюзикл)- 1998 года. Автор музыкальных композиций: Эндрю Ллойд. Cats - явление pop-культуры, заслужившее любовь более 50 миллионов поклонников в 26 странах мира. За 18 лет зарегистрировано более 2 миллиардов долларов кассовых сборов. По отзывам многих критиков, этот диск несомненно заслуживает внимание истинных любителей pop жанра.Жанр: МюзиклРежиссер: Дэвид Малле (David Mallet)Актеры: Илэйн Пэйдж /Elaine Paige/, Джон Миллз /John Mills/, Кен Пэйдж /Ken Page/, Розмари Форд /Rosemarie Ford/, Майкл Грюбер /Michael Gruber/, Джон Пэтридж /John Partridge/, Эива Мэй /Aeva May/, Джеффри Гэррэтт /Geoffrey Garratt/, Джеймс Бэррон /James Barron/Перевод: ОригинальныйЯзык: АнглийскийФормат: DVD VideoКачество: DVD5Продолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CCC122D461678584BD3DED4B4BECC341A462DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 72532   (45844) от 24.08.2024
 
 Pink Floyd. The Wall (1982) DVD9
@@ -32,7 +6,7 @@ Pink Floyd. The Wall (1982) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45844.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45221.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45209.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39150.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35181.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31644.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31430.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30669.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17015.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8306.jpg" />
 </div>
 
 

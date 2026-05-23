@@ -6,7 +6,7 @@ Wondershare Filmora Х v10.1.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033250.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Video Enhance AI for Mac 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033235.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Notability 4.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033066.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Timeless: Alarm Clock 1.92 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033064.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ iToolab FixGo 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033063.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ TunePat Amazon Video Downloader 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033061.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Battery Health 3 v1.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033056.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Movist 2.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033055.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ TurboMosaic Pro 3.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033048.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ oneSafe 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033046.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Desktop Aquarium Wallpapers 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033037.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Alfred 4 Powerpack 4.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033036.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ TunePat Apple Music Converter 1.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033031.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Living Wallpaper HD & Weather 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033030.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033026.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Movist Pro 2.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033022.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ TunePat Netflix Video Downloader 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033021.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Pixologic ZBrush 2021.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032875.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ TaskPaper 3.8.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032759.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Permute 3 v3.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032758.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Downie 4 v4.1.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032757.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Templates for Keynote - DesiGN 7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032756.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ TinkerTool System 6 v6.97 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032755.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Hype 4 Pro v4.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032753.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ TinkerTool System 7 v7.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032747.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ iA Writer 5.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032740.jpg" />
 </div>
 
 

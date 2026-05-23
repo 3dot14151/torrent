@@ -6,7 +6,7 @@ Vellum 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920898.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cкелетон. Чемпионат Европы 2017 и Кубок мира. 4-
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920878.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920877.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920875.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Stellarium 0.90.0.9115 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920871.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Feeder 4 v4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920870.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Currency Assistant 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920867.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Privacy Eraser Free 5.14.2 Build 3978 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920865.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Sensei 1.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920862.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ SRWare Iron 92.0.4700.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920857.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ LibreOffice 5.2.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920856.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Sidhartha - Total Experience (EP) (2010) [MP3|320 kbps] <Full On, Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920855.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ guitarFineTune 8.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920854.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Meteor Burn - Comic Book (2011) [MP3|~199 kbps] <Dark Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920853.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Armada Chill (2017) [FLAC|Lossless|WEB|tracks] <Downtempo, Chillout, Lounge
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920852.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Wizack Twizack - Breeze Of Heaven (EP) (2011) [MP3|320 kbps] <Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920849.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Salamandra - Faces Of Chimera (2007) [MP3|320 kbps]<Melodic  Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920847.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Salamandra - Time To Change (2010) [MP3|320 kbps]<Melodic Speed Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920845.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ The Economist January 29th-February 4th 2011 [2011] [PDF] + [аудио верс
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920843.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Audirvana Plus 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920842.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Red Gravity - Mldnrg (2010) [MP3|320 kbps] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920839.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - MOS: The Sound Of Trance (2011) [MP3|320 kbps]<Trance, Progressive Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920837.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ PowerArchiver 2016 16.00.67 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920815.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920813.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Advanced Renamer 3.71 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920810.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Ashampoo Snap 8.0.8 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920805.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 10 Manager 3.6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474232.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAGIX Sound Forge Pro 16.1.1 Build 30 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474231.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox 3.6.22 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474212.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Acoustica Premium Edition 7.0.18 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473917.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AMD Radeon Software Crimson ReLive Edition 17.8.2 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473916.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Icecream Screen Recorder Pro 4.94 RePack (& Portable) by elchupacabra  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473913.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Wondershare Data Recovery 6.2.0.40 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473912.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Google Chrome 60.0.3112.113 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473909.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Calibre 3.7.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473908.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Ashampoo Music Studio 7.0.0.28 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473900.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ KMSAuto++ Portable 1.7.2 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473897.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Drop To Floor R20 v1.0 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473866.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Google Chrome 69.0.3497.81 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473864.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Mozilla Firefox Quantum ESR 60.2.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473863.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Google Chrome 69.0.3497.81 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473747.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Auslogics BoostSpeed 10.0.15.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473665.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Google Chrome 60.0.3112.113 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473650.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ StartIsBack++ 2.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473642.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Auslogics Disk Defrag Pro 4.8.2.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473516.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SoftOrbits Sketch Drawer Pro 5.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473515.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NetLimiter 4.0.32.0 Enterprise RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473513.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cyberfox 41.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473478.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Mozilla Firefox 42.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473473.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NVIDIA GeForce Desktop 385.41 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473428.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Malwarebytes Anti-Malware Premium 3.2.2.2018 DC 24.08.2017 RePack by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473423.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473398.jpg" />
 </div>
 
 

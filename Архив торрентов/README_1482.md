@@ -6,7 +6,7 @@ Tipard DVD Creator 5.0.6 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716405.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716403.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Sumatra PDF 3.4.14273 Pre-release + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716402.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ XYplorer 22.90.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716401.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chromium 98.0.4758.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716400.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Fix My iPhone 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716395.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ CherryTree 0.99.45 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716394.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Calibre 5.37.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716393.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ RogueKiller Anti-Malware 15.3.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716389.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Exif Pilot 6.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716384.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ K-Lite Codec Pack Update 13.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716330.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Remote Desktop Manager Enterprise 2022.1.12.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716325.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Blackmagic Design Fusion Studio 17.4.4 Build 5 (x64) Portable by rsloadNET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716321.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Extreme Picture Finder 3.34.1.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716315.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ FreeCommander XE 2022 Build 865 donor x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716314.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ SSDReporter 1.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716311.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Disk Drill Entreprise 3.1.817 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716306.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Notability 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716304.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Boom 2 v1.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716279.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Waltr 2 v2.6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716273.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ SQLPro Studio 1.0.419 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716266.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Internet Download Manager 6.28 Build 8 RePack by KpoJIuK (01.05.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716252.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Tweetbot for Twitter 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716244.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Wondershare Filmora 8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716241.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ DesktopDigitalClock 4.1.6 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716237.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Display Driver Uninstaller 18.0.4.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716234.jpg" />
 </div>
 
 

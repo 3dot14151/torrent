@@ -1,55 +1,3 @@
-###  Публикация: 1599922   (159183) от 25.12.2022
-
-Викрам / Vikram (2022) WEBRip [H.264/720p] [PR]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Специальному следователю поручают расследовать дело о серийных убийствах. По мере продвижения расследования он обнаруживает, что дело совсем не такое, каким казалось на первый взгляд, и приведет к войне между всеми, кого касается.Производство: Индия / Raajkamal Films InternationalЖанр: боевик, триллер, детективРежиссер: Локеш КанагараджАктеры: Камал Хаасан, Виджай Сетхупатхи, Фахад Фасил, Нараин, Сурья Шивакумар, Калидас Джаярам, Чимбан Винод Джозе, Сантхана Бхаратхи, Кумаравел, ВасантхиПеревод: Дублированный (The Kitchen Russia)Субтитры: тамильские (full, SDH), английские (full, SDH)Продолжительность: 02:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F53258DF40BAD1C5051E25376153388D28F3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599849   (159174) от 25.12.2022
-
-Банши Инишерина  / The Banshees of Inisherin (2022) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит в 1923 году на вымышленном острове под названием Инишерин. По официальному синопсису от создателей, фильм рассказывает о давних приятелях Падрэке и Колме, в чьей дружбе наступает кризис, когда последний неожиданно прекращает общение.Производство: Ирландия, Великобритания, США / Blueprint Pictures, Searchlight Pictures, Film 4Жанр: Драма, комедияРежиссер: Мартин МакДонаПеревод: Многоголосый профессиональный (HDRezka Studio, TVShows), Авторский (Ю. Сербин, М.Яроцкий)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891005A7E00983905A9A960B6EDCA3BC0588D432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599815   (159161) от 25.12.2022
 
 Стражи Галактики: Праздничный спецвыпуск / The Guardians of the Galaxy Holiday Special (2022) WEB-DL [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159161.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159158.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159151.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159145.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159141.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159136.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159132.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159123.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159121.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159120.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159116.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159095.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159094.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159084.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159082.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159080.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159078.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159068.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159056.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159052.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158994.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158980.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158971.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158965.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B002B1938F4C12B86B9619066FE5B01C9A7586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600161   (158946) от 26.12.2022
+
+Остин Пауэрс. Голдмембер / Austin Powers in Goldmember (2002) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158946.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1975 году отец Остина Пауэрса, знаменитый английский шпион Нейджел Пауэрс был похищен голландским злодеем Голдмембером. Теперь знаменитый шпион Остин Пауэрс решает помочь отцу. Заручившись поддержкой давнего врага, Доктора Зло с помощью его машины времени Остин совершает прыжок во времени. Он оказывается в 1975 году, в эпохе диско. Однако вскоре выясняется, что, (   Читать дальше...   )Производство: США, Gratitude International, Moving Pictures, New Line Cinema, Team ToddЖанр: комедия, фантастика, боевик, приключенияРежиссер: Джей РоучАктеры: Майк Майерс, Бейонсе, Сет Грин, Майкл Йорк, Роберт Вагнер, Минди Стерлинг, Верн Тройер, Майкл Кейн, Фред Сэвэдж, Дайан Мизота...Перевод: дублированный (2 варианта), профессиональный многоголосый, авторские (Евгений Гранкин; Павел Санаев)Субтитры: русские, английские SDHПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5216B6682E9B093F9FF0CFBB433688B09717A44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599948   (158925) от 26.12.2022
+
+После любви / A perdre la raison (2012) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальной истории жизни Женевьевы Лермитт. Мюриэль и Мунир молоды, красивы и счастливы. Они страстно влюблены друг в друга и решают пожениться. Она — бельгийская девушка из среднего класса, учительница в муниципальной школе. Он — выходец из семьи марокканских эмигрантов, которого много лет назад взял под своё крыло доктор Андре Пинге. После свадьбы (   Читать дальше...   )Производство: Бельгия, Люксембург, Франция, Швейцария, Versus Production, Samsa Film, Les Films du Worso...Жанр: драмаРежиссер: Хоаким ЛафоссАктеры: Эмили Декьенн, Клер Бодсон, Нильс Ареструп, Тахар Рахим, Жан-Шарль Отера, Стефан Биссо, Даниэль Феис, Байа Белаль, Муния Рауи, Редуэн Бехаш...Перевод: профессиональный многоголосый (R5)Субтитры: русские, английскиеПродолжительность: 01:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0619D86BA939893D3C1BF879698380464195F39B
 ```
 
 https://mybot314.ru/tekegram_catalog/

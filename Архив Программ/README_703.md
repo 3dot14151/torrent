@@ -6,7 +6,7 @@ Windows Firewall Control 4.7.5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694546.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GPU-Z 0.8.9 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694543.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AnyMP4 Video Enhancement 1.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694541.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Soft4Boost Document Converter 4.5.1.351 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694540.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Soft4Boost Update Checker 6.7.7.349 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694539.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Soft4Boost Any Audio Grabber 5.9.9.403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694456.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Process Lasso Pro 8.9.8.12 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694452.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ TapinRadio Pro 1.72.7 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694447.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Soft4Boost Toolbar Cleaner 4.5.9.307 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694440.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CoolUtils Total Movie Converter 4.1.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694439.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Soft4Boost Any Audio Record 4.9.9.403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694298.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694296.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Soft4Boost AMPlayer 3.8.5.299 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694289.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Process Lasso Pro 8.9.8.12 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694286.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Vivaldi 1.2.490.43 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694282.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Soft4Boost PC Win Booster Free 9.3.9.563 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694281.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Autorun Organizer 4.43 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694260.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Reg Organizer 8.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694244.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ One Commander 3.4.40.1 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694243.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ IcoFX 3.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694241.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ On1 Photo 10.5.0.2943 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694175.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Freemake Video Converter 4.1.9.18 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694167.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Advanced Onion Router 0.3.0.24 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694161.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ GeoGebra 6.0.599.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694157.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Ant Download Manager Pro 1.19.3 Build 72843 (promo GAOTD) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694152.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ AIMP 5.02 Build 2366 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694135.jpg" />
 </div>
 
 

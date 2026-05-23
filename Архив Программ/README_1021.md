@@ -6,7 +6,7 @@ ArtRage 6.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528165.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Run-Command 3.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528103.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinUtilities Professional Edition 13.13 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528067.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reg Organizer 7.50 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528063.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VueScan Pro 9.6.45  DC 06.07.2019 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528041.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ XviD4PSP 7.0.298 DAILY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528018.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527997.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Google Chrome 53.0.2785.113 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527950.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527931.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AMD Radeon Software Crimson Edition 16.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527901.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WifiInfoView 2.08 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527897.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wireless Network Watcher 2.20 Portable [Ru/Uk/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527889.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Foxit PhantomPDF Business 9.6.0.25114 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527873.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Waterfox Current G4.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527828.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FreeFileSync 11.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527799.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Alien Skin Exposure X Bundle for Windows 1.0.0.313 Revision 33752 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527775.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Opera 88.0.4412.53 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527748.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Emurasoft EmEditor Professional 21.8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527742.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Glary Utilities Pro 5.81.0.102 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527731.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ MInstall StartSoft 24-2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527701.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Topaz DeNoise AI 3.7.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527687.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Movavi Picverse 1.9.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527682.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Anhdv Boot 2022 Premium v22.1 x86-x64 (08.06.2022) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527623.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ F-Secure Freedome VPN 2.51.70.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527614.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mozilla Firefox 55.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527565.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Autodesk AutoCAD Map 3D 2018.1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527529.jpg" />
 </div>
 
 

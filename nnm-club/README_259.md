@@ -1,23 +1,22 @@
-###  Публикация: 1861819   (1062833) от 27.03.2026
+###  Публикация: 1861719   (1062789) от 27.03.2026
 
-Sumatra PDF 3.7.17824 Prerelease + Portable [Multi/Ru]
+Irina Shamaeva | Advanced Styles and Insights with Midjourney. Imagine Beautiful AI Prompts (2024) [PDF, EPUB] [EN]
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Explore advanced techniques in AI image generation with a focus on enhancing creativity and producing unique styles using the Midjourney platform, an AI image-generating (text-to-image) program unparalleled in the aesthetics of images it can produce. This book is for anyone ready to push their AI art further, with guidance straight from a seasoned AI artist and user (   Читать дальше...   )Жанр: Graphics & Multimedia Programming, Computer Graphic Design, Computer Graphics & DesignЯзык: АнглийскийИздательство: Apress MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0931B7094978144394A0805A455A0C9900015CEF
+magnet:?xt=urn:btih:AE9F84F76E8ED7F7FB94EBAD2874561E4C235C08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +24,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861820   (1062832) от 27.03.2026
+###  Публикация: 1861716   (1062788) от 27.03.2026
 
-Не сошлись характерами (1989) WEBRip [H.264/1080p]
+М.С. Мирзоев, А.Э. Сатторов | Математическая машина Тьюринга и вычислительная сложность. Учебное пособие (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062788.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены подходы к формализации понятий алгоритма. В нем уточняется понятие алгоритма через математическую машину Тьюринга и машину с неограниченным количеством регистров (МНР) и рассматриваются некоторые оценки сложности алгоритмов. Помимо теоретических и практических материалов пособие содержит задания для самостоятельной работы.
+Содержание учебного (   Читать дальше...   )Жанр: Информатика, Математика, ФизикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779041B9EA80B42123AA2E7F58F90F93D3463EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861712   (1062787) от 27.03.2026
+
+М.Н. Лысачев, М.Н. Прохоров | Искусственный интеллект. Анализ, тренды, мировой опыт (2023) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предоставляет аналитику по мировому и российскому рынку искусственного интеллекта (ИИ), уделяя особое внимание атомной отрасли, приводит согласованную таксономию, на которой базируется эта аналитика, дает описание базовых технологий, необходимых для понимания структуры рынка. В публикации затронуты вопросы, касающиеся определений искусственного интеллекта, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: КОНСТАНТА-принтФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D466D3F6FAD79DE14910905E1EE45AEAC370B4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861869   (1062786) от 27.03.2026
+
+Большая земля (1944) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Психолог Наталья Юрьевна разбирается в запутанных семейно-бытовых драмах своих клиентов, находя нужные слова и аргументы. Сохранять семьи — её работа. Внезапно от неё самой решает уйти муж, влюбившийся в молодую артистку цирка.Производство: СССР / ТО «Экран»Жанр: драма, комедияРежиссер: Николай АлександровичАктеры: Ирина Мирошниченко, Александр Лазарев, Ольга Машная, Филипп Изварин, Майя Булгакова, Ольга Понизова, Тимур Макеев, Леонид Ярмольник, Татьяна КанаеваСубтитры: русскиеПродолжительность: 01:17:01
+Август 1941 года. Жительницы уральского городка провожают на фронт мужчин. Оставшись одни, женщины берутся за самые трудные дела, проявляя незаурядные организаторские способности и волю. Вместе с эвакуированным заводом в городок прибывают беженцы. Героиня Фильма Анна берет к себе в дом женщину с детьми — ее примеру следуют остальные...Производство: СССР / МосфильмЖанр: драма, военныйРежиссер: Сергей ГерасимовАктеры: Тамара Макарова, Виктор Добровольский, Пётр Алейников, София Халютина, Владимир Соловьёв, Марк Бернес, Николай Коновалов, Сергей Блинников, Георгий Ковров, Вера АлтайскаяПродолжительность: 01:24:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E71411F738A8F7645F2E423702A6F195C4A40E9B
+magnet:?xt=urn:btih:2E249EF6645AC65C1C62694F3188547EAF6CBB82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,77 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861823   (1062831) от 27.03.2026
+###  Публикация: 1861709   (1062785) от 27.03.2026
 
-Шрифты - MyFonts - Sophisto [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Успешное сотрудничество между MRF и типографией Psy/Ops Type Foundry. В поисках шрифта без засечек с выразительным и сильным характером, но при этом достаточно «сдержанного», чтобы быть функциональным в большинстве областей, Sophisto в итоге превратился в обширное семейство из 21 элемента. Тщательно разработанный для использования как с текстом, так и с заголовками, (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16444CCF4DE657306C62BEDD84166DE656A8CFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861824   (1062830) от 27.03.2026
-
-IceCream Ebook Reader Pro 6.53 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Читалка для ПК, которая превратит Ваш экран в первоклассную программу для чтения книг. Читайте книги в ePub, MOBI, FB2, CBR и других популярных форматах. С легкостью управляйте цифровой библиотекой на компьютере с Icecream Ebook Reader. Добавляйте заметки, переводите текст, используйте закладки и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9289BFE8B3BEC9C0459883DD7D8500D23E889A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861827   (1062829) от 27.03.2026
-
-Patrick Marie | Modern Web Cartography. Open Source Map Solutions with OpenStreetMap, Overpass, Nominatim, Leaflet and Folium. First Edition (2026) [PDF, EPUB] [EN]
+В.Ю. Арьков | Виртуализация и контейнеризация. Учебное пособие (2022) [PDF]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Modern Web Cartography is your ultimate guide to practical web maps using open source tools, with a particular focus on OpenStreetMap (OSM) and its rich ecosystem. In an era where maps are embedded in virtually every digital service from navigation apps to data dashboards, understanding how to build and customize them is more valuable than ever. While proprietary (   Читать дальше...   )Жанр: Cartography, Software Development, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Виртуальные машины и контейнеры — это современные технологии изоляции, которые решают проблемы совместимости, зависимости и развёртывания приложений. В учебном пособии рассматриваются примеры программных гипервизоров VirtualBox и Hyper-V, механизм песочницы Windows, а также Windows Subsystem for Linux и контейнеры Docker. Знакомство с целым спектром инструментов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFF1057CF06192E35BAD56A8FDFDCA0AF12AB595
+magnet:?xt=urn:btih:B34B169B49CA9E2292D7D0863E73EA0A6B808FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,51 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861830   (1062828) от 27.03.2026
+###  Публикация: 1861707   (1062784) от 27.03.2026
 
-Ка-ка-ду (1992) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Криминальные авторитеты, живущие по волчьим законам, делят сферы своего влияния. Там, где пахнет миллионами, человеческая жизнь не стоит ни гроша.Производство: Россия, студия «Сигур»Жанр: драмаРежиссер: Сергей ГурзоАктеры: Денис Кмит, Александр Стриженов, Екатерина Стриженова, Мария Селянская/Евстигнеева, Нина Русланова, Екатерина Васильева, Станислав Говорухин, Валерий Носик, Наталья Крачковская, Олеся Русланова, Сергей Пенкин, Жанна Власова, Катя Геворкян, Георгий МиллярСубтитры: отсутствуютПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD787F0B21C7BC2FF01B26E560CE6F8743EDF1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861832   (1062827) от 27.03.2026
-
-Raúl Pimienta, Pedro López | Ultimate .NET MAUI Projects. Design and Deploy Cross-Platform Applications with .NET MAUI Using C#, XAML, MVVM Architecture and SQLite (2025) [EPUB] [EN]
+Greg Tomsho | Guide to Operating Systems (MindTap Course List). 6th Edition (2021) [PDF] [EN]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-As the need for unified mobile and desktop applications continues to rise, .NET MAUI offers a modern, efficient solution—enabling developers to create native apps for Android, iOS, Windows, and macOS using a single codebase in C# and XAML. Ultimate .NET MAUI Projects is your comprehensive, hands-on guide to mastering this powerful framework, and building production-ready, (   Читать дальше...   )Жанр: Cross-platform Software Development, Microsoft .NET, Software DevelopmentЯзык: АнглийскийИздательство: Orange EducationФормат: EPUBКачество: Изначально электронное (ebook)
+Master the fundamental concepts of computer operating systems with Tomsho's GUIDE TO OPERATING SYSTEMS, 6th Edition. An excellent resource for training across different operating systems, this practical text equips you with key theory and technical information as you work with today's most popular operating systems, including Windows, macOS and Linux platforms. You (   Читать дальше...   )Жанр: Computer Operating Systems Theory, Computer NetworkingЯзык: АнглийскийИздательство: Cengage Learning, Inc.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:633785F35C2656A6B6FB22C30E947E3DE1EC2E76
+magnet:?xt=urn:btih:2F44EB868FBF26F9C77930E4C6BB894219A608DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,25 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861816   (1062826) от 27.03.2026
+###  Публикация: 1861875   (1062783) от 27.03.2026
 
-Избранные / The Chosen (2025) WEBRip [H.264/720p] (сезон 5, серии 1-8 из 8) SDI Media / IYUNO SDI Group
+ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2076.1 RePack by KpoJIuK [Multi/Ru]
 
->>Зарубежные сериалы
->>нет
+>>Безопасность
+>>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Избранные – это евангельские персонажи, которые встретились с Учителем в самые темные моменты своей жизни. У каждого из них своя судьба, свой путь, своя роль в истории христианства, но тогда они были потерянными, безнадежными и страдающими людьми, нуждающимися в чуде. Сюжет охватывает события от призвания первых учеников Иисуса до встречи с женщиной-самарянкой.Производство: США / VidAngel studios, Out of Order StudiosЖанр: ДрамаРежиссер: Даллас ДженкинсАктеры: Джонатан Руми, Лиз Табиш, Шеер Исаак, Парас Патель, Ник Шейкоауэр, Джордж Харрисон Ксантис, Джиавани Каиро, Джордан Уолкер Росс, Ной Джеймс, Шаан ШармаПеревод: Дублированный (SDI Media / IYUNO SDI Group)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серия
+ESET Endpoint Security — это комплексное решение для обеспечения безопасности, являющееся результатом долгих усилий, направленных на достижение оптимального сочетания максимальной степени защиты с минимальным влиянием на производительность компьютера. Современные технологии, основанные на применении искусственного интеллекта, способны превентивно противодействовать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3853E662CEF71EF0182422BC8F1D33A50D0AF18C
+magnet:?xt=urn:btih:B56FDAF0E2B11795D223344AF69F122A1E0F5896
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,25 +181,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861831   (1062825) от 27.03.2026
+###  Публикация: 1861695   (1062782) от 27.03.2026
 
-Проекты - VideoHive - Micro Glitch Logo - 62310987 [AEP]
+Л.В. Городняя | Парадигма программирования. Учебное пособие для вузов. 2-е изд. (2021) [PDF]
 
->>Проекты
->>Логотипы (проекты)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Micro Glitch Logo — это стильный и технологичный способ представить ваш бренд. Шаблон сочетает в себе эстетику киберпанка, цифрового шума и быстрых искажений (distortion). Он идеально подходит для YouTube-каналов, игровых стримов, презентаций IT-продуктов или рекламных роликов, где важна динамика и современный визуальный стиль.Формат: AEP
+Курс лекций посвящен проблеме анализа, сравнения и определения парадигм программирования и парадигмальной характеристике языков и систем программирования.
+Содержание представляет интерес для специалистов по программированию и информационным технологиям.Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCD4A51D95A5094FDBB9BE889E253FF518FE0146
+magnet:?xt=urn:btih:FAA2F404A206A2D0747AE3DB3D04EED0180F1243
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,27 +208,188 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861835   (1062824) от 27.03.2026
+###  Публикация: 1861690   (1062781) от 27.03.2026
 
-Sreejith Salgunan | Ultimate React Testing with Jest. Build Reliable Web Applications Using React Testing Library, Modern Testing Patterns, Async Flows and CI/CD Integration (English Edition) (2026 ...
+С.В. Белугина | Архитектура компьютерных систем. Курс лекций. Учебное пособие (2020) [PDF]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ultimate React Testing with Jest uses Jest as the foundation to introduce practical, production-ready frontend testing that fits the pace of real engineering teams.
+Учебная дисциплина «Архитектура компьютерных систем» рассчитана на 74 аудиторных часа и предназначена для студентов 2 курса специальности «Программирование в компьютерных системах».
+Целью изучения дисциплины является формирование у студентов знаний о представлении информации в вычислительных системах, об архитектуре и принципах работы ЭВМ и её основных логических (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3248EE65DEB496A74FFA5894F25BE206714A8C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861688   (1062780) от 27.03.2026
+
+Stack Overflow | Node.js. Самое полное руководство для веб-разработчиков в примерах от сообщества Stack Overflow (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Node.js. Самое полное руководство для веб-разработчиков в примерах от сообщества Stack Overflow» представляет собой продвинутое учебное пособие по работе на языке JavaScript в кроссплатформенной среде выполнения Node.js - чрезвычайно популяр н ой и важнейшей в области веб-разработки. Вспомогательный контент для программистов с любым опытом и уровнем знаний (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B707DC7990CBD240D32A9BA0AD9A8C1B3F4384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861687   (1062779) от 27.03.2026
+
+Я.М. Демяненко, М.И. Чердынцева | С++ как второй язык в обучении приемам и технологиям программирования. Учебное пособие. 2-е изд. (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062779.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии внимание уделяется языку С++ и использованию объектно-ориентированного подхода. Пособие состоит из десяти глав. Излагаемый материал рассматривается на большом количестве подробно разобранных примеров. Пособие адресовано студентам первого и второго курсов, обучающимися по бакалаврским программам по направлениям «Прикладная математика и информатика» (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательство Южного федерального университетаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B327BE5C614DA2BF975BFBD6F2A5A3A93F54AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861684   (1062778) от 27.03.2026
+
+Ришал Харбанс | Грокаем алгоритмы искусственного интеллекта. 1-е издание (2023) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусственный интеллект — часть нашей повседневной жизни. Мы встречаемся с его проявлениями, когда занимаемся шопингом в интернет-магазинах, получаем рекомендации «вам может понравиться этот фильм», узнаем медицинские диагнозы… Чтобы уверенно ориентироваться в новом мире, необходимо понимать алгоритмы, лежащие в основе ИИ.
+«Грокаем алгоритмы искусственного интеллекта» (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27186896B579FE3A076CC762AEB8E5A13B92B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861683   (1062777) от 27.03.2026
+
+Сплин best (1994-2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062777.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:37] . 01-Звери
+[5:36] . 02-Сказка (remake 1994)
+[5:05] . 03-Что ты будешь делать?
+[3:24] . 04-Нечего делать внутри(   Читать дальше...   )Жанр: rockПродолжительность: 04:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4F4A9656BCA7F1F60742F84E3ED1A6C01E0642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861671   (1062776) от 27.03.2026
+
+Rishal Hurbans | Grokking AI Algorithms. How AI solves complex problems. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artificial intelligence algorithms are the backbone of search and optimization, deep learning, reinforcement learning, and, of course, generative AI. This book introduces the most important AI algorithms using relatable illustrations, interesting examples, and thought-provoking exercises. Written in simple language and with lots of visual references and hands-on (   Читать дальше...   )Жанр: Genetic Algorithms, Natural Language Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977608126AE42C34E1C2F55D2DF803C29A51E991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861667   (1062775) от 27.03.2026
+
+Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Your detailed guide to all things Cisco―a leading player in network technology.
 
-The book begins by understanding why testing matters and how to approach it the right way, then moves into testing React applications incrementally. Early chapters focus on testing components and user (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: Orange Education Pvt LtdФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+With 800 pages of in-depth content, Cisco Networking All-in-One For Dummies is your one-stop guide to the ins and outs of networks powered by Cisco, a leading maker of networkin solutions including routers, switches, and security. You'll get thorough explanations of how to design, (   Читать дальше...   )Жанр: LANs, Internet & Networking Computer Hardware, Computer NetworkingЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:508030F0D577AD71A5E82D059B0A3987DB177713
+magnet:?xt=urn:btih:5339D589909348E0CC5B74E9DBE370EB93FEBE96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,77 +397,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 81803   (1062823) от 27.03.2026
+###  Публикация: 1861664   (1062774) от 27.03.2026
 
-Любовные похождения блондинки  / Lasky jedne plavovlasky (1965) DVDRip [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В маленьком городке Зруче ситуация, как в Иваново в лучшие советские годы. По полтора десятка женщин на одного мужчину, и никаких перспектив. Нечем уравновесить контингент, собранный сплошь из работниц обувной фабрики. Но ее директор - малый не промах: благодаря его связям в городок прибывает гарнизон солдат-запасников. Происходит даже церемония знакомства, крайне (   Читать дальше...   )Производство: Чехословакия, CBK, Filmové Studio Barrandov, SeborЖанр: драма, мелодрама, комедияРежиссер: Милош ФорманАктеры: Хана Брейхова, Владимир Пухолт, Владимир Меншик, Иван Кейл, Иржи Грубы, Милада Ежкова, Йозеф Шебанек, Йозеф Колб, Мари Салачова, Яна Новакова, Тана Зелинкова, Ян ВострчилПеревод: Двухголосый закадровыйСубтитры: русские (архив в папке с фильмом)Продолжительность: 1:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F2A60EBD7587B2ADEAE5C33B5AB732454AD57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861836   (1062822) от 27.03.2026
-
-Auslogics Disk Defrag Pro 12.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BF886C2E2F8788381695F14636703DB2A62E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861837   (1062821) от 27.03.2026
-
-Soumaya Erradi | Web3 Development with Angular. Building Web Applications with Blockchain and Web3 Technologies. First Edition (2025) [PDF] [EN]
+John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture. A Quantitative Approach (The Morgan Kaufmann Series in Computer Architecture and Design). 7th Edition (2025) [PDF]  ...
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-his book is a comprehensive guide that will help you create blockchain-based web applications using Angular, a powerful framework that, while not the most popular choice in the Web3 community, offers distinct advantages. Suitable for both junior developers with some knowledge of front-end development and senior developers transitioning into Web3 development, this (   Читать дальше...   )Жанр: Software Development, Web Development & Design Programming, Computer Security & EncryptionЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+Computer Architecture: A Quantitative Approach, has been considered essential reading by instructors, students and practitioners of computer design for nearly 30 years. The seventh edition of this classic textbook from John Hennessy and David Patterson, winners of the 2017 ACM A.M. Turing Award recognizing contributions of lasting and major technical importance to (   Читать дальше...   )Жанр: Computer Hardware Design & Architecture, Microprocessor Design, Computer ScienceЯзык: АнглийскийИздательство: Morgan KaufmannФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:733E9A192BBE69C62AB54A532B6C640AB0F3C2A1
+magnet:?xt=urn:btih:04FF9EB9F93348FEF3C62222EA3A1A1D6614F60F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,15 +423,176 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861839   (1062820) от 27.03.2026
+###  Публикация: 1861659   (1062773) от 27.03.2026
 
-Оскорбление / L'insulte (2017) BDRip [H.264] [MVO]
+Stack Overflow | HTML5 для профессионалов. Руководство по разработке в примерах от сообщества Stack Overflow (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами компактное, но вместе с тем весьма насыщен ное руководство по HTML - основополагающему языку разметки, лежащему в основе каждой веб-страницы. Здесь собрана только самая важная и актуальная информация для быстрого и эффективного освоения HTML, от простейших структур до расширенных возможностей современной веб-разметки.
+Вы узнаете, как создавать и структурировать (   Читать дальше...   )Жанр: Компьютерная литература, Программирование, WEB-мастерингИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED825B53375EC3A5A2F24DBAE09F4559A8B29B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861615   (1062772) от 27.03.2026
+
+СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861623   (1062771) от 27.03.2026
+
+У.У. Сойер | Прелюдия к математике (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для тех кто любит математику и другие точные науки, для выбирающих свой путь в науку. Особенно рекомендую тем, кто считает математику скучным и не интересным предметом.
+Рассказ о некоторых любопытных областях математики с предварительным анализом математического склада ума и целей математики. Книга "Прелюдия к математике", написанная автором Сойер (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381E64327CEEAC9AB12E34990F90029B47BCFB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861655   (1062770) от 27.03.2026
+
+Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062770.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book explains how the Z Garbage Collector was designed, why it was designed this way, the common pitfalls to avoid when using ZGC in JDK 25 and how to get useful information from the garbage collector.
+Java is one of the most widely used programming languages in the world. It is a memory-safe language that completely relies on a good garbage collection (GC) (   Читать дальше...   )Жанр: Software Engineering & Systems Development, Programming & Programming LanguagesЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516A56F00F035988B357025CD6AFC1911E8728C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861651   (1062769) от 27.03.2026
+
+Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Programming Language Pragmatics is the most comprehensive programming language textbook available today, with nearly 1000 pages of content in the book, plus hundreds more pages of reference materials and ancillaries online. Michael Scott takes theperspective that language design and language implementation are tightly interconnected, and that neither can be fully (   Читать дальше...   )Жанр: Compiler Design, Object-Oriented Design, Software DevelopmentЯзык: АнглийскийИздательство: Elsevier Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6621355D220C8786B499349C817E3E546E49D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861647   (1062768) от 27.03.2026
+
+Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Edition (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revised for a new second edition, Intermediate C Programming provides a stepping-stone for intermediate-level students to go from writing short programs to writing real programs well. It shows students how to identify and eliminate bugs, write clean code, share code with others, and use standard Linux-based tools, such as ddd and valgrind.
+
+This second edition provides (   Читать дальше...   )Жанр: C Programming, C Programming Language, Programming AlgorithmsЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539554072C9EB1F09B8AF1788016BD49B69F53AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861879   (1062767) от 27.03.2026
+
+Оскорбление / L'insulte (2017) BDRip [H.264/720p] [MVO]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062767.jpg" />
 </div>
 
 
@@ -357,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:642C4583AC5740BDDDCA11096FA9AFDFC49EAF31
+magnet:?xt=urn:btih:C84421D2183A508A90F7FE6D84251EAC7B822E54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,25 +610,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861841   (1062819) от 27.03.2026
+###  Публикация: 1861880   (1062766) от 27.03.2026
 
-Light Image Resizer Pro 7.6.1.165 Portable by 7997 [Multi/Ru]
+ImageGlass 9.4.1.15 + Portable [Multi/Ru]
 
 >>Мультимедиа и Графика
->>Графические редакторы
+>>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+ImageGlass - это легкий и универсальный просмотрщик изображений, который вполне может заменить стандартный Photo Viewer в операционной системе.
+Приложение поддерживает большой спектр форматов, включая JPG, JPE, JFIF, JPEG, PNG, GIF, ICO, BMP, DIB, TIF, TIFF, EXIF, WMF, EMF, TGA, PSD, HDR, EXR, SGV, WEBP. ImageGlass предоставляет все обычные возможности просмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05B396F172AEE5B4FB00DD1932EB4991DDD939B5
+magnet:?xt=urn:btih:D3D80ABFDF6DBE6FCCA539ED8C9627FF8DB58664
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,25 +637,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861843   (1062818) от 27.03.2026
+###  Публикация: 1861883   (1062765) от 28.03.2026
 
-Море лжи (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
+Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
 
->>Отечественные сериалы
->>нет
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мила Бугрова — молодая и амбициозная девушка, лучший сотрудник турагентства. Она устала от постоянных попыток матери устроить ее личную жизнь и видит свое счастье только рядом с Денисом — турецким тревел-блогером, с которым она давно общается в сети. Мила мечтает поехать в Турцию, чтобы встретиться с возлюбленным и вместе путешествовать. Однако новый владелец компании (   Читать дальше...   )Производство: Россия | «А-10 Студия»Жанр: МелодрамаРежиссер: Андрей СеливановАктеры: Полина Шеповалова, Давид Колчин, Глеб Бочков, Кристина Шелобкова, Дарья Ванцева, Дарья Дроздовская, Веневьева Новицкая, Игорь Литовкин, Ильгар Мусаев, Сергей Галахов и др.Субтитры: ОтсутствуютПродолжительность: ~00:24:00 серия (1-я серия - 00:44:42)
+В игре Last Epoch вас ждут путешествия во времени, захватывающие подземелья, увлекательная настройка персонажей и бесконечные возможности повторного прохождения. Эта игра в жанре «ролевой экшен» понравится как опытным игрокам, так и новичкам. Путешествуйте в прошлое мира Этерры, сталкиваясь с темными империями, гневными богами и девственными землями, найдите способ (   Читать дальше...   )Тип издания: RepackРазработчик: Eleventh Hour GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF052CE8BE919CE1009C45CD6ACDD543A2352642
+magnet:?xt=urn:btih:6AE18365FFA08EB918982F126437BB90C8BA3564
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,266 +663,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861711   (1062817) от 27.03.2026
+###  Публикация: 1861882   (1062764) от 27.03.2026
 
-Ольга Козлова | Геймдев по классике. Откуда берутся сюжетные приемы в видеоиграх (2025) [PDF, FB2, EPUB]
+Эдриенн Браганца | «По-моему, неплохо». Конструктивные код-ревью (2026) [PDF]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Видеоигры существуют уже больше полувека. За это время искушенные геймеры, казалось бы, видели уже все… Но талантливые разработчики умеют удивлять! Современный геймдизайнер – это человек-оркестр, который знает о всех компонентах видеоигр и умеет грамотно соединять их в единое целое.
-В книге рассматриваются все составные части видеоигры и рассказывается, как они создают (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+Сделайте код-ревью продуктивным, вызывающим положительные эмоции процессом, каким он и должен быть. Неважно, проверяют ваш код или же вы проверяете чью-то работу, получите продуманные инструкции, которые помогут избежать напряженных дебатов, неплодотворных придирок и узких мест — всего того, чего мы привычно ждем от код-ревью.
+Научитесь здравому и внимательному подходу (   Читать дальше...   )Жанр: Проектирования программного обеспечения, Тестирование программного обеспечения, Разработка программного обеспеченияИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:571CF19B24CDF9CEBB618F774D1153A54507A416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861846   (1062816) от 27.03.2026
-
-Письма о любви / Four Letters of Love (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ник встречает Изабель. Кажется, между ними пронеслась целая жизнь. Их первое свидание, первый закат над шумным океаном, первые стихи. Но они незнакомы. Несколько часов назад Изабель вышла замуж за мужчину, которого не любит. А Ник никак не может расстаться с прошлым. Спустя мгновение им суждено расстаться. И лишь судьбе под силу свести их вновь.Производство: Великобритания, Ирландия / AX1 Films, Genesius Pictures, WRAP FundЖанр: мелодрамаРежиссер: Полли СтилАктеры: Пирс Броснан, Хелена Бонем Картер, Гэбриел Бирн, Донал Финн, Олуэн Фуэре, Мишель Люси, Имельда Мэй, Пэт Шорт, Норма Шиэн, Brid Ni ChumhaillПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CA37B18C1C410C8619A54FEDA76983EEF823F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861847   (1062815) от 27.03.2026
-
-Письма о любви / Four Letters of Love (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ник встречает Изабель. Кажется, между ними пронеслась целая жизнь. Их первое свидание, первый закат над шумным океаном, первые стихи. Но они незнакомы. Несколько часов назад Изабель вышла замуж за мужчину, которого не любит. А Ник никак не может расстаться с прошлым. Спустя мгновение им суждено расстаться. И лишь судьбе под силу свести их вновь.Производство: Великобритания, Ирландия / AX1 Films, Genesius Pictures, WRAP FundЖанр: мелодрамаРежиссер: Полли СтилАктеры: Пирс Броснан, Хелена Бонем Картер, Гэбриел Бирн, Донал Финн, Олуэн Фуэре, Мишель Люси, Имельда Мэй, Пэт Шорт, Норма Шиэн, Brid Ni ChumhaillПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B1E63AC0DFFED06DB4AD306F36790F83A9BA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861849   (1062814) от 27.03.2026
-
-Конверт (2017) WEB-DLRip [H.264/1080p] [hand made crop]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Москва. Наши дни. В архитектурную компанию по ошибке приходит странное письмо. Секретарь, заметив недоразумение, просит водителя Игоря доставить конверт по нужному адресу. С этого момента в его жизни начинают происходить необъяснимые вещи: злосчастный конверт как будто преследует героя, целенаправленно ведя его к таинственному адресату.Производство: Россия / RB ProductionsЖанр: триллер, ужасыРежиссер: Владимир МарковАктеры: Юлия Пересильд, Игорь Лизенгевич, Ольга Медынич, Сергей Барковский, Дмитрий Куличков, Алексей Кирсанов, Диана Енакаева, Варвара Бородина, Станислав Лесной, Вилен БабичевПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90579A0A636C3F0DA60EDC2AADDC0945361A403E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861863   (1062813) от 27.03.2026
-
-FastStone Photo Resizer 4.5 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FastStone Photo Resizer - программа для различных манипуляций с графическими файлами. С помощью FastStone Photo Resizer можно конвертировать изображения в распространенные графические форматы (JPEG, BMP, GIF, PNG, TIFF, JPEG2000, PDF), изменять размер и глубину цвета, обрезать, разворачивать под разными углами и переименовывать графику. Кроме того, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25C64310C433638A48FA0B7B365CC741F87D99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861866   (1062812) от 27.03.2026
-
-FastStone Image Viewer 8.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - просмотровщик, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. При установке WEBP кодека поддерживает и этот формат. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD528D30EA6B6714159F62FDD140379A884C01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861865   (1062811) от 27.03.2026
-
-FastStone Capture 11.2 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FastStone Capture - мощная и многофункциональная программа для снятия скриншотов с их последующим редактированием. Позволяет редактировать и просматривать графические файлы. Поддерживает BMP, GIF, JPEG, PCX, PNG, TGA, TIFF и PDF форматы. Несложaный в использовании встроенный графический редактор позволяет поворачивать, изменять размер, глубину цвета, вырезать фрагменты (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EA1733CD0E02A8539F6D05FC3AA8DBBB4F6F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861864   (1062810) от 27.03.2026
-
-FastStone Capture 11.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FastStone Capture - мощная и многофункциональная программа для снятия скриншотов с их последующим редактированием. Позволяет редактировать и просматривать графические файлы. Поддерживает BMP, GIF, JPEG, PCX, PNG, TGA, TIFF и PDF форматы. Несложaный в использовании встроенный графический редактор позволяет поворачивать, изменять размер, глубину цвета, вырезать фрагменты (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EB3A46825709E8690ED6B23E6D74E5252C74A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860855   (1062809) от 27.03.2026
-
-VA - This Is... 1977 (2008) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01/20. Bryan Ferry - Tokyo Joe (3:57)
-02/20. The Stranglers - No More Heroes (2:57)
-03/20. Tom Robinson Band - 2-4-6-8 Motorway (3:17)
-04/20. Mr. Big - Romeo (2:34)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Folk RockПродолжительность: 01:15:27.080 (199 644 228 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAA70F7A0E547F21AF518C6B21A6C0B9B3958C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861396   (1062808) от 27.03.2026
-
-VA - This Is... 1972 (2008) [FLAC|Lossless|image + .cue] <Classic Rock, Glam, Heavy Metal, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. The Move - California Man (3:37)
-02. Wizzard - Ball Park Incident (3:39)
-03. Deep Purple - Smoke on the Water (3:46)
-04. Hawkwind - Silver Machine (live at the Roundhouse London) (4:38)(   Читать дальше...   )Жанр: Classic Rock, Glam, Heavy Metal, Soft RockПродолжительность: 01:14:01.853 (195 885 732 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB07941E767124781F37EA23F7D090B486205E2E
+magnet:?xt=urn:btih:5FB836D4EB9C80105CC26C67A0BB30C286F298A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

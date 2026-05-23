@@ -6,7 +6,7 @@ The King’s Bird (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512733.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BRAWL (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512573.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TerraTech (2018) [Ru/Multi] (1.3/dlc) License PLAZA [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511599.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Legend of Kay Anniversary (2015) [En/Multi] (Build cs:6416) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510654.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.0.1.3005) Repack R.G. Ме�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510600.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508619.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Aaru's Awakening (2015) [Ru/Multi] (2.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507823.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ One Piece: Pirate Warriors 3 (2015) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507734.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Fantasy Strike (2019) [Multi] (1.17545) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506718.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Expendables 2 Videogame [Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504203.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ LOST ORBIT: Terminal Velocity (2019) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503120.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Tinertia (2015) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503008.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ LOST ORBIT: Terminal Velocity (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502117.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lumini (2015) [Ru/Multi] License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501933.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Onikira - Demon Killer (2015) [En] (1.730) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498225.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Hamilton's Great Adventure (2011) [En/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497088.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Gatling Gears [En] (RePack) 2011 | DyNaMiTe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494809.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Street Fighter V (2016) [Ru/Multi] (4.070/dlc) License CODEX [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494307.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Spiritfarer (2020) [Ru/Multi] (35357) License GOG [Farewell Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494280.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Street Fighter V (2019) [Ru/Multi] (4.070/dlc) Repack xatab [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490374.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Pankapu (2016) [Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487481.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Toy Odyssey: The Lost and Found (2016) [En/Ch] (20160920) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487467.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Absolute Drift (2015) [En] (1.0 upd2) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485304.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Sundered (2017) [Ru/Multi] (1.0.20170817) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483725.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Sundered (2017) [Ru/Multi] (1.0.20170817) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483646.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Hero of the Kingdom III (2018) [Ru/Multi] (1.00) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483573.jpg" />
 </div>
 
 

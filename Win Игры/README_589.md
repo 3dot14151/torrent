@@ -1,29 +1,3 @@
-###  Публикация: 1696928   (6235) от 24.08.2025
-
-Coral Island (2023) [Multi] (1.2-1238/dlc) Scene Tenoke
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Coral Island – классический симулятор фермы, переносящий вас на тропический остров, где вы будете выращивать урожай, ухаживать за живностью и общаться с второстепенными персонажами. Ваша задача – создать собственную ферму, постепенно расширять территорию, приобретать новые саженцы и животных. В геймплее присутствует 16 персонажей, с которыми вы способны построить (   Читать дальше...   )Тип издания: SceneРазработчик: Stairway GamesЖанр: Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755974C6A3AB9A50683C590B5C7033DF7D94F185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067510   (6229) от 24.08.2025
 
 Primordia (2012) [Multi] (5.3) License GOG
@@ -32,7 +6,7 @@ Primordia (2012) [Multi] (5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6229.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6217.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6215.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (build 19708406) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6213.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4543/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6203.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.31/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6201.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tale of Immortal (2021) [Ru/Multi] (1.2.111.259/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6197.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6195.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.10.1/dlc) Scene Tenoke [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6188.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6184.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Lost Twins II (2) (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6183.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ To the Eden (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6177.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.7) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6170.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6169.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6167.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Wanterlude [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6164.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6159.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6145.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Detective Club 2: Gallery of Shadows (2025) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6112.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack Let'sРlay [Director's Gut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6067.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.3/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6064.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6055.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1674/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6052.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,547) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6050.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6046.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE59D47BB02192274EA762EC3B4CAC6B6850D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814594   (6043) от 25.08.2025
+
+Witch Way (2025) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Witch Way ставит игрока во главе поселения, столкнувшегося с ночной осадой со стороны чудовищных сил. Основная задача - продержаться до восхода солнца, используя дневное время для подготовки и восстановления. Предстоит направлять население на сбор ресурсов, возведение зданий и создание деревни, способной себя содержать. Управление жителями является ключевым компонентом, (   Читать дальше...   )Тип издания: SceneРазработчик: e-sheepЖанр: Инди, СтратегииЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A664301844A5781689C2F6AE395503C855C6D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

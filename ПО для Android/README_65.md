@@ -1,55 +1,3 @@
-###  Публикация: 1335061   (290848) от 31.10.2019
-
-Меморадо: Тренировка памяти v2.0.8 Premium [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйся к более чем 10 миллионам членов всемирной программы тренировки мозга и развивай свои способности к восприятию! Попробуй сейчас! Отдыхай с нашими новыми аудио-записями расслабляющих историй, упражнениями и ежедневными советами! Время сделать себе перерыв! Сила ума улучшает жизнь. Улучшай свою память, концентрацию, реакцию, логику и математические способности (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 18.07.2019Разработчик: Memorado GmbhПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1302151DD91F32F72F9F203E47F851A50B1210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963085   (290607) от 06.12.2015
-
-Brain 3D Anatomy v1.0.2  [En] - анатомический 3D атлас мозга
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Brain 3D Anatomy позволяет вращать реалистичные 3D-модели мозга, как это было бы в ваших руках. Brain 3D Anatomy модель вращения в любом направлении 360 ° дает вид объекта. Кроме того, имена конкретных анатомических областей мозга может быть показано, касаясь соответствующих флажков. Это приложение является частью 3D коллекции анатомических справочных атласов для (   Читать дальше...   )Тип издания: Пиратка (Amazon license Removed)Релиз состоялся: 05.12.2015Разработчик: Catfish Animation StudioПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2089AF1AA225F371BC4337949FFCBED4100D0BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080183   (289959) от 06.12.2016
 
 Справочник электрика Pro 2.0.3 [Ru]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289959.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289953.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288899.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288126.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ Peers.TV 6.11.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284112.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ TrustGo Antivirus & Mobile Security 2.4.5.487 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282800.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278515.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ Online Radio  Box Pro v1.0.175 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277502.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277274.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ KMPlayer 2.3.0 [Ad Free] [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276843.jpg" />
 </div>
 
 
@@ -327,7 +275,7 @@ Automatic Call Recorder Pro 1.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276827.jpg" />
 </div>
 
 
@@ -356,7 +304,7 @@ Root Call SMS Manager 1.8.1 [Ru] Full
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276746.jpg" />
 </div>
 
 
@@ -385,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276683.jpg" />
 </div>
 
 
@@ -414,7 +362,7 @@ AnExplorer PRO File Manager v4.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276269.jpg" />
 </div>
 
 
@@ -440,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275685.jpg" />
 </div>
 
 
@@ -466,7 +414,7 @@ GSM Spy Finder 16.01 (AdFree) [Ru-Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275483.jpg" />
 </div>
 
 
@@ -492,7 +440,7 @@ AnTuTu Benchmark 6.3.1 [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274183.jpg" />
 </div>
 
 
@@ -518,7 +466,7 @@ mPro.Скорая помощь v2.2.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273010.jpg" />
 </div>
 
 
@@ -544,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272314.jpg" />
 </div>
 
 
@@ -571,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272241.jpg" />
 </div>
 
 
@@ -599,7 +547,7 @@ WordBit v1.3.5 [Ru/En] - Английский язык (на блокировк�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271343.jpg" />
 </div>
 
 
@@ -625,7 +573,7 @@ FreeFlix TV Pro v1.0.3 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271118.jpg" />
 </div>
 
 
@@ -651,7 +599,7 @@ VIP MP3 Player (ZK.FM Player) v4.1 (96) Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268612.jpg" />
 </div>
 
 
@@ -677,7 +625,7 @@ Zoiper v1.53 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266586.jpg" />
 </div>
 
 
@@ -688,6 +636,58 @@ SIP клиент для Android. Не теряет связь с серверо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA74510FEC81DD607375A9CE74B8E78641932550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339721   (265309) от 20.11.2019
+
+МППСС - Огни и знаки судов v3.7 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит визуальную поисковую систему огней и знаков, ссылку на тематическое правило и предоставляет проверочные тесты, а также 3D-визуализацию для правил МППСС с 20 по 31. Также представлены карточки для самообучения. Для каждого правила вы можете изменить точку наблюдения на 3D-изображении с помощью действия касания/перетаскивания. Система визуального (   Читать дальше...   )Тип издания: Пиратка (Разблокирован Premium)Релиз состоялся: 18.08.2019Разработчик: madeof.blueПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A7D9CC1C5C016B9171BA4061E390C918C04F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193395   (262048) от 21.12.2017
+
+Радиотехник 2.1 Full [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основы Радиотехники,Мастерская Радиолюбителя,Курс Радиотехники,Пайка и Монтаж,Измерения И Аппаратура ,LabVIEW Для Радиоинженера,Акустические Системы,Конструкции И Схемы,Ремонт Радиомастеру,Справочник Радиолюбителя,Приложения-Дополнения;Подробно рассмотрены Радиолюбительские схемы и конструкции различных стабилизаторов напряжения собранных своими руками такие например (   Читать дальше...   )Тип издания: Пиратка (Полная с Маркета)Релиз состоялся: 17 октября 2017 г.Разработчик: Progressiv Digital Inc.Поддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BC21BEEEF29E9D984D9184098C56F11A93CDE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

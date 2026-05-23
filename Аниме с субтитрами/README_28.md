@@ -6,7 +6,7 @@ Batman Ninja | Бэтмен-ниндзя [2018, Movie] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Girly Air Force | Девичьи воздушные силы [2019, TV, 12 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888329.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Runway de Waratte | Smile Down the Runway | Улыбайся на подиуме
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888115.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pet | Питомец [2020, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887914.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Seto no Hanayome / My Bride is a Mermaid / Морская Невеста [2007, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887853.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Flying Witch / Полет ведьмы [2016, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887534.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Overlord | Повелитель [2015, TV, 13 + 8 sp] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887429.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Last Exile / Изгнанник [2003, TV, 26 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887090.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Death Parade / Парад смерти [2015, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887014.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Code Geass Hangyaku no Lelouch / Код Гиас: Восставший Лелу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887002.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Musekinin Kanchou Tylor: Tokubetsu Hen - Hitoribocchi no Senso | The Irresponsib
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886670.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886480.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Bishoujo Yuugekitai Battle Skipper | Battle Skipper School | Школа воен
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886195.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ai Tenchi Muyou! / Тэнти - лишний! Любовь [2014, TV, 50 + 10 SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885938.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Hai to Gensou no Grimgar / Гримгал пепла и иллюзий [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885483.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Code Geass Hangyaku no Lelouch R2 / Код Гиас: Восставший Лел
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885367.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Bungou Stray Dogs / Великий из бродячих псов [TV-1] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885349.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Black Magic M-66 | Черная магия М-66 [1987, OVA] DVDRip 576p 10bit r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884991.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Oda Cinnamon Nobunaga | Ода Корица Нобунага [2020, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884826.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Re: Zero - Director`s Cut | Re: Zero kara Hajimeru Isekai Seikatsu - Shin Henshu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884664.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Ashita Sekai ga Owaru to Shite mo | The Relative Worlds | Связанные м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883613.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Chihayafuru 3 | Игра Тихайи 3 | Яркая Тихайя [ТВ-3] [2019
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883612.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ashita Sekai ga Owaru to Shite mo | The Relative Worlds | Связанные м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883611.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883333.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь с нуля �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883024.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Gakkou Gurashi! | School-Live! | Школьная жизнь! [2015, TV, 12 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882329.jpg" />
 </div>
 
 

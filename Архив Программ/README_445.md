@@ -6,7 +6,7 @@ FreeTube 0.15.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811839.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Macrorit Disk Scanner 4.3.9 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811836.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Icecream PDF Editor PRO 2.53 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811833.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Reg Organizer 8.80 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811829.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ StartAllBack 3.0.1 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811827.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wise Care 365 Pro 4.15.401 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811805.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wise Care 365 Pro 4.15.401 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811799.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811797.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ TurboLaunch 5.1.3 (3/26/2011) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_811708.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ StartAllBack 3.0.1 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811702.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ AIDA64 Engineer Edition 6.50.5800 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811700.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Windows 11 Manager 1.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811687.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ ACDSee Pro 9.2 Build 523 (x86) Lite RePack by MKN [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811636.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Wise Game Booster 1.36.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811633.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The KMPlayer 4.0.7.1 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811632.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VirtualBox 5.0.18 Build 106667 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811630.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ FinePrint 10.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811561.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PotPlayer 200513(1.7.21212.0) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811559.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ QIP Infium 3.0.9044 [Русский, English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811554.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Rufus 3.17 (Build 1846) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811517.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Allavsoft Video Downloader Converter 3.14.1.6291 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811496.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ RadioBOSS Advanced 5.4.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811481.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ FileZilla 3.25.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811470.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ The KMPlayer 4.0.7.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811466.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ TurboCollage Professional Edition 7.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811457.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Air Explorer Pro 2.1.1 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811455.jpg" />
 </div>
 
 

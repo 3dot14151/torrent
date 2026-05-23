@@ -6,7 +6,7 @@ Snow Ash (2026) [Ru/Multi] (Build 21437369) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051841.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051811.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051757.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ancient Farm (2026) [Ru/Multi] (1.0.8) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051756.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ancient Farm (2026) [Ru/Multi] (1.0.6) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051755.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DuneCrawl (2026) [Ru/Multi] (Build 21407133/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051748.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Snow Ash (2026) [Ru/Multi] (Build 21423519) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051542.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mon Bazou (2021) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051458.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.25) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051281.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.25) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051280.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wreckborn (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051268.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bottle Can Float (2023) [Ru/Multi] (1.0.0.1.EA/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051115.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bottle Can Float (2023) [Ru/Multi] (1.0.0.1.EA) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051114.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Electronic Market Simulator (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051113.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Electronic Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051112.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Vampiress: Eternal Duet (2025) [Ru/Multi] (Build 21267562) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051043.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Utawarerumono: ZAN (2025) [Multi] (21148349/dlc) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050962.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Blood: Refreshed Supply (2025) [Multi] (2.0.3116) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050769.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Cradle (2025) [En] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050749.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Netherworld Covenant (2025) [Ru/Multi] (1.0.0-911) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050669.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050536.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ BioMenace Remastered (2025) [En] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050535.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Pure Badminton (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050294.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Pawn Planet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050075.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0) Scene SKIDROW
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050060.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Zombie Diner Simulator (2025) [Ru/Multi] (0.65) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050055.jpg" />
 </div>
 
 

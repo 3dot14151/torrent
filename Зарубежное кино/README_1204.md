@@ -1,55 +1,3 @@
-###  Публикация: 1409242   (444648) от 17.09.2020
-
-Танцуй сердцем / Let's Dance (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Энергия танца, безудержный ритм и биение сердца – ради этого Джозеф готов отказаться от всего и отправиться на битву лучших хип-хоп танцоров планеты. В Париже он встречает Хлою, которой предстоит отбор в легендарную балетную труппу Нью-Йорка. Вместе они мечтают создать невероятное объединение стилей, которое потрясет весь мир.Производство: Франция, Бельгия / Empreinte Cinema, Pathe, VertigoЖанр: драма, комедия, семейный, музыкаРежиссер: Ладислас ШоллаАктеры: Райан Бенсетти, Алексия Джордано, Гийом де Тонкедек, Мехди Керкуш, Брахим Заибат, Лин Рено, Фиорелла Кампанелла, Лаура Дефретен, Николя Ушар, Магдалена МальфрэПеревод: ДублированныйСубтитры: Русские (Full), АнглийскиеПродолжительность: 01:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FCF872821CB042A5995BFBA7DD033A924ED875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409317   (444647) от 17.09.2020
-
-Дьявол всегда здесь / The Devil All the Time (2020) WEB-DL [H.264/1080p] [EN / RU, EN, Multi Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Город Нокерстифф, штат Огайо. Безутешный Уиллард Рассел готов на всё, лишь бы спасти умирающую жену. Он начинает молить небеса о спасении, забыв об остальном мире, в результате чего его сын Элвин вынужден превратиться из забитого школьника в решительного мужчину, способного взять дело в свои руки.Производство: США / Nine Stories ProductionsЖанр: триллер, драма, криминалРежиссер: Антонио КампосАктеры: Том Холланд, Роберт Паттинсон, Билл Скарсгард, Хейли Беннетт, Райли Кио, Гарри Меллинг, Себастиан Стэн, Миа Васиковска, Элайза Сканлен, Джейсон КларкПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские + MultiПродолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6080ECC385F179ECEF1679A51DF5766EE4E57009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409320   (444645) от 17.09.2020
 
 Дьявол всегда здесь / The Devil All the Time (2020) WEB-DLRip [EN / RU, EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444645.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444642.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444609.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444606.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444602.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444597.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444494.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444493.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444434.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444429.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444423.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444418.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444386.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444380.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444360.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444338.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444334.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444235.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444231.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444185.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444174.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444168.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_444095.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444029.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:428C6167B8AC125A8BAF4AC8ADEE758B1664D87A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322745   (443979) от 31.08.2019
+
+Добро пожаловать в рай! / Into the Blue (2005) WEB-DL [H.264/1080p] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой инструктор по дайвингу Джаред живёт со своей подругой Самантой. Однажды к ним в гости приезжают Брайс, давний приятель Джареда, тоже с подружкой — Амандой. Завязка сюжета происходит, когда, в ходе заплыва на глубину, они натыкаются на затонувший самолёт, полный аккуратно запечатанных мешочков с кокаином.Производство: США / Columbia Pictures Corporation, Mandalay Pictures, Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, триллер, криминал, приключенияРежиссер: Джон СтокуэллАктеры: Пол Уокер, Джессика Альба, Скотт Каан, Эшли Скотт, Джош Бролин, Джеймс Фрейн, Тайсон Бекфорд, Дуэйн Эдвэй, Джэвон Фрейзер, Крис ТалоаПеревод: Дублированный, профессиональный двухголосый, авторский одноголосыйСубтитры: Русские (Full), украинские (Full), английские (Full)Продолжительность: 01:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12DCFD9F0838AEFC047EB011D674E285803B105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248473   (443918) от 19.09.2018
+
+451 градус по Фаренгейту / Fahrenheit 451  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443918.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некоем тоталитарном обществе история переписывается, книги безжалостно сжигаются, их чтение преследуется по закону, чтобы граждане не думали и были счастливы. Во время очередного рейда по наводке информаторши Клариссы «пожарные» находят невероятно большую библиотеку, и служащий Гай Монтэг из любопытства оставляет одну книгу себе. Немного почитав и подружившись (   Читать дальше...   )Производство: США / Brace Cove Productions, HBO Films, Noruz Films (I), Outlier SocietyЖанр: фантастика, триллер, драмаРежиссер: Рамин БахраниАктеры: Майкл Б. Джордан, Майкл Шеннон, София Бутелла, Кэнди Александр, Лилли Сингх, Мартин Донован, Энди МакКуин, Дилан Тейлор, Грэйс Линн Кунг, Кир Дуллеа, Аарон Дэвис, Синди КацПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C7230BE14CB3F07AD786CB76C899181E7AA7A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

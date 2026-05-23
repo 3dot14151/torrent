@@ -1,29 +1,3 @@
-###  Публикация: 1119227   (808861) от 27.03.2017
-
-Shadow Warrior 2 (2016) [Ru/Multi] (1.1.10.0/dlc) License SKIDROW [Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Shadow Warrior 2, продолжение неординарного шутера от студии Flying Wild Hog, рассказывает о новых злоключениях бывшего корпоративного сёгуна Ло Вана. Превратившись в наемника-одиночку, великий воин борется за жизнь в насквозь прогнившем мире: теперь он должен сокрушить легионы демонов, заполонивших планету, в чем ему поможет огромный арсенал пистолетов, мечей, магических (   Читать дальше...   )Тип издания: LicenseРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50407754E337E4BC02E3C549C24AFB37847BC080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119275   (808652) от 27.03.2017
 
 Anomaly: Warzone Earth / Аномалия: Поле битвы Земля (2011) [Ru/Multi] (1.0) License GOG
@@ -32,7 +6,7 @@ Anomaly: Warzone Earth / Аномалия: Поле битвы Земля (2011)
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808652.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Anomaly Defenders (2014) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808651.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Butterfly Sign (2017) [Ru/Multi] (1.2.0) Repack Other s [Chapter II: Human E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808645.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mutazione (2019) [Ru/Multi] (1.84) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807813.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Corpse Party (2021) (2021) [Multi] (2021-10-20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807679.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Alchemist Adventure (2021) [Ru/Multi] (1.211021/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807660.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ DYING: Reborn (2018) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807633.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807629.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (1.8/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807414.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Frederic: Resurrection of Music Director's Cut (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807298.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Bottle (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807187.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ One Way Flight (2016) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807178.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Kill to Collect (2016) [En/Multi] (1.1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807172.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Overfall (2016) [En] (03/22/2017) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806568.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Myth Or Reality: Fairy Lands / Мифы или реальность: Сказо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806148.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Labyrinths of the World 7: A Dangerous Game / Лабиринты Мира 7: О�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806053.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Tomato Way (2016) [Ru/Multi] (110118) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805917.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dead or Alive 5: Last Round (2015) [Multi] (1.10c/dlc) License SKIDROW [Core Fig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805773.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Robin Hood 2: Winds of freedom / Робин Гуд 2: За свободу (2020)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805723.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Outpost Kaloki / Аванпост Галактики (2004) [Ru] (1.0.5) Unoffic
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805596.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Star Ruler 2 (2015) [En] (2.0.0/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805461.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Lost Souls (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805240.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ The Howler (2016) [En] (1.0) Repack ALiAS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805238.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) License PROPHET [Gold Edition / 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805237.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Pirate Storm (2012) [RU] (12.04.2016) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805224.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Pirate Storm (2012) [RU] (12.04.2016) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26272E1731537D67C1ECDBD44DC2122BAC42541F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009927   (805223) от 23.04.2016
+
+CTU: Counter Terrorism Unit (2016) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предлагается примерить на себя роль члена CTU – Counter Terrorism Unit. Ваша участь незавидна постоянно под огнем и прессингом ответственности, в попытке сдержать террористическую угрозу. Стрелять может каждый, но только единицы могут настолько запугать противника, что он сложит оружие и сдастся. Вот и попробуйте ответить себе... Кто ВЫ?Тип издания: LicenseРазработчик: Odin Game StudioЖанр: Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373B797A760CF7FD44D2402B434269AD2070FA51
 ```
 
 https://mybot314.ru/tekegram_catalog/

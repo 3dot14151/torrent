@@ -1,55 +1,3 @@
-###  Публикация: 1784463   (23251) от 28.03.2025
-
-Канк о жизни / Cunk on Life (2024) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Филомена Канк — образ британской комикессы и актрисы Дайан Морган, которая прикидывается несмышленой журналисткой и на полном серьезе задает экспертам нелепые вопросы. По сути, делает ровно то, чем когда-то прославился Саша Барон Коэн, но все же не переступает рамки дозволенного. Отдельные сцены и интервью завирусились и прославили Морган на весь мир. Допустим, в (   Читать дальше...   )Производство: Великобритания / Broke and BonesЖанр: комедияРежиссер: Аль КэмпбеллАктеры: Дайан Морган, Дуглас Хедли, Руперт Шелдрейк, Элисон Райт, Селия Дин-Драммонд, Сэр Пол Нерс, Джим Аль-Халили, Джойс Харпер, Прокар Дасгупта, Анил СетПеревод: Многоголосый профессиональный (OzzTV)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH), испанские, французские, украинские, немецкиеПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9983F54CAD3EA7F845FD531C4B5C5A89442B84AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787981   (23244) от 28.03.2025
-
-Игра киллера / The Killer's Game (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Наёмный убийца Джо — один из лучших в Европе. Во время выполнения задания в Будапеште он спасает танцовщицу Мейзи, с которой у него постепенно завязываются романтические отношения. Обеспокоенный внезапными приступами, Джо проходит медицинское обследование и узнаёт, что неизлечимо болен, а жить ему осталось не больше 3 месяцев. Чтобы не страдать, он решает нанять (   Читать дальше...   )Производство: Испания, США / Dogbone Entertainment, Endurance Media, K. JAM MediaЖанр: боевик, комедия, криминалРежиссер: Дж.Дж. ПерриАктеры: Дэйв Батиста, София Бутелла, Терри Крюс, Скотт Эдкинс, Марко Сарор, Пом Клементьефф, Бен Кингсли, Алекс Кингстон, Дрю Гэлловэй, Шейна УэстПеревод: Дублированный (Велес), Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCE66E3BD34D33EFCB340FF421E29EAB5C6E0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787996   (23243) от 28.03.2025
 
 Игра киллера / The Killer's Game (2024) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23243.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23236.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23232.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23159.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23064.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23044.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23031.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23019.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22927.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22916.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22908.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22883.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22878.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22863.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22858.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22844.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22841.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22822.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22775.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22771.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22753.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22680.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22660.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22652.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D504EF0919C7A4C21CF7CCD1314A4C1EE5D224FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611142   (22630) от 03.04.2025
+
+Тело как улика / Body of Evidence (1992) BDRip [H.265/1080p] [10-bit] [Unrated]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влюбившись в свою подзащитную, обвиняемую в убийстве, адвокат Фрэнк Дилэйн так умело строит речь в суде, что ему удаётся убедить присяжных вынести оправдательный вердикт. А через день Фрэнк становится невольным свидетелем разговора своей подзащитной с человеком, который помог ей совершить убийство…Производство: Германия, США / Constantin Film, Dino De Laurentiis ProductionsЖанр: триллер, драмаРежиссер: Ули ЭдельАктеры: Мадонна, Уиллем Дефо, Энн Арчер, Джулианна Мур, Джо Мантенья, Юрген Прохнов, Фрэнк Ланджелла, Стэн Шоу, Чарльз Хэллахан, Лиллиан ЛеманПеревод: профессиональный многоголосый (5 канал, ТВ-3), профессиональный двухголосый (Goodtime Media, НТВ+, SDI Media, СВ Дубль), авторский (Алексей Михалёв, Василий Горчаков)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E900F35515E65F89D4B116E0550C19A2EB8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786173   (22621) от 03.04.2025
+
+Романтики «303» / 303 (2018) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22621.jpg" />
+</div>
+
+
+###  Подробнее
+
+24-летняя студентка Юле садится в старенький кемпер «Мерседес 303» и отправляется через всю Европу на встречу со своим бойфрендом Алексом. Её случайным попутчиком становится Ян, студент-политолог, мечтающий найти в Испании родного отца, которого никогда не видел. Пока за окном сменяются пейзажи Германии, Бельгии, Франции и Португалии, герои коротают время за разговорами (   Читать дальше...   )Производство: Германия / Kahuuna Films, NEUESUPER, Starhaus ProduktionenЖанр: мелодрамаРежиссер: Ханс ВайнгартнерАктеры: Мала Эмде, Антон Спикер, Арндт-Шверинг Сонрей, Томас Шмукерт, Йорг Бундшух, Стивен Ланж, Мартин Нойхаус, Ханна Шрёдер, София ЧанеттПеревод: профессиональный многоголосый (iTunes)Язык озвучки: русский, немецкийСубтитры: русские (на места без перевода), английскиеПродолжительность: 02:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E4F431E7AF2FB7BCBFDE7922BBEDB411E6C215
 ```
 
 https://mybot314.ru/tekegram_catalog/

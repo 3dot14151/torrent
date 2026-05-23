@@ -6,7 +6,7 @@ Long Way (2024) [Ru/Multi] (0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53700.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ENDLOOP (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53677.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cuisineer (2023) [Multi] (1.1.3909) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53567.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53553.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ House Flipper (2018) [Ru/Multi] (1.24157/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53488.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kamaeru: A Frog Refuge (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53366.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Simpler Times (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53364.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Scene SKIDROW [Delux
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53348.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53307.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Loser Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53042.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52929.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52836.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ House Builder (2021) [Ru/Multi] (20240619/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52653.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52584.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Arena Renovation (2023) [Ru/Multi] (1.0.164) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52526.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Nucleares (2023) [En] (0.2.16.137) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52523.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Forest Ranger Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52395.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Barotrauma (2023) [Ru/Multi] (1.5.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51968.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51664.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1.5) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51550.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51541.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51518.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dystopika (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51505.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Fae Farm (2023) [Multi] (20240620/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51504.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51357.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.27c) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51337.jpg" />
 </div>
 
 

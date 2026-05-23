@@ -6,7 +6,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56615.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bloody Heaven 2 (2024) [Multi] (0.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56597.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56472.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56223.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maid of the Dead (2024) [Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56076.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Athenian Rhapsody (2024) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55955.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55729.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55639.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55631.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55574.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55572.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bloody Heaven 2 (2024) [Multi] (0.043) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55543.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ASTLIBRA Revision (2022) [Multi] (1.3.7/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55529.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CONSORTIUM (2014) [Ru] (1.26.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55522.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55463.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55334.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55149.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55136.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ CyberHoney (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55121.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55072.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ SpellForce 3 Reforced (2017-2021) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55054.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Withering Rooms (2024) [Multi] (1.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55036.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55034.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54952.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54951.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54814.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1503020   (820689) от 18.10.2021
-
-Холостяк на свадьбе / Le discours / The Speech (2020) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Заядлого холостяка Адриана родственники просят подготовить торжественный тост к скорой свадьбе сестры. Адриана охватывает паника. Он не любит выступать на публике, но еще больше ненавидит свадьбы. Убежденному браконенавистнику предстоит настоящее испытание, и самое сложное в нем — не превратить свадьбу сестры в семейную разборку, где может достаться всем!Производство: Франция, Бельгия / les Films sur Mesure, Le Pacte, France 2 CinémaЖанр: КомедияРежиссер: Лоран ТирарАктеры: Бенжамен Лаверн, Сара Жиродо, Джулия Пьятон, Киан Кожанди, Гилен Лондез, Франсуа Морель, Марилу Оссийу, Сара Суко, Кристоф Монтене, Аделин Д'ЭрмиПеревод: Дублированный (КиноПоиск HD)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5796C26B6105104AD4A8D2F2D046371ECA7E0AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999032   (820685) от 18.10.2021
-
-Стыд / Shame (2011) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Брэндон — 30-летний житель Нью-Йорка, страдающий от неспособности контролировать свою сексуальную жизнь. Эротоман и сексоголик, он вечный завсегдатай ночных клубов, стрип-баров и секс-чатов. Он удивительно удачливый соблазнитель, перед его сексуальными чарами не может устоять ни одна девушка. Мир Брэндона переворачивается с ног на голову, когда к нему приезжает родная (   Читать дальше...   )Производство: ВеликобританияЖанр: ДрамаРежиссер: Стив МакКуинАктеры: Майкл Фассбендер, Кэри Маллиган, Люсиль Уолтерс, Мари-Анхе Рамирес, Джеймс Бэдж Дэйл, Николь Бехари, Алекс Манетт, Ханна Уэр, Элизабет Масуччи, Рэйчел Фаррар, Лорен Омер, Лоурен Тиррелл, Джейк Ричард Сичильяно, Роберт Монтано, Шарлиз Белланте, Эми Харгривз, Анна Роуз Хопкинс, Чезз Менендес, Карл Лоу, Стэнли Мэтис, Дженнифер Винер, Бриана Марин, Стефан Николи, Барбара (   Читать дальше...   )Перевод: Дублированный, профессиональный двухголосый (Укр.) авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A09F6325194A933EDD134C6E41D4AAF4CFAF97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007013   (820654) от 15.04.2016
 
 Падение Лондона / London Has Fallen (2016) WEBRip [EN]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820654.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820649.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820646.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820629.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820610.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820605.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820599.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820586.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820549.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820542.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820537.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820520.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820515.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820507.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820500.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820442.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820436.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820435.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820421.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820405.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820396.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820388.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820386.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820385.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E09E6D2E4D24108FA3DE654E41E7A19A1796FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116892   (820337) от 21.03.2017
+
+Пэн: Путешествие в Нетландию / Pan (2015) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820337.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о сироте, который попал в волшебную Нетландию, где его поджидали опасные приключения. Там он понял, что его судьба — стать героем, который навсегда останется известен под именем Питер Пэн.Производство: США, Великобритания, Австралия / Berlanti Productions, Moving Picture Company, TheЖанр: фэнтези, приключения, семейныйРежиссер: Джо РайтАктеры: Хью Джекман, Леви Миллер, Гаррет Хедлунд, Руни Мара, Аманда Сайфред, Кара Делевинь, Леви Миллер, Нонсо Анози, Пол Кэй, Эмиральд Феннел, Адиль АхтарПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (форс, полные), Украинские (форс, полные), Английские (форс, полные, SHD, цветые)Продолжительность: 01:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CFE0A8AD2DED8DB9C41F21641D4899FF82E4E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116555   (820336) от 21.03.2017
+
+С меня хватит! / Falling Down (1993) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачи преследуют Уильяма всю жизнь. Особенно этим жарким летом. На работе его отправили в бессрочный отпуск. Решением суда ему запрещено встречаться с дочкой. Обозлившись на весь мир, Уильям решается на месть. Круша все на своем пути, он пробивается сквозь раскаленный город на день рождения к своей дочке. Люди воспринимают его как маньяка, и только опытный детектив (   Читать дальше...   )Производство: США, Франция, ВеликобританияЖанр: Триллер, Драма, КриминалРежиссер: Джоэл ШумахерАктеры: Майкл Дуглас, Роберт Дювалл, Барбара Херши, Рэйчел Тикотин, Тьюзди Уэлд, Фредерик Форрест, Лоис Смит, Джои Хоуп, Сингер Эбби, Роу Смит, Майкл Пол ЧанПеревод: Дублированный (Ленфильм)Субтитры: НетПродолжительность: 01:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCEF928AD38F64D6BAB56FC6393C70CC1E96A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1812515   (7754) от 15.08.2025
-
-Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Из-за глобального катаклизма портовая служба решает расконсервировать старый маяк, чтобы сохранить судоходство. Герой отправляется на остров, чтобы стать смотрителем маяка. От его решений зависит судьба кораблей и города. Дома его ждут жена и дочь. С каждой ночью служба на маяке становится всё хуже.Тип издания: RepackРазработчик: solarsuit.gamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C560C51B13BE5023BF5E2E0D254C6E5B318C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812419   (7751) от 15.08.2025
 
 Eridani Survivors (2025) [Multi] (12.08.2025) Repack AIexandro
@@ -32,7 +6,7 @@ Eridani Survivors (2025) [Multi] (12.08.2025) Repack AIexandro
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7751.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7736.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Wizordum (2023) [En] (1.0.09.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7608.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Figment 2: Creed Valley (2023) [Ru/Multi] (1.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7607.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Barony (2015) [En] (4.3.2-150625-hf2/dlc) License GOG [Blessed Addition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7604.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Monster Prom 2: Monster Camp (2020) [En] (2.29.b/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7600.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Quasimorph (2023) [Ru/Multi] (0.9.5.1.100g.409ff48) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7595.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7589.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ GearCity (2022) [Ru/Multi] (2.0.0.14 hf1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7587.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7586.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Guards II (2): Chaos in Hell (2025) [Ru/Multi] (1.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7585.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ False Skies (2022) [En] (1.12aa) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7583.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7582.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7579.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Strategic Command WWII: War in the Pacific (2024) [Multi] (1.03.05/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7576.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Odd Realm (2019) [En] (1.0.37.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7574.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (2.3) License GOG [Director’s 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7569.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2 Update 1 Build 2708229) Repac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7567.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7566.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7565.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Black Forest (2016) [Multi] (2.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7564.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7558.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7554.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7552.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7524.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6960CB74FB8D0E06B9938A06E74421DEB47C53EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661811   (7403) от 17.08.2025
+
+Stellar Monarch 2 (2022) [En] (1.24/dlc) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellar Monarch 2 - это глобальная стратегия в научно-фантастическом сеттинге, где игрокам потребуется построить настоящую космическую империю и завоевать межгалактическое господство. Почувствуйте себя настоящим императоров, ведь в вашем подчинении окажутся бароны и герцоги, а вам придется поддерживать хорошие отношения с дворянскими домами, чтобы не нарваться на (   Читать дальше...   )Тип издания: LicenseРазработчик: Silver Lemur GamesЖанр: СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BADEA987AAC59189172E2E904309AA9E774E752F
 ```
 
 https://mybot314.ru/tekegram_catalog/

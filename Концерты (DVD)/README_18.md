@@ -6,7 +6,7 @@ Halford - Live In Anaheim (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45083.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43505.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34471.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ AC/DC (ACDC) - Plug Me In (Limited Edition) [2007, Hard Rock, 3xDVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12107.jpg" />
 </div>
 
 

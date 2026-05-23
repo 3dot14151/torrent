@@ -1,29 +1,3 @@
-###  Публикация: 992258   (335257) от 20.11.2016
-
-Among the Sleep (2014) [Ru/Multi] (2.0.1/dlc) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Аmong the Sleep – хоррор от первого лица, в котором вы выступаете в роли двухлетнего ребенка. Оставшись ночью в своей кроватке, малыш начинает замечать странные вещи, происходящие в доме. Оказавшись на грани между вымышленным и реальностью, ему предстоит пережить мистические события и столкнуться с сюрреалистичными созданиями.Тип издания: RepackРазработчик: Krillbite StudioЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01F913AD09FE46B8A4AB3617FD3F82D1EFB8C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074884   (335256) от 20.11.2016
 
 Metal Tales: Fury of the Guitar Gods (2016) [Ru/Multi] (1.0) License PLAZA
@@ -32,7 +6,7 @@ Metal Tales: Fury of the Guitar Gods (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335256.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ICEY (2016) [Muti] (1.0) License SKiDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335252.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tokyo 42 (2017) [Ru/Multi] (1.1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334934.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ FURIDASHI: Drift Cyber Sport (2017) [Ru/En] (101/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334779.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ FURIDASHI: Drift Cyber Sport (2017) [Ru/En] (101/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334770.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Alwa's Legacy (2020) [Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334722.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Haunted Manor 6: Remembrance (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334679.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Rainblood: Town of Death (P) [En] 2010
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334603.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ John Wick Hex (2019) [Ru/Multi] (0.92) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334290.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Night in the Opera / Ночь в Опере (2012) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333763.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_333285.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Abandon Ship (2019) [Ru/Multi] (1.3.14934) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333259.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0.14/dlc) License GOG [Complet
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333248.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Stronghold: Crusader II (2014) [Ru] (1.0.22365/upd17/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333192.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (216 652/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332995.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332980.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Moorhuhn - Das verbotene Schloss (L) [Dе] (2010)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332901.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Orphan (2018) [Ru/Multi] (1.0.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332806.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Absolute Tactics: Daughters of Mercy (2022) [Ru/Multi] (1.1.1.8-rc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332762.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Secret Case: Paranormal Investigation (2015) [En/Multi] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332532.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Elixir 2: The League of Immortality (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332530.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Spear of Destiny: The Final Journey (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332522.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ European Mystery 3: Flowers of Death (2015) [En] Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332475.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Haunted Hotel 10: The X (2015) [En] Unofficial [Collector's Edition / Колле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332468.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Haunted Legends 7: The Secret of Life (2015) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332467.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Haunted Legends 7: The Secret of Life (2015) [En] Unofficial [Collector's Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38D9696C1BB7CCFCE006015F9A60757C912B2A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955988   (332461) от 12.11.2015
+
+Fear for Sale 7: City of the Past (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнав об исчезновении своего коллеги Джека, журналистка Эмма Робертс отправляется на его поиски. Обстоятельства исчезновения Джека приводят её в дом талантливого скульптора и художника Алекса Дина, который несколько лет назад оборвал все связи с миром и стал вести жизнь затворника.Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D05F0E022BC565BA68FF15B3E1656208943FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

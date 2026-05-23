@@ -1,31 +1,3 @@
-###  Публикация: 740905   (985899) от 01.01.2014
-
-Scientific Linux 6.5 Live Beta [i386, x86-64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Вышел тестовый релиз Scientific Linux 6.5 Live – очередной выпуск дистрибутива enterprise-класса, собранного на пакетной базе Red Hat Enterprise Linux для архитектур i386 и x86_64: LiveMiniCD – IceWM; LiveCD – GNOME; LiveDVD – GNOME, KDE, IceWM.. Поддерживается возможность установки на диск (HDD, USB).
-
-Особенности релиза: Linux kernel 2.6.32, Firefox 24.2.0, IceWM 1.2.37, LibreOffice 4.0.4, KDE 4.3.4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8321E6E6334A2906BDAF04F2077435D2BDDBDDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971623   (985681) от 03.01.2016
 
 JonDo/Tor-Secure-Live-DVD 0.9.88 [анонимный доступ в сети] [x86] DVD
@@ -34,7 +6,7 @@ JonDo/Tor-Secure-Live-DVD 0.9.88 [анонимный доступ в сети] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985681.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ CentOS 7.2-1511 [i386] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985398.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [i68
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984362.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [x86
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984211.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ Kerio Control Software Appliance 9.3.3 build 3634 [i386] 1xCD [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980813.jpg" />
 </div>
 
 
@@ -166,7 +138,7 @@ Kerio Operator Software Appliance 2.6.3 build 9208 [i386] 1xCD [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980807.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ Slackware Live Beta3 (Mate, XFCE, KDE, Plasma5), Slackware64 Install DVD Current
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979977.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ Tor Browser 5.0.7 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978814.jpg" />
 </div>
 
 
@@ -247,7 +219,7 @@ JonDo/Tor-Secure-Live-DVD 0.9.88.2 [анонимный доступ в сети]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978741.jpg" />
 </div>
 
 
@@ -275,7 +247,7 @@ Q4OS 1.4.5 Live (Легкий дистрибутив) [Trinity - форк KDE 3.
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977889.jpg" />
 </div>
 
 
@@ -303,7 +275,7 @@ Frugalware Linux 1.8 [x86_64] (5xDVD+1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977512.jpg" />
 </div>
 
 
@@ -331,7 +303,7 @@ DSL OS 4.11 rc2 [x86] (1xCD)
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974565.jpg" />
 </div>
 
 
@@ -364,7 +336,7 @@ Menuet OS 0.99.01 [x86, x86_64] (1 FDD)
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974447.jpg" />
 </div>
 
 
@@ -392,7 +364,7 @@ Slackware 14.2 Beta1 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974204.jpg" />
 </div>
 
 
@@ -420,7 +392,7 @@ Scientific Linux 6.5 Live RC1 [i386, x86-64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971711.jpg" />
 </div>
 
 
@@ -448,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971667.jpg" />
 </div>
 
 
@@ -479,7 +451,7 @@ Tails 0.22.1 RC1 [анонимный доступ в сети] [i386] 1xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971627.jpg" />
 </div>
 
 
@@ -507,7 +479,7 @@ MultiBootUSB 7.5.0 [x86, x86_64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970371.jpg" />
 </div>
 
 
@@ -533,7 +505,7 @@ Parted Magic 2016.01.06 [i686, amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970299.jpg" />
 </div>
 
 
@@ -559,7 +531,7 @@ Insofta Cover Commander 3.6.0 Repack The Hacker [x86-64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969434.jpg" />
 </div>
 
 
@@ -585,7 +557,7 @@ Mythbuntu 12.04.2 LTS [i386, x86-64] (2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968602.jpg" />
 </div>
 
 
@@ -611,7 +583,7 @@ KaOS Linux 2016.01 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967525.jpg" />
 </div>
 
 
@@ -637,7 +609,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966007.jpg" />
 </div>
 
 
@@ -663,7 +635,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965949.jpg" />
 </div>
 
 
@@ -689,7 +661,7 @@ Microsoft Office 2003 Professional SP3 (обновления 02.01.2016) Repack 
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965243.jpg" />
 </div>
 
 
@@ -700,6 +672,32 @@ Microsoft Office – самый популярный в мире пакет оф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9589E6CF3603CC2BF4C2891A616611DE0B4C30DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358339   (963943) от 12.02.2020
+
+Интернет Контроль Сервер 7.0.1 [x86, amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отечественный интернет-шлюз Интернет Контроль Сервер — это единое решение для комплекса задач, возникающих при организации локальной сети. В их числе контроль и обеспечение безопасности пользования интернетом, фильтрация контента, организация учета трафика, разграничение прав доступа для пользователей. Мы собрали в решении все функции, которые могут пригодиться. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98ECEB6B5624AF5E2112BB74D885AA1048007BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

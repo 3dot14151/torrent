@@ -6,7 +6,7 @@ UnHackMe 10.20 Build 770  RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768266.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768261.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AOMEI Partition Assistant Standard Edition 8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768260.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Advanced SystemCare Ultimate с Антивирусом 12.0.1.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768221.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Cyberfox 52.7.1 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768175.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mozilla Firefox ESR 52.7.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768164.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ GoodSync Enterprise 10.8.1.1 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768157.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mozilla Firefox Quantum 59.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768152.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ScreenToGif 2.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768148.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Cimaware OfficeFIX Professional 6.123 Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768123.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768113.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Air Explorer Pro 2.2.0 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768087.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Room Arranger 9.5.3.610 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768084.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe components: Flash Player 29.0.0.113 + AIR 29.0.0.112 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768074.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Wondershare Video Converter Ultimate 10.2.3.163 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768071.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Movavi Screen Capture Studio 9.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768045.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Xara Designer Pro X 15.0.0.52427 (64bit) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768039.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Reg Organizer 8.10 beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768038.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Microsoft Visual C++ 2017 Redistributable Package 14.13.26020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768034.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Bandicam 4.1.2.1385 RePack (& portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768031.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Microsoft Windows 10 Insider Preview build 17115 (Redstone 4) x64 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767980.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Photoshop CC 2018 (19.1.2) x86-x64 Portable by punsh (with Plugins) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767978.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe Photoshop CC 2018 (19.1.2.45971) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767976.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Process Lasso Pro 9.0.0.290 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767927.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Mp3tag 2.91a RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767880.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Display Driver Uninstaller 17.0.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767833.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VideoSmile, Михаил Бычков | Супер 2D моушн-графика 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170709.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Nikolay Naydenov | Head anatomy and sculpting exercises course (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170698.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Udemy, Darrin Lile | Blender 2.8 UV Mapping (2019) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170223.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167865.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FXPHD, Jon Gress | Production in Unreal Engine 4 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167516.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Pluralsight, Stephen Wells | ZBrush FiberMesh Fundamentals (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167441.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Udemy, Peter Sidoriak | Advanced VFX Compositing with Nuke: Green Screen Keying 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167369.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Udemy, Bhaumik Patel | Fast animation and rigging techniques using Maya 2017 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167362.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167106.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Liveclasses, Никита Чесноков | Blender: быстрый старт 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166206.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Liveclasses, Никита Чесноков | Blender: расширенные в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166203.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165891.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ RTFX Animation, Ринат Тимеркаев | Основы 2D FX анимац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165679.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Motion Design School, Данила Михайлов | Рисование спе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165647.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Lighting Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165479.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Domestika, Mattey | Cinema 4D Создавайте яркие 3D иллюстр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165447.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Udemy, Nexttut, Victor Yamakado | Zbrush Character Likeness Sculpting Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165404.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ The Gnomon Workshop, Maarten Verhoeven | The Making of Red Myst (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164729.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ sabatovsky.com, Азамат Сайфуллаев | Онлайн-курс по �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164688.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164643.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164617.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164590.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164526.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ FlippedNormals, Henning Sanden | Character Face Texturing in Substance Painter (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164514.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Udemy.com | Photoshop CC 2018 for Absolute Beginners (2018) PCRec [H.264/720p-LQ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164128.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164064.jpg" />
 </div>
 
 

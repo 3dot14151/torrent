@@ -6,7 +6,7 @@ Discovery. Умельцы против апокалипсиса / Masters of Dis
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334533.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332799.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Махинаторы (Автодилеры) / Darracq (2014) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332316.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Махинаторы (Автодилеры) / Lincoln Continental (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332181.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Разрушители легенд. Незаконченное де�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329244.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329187.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328127.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328026.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327315.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324671.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323137.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322366.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321478.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery: Разрушители легенд. Звёздные войны: О�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321099.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Discovery: Вечера науки с Константином Хабенски�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320678.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Discovery: Вечера науки с Константином Хабенски�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320664.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318487.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Discovery: Смертоносные эпидемии / Killer outbreaks (2011) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316395.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Discovery: Вот это странно / Williams Shatner's Weird or What (2012
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316170.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311503.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309702.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Discovery. На краю Аляски  / Edge of Alaska (2014) HDTVRip (1-8 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308473.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306324.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Discovery. Северная Америка / North America (2013) BDRemux [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300968.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299711.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296711.jpg" />
 </div>
 
 

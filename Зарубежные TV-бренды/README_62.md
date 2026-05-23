@@ -1,29 +1,3 @@
-###  Публикация: 1232380   (599925) от 24.06.2018
-
-NGW: Гризли Аляски бросают вызов. Осада белыми медведями / Alaska's Grizzly Gauntlet (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Специалист по выживанию Лес Страуд совершает путешествие к городу Кактовик на острове Бартер, который является домом для эскимосов-инупиатов, а также для белых медведей.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кэйси БрамелсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE11D3DD0251287A3B4D3405F91EB2BBC3FD2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548371   (599740) от 02.05.2022
 
 Мировые сокровища с Бетани Хьюз. Средиземноморье / Treasures With Bettany Hughes (2021) HDTV [H.264/1080i]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599740.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC: Первобытная Америка / BBC: Wild New World (2002) DVDRip (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599430.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ DV: Невероятное вокруг нас. Следы ДНК [12 из 28] /
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598813.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Discovery. Игра на жизнь / Survive That! (2013) HDTVRip [Сезон 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598337.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Discovery. Игра на жизнь / Survive That! (2014) HDTVRip [Сезон 2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598331.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ NG: Прекрасная Америка: Величественный Север
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598226.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598067.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Discovery. Встречи на краю света / Encounters at the End of th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597663.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Discovery: Крушение Concordia: Взгляд изнутри / Cruise Ship
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597294.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Discovery: Внутри планеты Земля / Inside Planet Earth (2009) B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597136.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Discovery. Уличные гонки: Новый Орлеан / Discovery. Stree
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597090.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Discovery. Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597076.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596970.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ History Channel: Вселенная.  Как возникла Солнечная
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596958.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ History Channel: Вселенная. Бог и Вселенная / The Universe
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596864.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ DV:  Невероятное вокруг нас. Взгляд в космос [1
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596793.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596254.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ History Channel. Реальные монстры / True Monsters (2015) HDTVRip 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596155.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTVRip [Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595992.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595965.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ BBC. Horizon: В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595702.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ BBC: Выдающиеся женщины ХХ столетия. Индира Г�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595581.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595513.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ BBC: Выдающиеся женщины ХХ столетия. Коко Шан�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595457.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595451.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:181AFF3E2FF138ED6343F22978FB8ECA1DAA08EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232997   (595005) от 27.06.2018
+
+NGW: Гризли Аляски бросают вызов. Короли острова Кодиак / Alaska's Grizzly Gauntlet (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалист по выживанию Лес Строуд направляется на озеро Карлук на острове Кодиак на Аляске, чтобы встретиться с царем всех бурых медведей.Производство: США, Ping Pong Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кэйси БрамелсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328149B9109C522B28F70C327E8FDFB4BDA7A7C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

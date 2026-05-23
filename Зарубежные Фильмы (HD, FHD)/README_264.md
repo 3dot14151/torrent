@@ -1,57 +1,3 @@
-###  Публикация: 203391   (822433) от 17.10.2021
-
-Эон Флакс / Æon Flux (2005) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в далеком будущем, когда после глобальной катастрофы погибло практически все население Земли. Оставшиеся люди живут в защищенном городе-государстве Бренна, управляемом советом ученых. Красавица Эон Флакс - лучший агент подпольной повстанческой организации "Моника". Ее возможности, также как мотивы и действия, за пределами объяснимого. (   Читать дальше...   )Жанр: Фантастика, Триллер, БоевикРежиссер: Карин КусамаАктеры: Шарлиз Терон, Мартон Шокас, Джонни Ли Миллер, Софи Оконедо, Фрэнсис МакДорманд, Пит Постлетуэйт, Амелия Уорнер, Кэролайн Чикези, Николай Кински, Пэтерсон ДжозефПеревод: Дублированный, многоголосый закадровыйСубтитры: Русский (Киномания), АнглийскийПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A10D8344852DFCDA47C45F36DE0CDF223EB7D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374692   (822372) от 09.05.2020
-
-13 друзей Оушена / Ocean's Thirteen (2007) HDTV [H.264/1080i-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Новая глава о криминальных похождениях Дэнни Оушена и его команды талантливейших мошенников в Лас-Вегасе.
-У Дэнни Оушена и его команды могла быть только одна причина, по которой они готовы провернуть самое амбициозное и рискованное ограбление казино в их жизни, — ради защиты одного из «своих».
-Когда безжалостный владелец казино Уилли Бэнк подставляет одного из некогда (   Читать дальше...   )Производство: США / Warner Bros. Pictures, Village Roadshow PicturesЖанр: триллер, криминалРежиссер: Стивен СодербергАктеры: Джордж Клуни, Брэд Питт, Мэтт Дэймон, Эллиотт Гулд, Берни Мак, Аль Пачино, Дон Чидл, Кэйси Аффлек, Эдди Джемисон, Скотт Каан, Шаобо Куин, Карл Рейнер, Эдди Иззард, Майкл Мэнтелл, Эллен Баркин, Рэй Ксифо, Крис Кэйн, Соледад Ст. Хилейр, Норин ДеВулф, Джерри ВейнтраубПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA3D38A5B5C669A99AC58806E75C9D872BCD415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 881781   (822350) от 26.03.2015
 
 Заложница  / Taken  (2008) BDRip [1080p] [USA transfer] [Расширенная версия]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822350.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822329.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822320.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822269.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822268.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822263.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822258.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822254.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822229.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822221.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822215.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822211.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822207.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822173.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822149.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822138.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822113.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822101.jpg" />
 </div>
 
 
@@ -531,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822094.jpg" />
 </div>
 
 
@@ -557,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822064.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822058.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822004.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822002.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821996.jpg" />
 </div>
 
 
@@ -672,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC96F7AD8C7469F5CB83A4742C55DDC96F048C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196537   (821990) от 03.01.2018
+
+Мир, полный чудес / Wonderstruck (2017) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821990.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Бена и Роуз, которые живут в разные эпохи и не могут смириться с окружающим их миром. Бен мечтает найти своего отца, а мысли Роуз заняты загадочной актрисой. Однажды судьба толкает их на поиски того самого недостающего их жизни элемента.Производство: США, Amazon Studios, Cinetic Media, FilmNation EntertainmentЖанр: Драма, Детектив, СемейныйРежиссер: Тодд ХейнсАктеры: Милли Симмондс, Джулианна Мур, Кори Майкл Смит, Джеймс Урбаняк, Дэмиэн Янг, Патрик Мёрни, Лорен Ридлофф, Энтони Натали, Кэрол Аддаббо, Говард СаэгоПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: Английские (отключаемые)Продолжительность: 01:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9647CFE66C16E8E5FE2891FD693E84DBF0C43598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116575   (821960) от 20.03.2017
+
+Одиссея / L'odyssee (2016) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть пути, которые не отыщешь на картах. Есть цели, которые укажет только любовь. «Одиссея» — самый масштабный приключенческий проект современного французского кино. История героя, открывшего человечеству «второй космос». Его экспедиции вдохновили миллионы. Его главное путешествие осталось тайной.
+Первопроходец. Мечтатель. Бунтарь. Легендарный Жак-Ив Кусто: его корабль, (   Читать дальше...   )Производство: Франция / Canal+Жанр: Приключения, Биография, ДрамаРежиссер: Жером СалльАктеры: Ламбер Вильсон, Пьер Нинэ, Одри Тоту, Лоран Люка, Бенжамин Лаверн, Венсан Энен, Тибо де Монталембер, Рогер Ван Хол, Хлоя Хиршман, Адам Нилл, Микаэль Бундред, Кевин Отто, Доннет ДюмаПеревод: Дублированный (TV 1000 Premium HD)Субтитры: Русские (форсированные), Французские (форсированные)Продолжительность: 02:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C326A956932C48256EE8295EF98546A7B09DCCA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1218855   (718979) от 11.04.2018
-
-Отпетый мачо / Несносный мачо / Gun Shy (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Генри по прозвищу Бес — рок-звезда со всеми вытекающими. Правда, дни его славы остались в прошлом, и теперь единственное, на что он способен — это лежать и попивать пиво. Однажды он отправляется на отдых в Чили, а местные пираты от безнадежности похищают его красавицу-жену и просят за нее выкуп в 1 млн. долларов. Для Генри выплатить эти деньги, как дать на чай официанту. (   Читать дальше...   )Производство: Великобритания / Salty FilmЖанр: Боевик, триллер, комедия, криминал, приключенияРежиссер: Саймон УэстАктеры: Антонио Бандерас, Ольга Куриленко, Бен Кура, Марк Вэлли, Эшлин Лофтус, Дэвид Митчелл, Джесси Джонсон, Джереми Свифт, Миланка БруксПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: Английские, итальянскиеПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5DFF067B97800ACCBFE6CDAF2EEE62C704E84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218872   (718978) от 11.04.2018
-
-Недруги / Hostiles (2017) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда на твоих глазах льется кровь, когда ты вынужден убивать, ты превращаешься в зверя... После долгих лет войны он дышал злобой, проклинал краснокожих, в каждом из них он видел врага. На исходе войны капитан Блокер получает приказ доставить на родину в Монтану умирающего вождя по кличке Желтый Ястреб. В цепях и кандалах он ведет семью индейцев через земли, где (   Читать дальше...   )Производство: США / Grisbi Productions, Le, Waypoint EntertainmentЖанр: Драма, приключения, вестернРежиссер: Скотт КуперАктеры: Скотт Шеперд, Розамунд Пайк, Ава Купер, Стелла Купер, Дэвид Мидфандер, Кристиан Бэйл, Рори Кокрейн, Джонатан Мэйджерс, Джон Бенжамин ХиккиПеревод: Дублированный (iTunes)Субтитры: Русские форс. (отдельно)Продолжительность: 02:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A227B0F1693E7D98306119CF9F3660AC0E16FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218762   (718973) от 11.04.2018
 
 Недруги / Hostiles (2017) WEB-DLRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718973.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718958.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718899.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718895.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718790.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718787.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718764.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718739.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718677.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718638.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718634.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718583.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718570.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718567.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718533.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718528.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718520.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718515.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718474.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718473.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718467.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718466.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718433.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718423.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92B64F0104E2BAE1DDE577D711D039F2BD55D5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285750   (718368) от 27.02.2019
+
+Лоро / Loro (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718368.jpg" />
+</div>
+
+
+###  Подробнее
+
+На закрытых вечеринках и дорогих приемах в Риме и на Сардинии его всегда окружают самые красивые и самые опасные люди, готовые на все, лишь бы получить доступ к живой легенде. «Лоро» («они») — это нувориши-итальянцы и их нравы, воплощение которых — тиран и весельчак, гедонист и романтик, скандальный политик и миллиардер Сильвио Берлускони.Производство: Италия, Франция / Direzione Generale Cinema, Fondazione Sardegna Film Commission, Indigo Film, OCS, Pathe, Regione LazioЖанр: Биография, драмаРежиссер: Паоло СоррентиноАктеры: Тони Сервилло, Елена София Риччи, Риккардо Скамарчо, Касия Смутняк, Эвридиче Аксэн, Фабрицио Бентивольо, Роберто Де Франческо, Дарио Кантарелли, Анна Бонаюто, Джованни ЭспозитоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3207880F40FD93ECFC5B9A2359AF119B9CE35E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528358   (718346) от 17.02.2022
+
+Тень / The Shadow (1994) BDRemux [H.264/1080p] [USA Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йин Ко, он же Ламонт Кренстон, беспощадный правитель огромной наркоимперии в Тибете. Ламонт всю жизнь пытался бороться со своей черной душой, но проиграл. И только при помощи Святого Талку он смог одержать победу над собой. Талку передал ему огромный запас мистических знаний, среди которых и способ становиться невидимым, оставляя лишь то, что скрыть не дано никому (   Читать дальше...   )Производство: США, Bregman, Baer Productions, Universal PicturesЖанр: фэнтези, боевик, триллер, приключения, криминалРежиссер: Рассел МалкэхиАктеры: Алек Болдуин, Джон Лоун, Пенелопа Энн Миллер, Питер Бойл, Иэн МакКеллен, Тим Карри, Джонатан Уинтерс, Саб Симоно, Андре Грегори, Брэди ЦурутаниПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: Русские, английские (полные, для слабослышащих), немецкие, французские, испанские, итальянские, португальские (европейские, бразильские), арабские, болгарские, вьетнамские, голландские, датские, греческие, иврит, индонезийские, норвежские, польские, румынские, сербские, словенские, тайские, турецкие, украинские, фарси, финские, хорватские, шведские, эстонские Оригинальная (   Читать дальше...   )Продолжительность: 01:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A03707EF5B8FC9DFA8A5557FFC00520B8778FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

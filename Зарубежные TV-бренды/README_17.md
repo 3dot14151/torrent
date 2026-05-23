@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864180.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863435.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) BDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862538.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862148.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Viasat History: Тени средневековья / Medieval Dead (2013-2016) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860319.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ History Channel. Ланкастер на войне / The Lancaster at War (2009
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858978.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858771.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858653.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Discovery: Самогонщики (серии 1-6 + спецвыпуск) / Disc
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858526.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Discovery: Будущее с Джеймсом Вудсом. Как стать с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857370.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC: История Единицы с Терри Джонсом / The Story of 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856325.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855970.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Discovery: Смертельный улов / Deadliest Catch (2005) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854542.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ NG: Доисторические хищники / Prehistoric Predators  (2009) 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854308.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854303.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ BBC: Серенгети / Serengeti II (2021) WEBRip [H.264/720p] (сезон 2,
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854073.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854035.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BBC. Биологические часы: как они работают? / Body
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853261.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852128.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 7
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851925.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851869.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Bi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850995.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Discovery: Смертельный улов / Deadliest Catch (2007) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849375.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849271.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BBC: Волк / The Wildlife Specials: Wolf (1997) DVD-5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848643.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848642.jpg" />
 </div>
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1457505   (1021273) от 13.04.2021
-
-Убийства в Оверни / Meurtres en Auvergne / Meurtres a... (2017) HDTVRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм из телевизионного цикла "Убийства в... / Meurtres à..." о трагических событиях, происходящих в разных городах Франции, расследованиях, ведущихся различными полицейскими детективами, где все преступления имеют под собой некую особенность - использование легенд и преданий прошлого.
-
-Рядом с озером Павен в Оверни находят тело молодой женщины. Кажется, (   Читать дальше...   )Производство: Франция / Quad Télévision, France Télévisions, Centre National du Cinéma et de l'Image AniméeЖанр: драма, криминал, детективРежиссер: Тьерри БинистиАктеры: Фредерик Дифенталь, София Эссаиди, Стефан Ридо, Арно Бинар, Эмили Девиль, Мария Ванхоннакер, Марион Касабьянка, Эрве Жакоби и д.р.Перевод: Профессиональный (двуголосый закадровый) (ViruseProject)Язык озвучки: Русский, французскийСубтитры: русские, английские, французские, немецкие, голландскиеПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D368AB4572767D0AFCB951882869C12DC3AA2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456961   (1021264) от 13.04.2021
-
-Стойкая броня / The Shadow of Violence / Calm with Horses (2019) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Чтобы заработать на жизнь, бывший боксер Дуглас Армстронг по прозвищу Арм начинает работать на семью крупных наркоторговцев. Ему предстоит пройти тяжелое испытание на верность семье и сыну и своей новой семье мафиози, когда он должен впервые убить человека.Производство: Великобритания, Ирландия / DMC Film, Element Pictures, Film 4, Irish Film Board, WRAP FundЖанр: Драма, криминалРежиссер: Ник РоулэндАктеры: Космо Джарвис, Барри Кеоган, Нив Алгар, Нед Деннехи, Килджан Морони, Дэвид Уилмот, Лайам Карни, Брайан Доэрти, Симона Кирби, Ройшн О’НиллПеревод: Профессиональный многоголосый (IVI)Субтитры: Русские (Full), английскиеПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8473265C1FA1650E67592DEC8C227D7729344A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457506   (1021260) от 13.04.2021
 
 Под подозрением / Склонность / Bent (2018) BDRip [H.264/1080p] [CAN Transfer]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021260.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021257.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021254.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021253.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021252.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021248.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021244.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021170.jpg" />
 </div>
 
 
@@ -270,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021158.jpg" />
 </div>
 
 
@@ -296,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021153.jpg" />
 </div>
 
 
@@ -322,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021152.jpg" />
 </div>
 
 
@@ -348,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021147.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021144.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021141.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021140.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021132.jpg" />
 </div>
 
 
@@ -481,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021131.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021129.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021128.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021125.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021123.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021120.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021119.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021118.jpg" />
 </div>
 
 
@@ -676,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:732B17B565B47A546E872BEC1D1F463AD8CB8643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462404   (1021107) от 14.04.2021
+
+Иуда и чёрный мессия / Judas and the Black Messiah (2021) WEB-DL [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чикаго, 1968 год. Попавшись на угоне машины с поддельным удостоверением ФБР, преступник Уильям О’Нил соглашается на сделку с федералами. Он внедряется в отделение радикальной организации «Чёрные пантеры» и втирается в доверие к её лидеру Фреду Хэмптону, как раз когда тот начинает объединять местные этнические организации в «Радужную коалицию».Производство: США / BRON Studios, Bron Creative, MACROЖанр: Биография, драма, история, криминалРежиссер: Шака КингАктеры: Лакит Стэнфилд, Дэниэл Калуя, Джесси Племонс, Доминик Фишбэк, Эштон Сандерс, Элджи Смит, Даррел Бритт-Гибсон, Лил Рел Ховери, Доминик Торн, Мартин ШинПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B409996CCDA2616F71C6E48C2B4E2C06AED5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462403   (1021099) от 14.04.2021
+
+Иуда и чёрный мессия / Judas and the Black Messiah (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чикаго, 1968 год. Попавшись на угоне машины с поддельным удостоверением ФБР, преступник Уильям О’Нил соглашается на сделку с федералами. Он внедряется в отделение радикальной организации «Чёрные пантеры» и втирается в доверие к её лидеру Фреду Хэмптону, как раз когда тот начинает объединять местные этнические организации в «Радужную коалицию».Производство: США / BRON Studios, Bron Creative, MACROЖанр: Биография, драма, история, криминалРежиссер: Шака КингАктеры: Лакит Стэнфилд, Дэниэл Калуя, Джесси Племонс, Доминик Фишбэк, Эштон Сандерс, Элджи Смит, Даррел Бритт-Гибсон, Лил Рел Ховери, Доминик Торн, Мартин ШинПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C8F23F1CB5B36DA31A3FF4DE7825FD0318FBF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

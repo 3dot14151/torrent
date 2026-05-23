@@ -6,7 +6,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.0.1) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043668.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tom Clancy's Rainbow Six (2001-2008) [Ru] License [Антология. Част�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043572.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WHALIEN - Unexpected Guests (2023) [Ru/Multi] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043493.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Punch A Bunch (2023) [En] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043400.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bus Driving Sim 22 (2023) [Multi] (1.0) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043199.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CRISIS CORE –FINAL FANTASY VII– REUNION (2022) [Multi] (1.0) License FLT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043196.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ American Fugitive (2019) [Ru/Multi] (1.1.19095) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043114.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ATONE: Heart of the Elder Tree (2023) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043112.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (1.4.5.1) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042642.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Forager (2019) [Ru/Multi] (4.1.8) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042634.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Men of War II: Arena (2020) [Ru] (30.12.2020) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042631.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (1.84/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042577.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Walking Dead: The Telltale Definitive Series (2020) [Ru/Multi] (1.6/dlc) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042374.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Detectives United 4: Phantoms of the Past (2020) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042265.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DARQ (2019) [Ru/Multi] (2.3.1/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042210.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Hidden Expedition 20: Reign of Flames / Секретная экспедиция 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042186.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pumpkin Jack (2020) [Ru/Multi] (1.4.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041819.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Papers, Please (2013) [Ru/Multi] (1.2.72) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041817.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.5.113/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041815.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0/dlc) License Razor1911
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041778.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Star Ocean - The Last Hope (2017) [Ru] (1.1.12212) Repack xatab [4K & Full HD Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041251.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Exiled Kingdoms (2018) [Ru/Multi] (1.2.1124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041249.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Devil May Cry 5 (2019) [Ru/En] (1.0.0.1.05962864/dlc) Repack xatab [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041245.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Factorio (2020) [Ru/Multi] (1.1.35) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041229.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Ringborn (2023) [En] (1.0) License Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041227.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Yooka-Laylee and the Impossible Lair (2019) [Multi] (28130/dlc) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041226.jpg" />
 </div>
 
 

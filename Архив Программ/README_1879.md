@@ -6,7 +6,7 @@ Psiphon 3 build 170 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167288.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Adobe Media Encoder 2020 14.7.0.17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167285.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Internet Download Manager 6.40 Build 2 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167279.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Phase One Capture One Pro 22 15.0.0.94 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167267.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DesktopSnowOK 6.12 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167261.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AIDA64 Engineer Edition 6.85.6300 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167257.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ FontLab 8.0.1.8248 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167254.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ OCCT 11.0.18 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167240.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Auslogics Driver Updater 1.24.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167236.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Office 2013-2021 C2R Install + Lite 7.3.7 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167234.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ HP Service Pack for ProLiant (SPP) 2020.09.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167200.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Opera GX 102.0.4880.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167199.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AMD Radeon Software Adrenalin Edition 22.11.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167197.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Nik Collection 4 by DxO 4.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167196.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ XnView Shell Extension 4.1.6  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167187.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Trimble Tekla Structures 2020 SP3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167177.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ ICQ 10.0 Build 38668 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167163.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ ZWCAD 2023 SP2 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167154.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Telegram Desktop 4.11.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167153.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ K-Lite Codec Pack Update 17.9.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167150.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Wondershare PDFelement 10.1.4.2521 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167122.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Any Video Converter  6.3.7 Professional RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167114.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ DiskTrix UltimateDefrag 6.0.50.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167111.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ OpenNumismat 1.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167100.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Chromium 118.0.5993.118 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167083.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Topaz Video AI 4.0.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167052.jpg" />
 </div>
 
 

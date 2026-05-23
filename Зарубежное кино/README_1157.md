@@ -1,57 +1,3 @@
-###  Публикация: 1245267   (473748) от 05.09.2018
-
-8 подруг Оушена / Ocean's Eight (2018) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пять лет, восемь месяцев, 12 дней… и далее. Именно столько Дебби Оушен разрабатывала план величайшего ограбления своей жизни.
-Она точно знает, что для него потребуется, — команда лучших в своем деле, начиная с ее давней сообщницы Лу Миллер. Вместе они собирают команду уникальных специалистов. Их цель — неотразимые 150 миллионов долларов в бриллиантах — в бриллиантах (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: боевик, триллер, комедия, криминалРежиссер: Гэри РоссАктеры: Сандра Баллок, Кейт Бланшетт, Гриффин Данн, Дирдри Гудвин, Энн Хэтэуэй, Минди Кейлинг, Рианна, Даниэлла Раббани, Брайан Дж. Картер, Сара Полсон, АквафинаПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, английскиеПродолжительность: 01:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6406490D081F205CA1FC5FE554C8CED9756B834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245263   (473745) от 05.09.2018
-
-8 подруг Оушена / Ocean's Eight (2018) UHD Blu-ray [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [EUR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пять лет, восемь месяцев, 12 дней… и далее. Именно столько Дебби Оушен разрабатывала план величайшего ограбления своей жизни.
-Она точно знает, что для него потребуется, — команда лучших в своем деле, начиная с ее давней сообщницы Лу Миллер. Вместе они собирают команду уникальных специалистов. Их цель — неотразимые 150 миллионов долларов в бриллиантах — в бриллиантах (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: боевик, триллер, комедия, криминалРежиссер: Гэри РоссАктеры: Сандра Баллок, Кейт Бланшетт, Гриффин Данн, Дирдри Гудвин, Энн Хэтэуэй, Минди Кейлинг, Рианна, Даниэлла Раббани, Брайан Дж. Картер, Сара Полсон, АквафинаПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, английские, арабские, китайские, датские, французские, итальянские, корейские, португальские, испанские, шведские, тайскиеПродолжительность: 01:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0985B76B0373FA2144BDA830905805C1BD45426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245238   (473737) от 05.09.2018
 
 Ультрафиолет / Ultraviolet (2006) BDRip [H.265/1080p-LQ] [10-bit] [Theatrical Cut]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473737.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473728.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473715.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473706.jpg" />
 </div>
 
 
@@ -170,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473702.jpg" />
 </div>
 
 
@@ -196,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473688.jpg" />
 </div>
 
 
@@ -222,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473658.jpg" />
 </div>
 
 
@@ -249,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473655.jpg" />
 </div>
 
 
@@ -276,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473635.jpg" />
 </div>
 
 
@@ -302,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473611.jpg" />
 </div>
 
 
@@ -328,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473605.jpg" />
 </div>
 
 
@@ -354,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473582.jpg" />
 </div>
 
 
@@ -380,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473571.jpg" />
 </div>
 
 
@@ -406,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473544.jpg" />
 </div>
 
 
@@ -433,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473543.jpg" />
 </div>
 
 
@@ -459,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473535.jpg" />
 </div>
 
 
@@ -485,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473534.jpg" />
 </div>
 
 
@@ -512,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473529.jpg" />
 </div>
 
 
@@ -538,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473519.jpg" />
 </div>
 
 
@@ -564,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473504.jpg" />
 </div>
 
 
@@ -590,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473480.jpg" />
 </div>
 
 
@@ -616,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473479.jpg" />
 </div>
 
 
@@ -642,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473457.jpg" />
 </div>
 
 
@@ -668,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473446.jpg" />
 </div>
 
 
@@ -679,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A26044B9A40C73B754E3E18070FEB73E794528CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547067   (473445) от 15.09.2012
+
+Люди в черном 3 / Men in Black 3 (2012) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Джей узнает, что никакого защитного галактического щита, способного отразить иноземный удар, не существует. Агент Кей не построил его, потому что был убит в 1969 году. Агент Джей должен совершить путешествие во времени, чтобы спасти Землю и жизнь напарника.Производство: США, Amblin Entertainment, Hemisphere Media Capital, Media Magik Entertainment, Imagenation Abu Dhabi FZЖанр: Фантастика, боевик, комедия, приключенияРежиссер: Барри ЗонненфельдАктеры: Уилл Смит, Джош Бролин, Томми Ли Джонс, Джемейн Клемент, Майкл Стулбарг, Эмма Томпсон, Элис Ив, Майк Колтер, Билл Хэйдер, Майкл ЧернусПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, эстонский, хинди, латышский, литовскийПродолжительность: 01:41:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547549   (473346) от 15.09.2012
+
+Люди в черном 3 / Men in Black 3 (2012) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Джей узнает, что никакого защитного галактического щита, способного отразить иноземный удар, не существует. Агент Кей не построил его, потому что был убит в 1969 году. Агент Джей должен совершить путешествие во времени, чтобы спасти Землю и жизнь напарника.Производство: Amblin Entertainment / Hemisphere Media Capital / Media Magik Entertainment / Imagenation Abu Dhabi FZЖанр: Фантастика, боевик, комедия, приключенияРежиссер: Барри ЗонненфельдАктеры: Уилл Смит, Джош Бролин, Томми Ли Джонс, Джемейн Клемент, Майкл Стулбарг, Эмма Томпсон, Элис Ив, Майк Колтер, Билл Хэйдер, Майкл ЧернусПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, эстонский, хинди, латышский, литовскийПродолжительность: 01:41:30
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

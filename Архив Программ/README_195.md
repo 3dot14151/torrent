@@ -6,7 +6,7 @@ Red Giant Trapcode Suite 13.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977574.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dr.Batcher Business Edition 2.2.2 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977487.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Norton AntiVirus 22.20.1.69 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977459.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Norton 360 22.20.1.69 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977458.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hetman Partition Recovery 3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977451.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ jv16 PowerTools 5.0.0.468 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977446.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hetman Partition Recovery 3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977393.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Photo Glamour 2.0.1.72 RePack + Portable by KGS [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977364.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v3.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977334.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Adobe Flash Player 11.5.502.149 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977303.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Foxit Reader 5.5.0.1227 RePack (& portable) by KpoJIuK [Русский / Анг�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977275.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Kaspersky World 1.3.8.101 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977234.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Mirillis Action! 1.13.0.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977231.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Memory Improve Professional 5.2.2.528 [Аглийский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977209.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Process Lasso Pro v3.80 FINAL [x32/x64] RETAiL / Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977206.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ uTorrent 3.3 Build 29082 Stable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977176.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Realtek High Definition Audio Drivers R2.70 (6.0.1.6828 32/64-bit) [Multi/Рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977167.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Intel Chipset Device Software 9.4.0.1014 WHQL [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977165.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Virtual CD 10.1.0.0 Full Retail / Eng [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977154.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977135.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Boot CD USB Sergei Strelec 2013 v.1.6 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977128.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Softany WinCHM Pro 4.32 RePack by loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976834.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ GetFoldersize 3.0.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976796.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ PrivaZer 3.0.91 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976768.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ The Foundry MODO 902 SP1 Bulid 101906 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976698.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Process Lasso 9.6.0.68 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976675.jpg" />
 </div>
 
 

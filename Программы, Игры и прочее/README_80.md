@@ -1,55 +1,3 @@
-###  Публикация: 1422803   (305889) от 10.11.2020
-
-Plague Inc. v1.18.0 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Plague Inc – Редко, когда мобильные проекты выходят за пределы своей платформы. Обычно такие игры — огромная редкость. И Plague Inc как раз отличный пример. В этой игре вам предстоит примерить на себя роль эдакого злодея или безумного ученого, создавшего новый вид вируса с целью уничтожить все человечество. Развитие вашего творения зависит только от вас. В игре очень (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 8 ноября 2020 г.Разработчик: Miniclip.comПоддерживаемая ОС: Android 4.1+Жанр: Strategy (Стратегия)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B5C29D352CAA951D532CA54180D18FA57539D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261114   (305047) от 10.11.2018
-
-Garmin: City Navigator South America 2019.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дорожная карта Южной Америки для навигаторов Гармин.Тип издания: лицензияРелиз состоялся: октябрь 2018Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BD288A3D21DA725DB6983CD57E29C9CB5E2636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261122   (304858) от 10.11.2018
 
 Garmin: City Navigator Middle East and North Africa NT 2019.10 [En]
@@ -58,7 +6,7 @@ Garmin: City Navigator Middle East and North Africa NT 2019.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304858.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Garmin: City Navigator North America NT 2019.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304658.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Ultimate Guitar Tabs & Chords 4.10.1 [Ru] Premium
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304468.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ AndDocPro - PDF & DJVU Reader 1.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304079.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Real Monster Fishing 2020 v0.1.178 [Ru/Multi] (обновляемая)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302006.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301952.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ Jetpack Joyride v1.34.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297746.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ Sky Force 2014 v1.41 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297196.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296681.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ Spektrel Art 1.0.13 [En] - придайте снимкам необычный в
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296569.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ Grungetastic v3.3.8 [En] - ваши фотографии в стиле гран�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296470.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296469.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ Remote Bot for Telegram v1.9.43 Full [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294426.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ Photo Measures v1.56 [En/Ru] - Нанесение размеров, углов �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294345.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ WiFi Warden v2.5.7 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292459.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291831.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ Dash Maker: OBD Car Dashboards 1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291559.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ Apk Extractor Premium 4.1.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291552.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ Hitman: Sniper 1.7.75196 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291420.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ OpenDomofon - Коды домофонов Pro 1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291393.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ Furry Pet Hospital v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291031.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290848.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ Brain 3D Anatomy v1.0.2  [En] - анатомический 3D атлас моз�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290607.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289959.jpg" />
 </div>
 
 
@@ -678,6 +626,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01FBA08A4FAD80662F2923E04EB1B8778F8052E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025052   (289953) от 06.12.2016
+
+Русский язык - грамотей v1.2.1 [Ru] - тренажер для подготовки к экзаменам по русскому языку (ЕГЭ, ЦТ, ЗВ)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший тренажер для подготовки к экзаменам по русскому языку! Тысячи задач, которые помогут вам сдать ЕГЭ, ЦТ, ЗВ и любой другой экзамен по языку.Тип издания: Пиратка (все курсы разлочены)Релиз состоялся: 01.12.2016Разработчик: (Andrei & Aleksandr Krupiankou)Поддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951CDAB891D1DA8AEBF42078C6AA1ECC3BD7E45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080515   (288126) от 07.12.2016
+
+Справочник инженера сварщика Premium 1.1.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288126.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Справочник инженера сварщика" разработан в помощь специалистам сварочного производства при предварительной оценки норм расхода сварочных материалов и выбора технологии сварки.
+Содержит справочные материалы по технологии сварки стальных конструкций, расчету основных (по размерам и весу) и сварочных материалов (по весу проката и длинам швов), маркам сталей (   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 11 января 2016 г.Разработчик: Sergey MalyshevПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8148E0236297206FE31A0239E3F116B661C219
 ```
 
 https://mybot314.ru/tekegram_catalog/

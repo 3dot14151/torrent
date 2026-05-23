@@ -6,7 +6,7 @@ VA - Music News For Forum vol.167 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068548.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Мелодии и ритмы отечественной эстрады вы
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068538.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ai - Нейро Музон На Любой Фасон presents В. Высоцк�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068356.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Frontmusic - Relaxing Piano (2026) [MP3|320 Kbps] <Chillout, Piano, Instrumental
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068331.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Frontmusic - Italo Disco 80s (2026) [MP3|320 Kbps] <Disco, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068330.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Frontmusic - 90s Dance Pop (2026) [MP3|320 Kbps] <Pop, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068329.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068203.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068200.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Микс Дня#2 (2026) [MP3|320 Kbps] <Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068196.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ai - Russian poets covers 11 compilation (2026) [MP3|320 Kbps] <Cover, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068099.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Sexy Bath 8 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067924.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ai - Russian poets covers 10 compilation (2026) [MP3|320 Kbps] <Cover, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067886.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Uma2rman (Уматурман) - Compilation (2004-2026) [MP3|320 Kbps] <Pop rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067884.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Russian Hits 2020 [MP3|320 Kbps] <Pop, hip-hop, electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067881.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ai - Russian poets covers 9 compilation (2026) [MP3|320 Kbps] <Cover, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067880.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Time Of Rock & Metal от ALEXnROCK Part 2 (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067847.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Music - Pop vol.Four (2026) [MP3|320 Kbps] <Pop, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067753.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - No Name Compilation Simply listen music Part 90 Other (2026) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067702.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Daniele Gazzarin - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Country, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067459.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ai - Russian poets covers 8 compilation (2023) [MP3|320 Kbps] <Cover, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067458.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067449.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Techno Bunker 6 (2026) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067348.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Jazz Pulsations (2026) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067294.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Party Time 3.0 (mixed by Dj V) (2026) [MP3|320 Kbps] <Club House, Funky Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066937.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ellie Ray - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066933.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ai - Russian poets covers 6 (2026) [MP3|320 Kbps] <Cover, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066914.jpg" />
 </div>
 
 

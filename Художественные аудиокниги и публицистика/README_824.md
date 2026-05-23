@@ -1,86 +1,3 @@
-###  Публикация: 1345419   (167494) от 14.12.2019
-
-Александр Штейн | Флаг адмирала (1950) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Драматическая пьеса "Флаг адмирала" Александра Петровича Штейна посвящена Ф.Ф. Ушакову (1745-1817) - флотоводцу, адмиралу, одному из создателей российского Черноморского флота.Жанр: Драма, историяВ ролях: Николай Корн, Владислав Стржельчик, Павел Панков, Сергей Карнович-Валуа, Василий Софронов и др. актёрыПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365776506390931C760909A3C49CDF5015FCAAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515962   (167484) от 09.12.2021
-
-Валерий Большаков | Однополчане (Книга 2). Русские своих не бросают (2021) [MP3, Олег Семилетов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лето 1942 года. Немцы разбиты в Демянском котле, снята блокада Ленинграда, наступление немцев под Харьковом обернулось не прорывом Вермахта к Волге, а разгромом группы армий «Юг».
-
-В бой идут краснозвездные реактивные истребители, зенитные ракеты сбивают «Юнкерсы», управляемые бомбы крушат немецкие бетонные ДОТы.
-(   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 09:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CF9C7978D163A5401712388E25446BD4E80A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345428   (167477) от 14.12.2019
-
-Евгений Носов | Усвятские шлемоносцы (1980) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Спектакль ЦТСА
-Односельчане посёлка Усвяты мечтали о близких счастливых днях: кто надеялся, что завтра повесят радио и хлопотал о столбе возле своего дома; кто посматривал на землю и думал о завтрашнем урожае; где-то ждали рождения третьего ребенка.
- Но вместо этого пришла война и мужчины ушли защищать свою землю...Жанр: Радиоспектакль. Военная драмаВ ролях: Александр Вилькин, Пётр Вишняков, Константин Захаров, Алина Покровская, Гена Тишков, Петя Чубаров, Виктор Штернберг, Алексей Инжеватов, Леонид Персиянинов, Михаил Еремеев, Андрей Майоров, Алексей Миронов, Алла Котельникова, Владимир Бурлаков, Галина Морачева, Екатерина Кудрявцева, Валерий Баринов, Валентина Савельева, Виталий Ованесов, Людмила Богомолова, Ольга Дзисько, (   Читать дальше...   )Продолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E468BA19023DDC61A656917E6D0C81EED76142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345265   (167458) от 14.12.2019
 
 Владимир Забродин | Эйзенштейн: кино, власть, женщины (2019) [MP3]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167458.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167440.jpg" />
 </div>
 
 
@@ -143,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167433.jpg" />
 </div>
 
 
@@ -169,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167432.jpg" />
 </div>
 
 
@@ -196,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167407.jpg" />
 </div>
 
 
@@ -224,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167387.jpg" />
 </div>
 
 
@@ -250,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167384.jpg" />
 </div>
 
 
@@ -278,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167383.jpg" />
 </div>
 
 
@@ -304,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167377.jpg" />
 </div>
 
 
@@ -330,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167277.jpg" />
 </div>
 
 
@@ -356,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167274.jpg" />
 </div>
 
 
@@ -382,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167247.jpg" />
 </div>
 
 
@@ -408,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167244.jpg" />
 </div>
 
 
@@ -435,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167215.jpg" />
 </div>
 
 
@@ -461,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167184.jpg" />
 </div>
 
 
@@ -487,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167116.jpg" />
 </div>
 
 
@@ -513,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167103.jpg" />
 </div>
 
 
@@ -540,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167098.jpg" />
 </div>
 
 
@@ -566,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167082.jpg" />
 </div>
 
 
@@ -592,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167048.jpg" />
 </div>
 
 
@@ -618,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167042.jpg" />
 </div>
 
 
@@ -644,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167028.jpg" />
 </div>
 
 
@@ -670,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167015.jpg" />
 </div>
 
 
@@ -683,6 +600,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7120CAEF29492B710F54C826DDA01EECF7E1935F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345285   (166974) от 14.12.2019
+
+Борис Акунин | История Российского Государства (Том 7). Первая сверхдержава. Александр Благословенный и Николай Незабвенный (2019) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта аудиокнига посвящена событиям первой половины XIX века, эпохе правления сыновей императора Павла – Александра, кумира отечественных либералов, и Николая, кумира отечественных государственников. Два эти политических режима, очень разные по идеологии и стилю, задали России новый ритм дыхания, продолжающийся и поныне. Какие уроки можно извлечь из изучения александровско-николаевской (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 12:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1279C1D4E7A8F3891C70AB3E69AE4A9D17C92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345304   (166951) от 14.12.2019
+
+Станислав Сергеев | Призрак Родины (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой космос. Нашествия негуманоидных рас, интриги, предательство, большая политика, древние тайны и кровь, много крови. В водовороте эпохальных событий оказывается наш современник, который в гражданской войне потерял все: родных, друзей, соратников, любовь. Его жизнь – это дорога, дорога Воина, его девиз: «Делай, что должен, и будь, что будет».Жанр: Боевая фантастика, героическая фантастика, космическая фантастикаПродолжительность: 14:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFABF90CE632EC5E14101B9B9D6CEB83C42D78E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597197   (166910) от 14.12.2022
+
+Рейчел Гивни | Влюбленная Джейн (2022) [MP3, Марина Никитина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что, если бы Джейн Остен перенеслась в наше время… и влюбилась?
+
+Эта история повествует о легендарной английской писательнице Джейн Остен, которая отправилась в путешествие на двести лет вперед. Джейн не только находит счастье, о котором писала в своих книгах, но и оказывается перед сложным выбором: творческое наследие или любовь?
+На дворе 1803 год.(   Читать дальше...   )Жанр: Исторические любовные романы, Любовно-фантастическии романыПродолжительность: 12:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7CCC3938F7BEC18D7BBC042539DF3F4150CDC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

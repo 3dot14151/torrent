@@ -6,7 +6,7 @@ NG:ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411684.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Суперсооружения: Аэробус BelugaXL / Megastructures. Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408524.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Когда акулы нападают / When sharks attack (2016) HDTVRip (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407727.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403686.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Жизнь в других мирах. Аурелия / Extraterrestrial. Au
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403060.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NG: Жизнь в других мирах. Голубая луна / Extraterres
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403052.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NGW: Дикие болота / Wild Swamplands (2013) HDTVRip [H.264/720p-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391145.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NG: Ловец комет: Миссия "Розетта" (Розетта: пос
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389700.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NGW: Когда акулы нападают / When sharks attack (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387706.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ NGW: История одной гиеновой собаки / A Wild Dog's Tale
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387703.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NG. Шаньдун: страна Конфуция / Shandong. Land of Confucius 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387692.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NG. Экстремальный Китай. Горы Сыгунян / Extreme Chi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385441.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383558.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383450.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ NGW: Замбези / The Zambezi (2010) HDTVRip [H.264/720p-LQ] (эпизоды
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383014.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NGW: В неизвестность с Джеком Рэнделлом / Out Ther
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380500.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NG. Годы опасной жизни / Years of Living Dangerously (2016) DVB 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377283.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377167.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376897.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NG: Самые странные в мире / World's Weirdest (2011-2016) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375003.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374942.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NG. Дикая Скандинавия / Wild Nordic (2019) HDTV [H.264/1080i] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371865.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ NG. 2000-е: Величайшие трагедии / The 2000s Greatest Tragedie
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370514.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NGW: Остров муссонов. Слоненок Лока / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364093.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ NG. Миссия на Марс / Ultimate Mars Challenge (2012) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363970.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ NG. Вся правда о ледяном человеке / Iceman Autopsy (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363835.jpg" />
 </div>
 
 

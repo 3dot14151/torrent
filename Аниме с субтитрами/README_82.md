@@ -6,7 +6,7 @@ Kikou Kai Galient | Panzer World Galient | Галиент [ТВ] [1984, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361025.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360452.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fruits Basket (2019) | Корзинка фруктов [ТВ-2] [2019, TV, 25] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360444.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ladies versus Butlers! / Ladies vs. Butlers! / Леди против Дворе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359457.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Musashino! | Мусасино! [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359382.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358769.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358309.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Anju to Zushiou Maru / The Orphan Brother / Брат-сирота (Movie, 1961) 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357391.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Yurei Deco | Духи Деко [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356889.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Konoyo no Hate de Koi o Utau Shoujo Yu-No / Yu-No: A Girl Who Chants Love at the
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353803.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gekijouban Soushuuhen Overlord | Повелитель (компиляция ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353002.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Log Horizon 2 | Лог Горизонтa  2 [TV-2][2014, TV, 25 эп.] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352902.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Yami Shibai / Театр тьмы [ТВ-7] [2019, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351868.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351765.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Mitsuami no Kamisama | Pigtails | Богиня с косичками [2015, Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351396.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Kemono Friends | Животные-друзья | Дикие друзья [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351132.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Natsume Yuujinchou Roku / Тетрадь дружбы Нацумэ [ТВ-6] [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350667.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Queen's Blade Unlimited | Клинок Королевы: Безграничны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350650.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Rizelmine / Rizerumain / Моя Ризельмина [2002; TV; 24] DVDRip 544p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350607.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Queen's Blade: Rebellion | Клинок Королевы: Мятеж [2012, TV +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350508.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Queen's Blade: Rurou no Senshi | Queen's Blade: Wandering Warriors | Клино�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350501.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Queen's Blade: Utsukushiki Toushitachi | Queen's Blade: Beautiful Warriors | К�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350497.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Queen's Blade: Vanquished Queens | Клинок королевы: Поверже
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350490.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Guri Guri / Green Green TV / Жаркое лето [2002 - 2004, TV + OVA, 13+1]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350227.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350163.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349873.jpg" />
 </div>
 
 

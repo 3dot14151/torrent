@@ -1,58 +1,3 @@
-###  Публикация: 1568129   (381404) от 07.09.2022
-
-Каннибал! Мюзикл / Alferd Packer: The Musical / Cannibal! The Musical (1993) DVDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Альферд Пакер был горным проводником и единственным выжившим из группы пионеров, заблудившихся зимой в горах. Обвиненный и осужденный за убийство и поедание своих попутчиков, он должен был быть казнен через повешение.
-
-Фильм начинается с суда над ним, где он заявляет о своей невиновности перед аудиторией, которая ему совсем не симпатизирует. Только репортер Полли (   Читать дальше...   )Производство: США, Avenging Conscience, Cannibal Films Ltd.Жанр: Мюзикл, Комедия, Вестерн, Триллер, КриминалРежиссер: Трей ПаркерАктеры: Трей Паркер, Тодди Уолтерс, Мэтт Стоун, Дайн Бачар, Джейсон МакХью, Джон Хегел, Йен Хардин, Дастер, Стэн Брэкедж, Роберт МуратореПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full)Продолжительность: 01:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3911DD539B53E3AC306ECE4F5A4AFF69E7EFFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253479   (381389) от 10.10.2018
-
-Дитя лощины / The Hollow Child (2017) BDRip [H.264/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь приготовила для маленькой сироты Саманты массу тяжелых испытаний и трудностей. Девочка находилась в приюте до того времени пока не нашлась добрая и любящая семья, принявшая девочку в свой дом. Они не выделяли приемную дочь от родной по крови, стараясь восполнить дефицит любви и внимания.
-Однажды Саманта умудрилась потеряться, отправившись на прогулку в лощину, (   Читать дальше...   )Производство: Канада / Broken Mirror FilmsЖанр: Ужасы, Триллер, Драма, ДетективРежиссер: Джереми ЛюттерАктеры: Джессика МакЛеод, Ханна Черами, Джон Эммет Трэйси, Яна Мицула, Женевьев Бюкнер, Коннор Стэнхоуп, Джоанна Ньюмарк, Крэйг Марч, Мами ЛейврокПеревод: Одноголосый закадровый, любительский (Хихидок)Субтитры: отсутствуютПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ECD7B6C8D62C37C07377FABCD4916B2A5DFAA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253464   (381380) от 10.10.2018
 
 Черный 47-й / Black '47 (2018) WEB-DL [H.264/1080p-LQ] [MVO]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381380.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381361.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381352.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381339.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381333.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381306.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381297.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381295.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381251.jpg" />
 </div>
 
 
@@ -295,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381239.jpg" />
 </div>
 
 
@@ -321,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381189.jpg" />
 </div>
 
 
@@ -347,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381160.jpg" />
 </div>
 
 
@@ -373,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381145.jpg" />
 </div>
 
 
@@ -399,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381140.jpg" />
 </div>
 
 
@@ -425,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381139.jpg" />
 </div>
 
 
@@ -451,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381134.jpg" />
 </div>
 
 
@@ -478,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381042.jpg" />
 </div>
 
 
@@ -504,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381033.jpg" />
 </div>
 
 
@@ -530,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380962.jpg" />
 </div>
 
 
@@ -556,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380961.jpg" />
 </div>
 
 
@@ -582,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380955.jpg" />
 </div>
 
 
@@ -608,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380941.jpg" />
 </div>
 
 
@@ -634,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380884.jpg" />
 </div>
 
 
@@ -660,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380852.jpg" />
 </div>
 
 
@@ -672,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2924AFD3293767667675B2A600DB03FEAB34E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175065   (380807) от 17.10.2017
+
+Лондон-Таун / London Town (2016) WEBRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380807.jpg" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются в 1978 году. Живущий на сонной окраине Лондона тинейджер, на свой страх и риск отправляется в центр бурлящего мегаполиса. Там он должен отыскать свою мать, с которой не виделся долгие годы. Совершить опасное приключение его побуждает присланная матерью кассета с песней The Clash «White Riot».Производство: Великобритания, ОАЭ, США / Culmination Productions, Dutch Tilt Film, Head Gear FilmsЖанр: Драма, МузыкальныйРежиссер: Деррик БортеАктеры: Том Хьюз, Джонатан Риз Майерс, Наташа МакЭлхоун, Дугрей Скотт, Дэниэл Хаттлстоун, Керри Ховард, Мередит ОстромПеревод: Двуголосый закадровый, любительский (datynet & Galina Vasyukova)Субтитры: отсутствуютПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613186FDA74681894B6AA92E7E4F0DBD37058ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175026   (380797) от 17.10.2017
+
+Проклятие Аннабель: Зарождение зла / Annabelle: Creation  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через несколько лет после трагической гибели маленькой дочери кукольник и его жена приглашают в свой дом монахиню и нескольких девочек из приюта, вскоре становящихся мишенью для одержимого создания кукольника - Аннабель.Производство: США / Atomic Monster, New Line CinemaЖанр: ужасы, триллер, детективРежиссер: Дэвид Ф. СандбергАктеры: Энтони ЛаПалья, Самара Ли, Миранда Отто, Брэд Гринквист, Лулу Уилсон, Талита Бейтман, Стефани Сигман, Марк Брэмхолл, Грэйс Фултон, Филиппа Култхард, Тайлер БакПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, португальские, испанскиеПродолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51367717D5512E50AEF91C35A121BBDEE696E0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

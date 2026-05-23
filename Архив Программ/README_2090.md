@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88079.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5.1 + NI-VISA 5.1.2 + Device Drivers 201
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88060.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 10.04.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87949.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ XYplorer 10.90.0302 Beta Portable [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87948.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Luxology modo 401 SP5 build 36460 401 Service Pack 5 - build 36460 [только
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87892.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ X PROJECT 2012 v6.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87890.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ AVG Anti-Virus Pro 2012 v12.0.2127 Build 4918 Final [ML/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87861.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Uniblue PowerSuite 2012 3.0.7.2 Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87860.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Microsoft .NET Framework 4.5 Beta [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87838.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Portable AkelPad Image Full 16.16 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87809.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ AVG Anti-Virus Free 2012 12.0.2127 Build 4918 Final [Мульти, Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87775.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Uniblue SpeedUpMyPC 2011 Build 5.2.1.3 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87768.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ STDU Viewer & Portable 1.6.131 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87752.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft Longhorn v2.1[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87663.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Adobe Acrobat X Professional 10.1.3 Final [Мульти, есть русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87655.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ uTorrentPortable 1.8.2 (build 14458) [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87654.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Windows 7 Ultimate AUZsoft Metallic x64 v.12.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87653.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Autodesk Inventor Professional 2013 (x86, x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87638.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Adobe Reader X 10.1.3 Final Portable by punsh [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87607.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Total Commander Extended & Lite 5.4.0 Portable by BurSoft [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87546.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Google Chrome 18.0.1025.152 Stable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87537.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Driver Genius Professional 11.0.0.1126 RePack + Portable by BALISTA [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87449.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Comfort On-Screen Keyboard Pro 5.1.4.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87411.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Multi Flash Kit by Core-2(Набор утилит для работы с фле�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87296.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Microsoft Toolkit 2.3.2 Stable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87291.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VMware Workstation Technology Preview 2012 8.1 Build 646643 [Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87269.jpg" />
 </div>
 
 

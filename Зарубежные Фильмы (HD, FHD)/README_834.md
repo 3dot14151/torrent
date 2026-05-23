@@ -1,55 +1,3 @@
-###  Публикация: 1568803   (210816) от 10.08.2022
-
-Преступления будущего / Crimes of the Future (2022) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. Человечество учится приспосабливаться к новому миру: у людей появился синдром ускоренной эволюции, из-за которого с телом начинают происходить удивительные изменения. Одни принимают новую реальность, а другие пытаются бороться любыми возможными способами.Производство: Канада, Франция, Греция, Великобритания / Argonauts, Bell Media, CBC, Coficiné, EkomeЖанр: Фантастика, триллерРежиссер: Дэвид КроненбергАктеры: Вигго Мортенсен, Леа Сейду, Кристен Стюарт, Скотт Спидман, Таная Битти, Лихи Корновски, Denise Capezza, Надя Литц, Дон МакКеллар, Велкетт БунгеПеревод: Многоголосый профессиональный (Jaskier)Субтитры: Русские, английские (Full, SDH)Продолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11DB61F7D3D40B8DD960D1C6D6294D3F3980232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602379   (210812) от 05.01.2023
-
-Южный централ / South Central (1992) WEB-DL [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Отец Бобби сидел в тюрьме, сам он, только выйдя из тюрьмы, убил торговца наркотиками и, «отсиживая» еще 10 лет, узнает, что его партнер, возглавляющий банду в его отсутствие, пристроил и его десятилетнего сына к воровскому «ремеслу». Мальчишка получил заряд дроби в спину, а Бобби, в котором происходит духовное перерождение, благодаря влиянию сокамерника Али, сумевшего (   Читать дальше...   )Производство: США, Enchantment Films Inc., Ixtlan Corporation, Monument PicturesЖанр: драма, криминалРежиссер: Стивен Милберн АндерсонАктеры: Гленн Пламмер, Байрон Миннс, Лекси Бигхем, Винсент Крэйг Дюпри, ЛаРита Шелби, Кевин Бест, Биг Дэдди Уэйн, Аллан Хэтчер, Элвин Хэтчер, Болдуин С. СайкесПеревод: Авторский (Михаил Иванов)Язык озвучки: РусскийСубтитры: Английские (Full, SDH)Продолжительность: 01:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23AF9FD7694640067D139F0E38535CF9AFCCAD14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568806   (210801) от 10.08.2022
 
 Фрэнк и Пенелопа / Frank and Penelope (2022) WEB-DL [H.264/1080p] [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210801.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210766.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210757.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210715.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210712.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210697.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210691.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210686.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210670.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210660.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210648.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210647.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210620.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210595.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210591.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210589.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210584.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210571.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210569.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210557.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210555.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210552.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210536.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210521.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:433BC1E66343671CF6281D524A44BBC7762EA6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642189   (210512) от 26.06.2023
+
+Лесной разбойник / Der Rauber Hotzenplotz / The Robber Hotzenplotz (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда печально известный грабитель Хотценплотц покидает свое убежище в лесу, чтобы украсть любимую музыкальную кофемолку, принадлежавшую бабушке Касперла, неуклюжий сержант городской полиции мало чем может помочь в его аресте. Молодой Касперл и его друг Сеппель решают, что сами выследят вора, но остановить его будет непросто — особенно когда в Хотценплоц замешан (   Читать дальше...   )Производство: Германия, Швейцария, Claussen Wöbke Putz Filmproduktion, Zodiac Pictures, Studiocanal FilmЖанр: фэнтези, комедия, криминал, приключения, семейныйРежиссер: Михаэль КрумменахерАктеры: Николас Офчарек, Аугуст Диль, Кристиана Пауль, Олли Диттрих, Ханс Марквардт, Бенедикт Йенке, Хеди Кригескотте, Максимилиан Герлингер, Катя Пройс, Луна ВедлерПеревод: Дублированный (Позитив)Язык озвучки: русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F266777D59D97D645B40267B41E7C50BAD633284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569673   (210507) от 14.08.2022
+
+Ненастоящий папа / Hoy se arregla el mundo (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид — типичный холостяк и противник долгих отношений. Но однажды его жизнь переворачивается с ног на голову, когда его бывшая оставляет на него заботу о девятилетнем мальчике, его сыне. Мало того, что Дэвид не привык к таким поворотам, так еще и выясняется, что биологический отец мальчика не он. Теперь Дэвид готов на все, чтобы перепоручить свои родительские обязанности (   Читать дальше...   )Производство: Аргентина / Netflix, Argentina, Cine Argentino, INCAA, Patagonik Film GroupЖанр: Драма, комедияРежиссер: Ариэль ВиноградАктеры: Леонардо Сбаралья, Наталия Орейро, Бенджамин Отеро, Луис Луке, Чаро Лопес, Мартин Пироянски, Хосе Луис Джиойя, Габриэль Коррадо, Херардо Романо, Марио АларконПеревод: Многоголосый профессиональный (IVI)Субтитры: ОтсутствуютПродолжительность: 01:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FFC6FBBBAA6D48E7A7F895DB38D2816581F85B
 ```
 
 https://mybot314.ru/tekegram_catalog/

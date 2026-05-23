@@ -1,81 +1,3 @@
-###  Публикация: 1379939   (835896) от 01.05.2020
-
-Туфли (2017) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Варвара и Лена встречаются в одном обувном отделе. У девушек одинаковый размер, им нравится одна и та же модель туфель, а… пара в магазине в единственном экземпляре! Туфли манят, как сирены, и в обувном отделе разгорается настоящая война за роскошную обувку. «До последней капли крови!» и никак иначе. История начинается…Производство: РоссияЖанр: короткометражный, комедияРежиссер: Евгения МарохотинаАктеры: Полина Гренц, Виктория Маслова, Екатерина Бондарева, Михаил Полицеймако, Эвелина Блёданс, Татьяна Жукова, Олеся Астапова, Екатерина Малахит, Марина Вологодская, Виктор МихайловСубтитры: ОтсутсвуютПродолжительность: 00:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AD3CF3AB1FC075FE270431F666FDA2DBFA5BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379986   (835816) от 01.05.2020
-
-Русская шестёрка (2018) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Четыре незнакомца играют на деньги в русскую шестёрку. Правила напоминают русскую рулетку, только в этой игре броском кубика определяется, какое количество патронов необходимо зарядить в пустой барабан шестизарядного револьвера. Что же заставило их сыграть в эту смертельно опасную игру?Производство: Россия / Студия Олимп-фильмЖанр: Короткометражный, драма, триллер, криминалРежиссер: Михаил М. АрхиповАктеры: Кирилл Батишта, Сергей Жарков, Ангелина Мазанова, Антон Быстряков, Сергей Яшин, Дмитрий Кривошеев, Евгений Венедиктов, Екатерина Жукова, Арам ВардеванянСубтитры: ОтсутствуютПродолжительность: 00:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E7014FAF12D2C1A2C7AC57343EF90F8B26F864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501556   (835125) от 10.10.2021
-
-Плачу с вами (2019) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Митя профессионал. Он плачет на похоронах за деньги и свято верит в важность своей миссии. Митя хочет быть первым в своем деле, на его пути встречаются конкуренты, непонимание близких людей. Но к некоторым поворотам жизни Митя не был готов.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Паулина АндрееваАктеры: Павел Ворожцов, Нина Гусева, Евгения Симонова, Светлана Колпакова, Игорь Вдовин, Роза Хайруллина, Евгений ПереваловСубтитры: ОтсутствуютПродолжительность: 00:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FB3BCDC35E95F507F1AEE4B2201A4C224C119B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114055   (834985) от 13.03.2017
 
 Дочь якудзы (2010) WEB-DL [H.264/720p-LQ]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834985.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834506.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834219.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833466.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833450.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833294.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833084.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833042.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832613.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832592.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832412.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831836.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831833.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830956.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829888.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829793.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829708.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829418.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829403.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829102.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827918.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827653.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827645.jpg" />
 </div>
 
 
@@ -671,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5BF32836FF5F40AC40E0969B27686C7D586FF33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115324   (827617) от 17.03.2017
+
+Три дня в Одессе (2007) HDTV [1080i]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Послевоенная волна бандитизма захлестнула лежащую в руинах страну. Особенно тяжёлая ситуация сложилась в Одессе. Днём город жил своей обычной жизнью, но с наступлением сумерек из тёмных закоулков, подвалов и бандитских «малин» выползало на улицы всё самое мрачное и жестокое, что было в городе.Грабежи, убийства, воровство, проституция - стали нормой жизни для Одессы. (   Читать дальше...   )Производство: Россия, Кинокомпания "Третья планета"Жанр: Криминал, ДетективРежиссер: Алексей ПимановАктеры: Ольга Погодина, Владимир Качан, Леонид Якубович, Глафира Тарханова (Майя), Александр Макогон (Влад Кольцов), Ксения Кузнецова, Дмитрий Жулин (Алексей Казарин), Александр Арефьев (майор НКВД) и др.Субтитры: отсутствуютПродолжительность: 01:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DBE38A91D8D0BF763A6FD50AEBD9CCACDAF3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115311   (827433) от 17.03.2017
+
+На Дерибасовской хорошая погода, или На Брайтон Бич опять идут дожди (1992) HDTV [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Президенты СССР и США должны встретиться для важных переговоров. Однако встреча оказалась под угрозой срыва из-за разгула русской мафии, обосновавшейся в США. Мафиози Рабинович даже вмешивается в разговор президентов по суперсекретной телефонной линии.Производство: Россия, СШАЖанр: Боевик, Комедия, КриминалРежиссер: Леонид ГайдайАктеры: Дмитрий Харатьян, Келли МакГрилл, Андрей Мягков, Михаил Кокшенов, Юрий Волынцев, Эммануил Виторган, Армен Джигарханян, Мамука Кикалейшвили, Евгений Весник, Наталья Крачковская, Леонид Куравлёв, Владимир Седов, Спартак Мишулин и др.Продолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049A30CC1415736863BB90F209D1AF34AF37C890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502689   (826416) от 15.10.2021
+
+Джек and Чан (2020) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспечный мэр провинциального города наслаждается жизнью и недавно купленной иномаркой на отмытые деньги. В преддверии приезда имиджевой комиссии из столицы, занимающейся поднятием репутации страны, мэру дают понять, что требование найти и прописать в городе иностранную звезду — обязательно к выполнению. Ввиду отсутствия денег мэр делает суперзвезду из обычного рабочего (   Читать дальше...   )Производство: Россия / Свободное киноЖанр: Короткометражный, комедияРежиссер: Алексей ПетрашевичАктеры: Сергей Маховиков, Ксения Гаевская, Игорь Колесников, Александр Сериденко, Сергей Греков, Максим ЦхайСубтитры: ОтсутствуютПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FF6FDFD16234516E739A8A2EF5F99D2F5B604C
 ```
 
 https://mybot314.ru/tekegram_catalog/

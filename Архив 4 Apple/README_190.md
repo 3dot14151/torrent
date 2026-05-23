@@ -6,7 +6,7 @@ SQLPro for SQLite 1.0.74 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795174.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ App Tamer 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795053.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Money Pro 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795052.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Boxy SVG 3  v3.70.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795008.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Keyboard Maestro 10 v10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795003.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Recompress 21.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795000.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ balenaEtcher for macOS 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794945.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ ConceptDraw MINDMAP 13 v13.0.0.233 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794944.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ ConceptDraw DIAGRAM 15 v15.0.0.392 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794942.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ iStat Menus 6 v6.60 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794940.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Transmit 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794928.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Alien Skin Exposure X4 Bundle 4.0.5.135 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794927.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ UninstallPKG 1.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794910.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ InstaBro | Instagram Browser 5.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794904.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ TechSmith Snagit 2021.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794901.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Logic Pro X 10.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794848.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Serial Box 01-2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794845.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Movavi Picverse Photo Editor 7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794833.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ hr - Task timer as simple as it's name 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794806.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Forecast 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794802.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Folder Designer 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794711.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Lingon X 6.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794708.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Mitti 1.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794564.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Scrutiny 9 v9.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794563.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ GrandTotal 6 v6.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794562.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Money Pro - Personal Finance 2.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794557.jpg" />
 </div>
 
 

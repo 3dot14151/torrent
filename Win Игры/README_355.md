@@ -1,29 +1,3 @@
-###  Публикация: 1826490   (173399) от 20.10.2025
-
-Train Sim World 6 (2025) [Ru/Multi] (build 20097146/dlc) Repack seleZen
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Train Sim World 6 предлагает освоить три уникальные международные железнодорожные сети. Игрокам предстоит работать на электрифицированной американской линии NJ TRANSIT Morristown, управляя электропоездами Arrow III EMU и локомотивами ALP-46. Маршрут Английской Ривьеры включает рейсы GWR вдоль побережья Девона на поездах Intercity Class 802. Немецкий участок Bahnstrecke (   Читать дальше...   )Тип издания: RepackРазработчик: Dovetail GamesЖанр: СимуляторыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC337DA4BB19A08155D3D2984C6ED1D8C982987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668619   (173334) от 13.10.2023
 
 Gloomy Tales 2: One-Way Ticket (2023) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Gloomy Tales 2: One-Way Ticket (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173334.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173321.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Storyteller (2023) [Ru/Multi] (20230927) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173299.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173295.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.3.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173286.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Blade of Immortality (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173273.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173267.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173143.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173132.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173128.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173124.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Scene Rune [Deluxe Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173105.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173093.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172924.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Vosphia (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172909.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172903.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Aka Manto (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172784.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Stigmatized Property (2019) [Ru/Multi] (1.0) Scene PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172764.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Garden In! (2023) [Multi] (1.0.8) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172753.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172750.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172748.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Ocean Pressure (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172726.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Valor & Victory (2021) [Ru/Multi] (1.07.06/dlc) Scene Skidrow
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172724.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Windy Meadow A Roadwarden Tale (2023) [En] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172240.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172196.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C47FFEB3D84F4096B6AF79C49617034F119DE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670041   (172191) от 19.10.2023
+
+Growth (2023) [Ru/Multi] (1.0rc2) License GOG
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приятная игра с шестиугольной картой и элементами стратегии. Используй уникальные способности животных, чтобы изучать и заселять процедурно генерируемый мир. Здесь спокойное исследование сочетается с решением сложных задач. Как преодолеть препятствия, например горы и реки, чтобы заселить плодородные земли? Как превратить пустыри в густые леса и луга? И это далеко (   Читать дальше...   )Тип издания: LicenseРазработчик: Voodoo DuckЖанр: Симулятор, Стратегия, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C934E2CF4F2DD05E6DFA0D8DF573E710F06F0C9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

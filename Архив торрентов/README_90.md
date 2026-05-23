@@ -6,7 +6,7 @@ Templates for Pages – DesiGN 7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032312.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Flyingbee PDF Printer – Easily Print to PDF 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032309.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Flyingbee PDF to Word 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032308.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Image2icon - Make your icon‪s‬ 2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032306.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NCH Prism Plus 7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032302.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Flyingbee PDF to PowerPoint 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032301.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Allegorithmic Substance Designer 2021.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032299.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Capture One 21 Pro Beta 1 v14.1.0.178 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032298.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tinderbox 8 v8.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032297.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ K-Lite Codec Pack Update 16.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032294.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VA - Ultima Audio : Essentials 2020 (Mixed by Antorbanen) (2021) [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032293.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Athentech Perfectly Clear WorkBench 3.11.2.1917 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032292.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ iMap Builder: Organisation 3.0.0 (11.0.0) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032290.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Athentech Perfectly Clear Complete 3.11.2.1917 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032280.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Autorun Organizer 5.02 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032273.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Sidify Spotify Music Converter  Pro for Mac 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032270.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Planner 5D 4.3.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032257.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ CrystalDiskInfo 8.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032255.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Viber 14.7.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032250.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Format Factory 5.6.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032245.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Format Factory 5.6.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032239.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.9 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032234.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032181.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032175.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7265.5000 (2021.02) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032169.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Adobe Acrobat Pro DC 2021.001.20135 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032166.jpg" />
 </div>
 
 

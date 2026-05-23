@@ -1,136 +1,3 @@
-###  Публикация: 1305229   (556950) от 30.05.2019
-
-В.Я. Гальченко, Р.В. Трембовецкая | MathCAD: математические методы и инструментальные средства оптимизации (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены конспективно основные теоретические положения математических методов и подробный практический материал по использованию инструментальных средств решения задач математического программирования в среде универсального математического пакета MathCAD.
-Рассматриваются задачи безусловной и условной линейной и нелинейной оптимизации в однокритериальной (   Читать дальше...   )Жанр: Компьютерная литература, математикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16AB26A276E2154A02BD4C9A88B2E6E735BD6D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305561   (556013) от 01.06.2019
-
-И.И. Алиев | Электротехника и электрооборудование (в 3-х ч.) [1,3 части] (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настоящее учебное пособие состоит из трех частей. В первой части приведены основные определения и законы электротехники, основные уравнения и формулы, используемые для расчета простых электрических и магнитных цепей в установившихся и переходных процессах.
-Во второй части даны основные соотношения и сведения о типах трансформаторов, показан принцип действия асинхронных (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75897D210653E0F034AC0F0F0F191B9C228433B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306770   (555448) от 06.06.2019
-
-К.В. Воденко (отв. ред.) | Управление персоналом (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Учебник подготовлен в соответствии с требованиями федеральных государственных образовательных стандартов РФ по укрупненным группам направлений подготовки 38.00.00 «Экономика и управление» и 39.00.00 «Социология и социальная работа».
-Рассмотрены технологии и методы управления персоналом организации (предприятия, фирмы), сложившиеся в современной науке и практике; (   Читать дальше...   )Жанр: Менеджмент, Управление персоналомФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9739B9471D237400AF1BB6A8361D05CFD423C77A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306579   (555410) от 06.06.2019
-
-Т.Л. Стасышина, В.М.Стасышин | Базы данных: технологии доступа 2-е издание (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены технологии доступа к базам данных современных СУБД. В нем представлены языковые и программные средства различных способов доступа к базам данных, приведена справочная информация, необходимая для написания программ. Соответствует актуальным требованиям Федерального государственного образовательного стандарта среднего профессионального (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21284D71AEAED3460354A77420A1CB66DDA62C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307470   (554958) от 09.06.2019
-
-А.А. Казанский | Прикладное программирование на Excel 2013 (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга излагает современные методы разработки приложений на Excel с помощью программирования на языке VBA (Visual Basic for Application). Рассмотрены не только ключевые методы и понятия программирования, но и даны программы решения прикладных задач по всем темам, представленным в данном учебном пособии. Эти темы легко освоить, если последовательно разбирать лабораторные (   Читать дальше...   )Жанр: Информатика и программирование, Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FDD6B72596DABF872DA58B68CF0BD15D9AEEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236109   (554726) от 16.07.2018
 
 М.Ю. Рачков | Оптимальное управление в технических системах (2018) [PDF, DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554726.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554464.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554139.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554136.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554111.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553783.jpg" />
 </div>
 
 
@@ -300,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552776.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552758.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550920.jpg" />
 </div>
 
 
@@ -380,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550911.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550908.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550016.jpg" />
 </div>
 
 
@@ -458,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549355.jpg" />
 </div>
 
 
@@ -485,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547892.jpg" />
 </div>
 
 
@@ -511,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547021.jpg" />
 </div>
 
 
@@ -538,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546976.jpg" />
 </div>
 
 
@@ -564,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545308.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543473.jpg" />
 </div>
 
 
@@ -616,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542530.jpg" />
 </div>
 
 
@@ -643,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542445.jpg" />
 </div>
 
 
@@ -669,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541111.jpg" />
 </div>
 
 
@@ -680,6 +547,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8590FC1C11FE390D84F89ECD7444A38443B10D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925123   (540987) от 06.08.2015
+
+С.В. Судоплатов, Е.В. Овчинникова | Математическая логика и теория алгоритмов (2004) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540987.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются основные исчисления математической логики: исчисления высказываний и исчисления предикатов; основы теории моделей и теории алгоритмов, а также элементы неклассических логик.
+Для студентов младших курсов технических вузов, изучающих математическую логику и теорию алгоритмов.Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1B1B9EDE886A01F428AC1926929B6081258CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311508   (539955) от 30.06.2019
+
+И.В. Музылева | Элементная база для построения цифровых систем управления (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие написано в соответствии с программой дисциплины "Элементы систем автоматики" для направления "Электротехника, электромеханика и электротехнологии".
+В учебном пособии изложены основы принципов построения вычислительной части цифровых систем управления и работы функциональных блоков, входящих в её состав. В частности, рассмотрены (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A5545AF740C5A57C75264BD91728905491C004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531803   (539724) от 06.08.2012
+
+1С-Паблишинг | Комплект вопросов сертификационного экзамена по программе "1С:Бухгалтерия 8 для Украины" (ред. 1.2) [2011] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект вопросов для подготовки к сертификации "1С:Профессионал" по программе "1С:Бухгалтерия 8 для Украины". На сегодняшний день - последняя актуальная версия, октябрь 2011.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D695C09C3CF408442CF97D4FE2AED08E386E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557517   (539060) от 16.06.2022
+
+О.В. Мантуров и др. | Курс высшей математики [3 книги] (1986 - 1991) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трёхтомный курс для студентов-заочников инженерно-технических специальностей вузов.
+Изложение ведётся на двух уровнях - основном и повышенном. Большое внимание уделено разбору примеров и задач. Имеются задачи для самостоятельного решения.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC33B858FD0D783A312D3507F24B801011D476E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239331   (538703) от 05.08.2018
+
+Э.И. Старовойтов | Сопротивление материалов (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник соответствует традиционной программе курса сопротивления материалов в технических вузах. Кроме теоретического курса в учебнике приведены задачи и тестовые задания по всем разделам курса, соответствующие расчетно-графическим и курсовым работам. В отличие от известных изданий рассмотрено влияние температуры и нейтронного облучения на упругие постоянные, описаны (   Читать дальше...   )Жанр: МеханикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD20053DF2204AE980D06FD2871FD934C580447
 ```
 
 https://mybot314.ru/tekegram_catalog/

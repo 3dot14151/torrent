@@ -6,7 +6,7 @@ Overcooked! 2 DLC v48.662097 (2018) [Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703138.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XCOM® 2 Collection (2017) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700033.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Flashing Lights v06.08.2020 (2018) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697445.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cypress Inheritance: The Beginning v.1.0 (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697302.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Trine 2 Complete Story v. 2.1.0.9 (2013) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696977.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Deus Ex: Mankind Divided™ (2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696376.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Micro Machines (2017) [Multi] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694922.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ BioShock™ Remastered (2016) [Multi] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694811.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ DiRT Rally (2015) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694668.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Trüberbrook (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693915.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Mount & Blade: Warband - Viking Conquest v. 1.0 (2015) [Multi] [OS X Native game
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693159.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Subnautica v65786 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691808.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ HIVESWAP: Act 1 (2017) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689313.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The Swords of Ditto v1.04.01-108 [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687003.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Call of Duty: Modern Warfare 2 (2009) [En/Ru] [macOS Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684554.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Surgeon Simulator 2013 [Multi/Ru] [OS X Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683021.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Jurassic Park: The Game [Native]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682746.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Neverwinter Nights: Enhanced Edition  [Rus] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682342.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Call of Duty: Modern Warfare 3 (2011) [En/Ru] [macOS Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682320.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ West of Loathing [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680933.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Pizza Connection 3 [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680932.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ken Follett's The Pillars of the Earth : Book 1+2+3 [Multi/Ru] [macOS Native gam
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680795.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Cat Quest  [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680655.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ HITMAN™ - Game of The Year Edition (2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680558.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Dead Secret Circle (2018) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679155.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Minit  [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679154.jpg" />
 </div>
 
 

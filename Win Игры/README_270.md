@@ -1,29 +1,3 @@
-###  Публикация: 1328643   (360855) от 01.10.2019
-
-Dark Romance 11: The Ethereal Gardens / Мрачная история 11: Воздушные Сады (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение романтической серии игр Dark Romance. Ваш отец был убит злой королевой фей. Вы хотите не только отомстить, но и более того - вам нужны крылья королевы для оживления отца. Однако путешествие будет не простым, потому что магические существа попытаются вас остановить. Сможете ли вы защитить свое королевство от врагов? Или сами станете жертвой темной магии, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DDAB6526BD28E1FDB6D2DE2BB9EA848AA74BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255744   (360842) от 19.10.2018
 
 Labyrinths of the World 8: When Worlds Collide / Лабиринты Мира 8: Порядок и Хаос (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Labyrinths of the World 8: When Worlds Collide / Лабиринты Мира 8: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360842.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ TITANIC Shipwreck Exploration (2018) [En] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360632.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ TITANIC Shipwreck Exploration (2018) [En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360478.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Invisible Inc. (2015) [Ru/En] (183969/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359998.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ GRIM - Mystery of Wasules (2017) [En/Tur] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359996.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359995.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shiver (2017) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359987.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Streets of Rage 4 / Bare Knuckle 4 (2020) [Ru/Multi] (4g-r10450) Repack R.G. М�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359730.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.24) License GOG (обновляема�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359725.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ XCOM: Chimera Squad (2020) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359721.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359719.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Fly'N [En] (L) 2012 | SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359644.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Bionic Commando [Ru/En/Multi] (RePack) 1988 - 2009 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359587.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Men of War: Assault Squad. Game of the Year Edition / В тылу врага 2: 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359486.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Final Fantasy VII [En] (Repack/1.0.6) 2012 | R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359479.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Rise Of Nations Anthology [En/Ru] (Repack) 2003 - 2006 | R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359462.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Serious Sam 3: Before First Encounter - Deluxe Edition [Ru/En/Multi9] (Steam-Rip
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359447.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358846.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Dark Dimensions 6: Shadow Pirouette (2015) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358459.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augm
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358368.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ Dreamwalker: Never Fall Asleep (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358178.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358169.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Red Riding Hood: Star Crossed Lovers (2015) [En/Multi] (1.0) License HIU2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357934.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Bounty Train (2017) [Ru/Multi] (1.0.13832/dlc) License GOG [Trainium Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357505.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Undertale (2015) [Ru/En] (1.06) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357468.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ Undertale (2015) [Ru/En] (1.06) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0BD0F06AE2058FD6817EA202D7939B014E058D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417443   (357353) от 20.10.2020
+
+Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярной игры-симулятора Рыбалка: Баренцево море приглашает Вас снова надеть фуражку капитана: исследуйте большой океан Новой Шотландии, испытайте свои силы в совершенно новых методах рыбалки и с удовольствием пользуйтесь огромным разнообразием высокодетализированных кораблей в коммерческом рыболовном симуляторе Рыбалка:Северная Атлантика.Тип издания: RepackРазработчик: Misc GamesЖанр: СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Норвежский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Норвежский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C3866F01762D65AF0001C5231636252173FC22
 ```
 
 https://mybot314.ru/tekegram_catalog/

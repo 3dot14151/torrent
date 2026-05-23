@@ -1,29 +1,3 @@
-###  Публикация: 1758355   (38547) от 02.11.2024
-
-Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.0) Repack seleZen
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мир, где граница между реальностью и фантазией стирается! Симулятор Квадробера предлагает уникальное приключение в шкуре виртуального зверя, сочетающего в себе черты собаки, лисы или кошки. Почувствуй себя в шкурке животного, которым ты хочешь быть, будь то кошечка, собачка или лисичка-сестричка.Тип издания: RepackРазработчик: PropilGamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C48427C0F2B566AB481A7193F316F81EE22212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758474   (38542) от 02.11.2024
 
 Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
@@ -32,7 +6,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38542.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38537.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38536.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38534.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38530.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38523.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38519.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Chrono Ark (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38515.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Repack FitGirl [Ultimat
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38498.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Harvest Moon: The Winds of Anthos (2023) [Multi] (1.42/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38467.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38466.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.1.88) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38465.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Lost Village (2024) [Multi] (1.2.8/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38457.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38452.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Political Machine 2024 (2024) [En] (1.16/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38447.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Scene Razor1911 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38443.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38440.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ No Man's Sky (2016) [Ru/Multi] (5.12/dlc) Repack seleZen [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38426.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38417.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Night is Grey (2024) [En] (1.4) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38397.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38379.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Scene Razor1911
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38359.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ House Builder (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38348.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38340.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38336.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E867D091DD076CBCE9D355531ADD7A4535B7CF15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758746   (38332) от 04.11.2024
+
+Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Repack FitGirl [WW2 Bundle]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call to Arms - Gates of Hell: Ostfront – стратегия в реальном времени, в которой игроку предстоит проявить свои тактические навыки и умение читать ситуацию для принятия наиболее верного решения за считанные секунды. Сеттингом проекта является кровопролитный конфликт 20-го века – Вторая Мировая война, все доступные виды техники воссозданы по реальным прототипам, что (   Читать дальше...   )Тип издания: RepackРазработчик: Barbedwire Studios, DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1AB26E5ACDA27ADF9D28A8C620D67E1238216E
 ```
 
 https://mybot314.ru/tekegram_catalog/

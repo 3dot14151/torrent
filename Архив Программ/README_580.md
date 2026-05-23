@@ -6,7 +6,7 @@ Adobe Photoshop CS5 Extended Lite v12.0.0 (RU|EN) [х86/х64] Unattended
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_759255.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chromodo Browser  49.13.20.402 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759189.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Disk Cleaner 9.24.643 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759187.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Tag&Rename 3.8.7 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759106.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PicturesToExe Deluxe 8.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759102.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ K-Lite Codec Pack Update 12.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759092.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ DVDFab 9.2.4.2 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759085.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759081.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Image Uploader 1.3.1 Build 4313 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759043.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Windows 10 Manager 1.1.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759030.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ GridinSoft Anti-Malware 3.0.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759028.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759019.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Zoner Photo Studio Professional 17 Build 9 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758985.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ YouTube Video Downloader PRO 4.8.9 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758977.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VSO ConvertXToDVD 6.0.0.38 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758965.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 10 Manager 1.1.3 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758961.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ WinUtilities Professional Edition 11.36 RePack by Loginvovchyk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758925.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Anvir Task Manager Pro 8.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758908.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Inno Setup Compiler 5.5.9 (a) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758901.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VKMusic 4.63 RePack (& Portable) by Trovel [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758875.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wondershare Video Converter Ultimate 8.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758859.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Auslogics Disk Defrag Pro 4.6.0.0 DC 07.04.2015 RePack (& Portable) by D!akov [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758856.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BurnAware Professional 13.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758837.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Skype 8.62.0.83 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758836.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4823.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758827.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Notepad++ 6.9.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758821.jpg" />
 </div>
 
 

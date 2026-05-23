@@ -1,82 +1,3 @@
-###  Публикация: 1386990   (792636) от 31.05.2020
-
-Дж. С. Монро | Забудь мое имя (2020) [MP3, Екатерина Еремкина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новый роман Дж. С. Монро – захватывающий и многоплановый роман, где литературное мастерство сочетается с глубоким знанием клинической психологии.
-У нее украли сумку – а вместе с ней разом пропала и вся ее жизнь. Девушка не помнит даже своего имени, лишь домашний адрес почему-то остался у нее в памяти. Однако в доме, который она считает своим, живет молодая пара. (   Читать дальше...   )Жанр: Психологический триллерПродолжительность: 11:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D0B57A2D8227A51A0E0F9EC53F241F5E821C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386991   (792631) от 31.05.2020
-
-Дэвид Моррелл | Готика на Рио-Гранде (2020) [MP3, Максим Яншин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Однажды немолодой полицейский Гейб Ромеро заметил на обочине дороги пару брошенных ботинок. Вроде бы ничего особенного, кто-то выбросил мусор. Но что-то показалось странным служителю закона, и вскоре он установил: на этом месте, возле старой церкви, регулярно появляется новая пара обуви. Старая или совсем новая, практически неношеная; дешевая или дорогая, мужская (   Читать дальше...   )Жанр: ДетективПродолжительность: 01:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3CADF407F471DD2681C8E2FF444C3CAC38C5DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 43021   (792610) от 14.11.2021
-
-Роберт Шекли | Координаты чудес (2007) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В эту книгу вошли произведения великого мастера американской и мировой фантастики Роберта Шекли, которые принесли ему всемирную славу. Сюрреализм в них гармонично переплетается с научно-фантастическими идеями, а с мастерскими реалистическими зарисовками соседствуют персонажи и ситуации, подчиняющиеся логике абсурда и черного юмора. Свежие идеи, блистательные сюжеты, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 05:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6472979418C420FC7AF8E11505785E2E14D1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386995   (792591) от 31.05.2020
 
 Фэнни Флэгг | О чем весь город говорит (2020) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792591.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792589.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792558.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792526.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792463.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792429.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792415.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792409.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792384.jpg" />
 </div>
 
 
@@ -325,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792354.jpg" />
 </div>
 
 
@@ -351,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792243.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792229.jpg" />
 </div>
 
 
@@ -404,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792187.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792112.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792080.jpg" />
 </div>
 
 
@@ -482,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792038.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792032.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791985.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791969.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791955.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791910.jpg" />
 </div>
 
 
@@ -640,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791849.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791835.jpg" />
 </div>
 
 
@@ -678,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:410461BA686F04CD8B2FFD84B9A30BBD7A6DDB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387281   (791822) от 01.06.2020
+
+Винд-Хансен, Брайан Санне | Страшные сказки Андерсена (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мрачный датский сериал, где знакомые сцены из сказок становятся местом действия изощренных убийств. Данию потрясает жестокое убийство ребенка. Кто-то полностью воссоздал финал одной из сказок Андерсена. Десятилетняя Майя замерзла насмерть с улыбкой на лице, в руках она держала коробок спичек...Жанр: Психологический триллерПродолжительность: 08:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2429416D7EBF8F7615E19172CC985A0F998F40F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387272   (791787) от 01.06.2020
+
+Рос Пер | Гибридная война (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран боевых действий немало испытал на своем веку, но ухитрился дожить до преклонных лет. Остаток жизни он решает провести в отрыве от реальности – в буквальном смысле слова. Герой заключает договор с таинственной компанией – разработчиком игры с полным погружением в виртуальность. В ходе проекта «Альфарим», сведений о котором крайне мало, создан многоуровневый (   Читать дальше...   )Жанр: Боевая фантастика, LitRPGПродолжительность: 11:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA94BFBEC0220A7DB6BFA16CB3BA0832648A62C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387352   (791782) от 01.06.2020
+
+Лаэндэл | Анархия упадка.Ро'Кха-кан (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найкрас выбрался из ловушки куда попал, но вновь столкнулся с трудностями. В его отсутствие произошло много событий, в которых еще стоит разобраться, и неизвестно наперед какие его ждут последствия.
+Подземелье, как и система снова показали ему, что все устроено намного сложнее чем казалось до этого, оставив ему только один путь, вперед.Жанр: LitRPG, боевое фэнтези, приключенияПродолжительность: 07:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A159EFB1E2F6DBB5604D9F896B0F3A8C2AFF41C
 ```
 
 https://mybot314.ru/tekegram_catalog/

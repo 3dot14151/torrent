@@ -6,7 +6,7 @@ ProgDVB 7.10.3 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562561.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562560.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AI RoboForm Enterprise, PolicyEditor, Portable 7.8.0.5 Final [Multi/Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562557.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dicter 3.32 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_562554.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ArtMoney SE 7.39.2 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562541.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ace Translator 14.7.0.1168 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562535.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VueScan Pro 9.5.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562527.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ XviD4PSP 7.0.157 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562525.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ DFX Audio Enhancer 11.401 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562521.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562486.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Easy GIF Animator Personal 5.4 от 16 июня 2012 RePack by Kyvaldiys [Multi-
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562476.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Alien Skin Exposure 4.0.0.467 Revision 21547 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562472.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ GPU-Z 0.8.5 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562469.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe Muse CC 2015.0.1 Multilingual Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562458.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 12026 (июль 2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562457.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ DFX Audio Enhancer 11.401 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562452.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe Flash Player 11.3.300.270 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562414.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ ESET NOD32 | ESET Endpoint 7.0/6.x/5.x (x32 x64) Offline Update 12026 (июль 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562376.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Handy Start Menu 1.98 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562374.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Winstep Xtreme 15.7 Full RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562373.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Skype 7.7.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562367.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Re-Loader 1.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562364.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Adobe SpeedGrade CC 2015 (v9.0.1) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562358.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ R-Studio 6.1 Build 152028 Network Edition [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562314.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Photodex ProShow Producer 5.0.3276 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562306.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Ieshua's Live-DVD/USB 2.14 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562291.jpg" />
 </div>
 
 

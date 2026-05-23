@@ -1,32 +1,3 @@
-###  Публикация: 1024396   (718045) от 08.06.2016
-
-VA - Хит сезона  радио Шансон (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Келеберда - Прощай
-002. Александр Новиков - Блатной
-003. Дмитрий Прянов - За Друзей
-004. Слава Благов - Красивая И Счастливая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36AD66E56B51E533C6C977448938AFC29ACF380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024449   (718041) от 08.06.2016
 
 VA - 10s Acoustic Covers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -35,7 +6,7 @@ VA - 10s Acoustic Covers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrume
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718041.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Жаркое Хитовое Лето (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717919.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Russian chart. Русский выпуск (2016) [MP3|248-320 кб/с] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717912.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Nostalgia Collection (Volume Second) (2017) [MP3|320 Kbps] <Pop, Rock, Disc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717871.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Nostalgia Collection (Volume One) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717870.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717868.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Весенний марафон на Europa Plus (3) (2018) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717672.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Весенний марафон на Europa Plus (2) (2018) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717671.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Экспресс русских хитов на Hit FM (3) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717668.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Весенний марафон на Europa Plus (2018) [MP3|256 Kbps] <П�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717664.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Экспресс русских хитов на Hit FM (2) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717663.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - River Of Love (2018) [MP3|320 Kbps] <Pop, Lyric, Romantic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717662.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Весенний марафон на Europa Plus (4) (2018) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717661.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Экспресс русских хитов на Hit FM (4) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717659.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Экспресс русских хитов на Hit FM (2018) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717657.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - For Your Disco Pleasure (2018) [MP3|320 Kbps] <Italo Disco, Pop, New Genera
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717527.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Душевный шансон в хорошей компании (2) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717519.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Душевный шансон в хорошей компании (2018) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717515.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Sacred Killer: Metal Compilation (2018) [MP3|320 Kbps] <Black, Death, Bruta
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717514.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Salsa Fiesta 2018 [MP3|256-320 Kbps] <Salsa, Bachata, Kizomba, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717405.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - 50 Big Bachata Romantica Hits (2018) [MP3|256-320 Kbps] <Bachata, Reggaeton
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717402.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Essential Vocal Jazz Femino (2018) [MP3|320 Kbps] <Jazz, Blues, Vocal Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717399.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - 100 Хитов Любимой Музыки (2014) [MP3|256 - 320Kbps] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717310.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Душевный сборник радио Шансон (2018) [MP3|256 Kbp
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717309.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - 100 Хитов Любимой Музыки (2018) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717027.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - 100 Хитов Любимой Музыки (2018) [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BD4ED02DAD286D2CBCDDA9C98B88D99F3BDBD55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400555   (716987) от 06.08.2020
+
+VA - 80 Tracks Alternative 80s Playlist Spotify (2020) [MP3|320 Kbps] <Alternative, Power Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cure - A Forest - 2006 Remaster 5:54
+02. Billy Bragg - A New England 1:48
+03. The Sugarcubes - Birthday 3:58
+04. Violent Femmes - Blister In The Sun 2:26(   Читать дальше...   )Жанр: Alternative, Power Pop, OtherПродолжительность: 05:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34899C57BFB5B3FBB480C7AF12F1869F5DFD192
 ```
 
 https://mybot314.ru/tekegram_catalog/

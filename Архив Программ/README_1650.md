@@ -6,7 +6,7 @@ SlimBrowser 7.00 Build 134 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216752.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chromium 107.0.5304.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216729.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DesktopOK 11.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216720.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Brave Browser 1.45.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216705.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Steinberg - HALion 6 v6.4.30 STANDALONE, VSTi, VSTi3, AAX (x64) + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216690.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Macrorit Disk Scanner 5.1.8 Unlimited Edition RePack (& Portable) by 9649 [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216682.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Slimjet 12.0.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216679.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wise Disk Cleaner 10.9.5.811 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216670.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ WizTree 4.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216662.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ StartAllBack 3.1.5 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216624.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ocenaudio 3.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216619.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ PotPlayer 211118 (1.7.21566) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216617.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ GoldWave 6.68 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216605.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Google Chrome 107.0.5304.63 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216596.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Soft4Boost Document Converter 4.7.1.465 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216591.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Aiseesoft Video Converter Ultimate 10.5.32 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216590.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Registry Life 3.23 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216587.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ WizTree 4.11 Enterprise RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216582.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Windows 7 (3in1) x64 by Updated Edition (10.08.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216580.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ IObit Uninstaller Free 12.1.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216576.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Opera 92.0.4561.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216571.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Internet Download Manager 6.35 Build 16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216556.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Glary Utilities Pro 5.155.0.181 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216537.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ JRiver Media Center 27.0.34 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216509.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ MetaProducts Offline Explorer Enterprise 6.5.3880 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216489.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Fotosizer Pro 3.16.1.581 RePack (& Portable) by TryRooM[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216486.jpg" />
 </div>
 
 

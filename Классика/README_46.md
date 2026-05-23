@@ -6,7 +6,7 @@ Anne Louise Brillon de Jouy, Nicolas Horvath  Complete Piano Sonatas - Complete 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214199.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Los
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210623.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Atlanta Symhonic Orchestra & Chorus - Carl Orff: Carmina Burana (1981) Remaster,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208214.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The WHOOP Group - Crimes II (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206514.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206152.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195092.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Han
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193917.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, D
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193881.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|track
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193811.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191020.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Andrea Bocelli - My Christmas (2022) Fireside Edition [FLAC|96/24|Lossless|WEB-D
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190264.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|t
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188801.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Max Richter, Vivaldi - The New Four Seasons Vivaldi Recomposed (2022) [FLAC|Loss
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188723.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Raphael Feuillatre - Visages Baroques (2023) [FLAC|Lossless|image + .cue] <Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185935.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossl
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180961.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ David Garrett - Alive - My Soundtrack (2020) 2CD Deluxe Edition [FLAC|Lossless|i
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180631.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Piano Guys - 10 (2020) 2CD [FLAC|Lossless|tracks + .cue] <Classical Crossove
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179537.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022)
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177921.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176580.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175804.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022)
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174467.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sofiane Pamart - Noche (2023) [FLAC|Lossless|image + .cue] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171008.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Ensemble Labyrinthus - Carmina de morte (2014) [MP3|320 Kbps] <classical, chambe
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169826.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Maria Callas - DIVINA : Maria Callas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169011.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ PALLADIUM Electric Band - Love Planet (2014) [MP3|320 Kbps] <Instrumental, Class
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167357.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166061.jpg" />
 </div>
 
 

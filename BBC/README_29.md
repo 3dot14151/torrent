@@ -1,29 +1,3 @@
-###  Публикация: 1228432   (61247) от 31.03.2024
-
-BBC: Истоки жизни (Первая жизнь с Дэвидом Аттенборо) / First Life (David Attenborough's First Life) (2010) BDRemux [VC-1/1080i] (Серии 1-2 из 2) [AVO]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-От побережья Ньюфаундленда, окутанного туманом, до пустынь Северной Америки и тропических джунглей Квинсленда Дэвид Аттенборо в фильме "Первая жизнь" ищет доказательство в окаменелостях и животных невероятного периода истории Земли полмиллиарда лет назад, когда животные впервые появились в океанах. От первых глаз, которые видели, до первых хищников, которые (   Читать дальше...   )Производство: Великобритания, An Atlantic Production, BBC, Discovery Channel, Australian Broadcasting CorporationЖанр: Документальный, научно-познавательныйРежиссер: Мартин УильямсУчастники: Дэвид Аттенборо, Хэйзел Бартон, Бернард Деньян, Филип Донохью, Гай Нарбонне, Жан-Бернар Карон, Джастин МаршаллПеревод: Одноголосый закадровый, авторский (В.Курдов)Субтитры: Русские, АнглийскиеПродолжительность: 2 х ~ 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB857B08B9F7305C19B85308800C3B282DDC34A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116166   (61156) от 01.04.2024
 
 BBC: Реальная история научной фантастики / The Real History of Science Fiction (2014) HDTVRip [H.264/720p] (Серии 1-4 из 4)
@@ -32,7 +6,7 @@ BBC: Реальная история научной фантастики / The R
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61156.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC: Мир природы. Очковые медведи: Лесные тени
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61137.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Революции: Идеи, изменившие мир / Revolutions: Id
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61131.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61129.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ BBC: Секреты ухода за волосами / Hair Care Secrets (2017) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61124.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ BBC: Самое опасное место для работы / Toughest Place t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61118.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ BBC. Турки-османы. Мусульманские властители Е
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61009.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ BBC. Византий: сказания о трёх городах / Byzantium: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60930.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ BBC. Горы - жизнь над облаками / Mountain: Life at the Extre
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60924.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ BBC: Реальная история научной фантастики / The R
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60797.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ BBC: После смерти. Загадочная наука разложени
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60740.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ BBC: Гении древнего мира / Genius Ancient World (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60694.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ BBC: Путеводитель по Марсу / Mars: A Traveller's Guide (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60604.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ BBC: По странам и континентам. Индонезия / Wild In
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60507.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ BBC: Последние царственные воины Европы. 1066: Г
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60397.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ BBC. Как устроены шикарные отели. Kulm Hotel, St Moritz 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60384.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ BBC: Силы природы / Wild Weather (2002) DVDRemux (серии 1-4 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60372.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60293.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ BBC: Тайны Китая / Secrets of China (2015) HDTVRip [H.264/1080p] (Се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60195.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60167.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ BBC: По странам и континентам. Южная Америка / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60163.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ BBC: Твое тело. 10 секретов сна / 10 Things You Need To Know 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60056.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ BBC: История Индии с Майклом Вудом / The Story of India
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59973.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ BBC: Мир природы. Водопад Виктория - Гремящий �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59028.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ BBC: Вена. Империя, династия и мечта / Vienna: Empire, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58956.jpg" />
 </div>
 
 
@@ -670,6 +644,33 @@ BBC: Вена. Империя, династия и мечта / Vienna: Empire, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:482C891817ED276D2739B45C6668280F40A3A7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224679   (58902) от 22.04.2024
+
+BBC: Морские гиганты / Ocean Giants (2011) BDRemux [VC-1/1080p] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58902.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подводном мире киты и дельфины ведут необычный образ жизни. Их мир совершенно отличен от нашего, и мы можем лишь заглянуть туда. Синий кит - крупнейшее животное на планете. Более того, это крупнейшее животное из когда-либо живших на Земле. Миллионы лет эти гигантские киты и их сверхразумные братья - дельфины, царили в подводном мире.
+Наши отношения с ними не всегда (   Читать дальше...   )Производство: Великобритания, BBC Bristol, Thirteen / WNETЖанр: Документальный, природа, фаунаРежиссер: Ингрид Квале, Аннушка Скофилд, Эллен ХусейнУчастники: Стивен Фрай, Даг Аллен, Дидье Нуаре, Эндрю Армор, Вера Да Силва, Джим Дарлинг, Аша Де Воз и др.Перевод: Двуголосый закадровый, профессиональный (Омикрон)Субтитры: отсутствуютПродолжительность: 3 х 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D861216A1BB38FD5F3EC21B27615BBB1BDE9D630
 ```
 
 https://mybot314.ru/tekegram_catalog/

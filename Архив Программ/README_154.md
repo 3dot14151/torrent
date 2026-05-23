@@ -6,7 +6,7 @@ ReviverSoft PC Reviver 3.8.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001588.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CleanMyPC 1.10.3.2020 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001584.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ QTranslate 6.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001580.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tone2 - Synth Collection 01.2020 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001573.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Internet Download Manager 6.36 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001565.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Trojan Killer 2.1.7 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001558.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ WebDrive Enterprise 2019 Build 5345 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001548.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AIMP 4.60 build 2169 Final (с FxSound Enhancer 13.028) RePack (& Portable) by D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001544.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FPS Monitor 5160 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001515.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Paragon Hard Disk Manager Advanced 17.10.12 RePack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001514.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Torrent File Editor 0.3.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001490.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Audiority - Polaris 1.8.1 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001459.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CoolUtils Total PDF Converter 6.1.0.278 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001444.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft Edge 92.0.902.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001443.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ AlterPDF Pro 5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001440.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Calibre 5.25.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001435.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ GPU Caps Viewer 1.52.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001434.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ OCCT 9.0.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001418.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001389.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WireGuard VPN 0.4.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001388.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kerish Doctor 2021 4.85 (13.08.2021) (Repack & Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001371.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 10 21H1 (19043.1165) x64 Home + Pro + Enterprise (3in1) by Brux [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001364.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Boris FX Mocha Pro 2021 8.0.3 Build 19 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001342.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Boris FX Continuum Complete 2021 14.5.2.1262 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001341.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Windows 7 (6.1.7601.25685) x64 (4in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001340.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Video Thumbnails Maker Platinum 14.0.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001299.jpg" />
 </div>
 
 

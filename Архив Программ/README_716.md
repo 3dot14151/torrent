@@ -6,7 +6,7 @@ The KMPlayer 4.1.0.3 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688397.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The KMPlayer 4.1.0.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688389.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BestReminder v2019.03.13.15 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688387.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ QOwnNotes 22.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688379.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Wise Care 365 Pro 6.1.9.606 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688376.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ PotPlayer 1.7.21617 (220302) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688374.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Desktop Calendar 2.3.100.5474 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688368.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ TreeSize Professional 8.3.0.1658 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688366.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ MAGIX Sound Forge Pro Suite 15.0 Build 161 (x64) RePack by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688364.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Privacy Eraser Free 4.48.5 Build 2825 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688363.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Opera 58.0.3135.107 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688360.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WhatsApp 2.2206.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688357.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PortableApps.com Platform 20.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688352.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SpeedUpMyPC 2012 5.2.1.74 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688340.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Nitro PDF Professional 7.4.1.8 (x86/x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688335.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VLC Media Player 2.1.0-git-20120606-0004 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688334.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Process Lasso Pro 9.8.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688327.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ ReviverSoft Driver Reviver 5.34.1.4 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688324.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ WinX HD Video Converter Deluxe 5.16.0 (акция Comss) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688322.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Subtitle Edit 3.5.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688320.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Microsoft Edge 84.0.522.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688316.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Vivaldi 2.3.1440.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688285.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688275.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ GPU-Z + ASUS_ROG v 2.18.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688270.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ ReviverSoft Driver Reviver 5.27.2.16 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688259.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Chief Architect Premier X8 18.3.0.47 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688239.jpg" />
 </div>
 
 

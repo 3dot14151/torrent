@@ -1,55 +1,3 @@
-###  Публикация: 1559862   (522610) от 27.06.2022
-
-Power Shortcuts Pro 1.2.2 Mod by cergor [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Power Shortcuts - весьма полезное приложение для пользователей, что хотят существенно повысить свои возможности и качества по управлению мобильным гаджетом в самых различных сферах взаимодействия и выполнения заданий. Особенно создании специальных ярлыков для повышения скорости взаимодействия с функциями, что нужны владельцу гаджета. Удобная в обращении площадка, (   Читать дальше...   )Тип издания: Paid (Mod)Релиз состоялся: 23.12.2020Разработчик: ChYK the devПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Украинский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D27FCB80F7E2FEE287E20D74F1064769AF6250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928540   (522440) от 16.08.2015
-
-REAL ANIMALS HD 1.2.7 [En] - познаём мир животных
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сенсорный клик по экрану и будет видно животных, как они приходят и уходят с экрана, можно заставить их прыгать, кричать, поворачиваться и многое другое!  Перемещайте палец по экрану, чтобы заставить животных идти или бежать в любом направлении! Если вам повезет, вы можете даже заставить их выполнять одну из специальных задач  - «Счастливые действия" . Кроме того, (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 20.01.2015Разработчик: PROPE,Ltd.Поддерживаемая ОС: Android 2.3+Жанр: ОбразованиеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8616996127B120190050192480B272D3130AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313979   (522126) от 11.07.2019
 
 HelloChinese 5.0.6 [Ru/Multi] - Учим китайский
@@ -58,7 +6,7 @@ HelloChinese 5.0.6 [Ru/Multi] - Учим китайский
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522126.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Mighty Final Fight 1.1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522121.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Perfectly Clear v4.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518954.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ Garmin: TOPO Alaska Enhanced v.2.0 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517658.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ vRGB - LED ИК Пульт Управления v4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517602.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ Garmin: TOPO Stan Countries v4 Ligh [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517601.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Rain Alarm Plus / Дождевая сигнализация плюс - Все ф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517600.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ SMD info v1.34 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517590.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ Electronics Calculator Pro v1.6.2 [En] - различные утилиты дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516986.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ PickU - Редактор фотографий 3.6.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516658.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Momo Music Player 1.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516643.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Supershift - График смен v2022.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516599.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516597.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515710.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ Video Converter, Compressor 0.9.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515581.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ Pixlr Pro 3.4.63 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515524.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ JAVAD Mobile Tools v4.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513527.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513520.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513459.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512574.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512572.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ Shuttle+ Music Player 2.0.17 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512408.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ MarineTraffic v4.0.31 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512406.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ KReader PRO v3.4.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512368.jpg" />
 </div>
 
 
@@ -677,6 +625,58 @@ KReader - это простое в использовании и легко на
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4289E4D42BBFB7A5C9B9C995ECD281B00C7FBD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562040   (512357) от 07.07.2022
+
+BlackPlayer Music Player / BlackPlayer EX 20.61 Mod by Balatan, CMAPTOC [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, что бросается в глаза при запуске этого проигрывателя его минималистическое оформление в черно-серых тонах. Кому-то оно может не понравится, а кто-то (например, владельцы смартфонов с AMOLED'ами) будут только в восторге. Так или иначе, судить о плеере только по его внешнему виду нельзя, а с функциональностью у нашего героя все отлично. Он поддерживает все (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 30.09.2021Разработчик: FifthSourceПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8E71034E56C1B47036BE4B569F6E43169430FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562120   (512352) от 07.07.2022
+
+Виджет Bluetooth подключения 3.5.8 Mod by Dymonyxx [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виджет Bluetooth подключения – с данным виджетом необходимость в перемещении по настройкам для сопряжения устройств станет не актуальной. Все просто, разместите виджет на экране своего смартфона/планшета, сделайте длинный тап - это позволит вам выбрать необходимые устройства Bluetooth, которые вы хотели бы связать с виджетом. А короткий тап по виджету предоставит (   Читать дальше...   )Тип издания: Ad-Free (Без рекламы)Релиз состоялся: 25.10.2021Разработчик: Tomas HadrabaПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C332463D695E31117D15BE28BAC7843151BDF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

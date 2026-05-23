@@ -6,7 +6,7 @@ Joe Cocker - Cocker (1986) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769632.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joe Cocker - One Night Of Sin (1989) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769629.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joe Cocker - Night Calls (1991) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769564.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Status Quo - Aquostic Stripped Bare (2014) [FLAC|Lossless|tracks] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769562.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ John Mayer - The Search For Everything (2017) [FLAC|Lossless|tracks] <Rock, Soul
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768754.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Richie Kotzen - Salting Earth (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768054.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ace of Cups - Ace of Cups (2018) 2CD [FLAC|Lossless|tracks + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767791.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rival Sons - Feral Roots (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767779.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lebowski - Galactica (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767727.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Message of Love: Rock Love Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767686.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Santana - In Search Of Mona Lisa (2019) EP, Scene [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767673.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767146.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Little Richard - Greatest Hit (1993) [FLAC|Lossless|image + .cue] <Rock & Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766917.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Pink Floyd - Animals, The High Resolution Remasters (2017) The Archives Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766644.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Retrospective - Re:Search (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766284.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Ryszard Kramarski Project - Music Inspired By The Little Prince (2017) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765485.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Jon English - Beating The Boards (1982) Remastered 2016 [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765437.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Free - All Right Now: The Essential (2018) 3CD [FLAC|Lossless|tracks] <Rock, Har
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764899.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Artificial Silence - Negative Space (2018) [FLAC|Lossless|tracks + .cue] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764594.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Soft Machine - Hidden Details (2018) Japanese Edition [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764538.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Simple Minds - Walk Between Worlds (2018) Deluxe Edition [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764531.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Rock Milestones (2020) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763710.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Bear Hands - You'll Pay For This (2016) [FLAC|Lossless|tracks] <Experimental Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763258.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Hotei - Strangers (2015) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763035.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Joe Cocker - Heart & Soul (2004) US Version [FLAC|Lossless|image + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762952.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Middle Of The Road - The Collection (1996) Unofficial Release [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762136.jpg" />
 </div>
 
 

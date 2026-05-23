@@ -1,32 +1,3 @@
-###  Публикация: 1859321   (1061043) от 15.03.2026
-
-Lamb Of God - Into Oblivion (2026) Limited Edition [FLAC|Lossless|image + .cue] <Groove Metal, Metalcore, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01 - Into Oblivion [3:35]
-02 - Parasocial Christ [3:21]
-03 - Sepsis [3:39]
-04 - The Killing Floor [4:17](   Читать дальше...   )Жанр: Groove Metal, Metalcore, Thrash MetalПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7169088F11DAADAF43C234FA44332D0437E5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859396   (1061031) от 15.03.2026
 
 More - Destructor (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBHM>
@@ -35,7 +6,7 @@ More - Destructor (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061031.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Horseman - No Surrender in Dark Days (2026) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061026.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Brian Bee Frank and Syndicated Madness - Chasing The Dragon (2026) [FLAC 24/48|L
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061025.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Sabaton - Yamato (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060986.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ Wolverine - Anomalies (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060968.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Subcutaneous Exsanguination - Eradication Fascination (2026) [FLAC 24/44.1|Lossl
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060961.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ Babooshka - 7 Albums (2019-2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060957.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ Crimson Caravan - 2 Albums, 2 Singles (2019-2024) [opus|320 Kbps] <Stoner-Sludge
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060914.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ Bad Marriage - Match Made In Hell (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060894.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ Chris Norman - Lifelines (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Rock,
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060876.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ Lamb of God - Into Oblivion (2026) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060843.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ The Black Crowes - A Pound of Feathers (2026) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060729.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Monstrosity - Screams from Beneath the Surface (2026) [FLAC 24/96|Lossless|WEB-D
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060726.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Dirty Machine - Raytown Missouri (2026) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|tra
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060720.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Rush - Grace Under Pressure (Super Deluxe) (1984) Super Deluxe, 2026, Mercury Re
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060710.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060694.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060668.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Asia - Live In England (2026) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060667.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Unheilig - Liebe Glaube Monster (2026) [MP3|320 Kbps] <Industrial Gothic Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060665.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Unheilig - Liebe Glaube Monster (2026) [FLAC|Lossless|WEB-DL|tracks] <Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060664.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Zero People - Всё, что после (2026) [FLAC 24/48|Lossless|WEB-DL|track
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060662.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ The Gems - Year Of The Snake (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060657.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Dispyria - Redemption Part 1: Twisted World (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060647.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Starbenders - The Beast Goes On (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060640.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Phil Vincent - Thirst Trap (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060639.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Phil Vincent - Thirst Trap (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECECA3BA90610856C533EFF57D033A7161E8CD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858621   (1060638) от 11.03.2026
+
+Studio D'Lux - The Allstar Project (2026) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Turn the Page (3:53)
+02.  Aint Good Enough (4:19)
+03.  Slow Burn (4:34)
+04.  Not in a Million Years (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EEFABE7B51745FE7B369B78C66A5A1A619A4A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

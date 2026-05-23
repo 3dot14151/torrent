@@ -6,7 +6,7 @@ Kona (2017) [Ru/Multi] (14034) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965825.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project: Snowblind / Операция Снегопад  [Ru/En] (P) 2007
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962190.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ F.E.A.R. 2: Reborn / F.E.A.R. 2: Возрождённый [Ru] (RePack) 2010 | U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953799.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951992.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SOMA (2015) [Ru/Multi] (1.102) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951585.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Alpha Prime (2007) [En] (1.01) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951531.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Curse of Anabelle (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950458.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ELDERBORN (2020) [Multi] (20200220142720) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950448.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CASE: Animatronics (2016) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948390.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947555.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946932.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Quake 4 (2005) [Ru/Multi] (1.4.2) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945409.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bequest (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940816.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sniper: Ghost Warrior Gold Edition + 2 DLC [Ru/En] (RePack/1.3.0.0) 2010 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940645.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Far Cry 3 [Ru/En] (Repack/1.05/7 DLC) 2012 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940610.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Horror Hospital (2016) [En/Tr] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939559.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Rage + 3 DLC [Ru/En] (RiP/1.3) 2011 | z10yded
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939352.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dr. Langeskov, The Tiger, and The Terribly Cursed Emerald: A Whirlwind Heist (20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936951.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935636.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Wolfenstein 3D: Spear of Destiny (1993) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934554.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Borderlands:​ Game of the Year Edition 4DLC [Ru/En] (Reрack/1.4.1) 2010 | R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933047.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931612.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sniper: Ghost Warrior 2 / Снайпер: Воин-призрак 2  [Ru/En/Mult
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929570.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Dead Effect 2 (2016) [Ru/En] (170 106.1208) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928527.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (2.0.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924906.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Far Cry / Rambo 3 - Afganistan [Ru] (P/Mod) 2004/2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923145.jpg" />
 </div>
 
 

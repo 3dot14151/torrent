@@ -6,7 +6,7 @@ Typora 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662391.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TG Pro (Temperature Gauge Pro) 2.68 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662390.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Calendar 366 Plus 1.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662322.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Swinsian 1.13.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662313.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Infuse PRO 7 v7.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662301.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Image Optimizer - Compression 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662300.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Easy Data Transform 1.26.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662299.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ MaxCommander 2.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662291.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Fantastical 2 - Calendar and Reminders 2.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662224.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ KeepVID Pro 6.1.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662214.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Viscosity 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662211.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ StarUML 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662193.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Network Utility X 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662163.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ macOS Server 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661926.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ CleanMyMac 3.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661918.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ DaisyDisk 4.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661823.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Parallels Desktop for Mac 10.2.1 (29006) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661750.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VueScan Pro 9.6.08 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661730.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Posterino 3 v3.11.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661460.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Checksum Thing 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661459.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ RightFont 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661457.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Tomates - Time Management 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661403.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ TunesKit Apple Music Converter 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661390.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ iCompta 6 v6.0.54 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661387.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BusyCal 2022.1.4 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661386.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Alfred 4 Powerpack 4.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661379.jpg" />
 </div>
 
 

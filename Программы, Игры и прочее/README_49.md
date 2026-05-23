@@ -1,55 +1,3 @@
-###  Публикация: 1505828   (802288) от 28.10.2021
-
-Судоку v3.24.0 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная игра-головоломка Судоку - это популярная игра-головоломка для мозгового судоку в Google Play. Вы можете скачать приложение Судоку для телефона и планшета Android. Вы ежедневно получаете более 5000 сложных головоломок Судоку, чтобы тренировать свой мозг, и мы добавляем 100 новых головоломок судоку каждую неделю. Мозг Судоку для начинающих и продвинутых (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 25.10.2021Разработчик: Beetles Games StudioПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46D9DB03FF8E5F0F9E6940A2B293312B97EB9C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010301   (802132) от 25.04.2016
-
-Garmin: City Navigator Southern Africa NT 2017.10 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Передвигайтесь по улицам Южной Африки с уверенностью. Этот продукт содержит подробные карты дорог и достопримечательностей для вашего совместимого устройства, так что вы можете перемещаться с точными подсказками, от поворота к повороту на любой адрес или перекресток. Маршрут в рестораны, автозаправочные станции, жилье, достопримечательности и многое другое.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: апрель 2016Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB64FAD5A6BDD2962EBDCEC1745B4EBAE5BCBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199164   (801025) от 16.01.2018
 
 Киноход v3.24 AdFree [Ru] - афиша кинотеатров, покупка билетов в кино
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801025.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800746.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799979.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798925.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798081.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ Garmin: City Navigator Middle East and North Africa NT 2022.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797395.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ TouchRetouch v4.4.16 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797171.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797083.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796504.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795397.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ Android 12 Clock Widgets v7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795376.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ Angry Birds Fight! 2.4.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795189.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ Yi Pro - Yi Action Camera 3.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794400.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793877.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ PingTools Network Utilities 3.68 [Ru/Multi] - утилита для провер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793206.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ Analog Clock Constructor-7 v4.44 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792622.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792345.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ UFO VPN 2.3.10 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791757.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ Personal Vault PRO 3.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791258.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ Bliss - Icon Pack 1.3.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791248.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ Frequency generator / Генератор частоты 4.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791211.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ AndFTP Pro 4.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790662.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790629.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ Mazetools Soniface 2.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790078.jpg" />
 </div>
 
 
@@ -671,6 +619,59 @@ Mazetools Soniface 2.51 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E258315281F3439DB093A3198E7975CAC8AE648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202435   (789759) от 29.01.2018
+
+Flyme OS Update Checker (FUC) v0.4.2 Portable [En]
+
+>>Программы, Игры и прочее
+>>Прочее для мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чекер наличия новой версии прошивки FlymeOS (от компании Meizu) для вашего смартфона. Программа позволяет получить линк на скачивание новой прошивки, если такая доступна для вашего канала обновлений. Для работы программы необходимы установленные ADB-драйверы. Они необходимы для получения IMEI, S/N, модели телефона и маски прошивки.Тип издания: FreeРазработчик: AMSUserПоддерживаемая ОС: Windows 10 | 8.1/8 | 7 (x86 / x64)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D831C7F43A055FD12821136DF19388C6657E5F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510816   (789562) от 19.11.2021
+
+3D Анатомический атлас человека. Human Anatomy Atlas 2021: Complete 3D Human Body v2021.2.27 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789562.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D Human Anatomy Atlas - атлас анатомии человека представляет 3D-модели, которые помогают понять как выглядит и работает человеческое тело, и включает определения на уровне учебников. Выпущен для использования в качестве справочника вместо учебника по анатомии или для создания виртуальных лабораторных опытов.
+Содержит более 10 000 анатомических моделей с описаниями. (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 17 марта 2021 г.Разработчик: Visible BodyПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский, Французский, Китайский, Немецкий, Итальянский, Японский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B166D600ED9B6DF8450520FF7BFD9A1A2F14A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

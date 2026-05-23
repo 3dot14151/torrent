@@ -1,55 +1,3 @@
-###  Публикация: 1005019   (836322) от 07.04.2016
-
-Пальмы в снегу / Palmeras en la nieve (2015) BDRip [H.264/1080p] [SP / En Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это история о большой любви, связи времен и поколений. Красавица Кларенс живет в холодных горах. Однажды она находит загадочное письмо и решает узнать правду о прошлом своего отца. Девушка отправляется на остров Фернандо-По и как будто попадает в рай. Она идет по следам семейных тайн, где есть и запретная любовь, и предательство, и великие события, ставшие частью (   Читать дальше...   )Производство: Испания, Nostromo Pictures, Atresmedia Cine, Dynamo, Telefonica Studios, Warner Bros. Pictures InternationalЖанр: Драма, МелодрамаРежиссер: Фернандо Гонзалез МолинаАктеры: Марио Касас, Лайа Коста, Адриана Угарте, Макарена Гарсия, Ален Эрнандес, Берта Васкес, Джедже Апали, Даниэль Грао, Фернандо Кайо, Сельсо Бугальо, Петра Мартинес, Луис Кальехо, Хосе Мануэль Ривера и другие.Перевод: ОтсутствуетЯзык озвучки: ИспанскийЯзык субтитров: АнглийскиеПродолжительность: 02:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C14729FEEEDA405B40D08C7590970C0562D0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772560   (836307) от 02.04.2014
-
-Паранойя / Paranoia (2013) BDRemux [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Адам Кэссиди — типичный «белый воротничок», пытающийся преуспеть на должности молодого специалиста в крупной телекоммуникационной корпорации. После одной весьма дорогостоящей ошибки он сталкивается лицом к лицу с безжалостным президентом компании, который соглашается не увольнять провинившегося при одном условии: Адам должен шпионить за старым наставником своего (   Читать дальше...   )Производство: США, Франция / Demarest Films, IM GlobalЖанр: Триллер, драмаРежиссер: Роберт Лукетич / Robert LuketicАктеры: Лиам Хемсворт, Гари Олдман, Эмбер Хёрд, Харрисон Форд, Лукас Тилл, Эмбет Дэвидц, Джулиан МакМэхон, Джош Холлоуэй, Ричард Дрейфусс, Анджела СарафянПеревод: ДублированныйЯзык субтитров: Русский (voronine - по дубляжу, MartinaG), английский (SDH, SDH-Colored)Продолжительность: 01:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F82EDD1CAD575948F4970FC4922DEEF8DA1FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 773037   (836303) от 02.04.2014
 
 Осенняя кровь / Autumn Blood (2013) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836303.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_836299.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836294.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836289.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836285.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836280.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836226.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836167.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836154.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836152.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_836150.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836149.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836146.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836145.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836136.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836135.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836057.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836052.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836048.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836046.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836045.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836042.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836041.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836039.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6BF10A0C60F0FF6DC0AE788FF0297041ABA2D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004477   (836033) от 07.04.2016
+
+Девушка на фотографиях / The Girl in the Photographs (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Размеренная и нудная жизнь красивой провинциалки Колин, меняется в тот миг, когда на её почту начинают приходить фотографии с изображением зверски убитых молодых девушек. Полиция посчитала эти фотографии чей то злой шуткой, но никак не выходки маньяка. Колин начинает выкладывать эти фото в сеть, где они набирают бешенную популярность. Эти фото начали затмевать работы (   Читать дальше...   )Производство: СШАЖанр: Триллер, Криминал, УжасыРежиссер: Ник СаймонАктеры: Митч Пилледжи, Кэтрин Изабель, Кэл Пенн, Кристи Карлсон Романо, Кенни Вормолд, Миранда Рэй Майо, Клаудия Ли, Эва Борн, Тоби Хемингуэй, Тоби ЛевинсПеревод: Двуголосый закадровый, любительский (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA4277511AB8732F7CE8A06C4B86E5D13253DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004850   (836031) от 07.04.2016
+
+Игрок / The Gambler (2014) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джим Беннетт — рисковый парень. Днем он — гениальный писатель и отличный преподаватель, ночью — заядлый игрок. Он глубоко увяз в мире, где закон — пустой звук, и однажды ставит на кон все, включая собственную жизнь. Те, кому он должен, опасны, а помочь ему может только тот, кто еще опаснее. Достоин ли второго шанса человек, проигравший самого себя? А, если да, то (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: Триллер, Драма, КриминалРежиссер: Руперт УайаттАктеры: Марк Уолберг, Джон Гудман, Бри Ларсон, Майкл Кеннет Уильямс, Джессика Лэнг, Гриффин Кливлэнд, Омар Лейва, Энтони Келли, Стив Парк, Эмори Коэн, Джордж Кеннеди, Чил Конг, Дэвон МакДональд, Эймин Джозеф, Сьён Солсберри, Тибон Митчелл, Джесмонд Кэрролл, Риа Уилкинсон, Дж. Денис, Элвин ИнгПеревод: Дублированный, Авторский (одноголосый, закадровый)Язык субтитров: Русский, украинский, английскийПродолжительность: 01:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3649B196F930A0F55C5AEBAACCA9C7C749565F
 ```
 
 https://mybot314.ru/tekegram_catalog/

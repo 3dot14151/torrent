@@ -1,56 +1,3 @@
-###  Публикация: 1587790   (191872) от 02.11.2022
-
-На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) WEBRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного антивоенного романа Эриха Марии Ремарка.
-Германская империя, 1917 год. Преисполненные патриотизмом 19-летний Пауль Боймер и его друзья-одноклассники отправляются добровольцами на фронт, где им предстоит испытать на себе кошмары Первой мировой войны.Производство: Германия, США, Великобритания / Amusement Park FilmsЖанр: военный, история, драма, экранизацияРежиссер: Эдвард БергерАктеры: Феликс Каммерер, Альбрехт Шух, Аарон Хилмер, Мориц Клаус, Адриан Грюневальд, Эдин Хасанович, Даниэль Брюль, Тибо де Монталембер, Девид Штрисов, Андреас Дёлер, Себастьян Хюльк, Люк Фейт, Михаэль Виттенборн, Майкл СтенжПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, Украинский, Английский, НемецкийСубтитры: Русские (Full), Украинские (Forced, Full), Английские (Forced, Full), Немецкие (Forced, SDH)Продолжительность: 02:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF9D57482997DDC8FC7E15C0CA9DF5FA0484CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658014   (191841) от 06.09.2023
-
-Запертый заживо / Вот дерьмо! / Ach du Scheibe! / Holy Shit (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Архитектор Франк приходит в себя после потери сознания в кабинке уличного биотуалета. Он оказывается в ловушке и не может выбраться из неё. Но это не самая большая проблема. Кабинка лежит на дне котлована, в который заложено взрывное устройство. На то, чтобы выбраться, у Франка есть всего один час.Производство: Германия / Neopol Film, Studio Hamburg EnterprisesЖанр: боевик, триллер, комедияРежиссер: Лукас РинкерАктеры: Томас Нихаус, Гедеон Буркхард, Ольга фон Люквальд, Родни Чарльз, Микаэла Шефер, Бьорн Майер, Уке Боссе, Фридерике Кемптер, Юки ИвамотоПеревод: Дублированный (Akimbo Production), Авторский (Михаил Яроцкий)Язык озвучки: русский, немецкийСубтитры: русские, французскиеПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C907D0F525D697A1F5228692713F58F05B723E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658012   (191834) от 06.09.2023
 
 Запертый заживо / Вот дерьмо! / Ach du Scheibe! / Holy Shit (2022) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191834.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191830.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191810.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191807.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191789.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191776.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191774.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191761.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191755.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191735.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191705.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191703.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191699.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191696.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191695.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191689.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191687.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191684.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191681.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191680.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191677.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191672.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191671.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191661.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149251D6D60D9B20F1BF84A42979F63711E60C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656886   (191657) от 06.09.2023
+
+Преисподняя 2 / Underverden II / Darkland: The Return (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заид получает возможность досрочно выйти из тюрьмы, если он поможет полиции выведать информацию о таинственных бандах в Копенгагене. Мужчина видит в этом возможность воссоединения со своим сыном, поэтому соглашается на сотрудничество, не задумываясь о последствиях.Производство: Дания / Profile PicturesЖанр: боевик, триллерРежиссер: Фенар АхмадАктеры: Дар Салим, Биргитта Йорт Сёренсен, Стине Фишер Кристенсен, Abdel Mustafa, Soheil Bavi, Ahmad Ayman, Mohamed Djeziri, Hamed «Baloosh» Balosha, Sebastian Nørgaard, Noah CarterПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, датскийСубтитры: английскиеПродолжительность: 01:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE86D2BE808FD14C7480FDEA25D9C3889D649D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649992   (191647) от 06.09.2023
+
+Круче некуда / Hidden Strike (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191647.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем битвы за нефть захватили весь мир. Когда команда международных преступников захватывает заложников, чтобы провернуть крупнейшее ограбление, только два человека оказываются в силах остановить их. Это два наемника по разные стороны конфликта, их план совершенно безумен, но они должны прорваться через град пуль и песчаные бури. Даже если терпеть друг друга (   Читать дальше...   )Производство: Китай, США, Чанчуньская киностудия, Epitome, Flame Pictures Company, Huaxia Film Distribution, Talent International Media, XYZ FilmsЖанр: боевик, комедияРежиссер: Скотт ВоАктеры: Джеки Чан, Джон Сина, Пилу Асбек, Ван Чжэньвэй, Рэйчел Холовэй, Макс Хуан, Амадеус Серафини, Хоу Минхао, Рима Цзэйдань, Ма ЧуньжуйПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (forced (HDRezka)), английскиеПродолжительность: 01:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0A95265808337C6673D44B29C5BFE4AE0EA785
 ```
 
 https://mybot314.ru/tekegram_catalog/

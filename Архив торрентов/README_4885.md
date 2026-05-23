@@ -6,7 +6,7 @@ StartAllBack 3.9.6 build 5261 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24271.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Revo Uninstaller Mobile v3.4.111G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24268.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MobiPDF: Редактор и сканер PDF  v11.3.266927 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24261.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Firefox Browser 136.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24260.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Solid Explorer File Manager v2.8.60 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24257.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ExtraDisks 25.3.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24252.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ WinTools.net Premium 25.3.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24245.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 14.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24243.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VMware Workstation 17 Pro 17.6.3-24583834 [x64] (bundle)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24238.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Windows 11 PRO 24H2 26100.3476 Update 13 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24236.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24234.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24221.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Vanced Tube v5.3.80.188 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24218.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Windows 11 PRO 23H2 22631.5039 Update 17 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24212.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24209.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ CCleaner 6.34.11482 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24207.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ AIMP 5.40 Build 2669 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24201.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.3.55554 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24195.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Tixati 3.33.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24186.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ GIMP 3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24183.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Battery Guru: Monitor & Health v2.3.18 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24179.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ XYplorer 27.00.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24176.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ XtraTools Professional 25.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24172.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Alfa eBooks Manager 9.1.32 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24171.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Skype 8.138.0.209 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24169.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ UltraSearch Professional 4.6.3.1106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24168.jpg" />
 </div>
 
 

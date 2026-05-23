@@ -6,7 +6,7 @@ VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786218.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786215.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Драйвовый весенний музон (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786214.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786213.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Музыкальный презент на Europa Plus. Версия № 8 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786205.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Лучшая дискотека на Europa Plus. Выпуск № 6 (2017)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786204.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Весенняя 100-ка популярных треков. Часть №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786203.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Танцевальная вечеринка от Хит FM. Версия �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786200.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Сотка популярных весенних хитов. Версия �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786195.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Лучший весенний хит. Сборник № 9 (2017) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786192.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - German Top 100 Single Charts 10.04.2017  [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786152.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Топовая сотня весенняя от Хит FM (2017) [MP3|256 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786138.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Eurovision Song Contest – Kyiv 2017  [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786073.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Драйвовый весенний молодежный музон. Вып
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785670.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Весна. Высшая лига. Часть № 2 (2017) [MP3|256 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785666.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Весенняя танцевальная вечеринка. Выпуск 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785662.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Любимые хиты весны выпуск № 9 (2017) [MP3|256 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785660.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Весенние заводные хиты. Сборник № 4 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785659.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Музыкальный подарок на радио Europa Plus выпу�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785654.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Русский отрыв на Русском радио (2017) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785651.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Популярные весенние новинки. Сборник № 2 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785647.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Лучшая дискотека от Европы Плюс. Часть № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785631.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Танцевальная вечеринка на Hit FM. Сборник №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785618.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Лидеры чартов танцевальных FM станций 8 (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785280.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - German Top 100 Single Charts 28.01.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785023.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - German Top 100 Single Charts 09.02.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_784089.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Record It - Screen Recorder 1.5.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245099.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft Mac Blu-ray Player 6.6.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245055.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244989.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mirror for Grundig TV 3.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244972.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DSLR Assistant 3.9.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244964.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Gemini 2: The Duplicate Finder 2.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244642.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Home Business Card 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244562.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ CD DVD Label Maker 2.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244536.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Paw (HTTP & REST Client) 3.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244505.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AnyRec Video Converter for Mac 1.0.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244450.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Magic Media Marker 3.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244440.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ NeoFinder Business 8.1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244325.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ WALTR PRO 4.0.115 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244193.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ FontLab 7 v7.2.0.7649 Beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244107.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Mirror for Roku TV 2.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243956.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Clipboard mini 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243944.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ DateBook - Journal | Memoi‪r 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243795.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Salon Software 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243785.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Noizio — focus, relax, sleep 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243762.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Zoommy 3.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243742.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Flyingbee Reader Pro 3.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243668.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ DoYourData File Eraser Pro 3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243572.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Scherlokk - Files finder 4 v4.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243393.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ MultiMode Cocoa 6.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243193.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Dropzone 4 Pro v4.2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243105.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Book Collector 20.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_243007.jpg" />
 </div>
 
 

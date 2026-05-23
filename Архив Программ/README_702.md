@@ -6,7 +6,7 @@ DesktopOK 4.69 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694946.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Comfy Photo Recovery 4.7 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694933.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Telegram Desktop 1.2.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694900.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Comfy Partition Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694888.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ SamDrivers 17.5  LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694867.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VLC Media Player 2.2.5.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694864.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VLC Media Player 2.2.5.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694859.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Alternate File Shredder 1.900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694835.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VLC Media Player 3.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694825.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CCleaner 5.42.6495 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694819.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ ESET Internet Security 11.1.54.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694789.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MSMG ToolKit 7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694749.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Soft4Boost Easy Disc Burner 4.8.5.379 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694705.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Soft4Boost Any Uninstaller 6.9.9.545 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694698.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Soft4Boost Secure Eraser 4.1.1.373 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694690.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Office Tab Enterprise 13.10 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694677.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ MSI Afterburner 4.5.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694670.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694654.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Autodesk AutoCAD 2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694645.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Rollback Rx Professional 10.7 Build 2702518295 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694614.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ SamDrivers 17.5 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694613.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Windows Operating Systems Set Release By StartSoft 20-2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694612.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ ESET NOD32 Antivirus 10.1.204.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694611.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Total Commander 9.0a LitePack | PowerPack 2017.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694608.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Wise Registry Cleaner 9.21.593 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694552.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Soft4Boost Dup File Finder 6.2.7.451 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694548.jpg" />
 </div>
 
 

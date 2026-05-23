@@ -1,83 +1,3 @@
-###  Публикация: 1673685   (163292) от 03.11.2023
-
-Софи Анри | Принц Ардена (Книга 1). Принц Ардена (2023) [MP3, Семен Мендельсон]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сотни лет назад королевство Арден захватили южане. Кровь лилась рекой, пока правители не достигли соглашения: Хранителем Ардена станет принц-бастард Рэндалл. Ни король-отец, ни сводные братья никогда не жаловали Рэндалла, но тот жаждет справедливости. Чтобы укрепить позиции и спасти брата Уилла от нежеланного брака, Рэндалл решает взять в жены княжну Севера. Аврора (   Читать дальше...   )Жанр: Героическое фэнтези, Историческое фэнтезиИздательство: Эксмо, FreedomПродолжительность: 16:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252CE09B7C726720D24E9EE9B0E579FB8A9670A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674033   (163274) от 03.11.2023
-
-Генри Райдер Хаггард | Копи царя Соломона (2008) [MP3, Андрей Зарецкий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Генри Райдер Хаггард (1856–1925) английский писатель, автор множества приключенческих романов.
-Представляем аудиозапись, прочитанную актером театра им. Е.Вахтангова Андреем Зарецким, с шумовыми эффектами и оригинальным саундтреком.
-«Я, Хозе да Сильвестра, умирая от голода в маленькой пещере, пишу это собственной кровью в год 1590-й, обломком кости на клочке моей (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: СиДиКомПродолжительность: 10:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEE0053167002F62A556AD54568BB421B5CBD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468299   (163257) от 14.12.2021
-
-Герман Горшенев | S-T-I-K-S. Изолированный стаб. Книга 1 (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Маленькая коммуна, закрытая со всех сторон непроходимой чернотой, населённая людьми современными, но с домами двенадцатого века. Социальный эксперимент хозяев Стикса, где умения компенсируют недостаток технического развития. Главный герой – взрослый человек, уже проживший долгую жизнь, счастлив тем, что у него здесь просто спина не болит, а если нужно пройти через (   Читать дальше...   )Жанр: Боевая фантастика, героическая фантастика, попаданцыПродолжительность: 13:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EF57653AB50114994B4169717024FD7E3FF00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673973   (163196) от 03.11.2023
 
 Артур Конан Дойль | Пёстрая лента и другие приключения Шерлока Холмса (2008) [MP3, Вадим Максимов, Владимир Самойлов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163196.jpg" />
 </div>
 
 
@@ -115,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163177.jpg" />
 </div>
 
 
@@ -142,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163170.jpg" />
 </div>
 
 
@@ -170,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163122.jpg" />
 </div>
 
 
@@ -196,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163101.jpg" />
 </div>
 
 
@@ -224,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163088.jpg" />
 </div>
 
 
@@ -250,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163079.jpg" />
 </div>
 
 
@@ -276,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163077.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163050.jpg" />
 </div>
 
 
@@ -328,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163000.jpg" />
 </div>
 
 
@@ -356,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162989.jpg" />
 </div>
 
 
@@ -382,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162987.jpg" />
 </div>
 
 
@@ -408,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162956.jpg" />
 </div>
 
 
@@ -434,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162950.jpg" />
 </div>
 
 
@@ -460,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162939.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162937.jpg" />
 </div>
 
 
@@ -515,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162892.jpg" />
 </div>
 
 
@@ -542,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162891.jpg" />
 </div>
 
 
@@ -568,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162886.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162878.jpg" />
 </div>
 
 
@@ -623,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162871.jpg" />
 </div>
 
 
@@ -649,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162868.jpg" />
 </div>
 
 
@@ -676,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162847.jpg" />
 </div>
 
 
@@ -687,6 +607,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF110ECCF9565478F3E29DF96642FCE5AFE7823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432745   (162846) от 18.12.2020
+
+Андрей Муравьев | Сказка, основанная на реальных событиях (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в заключительную часть системы, самую простую и в то же время самую волшебную. В своё время она началась с «Петли 19», плавно, или не очень, перетекла в «Воина без сознания» (в бумажном виде «Точка равновесия» и «Игры ограниченного разума…»). Теперь же трансформируется в романтическую «Сказку…».
+ Хоть, весьма вероятно, она и покажется не реальной, (   Читать дальше...   )Жанр: приключения, фантастика, мистика, драмаПродолжительность: 14:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A275EB73590B984A258E1335F54065B379CD4BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517397   (162842) от 15.12.2021
+
+Даниель Оберг | Вирус (2021) [MP3, Наталья Русинова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всего за несколько летних дней неизвестный смертельный Вирус выкосил весь Стокгольм, всю Швецию и, кажется, всю планету. Четверо уцелевших пытаются выжить в мире, где им больше нет места.Жанр: ФантастикаПродолжительность: 07:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFBB1B4CC5E31D438B14B77674CF67E3C9A8CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423493   (162839) от 03.11.2023
+
+Генри Райдер Хаггард | Клеопатра (2011) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Райдер Хаггард «Клеопатра». И никаких больше слов не надо. Но вдруг кто-то ещё не знает, что автор – величайший выдумщик и непревзойдённый мастер литературной интриги? А может быть найдутся и такие, кому ещё не доводилось слышать имени одной из самых загадочных женщин на земле – Клеопатры. Таким людям мы искренне завидуем – им предстоит редкое удовольствие. Но даже (   Читать дальше...   )Жанр: Историко–приключенческий романИздательство: МедиаКнигаПродолжительность: 11:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7917FFD9C5FB1F08EF5991DC0178C532B859018
 ```
 
 https://mybot314.ru/tekegram_catalog/

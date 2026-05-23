@@ -1,29 +1,3 @@
-###  Публикация: 1099449   (904374) от 01.02.2017
-
-The Talos Principle (2014) [Ru/Multi] (1.0.284152) Repack Seraph1 [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything). Словно пробудившись от глубокого сна, вы оказываетесь в странном, диковинном мире, полном древних руин и сложных машин.Тип издания: RepackРазработчик: CroteamЖанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2F126C2966D23F5697A059D91D5793DDAC6FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099555   (904341) от 01.02.2017
 
 Rise of the Triad (2013) [En] (1.0) License HI2U [DOOM Edition]
@@ -32,7 +6,7 @@ Rise of the Triad (2013) [En] (1.0) License HI2U [DOOM Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904341.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ CAYNE (2017) [Ru/Multi] (1.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904230.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mysteries of Horus / Загадки Египта (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903973.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Taken Souls. Blood Ritual / Украденные души. Кровавый ри
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903921.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ One Upon Light (2016) [Ru/Multi] (1.0) License TiNYiSO
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903708.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (7256917) License DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903426.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Cthulhu Saves Christmas (2019) [En] (2.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903041.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mage's Initiation: Reign of the Elements (2019) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903036.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Grim Fandango Remastered (2015) [Multi] (1.4.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903029.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ One Finger Death Punch 2 (2019) [En] (2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903028.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.216/dlc) SteamRip =nemos= [Complete Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902893.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Death to Spies: Moment of Truth / Смерть шпионам: Момент ис
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902576.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Sorceress (2017) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902572.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Mainlining (2017) [En] (1.0.06.9536) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902568.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Astro Lords: Oort Cloud / Астролорды: Облако Оорта (2014) [
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902552.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Mysteries of Neverville. Runestone of Light / Тайны Невервилля. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902283.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902144.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ In Between (2016) [En/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902066.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Last Light (2021) [Multi] (7245562) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901945.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Soul Axiom (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901876.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Dungeons 2 (2015) [Ru] (1.5.2.4-ae89b35a3232/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901852.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ UnderDread (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901850.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ The Binding of Isaac: Afterbirth (2015) [En] (1.05) Repack R.G. ILITA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901836.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Welcome to PINEHILLS (2021) [Ru/En] (Jule20) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901821.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Kane and Lynch: Dead Men / Kane & Lynch: Смертники (2007) [Ru/En] (1.0)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901796.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Kane and Lynch: Dead Men / Kane & Lynch: Смертники (2007) [Ru/En] (1.0)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F28DE612909B64D2609A153EC58C7CAB3850F80F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369717   (901478) от 24.03.2020
+
+Whispered Legends: Tales of Middleport / Шепот легенд: Истории Миддлпорта (2014) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тьма накрыла сонный приморский городок Миддлпорт, и с его улиц стали пропадать горожане. Загадочные исчезновения людей сопровождаются слухами о призрачных монстрах, мистических явлениях и каком-то проклятье. Ситуация стала настолько критичной, что Вас, в качестве Инспектора по особым делам, отправляют расследовать это странное дело. Раскроете ли Вы тайну Миддлпортского (   Читать дальше...   )Тип издания: UnofficialРазработчик: Gogii GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07732B2799A2ED5AF0D1EE0FD0CDC0185631153D
 ```
 
 https://mybot314.ru/tekegram_catalog/

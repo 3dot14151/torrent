@@ -1,29 +1,3 @@
-###  Публикация: 1801080   (15312) от 08.06.2025
-
-Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [Supporter Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Tainted Grail: The Fall of Avalon» - это серьезная ролевая игра от первого лица в открытом мире, созданном в стиле мрачного фэнтези по мотивам легенд о короле Артуре. Вас ждет сложноустроенная, разветвленная сюжетная линия, в которой ваши решения будут определять наследие короля Артура и результат напряженной 600-летней борьбы для всего мира.Тип издания: RepackРазработчик: QuestlineЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61958DD977126516A081180A5DF20D6F2EEA7FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758809   (15308) от 08.06.2025
 
 Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
@@ -32,7 +6,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15308.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Nova Drift (2019) [Ru/Multi] (1.2.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15306.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Galacticare (2024) [Ru/Multi] (1.2.3.1plus6d76582b76/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15303.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Arctico (2022) [En] (2.6w) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15302.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Felvidek (2024) [Ru/Multi] (1.04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15299.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Between Horizons / Between Horizons – A Sci-Fi Detective Adventure (2024) [Mul
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15293.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Rune Factory: Guardians of Azuma (2025) [Multi] (1.0.3/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15292.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dark Souls III (3) (2016) [Ru/Multi] (1.15.2/dlc) Repack seleZen [Game of the Ye
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15291.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15287.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ DELTARUNE (2025) [Multi] (1.01A) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15281.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Lethal Company (2023) [Ru/En] (72) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15280.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15277.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ ICBM: Escalation (2024) [Ru/Multi] (1.0.9/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15276.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Synchro (2025) [Ru/En] (0.1.6 Beta) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15271.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.36) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15256.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ QBoard (2025) [En] (0.9.9.3) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15242.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15232.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15223.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15221.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack FitGirl [Overture Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15216.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Death Roads: Tournament (2023) [Multi] (1.0.7.123) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15212.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hellish Quart (2021) [Multi] (0.4391) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15210.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Morbid Metal (2025) [En] (10619) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15203.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15199.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Tormented Souls (2021) [Ru/Multi] (0.94.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15198.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Tormented Souls - это игра, которая вновь погрузит в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A53C6FBF23E016A066A08FA9F1DB2C300439C802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801298   (15168) от 09.06.2025
+
+Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перекресток Грез был спокойным и тихим местом, в котором правили простые радости жизни. Некоторым его обитателям даже казалось, что Перекресток Грез был слишком уж тихим. Но однажды красный лум по имени Андрэ превратился в маленький пушистый комочек злости.Тип издания: RepackРазработчик: UbisoftЖанр: Экшен, Приключeния, ПлатформерЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97E42741B95389887FA586B9D4962C6F1D9086B
 ```
 
 https://mybot314.ru/tekegram_catalog/

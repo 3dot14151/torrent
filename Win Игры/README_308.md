@@ -1,29 +1,3 @@
-###  Публикация: 1836149   (252477) от 09.11.2025
-
-Cat Town (2022) [Multi] (1.0) Scene DARKSiDERS
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Приключения в Cat Town переносят геймеров на небольшое ранчо, куда приезжает главная героиня. Девушка сталкивается с несколькими бездомными котами и приручает их, постепенно облагораживая окружающую местность. Игра выполнена в виде песочницы, где пользователи будут заниматься разведением кошачьего потомства и улучшать собственный участок. Придется зарабатывать бонусные (   Читать дальше...   )Тип издания: SceneРазработчик: 수석 재단사Жанр: Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAD89597E5B2BBB568BC9DF8E2F619E3A5E4C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836147   (252476) от 18.11.2025
 
 Bridge Constructor Stunts (2016) [Ru/Multi] (1.1-fix) License GOG
@@ -32,7 +6,7 @@ Bridge Constructor Stunts (2016) [Ru/Multi] (1.1-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252476.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Atelier Resleriana: The Red Alchemist & (and) the White Guardian (2025) [Multi] 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252471.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252470.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252469.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Pioneer [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252468.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252467.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252454.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Once Twice Thrice (2002) [En] (1.0) Scene Delight
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252452.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Restaurats (2025) [Ru/Multi] (20727795) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252410.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252292.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ SPARTA 2035 (2025) [Ru] (1.1.0(29)/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252290.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252288.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Wreckfest (2018) [Ru/Multi] (Build 16986367/dlc) Repack Other s [Complete Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252287.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252286.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dread Templar (2023) [Ru/Multi] (1.0.2b_fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252285.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Mortal Sin (2023) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252274.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sunless Sea (2015) [En] (2.2.11.3212/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252252.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Resident Evil 4 (2023) [Ru/Multi] (11025382/dlc) Repack DjDI [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252240.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.0/dlc) Repack Decepticon [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252204.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Thea 2: The Shattering (2019) [Ru/En] (2.0508.0677) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252130.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Greedventory (2023) [Multi] (1.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252123.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (2.209.0.0/dlc) Repack Dj
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252083.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252023.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252005.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064/dlc) Repack DjDI [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252004.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Lord of the Rings: Gollum - это официальная адаптация
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64187B21493691E857CD54F8C10E749D28B8A6EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539781   (251852) от 01.06.2023
+
+TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуй земли, полные легенд, древних сил и яростных монстров. В изометрическом экшене TUNIC тебе предстоит большое путешествие в роли маленького лисёнка. Ты просыпаешься среди руин, и все, что у тебя есть, - это любопытство. Сражайся с чудовищами, собирай волшебные предметы и раскрывай древние тайны.Тип издания: LicenseРазработчик: ISOMETRICORP Games Ltd.Жанр: Action, Adventure, ExplorationЯзык субтитров: Русский, Английский, Датский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Датский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF20BFD277730BAC8B881FB8E286154DC626ACD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

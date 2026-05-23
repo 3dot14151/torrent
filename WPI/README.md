@@ -7,7 +7,7 @@ MInstAll v.24.04.2026 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066720.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MInstAll SPECIAL v.24.04.2026 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066712.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MInstAll SPECIAL v.24.04.2026 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066711.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MInstAll v.24.04.2026 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066658.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MInstAll v.19.02.2026 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057784.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MInstAll v.19.02.2026 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057717.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MInstAll SPECIAL v.19.02.2026 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057600.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MInstAll v.27.11.2025 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046577.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MInstAll v.27.11.2025 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046465.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ MInstAll v.19.01.2020 By Denysenko Stas [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989581.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WPI 2016.3 by Software2013 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858608.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Chip BS Post Installer DVD v.2014 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634162.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Collection of programs Video Downloader 19.04.14 [4in1] RePack (& Portable) by Z
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614719.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ YelloSOFT WPI The version 4 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582551.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ WPI BADDGET 16.18 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563468.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ MInstAll By StartSoft Cowboy Style 05-2020 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350502.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows Post-Install Wizard (WPI) by StartSoft Cowboy Style Retro 04-2020 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348230.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Windows Post-Install Wizard by StartSoft Cowboy Style Full 06-2020 [Ru/En]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333240.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Windows Post-Install Wizard by StartSoft Cowboy Style Lite 07-2020 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331909.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Portable vs MInstAll v.19.11.15 by Stranger47 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324433.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ MInstAll by StartSoft Lite 09-2020 [Ru/En]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228296.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ WPI x86-x64 by OVGorskiy® 10.2023 mini [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167423.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Software Collection 2020.12 [Multi/Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166345.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MInstAll Enter-Soft Free v14.0 09.12.2021 [Multi/Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163085.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 21.04.2024) [Ru] (а
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58315.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ MInstAll v.21.09.2025 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1547.jpg" />
 </div>
 
 

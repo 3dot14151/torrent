@@ -1,29 +1,3 @@
-###  Публикация: 1815149   (3398) от 11.09.2025
-
-The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сэр Лайонстоун, самый могучий из рыцарей и защитник великого города Клессия, не вернулся со своего последнего задания. Вам, как верному подмастерью пропавшего рыцаря, предстоит вооружиться оставленным им щитом, взять на себя обязанности героя и отыскать Лайонстоуна, пока королевство не пало под натиском опасностей. Откройте многочисленные регионы и тайны Клессии, (   Читать дальше...   )Тип издания: RepackРазработчик: TwirlboundЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4103490720009B42E5DE978797C3EDE49F1056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813003   (3390) от 11.09.2025
 
 The House of the Dead 2: Remake (2025) [Multi] (20250903) License GOG
@@ -32,7 +6,7 @@ The House of the Dead 2: Remake (2025) [Multi] (20250903) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3390.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ION Shift (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3284.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3282.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3274.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Revenge of the Savage Planet (2025) [Ru/Multi] (2025-9-9-106947 Net5/dlc) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3273.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.13.07) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3270.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3265.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Shrink Rooms (2025) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3260.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.1.8/dlc) Repack Let'sРlay [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3259.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Adventure of Samsara (2025) [Multi] (1.0.10) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3252.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19705579/dlc) Repack FitGirl [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3240.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3222.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ravenous Devils (2022) [Ru/Multi] (Build 9180250) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3203.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ FACEMINER (2025) [Ru/Multi] (1.41) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3194.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.3.0) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3173.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Myth Finders (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3128.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Brigand: Oaxaca (2017) [En] (17.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3105.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3100.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.3 HF1/dlc) Repack Let's
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3099.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3092.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3090.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3082.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) Repack Let'sРlay [Complete edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3068.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.05/dlc) Repack Let'sРlay [30th Anni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3067.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13.2 4801/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3056.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Empyrion - Galactic Survival – это приключение с выживан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ADC7EEDC41D659A148BE634FF394B069D052C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797906   (3050) от 13.09.2025
+
+Monster Prom 4: Monster Con (2025) [En] (1.42.a/dlc) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monster Prom 4: Monster Con это многопользовательский симулятор свиданий. Игроки попадают в обстоятельства, наполненные юмором и неожиданными поворотами, пытаясь успеть найти пару среди шести возможных партнеров-монстров до истечения времени. Основной процесс содержит принятие решений во время взаимодействий в течение определенного времени для достижения романтических (   Читать дальше...   )Тип издания: LicenseРазработчик: Beautiful GlitchЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9AAB142569D4925AA1F50CA89E3BDAAE80E9AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

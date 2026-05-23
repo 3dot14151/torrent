@@ -1,85 +1,3 @@
-###  Публикация: 1826392   (162061) от 19.10.2025
-
-Михаил Булгаков | Морфий (2025) [MP3, Кирилл Радциг]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Михаил Булгаков – главный русский мистик ХХ века. Медик по образованию и тонкий сатирик по призванию, он сам видел и мастерски описал слом эпох, Революцию, Гражданскую войну, сложности профессии и бездну зависимости.
-Для цикла рассказов «Записки юного врача» он взял за основу свой собственный опыт работы земским врачом и сочинил целую плеяду колоритных персонажей (   Читать дальше...   )Жанр: Классика, русскаяИздательство: INSPIRIA (Эксмо)Продолжительность: 12:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80607965F406B17E08E153B08260178D161F135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598805   (162059) от 20.12.2022
-
-Татьяна Солодкова | Призраки Марта (2021) [MP3, Григорий Андрианов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Времена мирного сосуществования черных и белых магов в королевстве Реонерия давно прошли. После попытки государственного переворота черные маги лишены множества прав, вынуждены носить ограничивающие силы артефакты и воспринимаются людьми не иначе как злодеи и убийцы.
-Мартин, молодой черный маг, работает на благо короны, сотрудничает с белыми и служит под их началом. (   Читать дальше...   )Жанр: Героическое фэнтези, книги про волшебниковПродолжительность: 18:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:359BF3975CAAD00C9160EEEF385F7AA39D72943A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826059   (162058) от 19.10.2025
-
-Андрей Мельник (Ascold Flow) | Что мне стоит дом построить (Книга 2). Элемент власти. Том II (2025) [MP3, Александр Потеряев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-2 книга из 2 в серии «Что мне стоит дом построить?»
-
-Новый мир оказался тем ещё местом. Полный тайн и загадок, специфического отношения местных к таким вторженцам как я и... Возможностей. Я ощущаю, как этот мир жаждет моих действий. Опыт уничтоженного мира станет защитой для этого и убережёт его жителей от печальной участи. Даже если все местные элиты будут против (   Читать дальше...   )Жанр: фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 09:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73A14BC3A4248EE45C555CC198A303FE4529254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826053   (162056) от 19.10.2025
 
 Андрей Мельник (Ascold Flow) | Что мне стоит дом построить (Книга 1). Элемент власти. Том I (2025) [MP3, Александр Потеряев]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162056.jpg" />
 </div>
 
 
@@ -116,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162053.jpg" />
 </div>
 
 
@@ -142,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162046.jpg" />
 </div>
 
 
@@ -168,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162039.jpg" />
 </div>
 
 
@@ -195,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162018.jpg" />
 </div>
 
 
@@ -222,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162013.jpg" />
 </div>
 
 
@@ -249,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162003.jpg" />
 </div>
 
 
@@ -276,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161996.jpg" />
 </div>
 
 
@@ -302,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161984.jpg" />
 </div>
 
 
@@ -328,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161968.jpg" />
 </div>
 
 
@@ -354,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161941.jpg" />
 </div>
 
 
@@ -382,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161903.jpg" />
 </div>
 
 
@@ -408,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161879.jpg" />
 </div>
 
 
@@ -436,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161832.jpg" />
 </div>
 
 
@@ -462,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161816.jpg" />
 </div>
 
 
@@ -488,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161726.jpg" />
 </div>
 
 
@@ -516,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161724.jpg" />
 </div>
 
 
@@ -544,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161687.jpg" />
 </div>
 
 
@@ -572,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161683.jpg" />
 </div>
 
 
@@ -601,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161667.jpg" />
 </div>
 
 
@@ -627,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161654.jpg" />
 </div>
 
 
@@ -655,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161625.jpg" />
 </div>
 
 
@@ -681,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161624.jpg" />
 </div>
 
 
@@ -692,6 +610,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55A5FA2814E00340FA7677534349722023608A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517874   (161606) от 17.12.2021
+
+Катриона Уорд | Последний дом  на Никчемной улице (2021) [MP3, Владимир Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161606.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мужчина примерно двадцати семи лет, в браке не состоит.
+Безработный или же занят ручным трудом.
+В общественном плане маргинал.
+Скорее всего, ранее привлекался за насильственные преступления.(   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 12:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1D7CA8E9D924D459BC314AAE596A2D5D657ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517966   (161557) от 17.12.2021
+
+Михаил Ламм | Запасной ключ (2021) [MP3, Александр Овчинников]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я всегда пел, когда готовил. Только Ленка могла спокойно и даже весело переносить эти жуткие звуки. Она говорила, что надо иметь особый талант, чтобы петь так плохо. А любой талант нужно ценить.Жанр: ФантастикаПродолжительность: 00:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94DDACAF2A97488BED9345FFEC6F4EC2E641B7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517962   (161510) от 17.12.2021
+
+Василий Сахаров | «Империя Оствер» Книга 7. Восточный фронт (2020) [MP3, Сергей Горбунов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Империя под ударом. Враги со всех сторон, а силы на исходе. Республиканцы на востоке. Ассиры на юге. Теократ Шаир-Каш на востоке. Пираты грабят побережье и сжигают города. А тут ещё великий герцог Ратина при поддержке эльфов поднимает мятеж, и, если его не подавить сейчас, государство остверов развалится.
+Император бросает все силы на борьбу с изменниками, а его (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 13:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BB1F835449FE430D89DA322F2A1A7490406E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

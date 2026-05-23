@@ -6,7 +6,7 @@ UltraDefrag Enterprise Edition 8.0.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470786.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PassMark BurnInTest Pro 9.0 Build 1011 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461031.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PassMark BatteryMon 2.1 build 1010 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458957.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ HDDLife Pro 4.1.203 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446332.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ HDDScan 4.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408303.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ HD Tune Pro 5.75 RePack (& Portable) by elchupacabra [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386437.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Paragon Partition Manager 15 Professional 10.1.25.779 + Boot Medias [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372693.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AweClone 2.6 (акция SharewareOnSale) [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344090.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MiniTool Partition Wizard Enterprise 9.1 RePack by WYLEK [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320889.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ NZXT CAM 4.0.11 Beta [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320142.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Macrorit Partition Extender Pro 2.0.2 + Portable [En] (акция Comss)
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314110.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Paragon Backup & Recovery 15 Home 10.1.25.813 BootCD [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293098.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288974.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Intel® Processor Identification Utility 5.60 [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280155.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Abelssoft SSD Fresh 2018.7.2 Build 89 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264043.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ OCCT 15.0.8 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261725.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ MSI Afterburner 4.6.6 Build 16757 Final [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258068.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ SIV (System Information Viewer) 5.84 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257539.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ O&O Defrag Professional 30.5 Build 1211 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256673.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Paragon Drive Copy 11 Pro 10.0.16.12846 Portable [Русский]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256220.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ O&O Defrag Professional + Server 30.5 Build 1211 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255634.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ MSI Afterburner 4.6.5 Build 16370 Final [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254724.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ O&O Defrag Professional + Server 30.5 Build 1205 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254185.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ HWiNFO 8.34 Build 5870 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253064.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ O&O Defrag Professional + Server 30.5 Build 1201 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250891.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ O&O Defrag Professional & Server 30.5 Build 1201 [En/De]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250534.jpg" />
 </div>
 
 

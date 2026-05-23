@@ -1,55 +1,3 @@
-###  Публикация: 596397   (131387) от 30.12.2012
-
-Тай-цзи: Герой / Tai Chi Hero (2012) [H.264] BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Необыкновенно одарённого ребёнка Яна Лучаня все считают местным дурачком, тем не менее, мать Яна предлагает ему изучить боевые искусства. Подчинившись её желанию, Ян отправляется в отдалённую деревню Чэнь обучаться тайцзы. В этой легендарной деревне все практикуют тайцзы, и используют его в повседневной жизни. Однако жителям деревни запрещено раскрывать аспекты тайцзы чужакам, и Ян узнал об этом на собственном опыте.Жанр: Боевик, ПриключенияРежиссер: Стивен ФангАктеры: Стивен Фанг, Юань Сяочао, Тони Люн Ка Фай, Эдди Пэн, Шу Ци, Дэниэл Ву, Стэнли Фунг, Пьер Бурдо, Пол Филип Кларк, Кеони Эверингтон, Анджела БейбиПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA21C44C6CF3B44201DCBC858AAA92C2002E1B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682476   (131381) от 07.12.2023
-
-Два лика января / The Two Faces of January (2014) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе Патриции Хайсмит 1964 года "Два лица января"... 1962 год. Американцы Честер и Колетта Макфарланды, авантюрная пара в бегах, на лодке через Коринфский канал прибывают в Афины. Осматривая Афинский Акрополь, они знакомятся с греко-говорящим американцем Райделом Кинером, гидом, наживающимся на обмане доверчивых туристов, и предлагают (   Читать дальше...   )Производство: Великобритания, США, Франция, Inc Productions LimitedЖанр: мелодрама, триллерРежиссер: Хуссейн АминиАктеры: Кирстен Данст, Вигго Мортенсен, Оскар Айзек, Дэйзи Беван, Дэвид Уоршофски, Промитеас Алиферопулос, Йигит Озшенер, Сократ Алафоуцос, Никос Мавракис, Озан ТасПеревод: любительский многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские ( на неанглийскую речь и полные 2 варианта), английскиеПродолжительность: 01:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904637DACB3144548401496D6258888413126E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682454   (131357) от 07.12.2023
 
 Новая рождественская сказка / Scrooged (1988) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131357.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131347.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131341.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131332.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131327.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131320.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131310.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131307.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131299.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131298.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131297.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131289.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131285.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131283.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131279.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131278.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131277.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131269.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131261.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131255.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131249.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131247.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131245.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131216.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595082   (131202) от 30.12.2012
+
+Королевский роман / En kongelig affaere / A Royal Affair (2012) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие картины происходит в начале 1770-х годов в Дании. Датский король Кристиан VII, страдающий серьезным психическим заболеванием, предпочитает проводить время в притонах Копенгагена, вызывая тем самым ненависть юной королевы Каролины Матильды.
+Вскоре в свите короля появляется молодой германский доктор Иоганн Фридрих Струэнзе, сумевший благотворно повлиять на (   Читать дальше...   )Производство: Дания, Чехия, Швеция, DR TV, Film i Väst, Sirena Film, Sveriges Television (SVT), Trollhättan Film AB, Zentropa EntertainmentsЖанр: Драма, Мелодрама, ИсторическийРежиссер: Николай АрсельАктеры: Алисия Викандер, Мэдс Миккелсен, Миккель Бо Фольсгаард, Трине Дирхольм, Дэвид Денсик, Томас В. Габриэльссон, Сайрон Бьёрн Мелвилл, Бент Мейдинг, Харриет Уолтер, Лаура Бро, Сорен Мэллинг, Джейкоб Ульрик Ломанн, Сёрен Спаннинг, Джон Мартинус, Клаус Танге, Карин РёрбекПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскиеПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682663   (131030) от 08.12.2023
+
+Новый парень моей жены / Un novio para mi mujer (2022) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диего устал от своей жены и дико хочет развестись. По его мнению, Люсия уже не так привлекательна, да и вообще стала редкой душнилой. Решив обратиться к профессиональному соблазнителю Флоресу, Диего надеется, что интрижка жены подтолкнет ее к разрыву отношений. Однако под влиянием Флореса Люсия изменяется, становится романтичной, душевной, словом, той самой Люсией, (   Читать дальше...   )Производство: Испания / Arcadia Motion Pictures, Athos Pictures, Institut Català de les Empreses Culturals (ICEC)Жанр: мелодрама, комедияРежиссер: Лаура МаньяАктеры: Диего Мартин, Белен Куэста, Уго Сильва, Хоакин Рейес, Андре Кастро, Рохер Берруэсо, Роза Аморос, Лаура Мингуэлл, Хулия Бонжох, Клаудия РодригесПеревод: Дублированный (Leff Sound)Язык озвучки: русскийСубтитры: русские (forced - hardsub)Продолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C755197A7BC407D4F0064EB8AF2F25D90E5348
 ```
 
 https://mybot314.ru/tekegram_catalog/

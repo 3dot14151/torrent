@@ -1,55 +1,3 @@
-###  Публикация: 1038916   (597002) от 31.07.2016
-
-Рок-н-рольщик / RocknRolla (2008) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм окунет вас в опасный мир коррупции и жизни криминальных отбросов современного Лондона, где недвижимость потеснила такого внушительного лидера торгового рынка, как наркотики, а самыми активными предпринимателями стали преступные группировки. Но каждому, кто захочет проворачивать там свои дела, будь то мелкая сошка Раз-два или русский теневой миллиардер Юрий (   Читать дальше...   )Производство: США, Великобритания / Warner Bros., Dark Castle Entertainment, Toff Guy FilmsЖанр: Комедия, Криминал, БоевикРежиссер: Гай Ричи / Guy RitchieАктеры: Джерард Батлер, Том Уилкинсон, Том Харди, Марк Стронг, Тэнди Ньютон, Идрис Эльба, Карел Роден, Тоби Кеббелл, Джереми Пивен, Лудакрис, Джими Мистри, Мэтт Кинг, Джофф Белл, Драган Мичанович, Майкл Райан, Нонсо Анози, Джемма Артертон, Дэвид Барк-Джоунс, Дэвид Леон, Бронсон Уэбб, Келли Джордж, Роланд Манукян, Джейми Кэмпбелл Бауэр, Алекс Ковас, Марио Вощицкий, Мики Де (   Читать дальше...   )Перевод: Дублированный, 3x Одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F64E339B6EECBBA21CC43B63C8E134E6DFEC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039378   (596999) от 31.07.2016
-
-Голограмма для короля / A Hologram for the King (2016) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алан Клей - муж, отец, бизнесмен. Но его бизнес терпит крах, его брак трещит по швам, и он не знает, где взять деньги на оплату обучения дочери. Чтобы избежать банкротства и разорвать замкнутый круг, Клей отправляется в Саудовскую Аравию, где он надеется продвинуть свой дерзкий технологический проект. Во время томительного ожидания встречи с королем Алан познает (   Читать дальше...   )Производство: Великобритания, Франция, Германия, США, МексикаЖанр: Комедия, ДрамаРежиссер: Том ТыкверАктеры: Том Хэнкс, Александр Блэк, Сарита Чоудри, Сидсе Бабетт Кнудсен, Трэйси Фэирэуэй, Джейн Перри, Том Скеррит, Михаэль Бараль, Льюис Райнер, Александр МолкентинПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3381DECE5B83F6FEADAE4656FA8F333A706C47A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038338   (596987) от 31.07.2016
 
 Секрета нет / Bimileun eobda (2016) WEB-DL [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596987.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596951.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596892.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596877.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596862.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596859.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596845.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596818.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596794.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596767.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596761.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596760.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596752.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596719.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) DVD5 [BD -> 
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596671.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596565.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596531.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596460.jpg" />
 </div>
 
 
@@ -539,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596433.jpg" />
 </div>
 
 
@@ -565,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596330.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596319.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596311.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596262.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596261.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56E80AD8A99C16A26C08D50002212548D41F7CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232748   (596241) от 26.06.2018
+
+Операция «Шаровая молния» / Entebbe / 7 Days in Entebbe (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596241.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1976 году самолет, следовавший из Тель-Авива в Париж, был захвачен террористами и совершил вынужденную посадку в аэропорту Энтеббе в Уганде с целью обмена заложников на осужденных преступников. Дипломатического решения вопроса за 7 дней найти не удалось. Тогда был разработан весьма изобретательный и крайне смелый план спасения...Производство: Великобритания, США / Participant Media, Pellikola, Working Title FilmsЖанр: триллер, драма, криминал, историяРежиссер: Жозе ПадильяАктеры: Розамунд Пайк, Эдди Марсан, Даниэль Брюль, Нонсо Анози, Бен Шнетцер, Камиль Лемешевский, Хуан Пабло Раба, Марк Иванир, Дени Меноше, Бронтис Ходоровски, Винсент Риотта, Анхель БунаниПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8908E72F5ECC5142470C689F738AAF7D666D5BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150140   (596220) от 13.07.2017
+
+Уна / Una (2016) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596220.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 лет назад юная Уна сбежала из дома со взрослым Рэем… Спустя годы в одном из журналов Уне попадается фотография бывшего: у него новая жизнь, новая семья и новое имя. Их внезапная встреча обнажит не только погребенные навсегда воспоминания, но и вытащит на поверхность потаенные желания, которые грозят разрушить их жизни до основания.Производство: Великобритания, США, КанадаЖанр: Драма, ТриллерРежиссер: Бенедикт ЭндрюсАктеры: Руни Мара, Риз Ахмед, Бен Мендельсон, Тобайас Мензис, Тара Фитцджеральд, Наташа Литтл, Поппи Корби-Туч, Изобель Моллой, Киаран МакМенамин, Ричард КаннингэмПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF13CDE44E6AA368740F1D902653C1DC9705D1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

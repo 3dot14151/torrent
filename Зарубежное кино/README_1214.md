@@ -1,55 +1,3 @@
-###  Публикация: 944863   (437709) от 08.10.2015
-
-Три Мушкетёра / The Three Musketeers (1993) HDTVRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самая известная экранизация знаменитого романа Александра Дюма, любимого миллионами читателей. Захватывающие погони, виртуозные трюки, схватки на шпагах, красочные костюмы и зажигательный юмор отличают эту версию бессмертной истории о д'Артаньяне и трех мушкетерах. В фильме звучит знаменитая песня "All for Love" в исполнении Брайана Адамса, Рода Стюарта (   Читать дальше...   )Производство: СШАЖанр: Приключения, Боевик, КомедияРежиссер: Стивен Херек / Stephen HerekАктеры: Чарли Шин, Кифер Сазерленд, Крис О'Доннелл, Оливер Платт, Тим Карри, Ребекка Де Морнэй, Габриэлла АнварПеревод: Многоголосый закадровыйПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE78878CAE3CC8A377DDED8023B0CF6D63F6E77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944844   (437572) от 08.10.2015
-
-Руины / The Ruins (2008) BDRip [H.264/720p] [Director's Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Они отправились в увеселительную поездку… но очередная остановка оказалась смертельным тупиком. Группа друзей приехала осмотреть нетронутую временем пирамиду индейцев майя и угодила в ловушку, где притаилось древнее зло, затянувшее героев в пучину ужаса и отчаяния.Производство: США, Германия, Австралия | BenderSpink, DreamWorks SKGЖанр: Ужасы, триллерРежиссер: Картер СмитАктеры: Джонатан Такер, Джена Мэлоун, Лаура Рэмси, Шон Эшмор, Джо Андерсон, Серхио Кальдерон, Джесси Рамирез, Балдер Морено, Димитрий Бавеас, Патрицио Альмейда РодригесПеревод: Дублированный, профессиональный двухголосыйЯзык озвучки: АнглийскийСубтитры: Русские, английские (вшитые отключаемые)Продолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B482C4A77C99FDC4B1CAB7BBCEA625474229CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944882   (437553) от 08.10.2015
 
 Молодежная лихорадка / Young People Fucking (2007) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437553.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_437548.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437541.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437522.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437516.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437511.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437508.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437494.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437493.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437492.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437491.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437489.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437482.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437436.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437356.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437355.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437351.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437342.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437251.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437248.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437240.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437211.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437206.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437180.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A565DCD23D0457D0D6C2A2BCCD9B207C24B8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323248   (437179) от 03.09.2019
+
+Секретный агент / Unlocked (2017) BDRip [H.265/1080p-LQ] [10-bit] [RUS Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она — секретный агент мирового уровня. На этот раз ее задача — предотвратить биологическую атаку на Лондон. Вовлеченная в большую шпионскую игру, она неизбежно сталкивается с миром двойных стандартов, паранойи, безнаказанности и предательства. Вокруг так много друзей, но кому из них на самом деле можно доверять? И кто из них тот неуловимый «крот», которого она должна (   Читать дальше...   )Производство: Чехия, Швейцария, Великобритания, США / Bloom, Czech Anglo Productions, Di Bonaventura PicturesЖанр: боевик, триллер, драма, детективРежиссер: Майкл АптедАктеры: Нуми Рапас, Орландо Блум, Тони Коллетт, Джон Малкович, Майкл Дуглас, Мэттью Марш, Макрам Хури, Брайан Каспе, Филип Броди, Тосин КоулПеревод: Дублированный (Лицензия)Субтитры: РусскиеПродолжительность: 01:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCD09FAAC99FA14D9641EEE7DB466FB72B83BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323384   (437164) от 03.09.2019
+
+Отпетые мошенницы / The Hustle (2019) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как стать успешной мошенницей? Всегда будь во всеоружии: высокие каблуки, яркая помада и главное — утягивающее белье. Будь готова расплакаться в любой момент. Ни один мужчина не устоит перед женскими слезами. Бери все, что «плохо лежит» и хорошо блестит. За каждым миллионом может скрываться миллиард. Не откажи себе в удовольствии проверить.Производство: США / Metro-Goldwyn-Mayer (MGM), Camp Sugar, Cave 76Жанр: Комедия, криминалРежиссер: Крис ЭддисонАктеры: Энн Хэтэуэй, Ребел Уилсон, Алекс Шарп, Ингрид Оливер, Эмма Дейвис, Дин Норрис, Тимоти С. Саймонс, Дуги МакМикин, Эшли МакГуайр, Каспер КристенсенПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full), английские (full)Продолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4BAFED35FA53661E538293A84466D53C296ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Mozilla Firefox 44.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980209.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SUMo Pro 4.2.7.300 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980169.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SynWrite Editor 4.7.700 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980129.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BurnAware Professional 6.0 Final Portable by SamDel [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980127.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ EZ CD Audio Converter 1.0.6 Ultimate Portable by SamDel [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980122.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DVDFab 9.0.2.5 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980119.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Process Lasso Pro 6.0.2.44 RePack/Portable by D!akov [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980070.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AnyDVD & AnyDVD HD 7.1.4.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980069.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Restore Point Creator 3.4 Build 17 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980046.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ LC Technology RescuePRO Deluxe 5.2.5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980039.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BurnAware Professional 6.0 Final RePack (& Portable) by KpoJIuK [MULTi / Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980009.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PcMedik v6.1.11.2010 Multi (русский присутствует)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979986.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Advanced Registry Doctor Professional 9.0.8.10 Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979984.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AVG Internet Security 2016 16.31.7356 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979962.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ PC Tools Internet Security 2010 7.0.0.514 Retail / Multi  [английский 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979921.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ IDimager Pimp My Picture 1.1.5.87 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979907.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Startup Delayer 3.0 Build 328 Standard [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979906.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ BurnAware Professional 6.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979905.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ AutoRuns 13.51 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979897.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Navicat Premium 11.2.4 x86/x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979887.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ WebcamMax 7.7.1.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979823.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ LibreOffice 4.0.0 Stable + Help Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979821.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Hee-BootDisk 3.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979790.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Adobe Premiere Elements 14.1 x86-x64 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979789.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ USB Disk Security 5.3.0.20 Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979752.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Rohos Logon Key 4.5 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979725.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852314.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Fairy Tail Zero | Фейри Тейл Зеро [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851798.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ao no Kanata no Four Rhythm / Aokana / Четыре ритма сквозь си
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850036.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849178.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Hametsu no Mars / Mars of Destruction / Разрушительный Марс [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848538.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Burn up! | Burn up | Спецотряд Burn Up [1991, OVA, 1 эп.] DVDRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848536.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Girl Friend (Kari) / Girl Friend Beta / Подружка Бета [2014, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848510.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Durarara!!x2 Ketsu / Дюрарара!! 2 (сезон третий) [2016, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848411.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Gintama° / Гинтама [ТВ-4] [2015, TV, 51 из 51] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848393.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Seijuki Cyguard | Cybernetics Guardian | Кибернетический стра
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848326.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848177.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Chain Chronicle (2016) / Цепные хроники [2016, Movie, 3 из 3] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848050.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hello World | Здравствуй, мир! [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847945.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Hello World | Здравствуй, мир! [2019, Movie] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847915.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Koukaku Kidoutai: SAC_2045 | Ghost in the Shell: SAC 2045 | Призрак в д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847654.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ GJ-bu | Good Job Club | Клуб добрых дел [2013, TV, 12 ep.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847161.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Uchuu Patrol Luluco / Space Patrol Luluco / Космический патрул�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846645.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846328.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ D_Cide Traumerei the Animation | Дисайд: Грёзы [2021, TV, 13 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845707.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Lily Cat | Lily C.A.T. | К.О.Т. Лили [1987, OVA] LDrip 480p raw + eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845433.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12] BDrip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845209.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Higurashi no Naku Koro ni: Sotsu | Higurashi: When They Cry - Sotsu | Когда
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844031.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Waga Seishun no Arcadia / Arcadia of My Youth (Harlock Movie 2) / Аркадия
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843444.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Love Hina | Любовь и Хина [2000, TV, 25 TV + 3 OVA + 2 SP] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842741.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842497.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Kanojo to Kanojo no neko OAV / Она и ее кот [1999, OVA] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841522.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ History Channel: В изоляции. Один шанс на двоих / Alone 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781788.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ NG: Умные Крысы / Rat Genius  (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_781187.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Animal Planet & BBC: Муравьи - убийцы /  Killer Ants (2002) TVRip
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_781104.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780926.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780520.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ History Channel: Китай. Тайны Запретного города / Secr
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780508.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ BBC: Как найти любовь по интернету / How to Find Love O
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780220.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779943.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ History Channel: Убийца Зодиак: дело закрыто? / The Hunt 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779880.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779623.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_779467.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779249.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ NGW: Самый знаменитый в мире тигр / The world's most fam
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779232.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779224.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ NGW: Пингвинопалуза / Penguin palooza (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778838.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778819.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ NGW: Ужас тигровой акулы / Tiger shark terror (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778669.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778506.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ NGW: Год диких животных: Сибирь / Siberia's wild year (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778485.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/10
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778083.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Nat Geo Wild: Фантастические существа Мадагаскар
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778065.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Discovery. Ледяное золото / Ice Cold Gold (2014) HDTVRip [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777433.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777113.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Discovery: Курс выживания с Беаром Гриллсом / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777088.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777042.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776989.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.0.2062.0 RePack by KpoJIuK [
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5480.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ESET NOD32 Internet Security 18.2.18.0 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1714.jpg" />
 </div>
 
 

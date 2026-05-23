@@ -6,7 +6,7 @@ BookReader 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771610.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mozilla Firefox 47.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771609.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SnippetsLab 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771604.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Blocs 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771599.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Registry Life 3.29 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771594.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771591.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ IObit Uninstaller Pro 8.3.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771583.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Epic Privacy Browser 71.0.3578.98 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771580.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ WinTools.net Premium 18.7.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771579.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771578.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ IObit Driver Booster PRO 6.2.1.263 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771576.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 24.01.2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771572.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Slay the Spire (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771569.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Comodo Firewall 8.2.0.4508 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771560.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ AMA Supercross Championship: Salt Lake City (21.06.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771527.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Yuru Yuri 2 | Лилии на Ветру [TV-2] [2012, TV, 12 ep] BDRip 1080p ra
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771526.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ UltraISO Premium Edition 9.7.3.3618 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771523.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Kerish Doctor 2020 4.80 [DC 19.06.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771517.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ DiskTrix UltimateDefrag 6.0.62.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771511.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Emurasoft EmEditor Professional 19.9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771509.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Auslogics Driver Updater 1.12.0.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771477.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771476.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Astral Travel Agency (aka Dublicator) - Discography 6 Releases (2015-2018) [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771475.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ SimpleMind 1.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771472.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ SoftMaker Office Professional 2018 rev 928.0313 RePack (& portable) by KpoJIuK  
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771469.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Windows 10 Manager 2.2.5 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771467.jpg" />
 </div>
 
 

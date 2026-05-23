@@ -1,55 +1,3 @@
-###  Публикация: 1447161   (123029) от 14.01.2024
-
-Netmonitor: Cell & WiFi  v1.20.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-С помощью нетмонитора вы можете получить представление об уровне сигнала сотовой связи и WiFi и выяснить, в каких уголках вашего офиса или дома прием сигнала лучше всего. Отрегулируйте направление антенны для лучшего приема сигнала и повышения скорости интернета. Нетмонитор отображает расширенную информацию о сотовых сетях 2G / 3G / 4G / 5G (NSA и SA) и помогает (   Читать дальше...   )Тип издания: ModРелиз состоялся: 02.01.2024Разработчик: parizeneПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E57F3922260643F8F584FE82E7F5E7708C5E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674141   (123019) от 14.01.2024
-
-jetAudio HD Music Player Plus v12.1.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-jetAudio это музыкальный проигрыватель с 10/20 полос эквалайзера. В каталоге CNET.COM программа jetAudio для Windows занимает среди мультимедийных проигрывателей лидирующие позиции по рейтингу и загрузкам. И, наконец, настал тот час, когда музыку можно слушать в потрясающем качестве на Android-телефоне благодаря приложению jetAudio. jetAudio проигрывает практически (   Читать дальше...   )Тип издания: Plus / ModРелиз состоялся: 13.01.2024Разработчик: Team JetПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09AE47055FB8223CC52730C2D91F88A14FD9BDD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691914   (122964) от 14.01.2024
 
 Настольные и карточные игры v19.8 Mod by vedserega [Ru/En]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122964.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ PhotoTune - Улучшитель фото v4.4.8 Mod by Raju054 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122954.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122659.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ GPS АнтиРадар v41.1 Mod by viktorovich31 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122635.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Coloring / Раскраска v2.0.94 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122600.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122553.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Sense V2 Flip Clock & Weather 6.51.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122404.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.4 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122171.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121915.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ Listen Audiobook Player v5.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121897.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Gradient v2.10.12 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121892.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.010.1433 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121841.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ VK X 6.8.2 (29200) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121779.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ Pro Pilkki 2 / Зимняя рыбалка v1.9.3 Mod by Bubalex88 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121756.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ Docs To Go Office Suite v4.004 (b1618) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121748.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.13 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121720.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121221.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ vpnify - Безлимитный VPN 2.1.6 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121211.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ MacroDroid v 5.40.4 Pro/Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121200.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ Carista OBD2 v8.2.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121187.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ Plus Messenger (Telegram+) v10.6.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121152.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ PictureThis - Plant Identification v3.76.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121041.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ PhotoTune - Улучшитель фото v4.4.9 Mod by maxi123444 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121019.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ AR Ruler App: Линейка Рулетка v2.7.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121009.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ ARuler - лучшее и бесплатное приложение на Android 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC9FC2A09C627D4BD0EA43F110C18B2B64C10D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694905   (120674) от 27.01.2024
+
+Strava: бег, велоезда, хайкинг v344.9 Mod by ReVanced Team [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите бегать, кататься на велосипеде или просто проводить время на свежем воздухе? Тогда бесплатное приложение Strava — это то, что вам нужно. Попробуйте, вам понравится! Миллионы бегунов, велогонщиков и просто активных людей используют Strava, чтобы записывать данные своих тренировок, следить за прогрессом, общаться с единомышленниками, а также делиться фотографиями, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.01.2024Разработчик: Strava Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33ED3C8C445D1398F17BC948937C42A076458FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695186   (120523) от 28.01.2024
+
+My TTS: Text-to-Speech v1.2.2 Mod by Alex.Strannik [En/Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое, но весьма функциональное приложение для озвучивания текста с помощью Text-to-Speech Engine. Поддерживает распознавание текста с изображений (как с уже существующих, так и с новых, полученных с камеры). Поддерживает распознавание речи. Синтез речи выполняется согласно выбранными вами параметрами. Полученным аудиофайлом можно поделиться.Тип издания: PremiumРелиз состоялся: 07.12.2023Разработчик: MixxAppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B63101B7BFD917C5CDD869063821ECA1CBAE03
 ```
 
 https://mybot314.ru/tekegram_catalog/

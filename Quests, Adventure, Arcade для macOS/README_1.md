@@ -6,7 +6,7 @@ The Coma 2: Vicious Sisters  v1.0.6 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Samorost 3 v1.1 (2016) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853506.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stygian: Reign of the Old Ones v.1.1.7 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851128.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Lara Croft GO The Mirror of Spirits (2016) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831253.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Cognition: An Erica Reed Thriller v2.1.0.9 (2012) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824478.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Broforce upd 03.17 [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824081.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BEAUTIFUL DESOLATION v1037 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822191.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Broken Sword 5: The Serpent's Curse 1-2 v.1.10 (2014) [Multi/Ru] [OS X Native ga
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818522.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ The Lion’s Song v.0.6 (2017) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811761.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Deiland v.1.0 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802238.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ The Inner World - The Last Wind Monk v.20171018 (2017) [Multi/Ru] [OS X Native g
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794748.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Aragami v.01.08 (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794599.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The Eternal Castle [REMASTERED] (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792919.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790963.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ POSTAL: Classic and Uncut v.1.0/dlc (2003) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790349.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790237.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Syberia [En] (License GOG) [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788566.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ CHUCHEL v.1.0.0 (2018) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776305.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ The Raven Remastered v.1.1.0.654 (2018) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774209.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Orphan v.1.0.2 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767621.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Starbound v.1.3.3 (2016) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767157.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ realMyst: Masterpiece Edition (2014) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756696.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The House of Da Vinci 2 v.1.0.5 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756631.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Subnautica: Below Zero (2019) [En/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753114.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Death and Taxes v1.2.13 (2020) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753039.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ The Stillness of the Wind (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751496.jpg" />
 </div>
 
 

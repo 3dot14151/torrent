@@ -1,55 +1,3 @@
-###  Публикация: 1397501   (737477) от 22.07.2020
-
-Чумовая семейка: Зомби на продажу / Gimyohan gajok / The Odd Family: Zombie On Sale (2019) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В корейской глубинке обычная семья живёт на когда-то работавшей заправке, и у каждого её члена свои жизненные приоритеты и отличное от других мнение, как надо вести бизнес, а пожилой глава семейства и вовсе хочет бросить всё и уехать на Гавайи. Однажды в деревню забредает зомби и кусает дедулю. Немного полежав в горячечном поту, дед приходит в себя сильно помолодевшим. (   Читать дальше...   )Производство: Корея Южная / Cinezoo, Megabox Plus MЖанр: комедия, ужасы, фантастикаРежиссер: Ли Мин-джэАктеры: Чон Джэ-ён, Ким Нам-гиль, Ом Джи-вон, Ли Су-гён, Чон Га-рам, Пак Ин-хван, Ким Ги-чхон, Чон Бэ-су, Ку Бон-ун, Щин Джон-гын, О И-щик, Ю Сун-чхоль, Чхве Джон-нюль, Ли Ён-сок, Ли Сон-у, Чан Сэ-а, Чан Джи-гонПеревод: Двуголосый любительский (STEPonee)Субтитры: Английские, китайскиеПродолжительность: 01:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14196E75CD47897C52EBEA7B9A11B160019830A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393217   (737447) от 22.07.2020
-
-Кто Вы, Мистер Брукс? / Mr. Brooks (2007) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Уважаемый бизнесмен и отец семейства, мистер Брукс скрывает тайну. За фасадом заботливого мужа и нежного отца скрывается жестокий убийца. На протяжении долгого времени эти две личности безуспешно борются между собой, и ни одна из них не может одержать верх. В результате убийства продолжаются, и, кажется, ничто не может оборвать эту кровавую цепь преступлений.Производство: США / Metro-Goldwyn-Mayer (MGM), Eden Rock Media, Element FilmsЖанр: триллер, драма, криминалРежиссер: Брюс А. ЭвансАктеры: Кевин Костнер, Деми Мур, Дэйн Кук, Уильям Херт, Марж Хелгенбергер, Рубен Сантьяго-Хадсон, Даниэль Панабэйкер, Аиша Хайндс, Линдсэй Круз, Джейсон ЛьюисПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 02:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C927A708D96875B3B7A4C4675B4932A842312E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397681   (737429) от 22.07.2020
 
 Где-то / Где-то там / Elsewhere (2019) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737429.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737416.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737370.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737362.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737344.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737340.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737291.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737262.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737252.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737245.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737215.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737209.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737046.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737043.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737019.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737017.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737009.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_737000.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736971.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736964.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736953.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736892.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736889.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736863.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C573F4112032A339C98374C1FCB4C868BF618D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523361   (736861) от 28.01.2022
+
+Давай поженимся / Let's Get Merried (2021) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Зои ненавидит Рождество и все, что с ним связано. Ее неприязнь к празднику усиливается, когда она узнает, что ее бывший парень женится на Рождество. Чтобы не отставать, Зои решает тоже выйти замуж. Только у нее пока нет жениха. Эту проблему девушка намерена решить во время отдыха с подругами в тематическом парке приключений.Производство: США / Blue Ice Pictures, MTV Entertainment Studios, Unbelievable EntertainmentЖанр: драма, мелодрама, комедияРежиссер: Вероника РодригесАктеры: Мишель Агуар, Таж Моури, Николь Пауэр, Зоша Рокемор, Кассандра Потенза, Николетт Пирс, Саванна Бэсли, Коннор МакМахон, Крис Сэндифорд, Ivan LopezПеревод: Многоголосый профессиональный (True Dubbing Studio)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659BA016CAA9B9B2D51C7974EC39225212671F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522491   (736858) от 28.01.2022
+
+Счастливчик Пер / Lykke-Per / A Fortunate Man (2018) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в конце XIX-го века в Дании. Питер — амбициозный парень из религиозной семьи, уезжает из ютландской деревни в столицу, чтобы получить образование инженера. В Копенгагене Питер называет себя Пером и задумывает большой инженерный проект — строительство системы каналов в Западной Дании. В городе парень сближается с богатой еврейской семьей и (   Читать дальше...   )Производство: Дания / Nordisk Film Production, Den Vestdanske Filmpulje, FilmFynЖанр: ДрамаРежиссер: Билле АугустАктеры: Эсбен Смед, Катрин Розенталь, Беньямин Киттер, Джули Кристиансен, Томми Кентер, Тамми Эст, Расмус Бьерг, Оле Леммеке, Сара Виктория Бьеррегор Кристенсен, Sophie-Marie JeppesenПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced, full), датские (forced, full), английские, французские, немецкие, испанскиеПродолжительность: 02:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68C0DF48241A0C1677DF037E1DB07FA3A73063B
 ```
 
 https://mybot314.ru/tekegram_catalog/

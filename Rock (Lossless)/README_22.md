@@ -6,7 +6,7 @@ Bryan Ferry - Boys And Girls (1985) SACD, Remastered, 2005 Virgin [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976881.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Eric Clapton - 461 Ocean Boulevard (1974) SACD, Remastered, 2004 Polydor [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976879.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Moody Blues - On The Threshold Of A Dream (1969) SACD, Remastered, 2006 Dera
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976873.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Elton John - Honky Chateau (1972) SACD, Remastered, 2004 Island Records [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976804.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Simple Minds - The Best Of Simple Minds (2001) 2 SACD, Compilation [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976798.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ David Bowie - 6 альбомов (1995-2013) Blu-spec CD2 Collection /2013, Sony
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976508.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chris Rea - The Best of Chris Rea (1994) Compilation, Japanese Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976480.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eric Burdon (ex-The Animals) - 'Til Your River Runs Dry - (2013) [FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976248.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Phil Collins - 4 Albums (1981-1989) Audio Fidelity Remaster Collection /2010-201
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975774.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sniff 'n' the Tears - Underground (2000) Remastered, 2013, Chapel Productions [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974585.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Paul Roberts (ex.Sniff'n'the Tears) - Kettle Drum Blues (1987) [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974579.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Pugwash - Play This Intimately: As If Among Friends (2015) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973359.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Elton John With Ray Cooper - Live From Moscow (2019) 2CD [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973087.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ London Symphony Orchestra - Simply Orchestral Rock (2013) 4CD [FLAC|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972958.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Detlev Schmidtchen (ex.Eloy) - Vanthasia (2013) [FLAC|Lossless|image + .cue]<Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972180.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The Moody Blues - In Search Of The Lost Chord (1968) 2CD, Compilation, Remastere
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972029.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Creedence Clearwater Revival - Chronicle [24-karat Gold Disc] (2CD) (1976, 1986)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971255.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ John Paul Jones - Scream For Help (1985) Unofficial Release, 1998,  Oldis [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970816.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Katrina Barclay - Element (2016) [FLAC|Lossless|tracks] <Indie Pop, Blues Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969827.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Stone Temple Pilots - Perdida (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969647.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ SLADE - 14 Albums Collection (1969 - 2007) / 2006-2007 [WavPack|Lossless]<Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969175.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Pop Villa Pamphili (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk Rock, Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968826.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Giobia - Plasmatic Idol (2020) Giöbia [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968799.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ M-Opus - Origins (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968798.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Eagles - Hotel California (1976) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967526.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Elysian Fields - Queen Of The Meadow (2000) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966280.jpg" />
 </div>
 
 

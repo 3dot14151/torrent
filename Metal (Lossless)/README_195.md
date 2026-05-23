@@ -6,7 +6,7 @@ Excalion - Dream Alive (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272386.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ellipsis - From Beyond Thematics (2004) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272385.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chroming Rose - The Gift (1999) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272382.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Elegy - Manifestation Of Fear (1998) [FLAC|Lossless|image + .cue] <Progressive P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272380.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Coven - Blessed Is The Black (1987) [FLAC|Lossless|image + .cue] <Power Metal, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272377.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Celtic Frost - Into the Pandemonium (1987) Remastered, 2017 [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272375.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nargaroth - Era of Threnody (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272367.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Celtic Frost - Vanity / Nemesis (1990) Remastered, 2017 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272305.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Celtic Frost - To Mega Therion (1985) Remastered, 2017 [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272302.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Celtic Frost - Morbid Tales (1984) Remastered, 2017 [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272301.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Orden Ogan - Gunmen (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272299.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Banshee - Take 'Em By Storm (1993) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272298.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Almanac - Kingslayer (2017) Limited Edition [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272295.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ FireForce - Annihilate the Evil (2017) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272118.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ APG - This Brutal Addiction (2007) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272111.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Green Carnation - 5 Albums, 1 Live, 1 EP (2000-2006) 10 CD [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272059.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Emigrate - A Million Degrees (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272048.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Aziola Cry - Ellipsis (2005) [FLAC|Lossless|image + .cue] <Instrumental Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271356.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Loudness - Re-Masterpieces (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271289.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ King Diamond - 12 Albums (1986 - 2007) Discography, Full-lenght albums [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271068.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Brothers of Metal - Prophecy Of Ragnarok (2017) 2018, Limited Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271038.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Aosoth - V: The Inside Scriptures (2017) [FLAC|Lossless|tracks + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270440.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Circus Maximus - The 1st Chapter (2005) Japan Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270081.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Wisdom - 2 Albums (2006 - 2011) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269619.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Loudness - Golden Best (2009) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269577.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Cavalera Conspiracy - Psychosis (2017) [FLAC|Lossless|tracks + .cue] <Groove Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269561.jpg" />
 </div>
 
 

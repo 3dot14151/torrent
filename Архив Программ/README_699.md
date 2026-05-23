@@ -6,7 +6,7 @@ Flip PDF Professional 2.3.24.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696418.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MEGA Sync Client 2.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696417.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Baidu Cloud 5.4.5 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696283.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LINE 4.7.0.1027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696279.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FastStone Photo Resizer 3.6 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696190.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4833.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696106.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FileMenu Tools 7.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696102.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NVIDIA GeForce Experience 2.11.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696096.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NVIDIA GeForce Desktop 368.51 Hotfix driver (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696037.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ StartIsBack++ 1.3 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696033.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696032.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Red Giant Effects Suite 11.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696026.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ RegCool 1.126 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695943.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4833.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695921.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4833.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695919.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Siemens Solid Edge ST8 108.00.00.091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695910.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ AdminPE 3.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695908.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ K-Lite Codec Pack Update 16.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695885.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Wise Care 365 Pro 6.1.9.606 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695870.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Reg Organizer 8.86 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695864.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Revo Uninstaller Pro 4.5.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695863.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Stereoscopic Player v1.7.1 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695846.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Wise Care 365 Pro 5.5.5.550 (DC 12.08.2020) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695834.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ TweakPower 1.153 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695820.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ AdminPE10 1.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695792.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 13671 (июнь 2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695787.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Macrorit Disk Scanner Pro 4.3.5 + Portable (акция Comss) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781371.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ KiCad 5.1.6_1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781369.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ableton - Live Suite 10.1.15 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781366.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ USB Oblivion 1.12.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781365.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Realtek High Definition Audio Driver 6.0.8967.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781357.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BluffTitler Ultimate 13.7.0.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781281.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ LibreOffice 6.0.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781273.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SeaMonkey 2.49.2 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781251.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Opera 51.0.2830.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781211.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ UltraUXThemePatcher 3.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781203.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ashampoo Burning Studio 10.0.0 beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781181.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Viber 8.2.0.8 Portable by HA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781125.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Photodex ProShow Producer 9.0.3793 Portable by TryRooM [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781121.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4639.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781115.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Freac 1.1.2 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781011.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ LogViewPlus 2.4.34 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781005.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ UltraUXThemePatcher 3.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780969.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Advanced SystemCare Pro 13.5.0.274 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780968.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Open Shell (Classic Shell) 4.4.145 Nightly [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780963.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Open Shell (Classic Shell) 4.4.142 Stable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780961.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ UltraISO Premium Edition 9.7.3.3618 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780947.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ PrivaZer 3.0.41 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780816.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Avant Browser Ultimate 2018 build 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780811.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ qBittorrent 4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780728.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Futuremark 3DMark 2.4.4264 Professional Edition RePack by KpoJIuK[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780703.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Office 2016 Standard 16.0.4639.1000 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780686.jpg" />
 </div>
 
 

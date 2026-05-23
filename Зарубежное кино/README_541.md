@@ -1,55 +1,3 @@
-###  Публикация: 1008541   (815367) от 18.04.2016
-
-Идеальный мужчина / The Perfect Man (2005) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Джиан Гамильтон — молодая мать-одиночка, воспитывающая двух дочерей и пытающаяся быть для них идеальной матерью и подругой. Идиллию портят ее бесконечные попытки наладить свою личную жизнь — расставшись с очередным бойфрендом, Джиан собирает вещи и дочерей и отправляется искать счастье в другом городе. Ее старшая дочь Холли, уже порядком подуставшая от подобной жизни, (   Читать дальше...   )Производство: СШАЖанр: Мелодрама, комедияРежиссер: Марк РосманАктеры: Хилари Дафф, Хезер Локлир, Крис Нот, Майк О`Мэлли, Бен Фельдман, Ванесса Ленджис, Кэролайн Ри, Ким Уитли, Ария Уоллес, Карсон Крессли, Мишель Нолден, Мэгги Касл, Джерри МендичиноПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0601B88CD92B2E8225B4AB48525D71A5F75238A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382739   (815302) от 13.05.2020
-
-Фантазм 4: Забвение / Phantasm IV: Oblivion (1998) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В этой части выясняется, что Высокий человек раньше был хирургом и сконструировал непонятный аппарат для путешествия в параллельный мир, где ему имплантировали в голову сферу с некой мыслящей субстанцией, приказывавающей ездить по городам и делать из людей зомби…Производство: США / Starway International Inc.Жанр: Ужасы, Фантастика, Фэнтези, БоевикРежиссер: Дон КоскареллиАктеры: А. Майкл Болдуин, Рэджи Бэннистер, Билл Торнбери, Хейди Марноут, Боб Айви, Энгус Скримм, Кристофер Л. Стоун, Хлоя Кэй, Сильвия Фламмер, Дэвид ГасстерПеревод: Профессиональный многоголосый, авторскийСубтитры: Русские, АнглийскиеПродолжительность: 01:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F7D13A7AF4019588162F183F2ADC9EA67CBEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197041   (815287) от 07.01.2018
 
 Дорога апокалипсиса / Apocalypse Road (2016) WEB-DLRip [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815287.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815277.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815273.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815269.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815268.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815259.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815247.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815242.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815190.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815156.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815152.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815144.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815141.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815120.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815114.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815091.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815087.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815061.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815058.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815023.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815011.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815006.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814983.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814980.jpg" />
 </div>
 
 
@@ -674,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F3905B5688258E8C3648201777004B78AED8242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376232   (814939) от 13.05.2020
+
+Счастливчик / Lucky (2017) BDRip [H.264/1080p] [GBR Transfer] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814939.jpg" />
+</div>
+
+
+###  Подробнее
+
+История духовных поисков 90-летнего одинокого атеиста Лаки. Старик по прозвищу Счастливчик тихо доживает свой век в маленьком, богом забытом городишке. Изо дня в день он делает одни и те же вещи: завтракает в кафе, смотрит дома викторины на ТВ и сидит вечером в баре. В какой-то момент он понимает, что отведённое ему время в этом мире скоро закончится. Осознание неизбежности (   Читать дальше...   )Производство: США, Superlative Films, Divide/ConquerЖанр: драма, комедия, вестернРежиссер: Джон Кэрролл ЛинчАктеры: Гарри Дин Стэнтон, Дэвид Линч, Рон Ливингстон, Эд Бегли мл., Том Скерритт, Бет Грант, Джеймс Даррен, Бэрри Шебака Хенли, Ивонн Хафф, Хьюго АрмстронгПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52618639269F4883B43668A210C45B3CB2C1810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376808   (814937) от 13.05.2020
+
+Доберман / Dobermann (1997) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герою фильма уже в день крестин один из друзей отца дарит Магнум-357. Мальчик вырос и стал супернаглым и дерзким грабителем по кличке Доберман. 357-й Магнум заменили самые современные виды огнестрельного оружия, включая даже небольшие ракеты, которыми можно стрелять, навинчивая их на ствол пистолета.
+Вместе с ним всегда его глухая подруга, спокойно красящая ногти (   Читать дальше...   )Производство: Франция / Canal+, France 3 CinémaЖанр: боевик, криминалРежиссер: Жан КоуненАктеры: Венсан Кассель, Чеки Карио, Моника Беллуччи, Антуан Баслер, Доминик Беттенфельд, Паскаль Демолон, Марк Дюре, Ромен Дюри, Франсуа Леванталь, Иван Мерат-БарбоффПеревод: Многоголосый профессиональный, одноголосый авторскийСубтитры: русские (полные), английские (полные)Продолжительность: 01:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9B768E1AC864A3FC1809030B541D9383694D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ QLab 5.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162057.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AirFoil+Airfoil Satellite 5.11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162051.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FoneLab Video Converter Ultimate 9.2.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162049.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mac FoneLab for iOS 10.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162027.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FabFilter - Total Bundle 2021.12 VST, VST3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162026.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ YouTube ReVanced Extended 18.40.34 (RVP v2.195.12) Mod by Number one' + Micro G 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162024.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LDPlayer 4.0.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162017.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Reeder 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161998.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AnyMP4 iPhone Unlocker 1.0.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161995.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Affinity Publisher 2 v.2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161988.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ IObit Driver Booster Pro 9.1.0.136 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161981.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ ProPresenter 7 v7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161962.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Negative - Studio Albums (6 releases) (2003 - 2010) hand made [restored, declipp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161957.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ K-Lite Codec Pack Update 15.9.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161949.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Affinity Designer 2 v.2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161948.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Q-Dir 11.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161943.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Clip Studio Paint EX 2.2.2 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161938.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Affinity Photo 2 v.2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161929.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ IObit Driver Booster Pro 9.1.0.140 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161917.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Revo Uninstaller Pro 4.5.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161912.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ IObit Uninstaller Pro 11.2.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161907.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Steinberg Cubase Pro 13.0.10.123 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161900.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Wireshark 3.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161897.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ HiBit Uninstaller 3.0.25 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161895.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Trojan Killer 2.1.57 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161890.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Audio Hijack 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161889.jpg" />
 </div>
 
 

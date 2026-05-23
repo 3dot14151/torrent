@@ -6,7 +6,7 @@ Icecream PDF Converter PRO 1.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351534.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boom Jinx - No Answers In Luck (2015) [FLAC|tracks|WEB-DL]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351533.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ CoolUtils Total Audio Converter 5.2.0.127 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351530.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Doo - Get Things Done 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351524.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Vodafone Gold Coast 60
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351522.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Silk Music Pres. Trance Treasures 08 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351521.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Downie 3.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351517.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351514.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ ProFind 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351490.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Coherence X 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351489.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Loopback 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351487.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ FigrCollage 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351486.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ BlueHarvest 8 v8.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351485.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Cisdem Duplicate Finder 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351484.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ RightFont 5 v5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351480.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ ChipaChip (Артем Попов) - Коллекция [3 Альбома] (2019-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351477.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Adobe After Effects CC 2017.0 14.0.0.207 RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351465.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Trance In My Body Vol.4 (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351451.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Icecream Ebook Reader PRO 2.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351433.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Vox 2.6.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351432.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Dash 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351430.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ SRWare Iron 46.0.2450.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351427.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SRWare Iron 46.0.2450.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351425.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Cyberfox 42.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351422.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351417.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Movist 1.3.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351416.jpg" />
 </div>
 
 

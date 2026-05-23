@@ -1,22 +1,31 @@
-###  Публикация: 1822008   (94736) от 04.10.2025
+###  Публикация: 456059   (94114) от 22.02.2012
 
-Своя игра (04.10.2025) WEBRip [H.264/1080p]
+Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bass>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Альбина Лазаричева, Юрий Балясов, Александр КонстантиновЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
+01. Calibre - Windows (Signature)
+02. Komatic - Make The Most Of Now (Technicolour remix) (Spearhead)
+03. Technicolour - The Harp Tune (Fokuz)
+04. Pennygiles - Au Revoir Blackbird (GLR)
+05. Bungle - The Siren (feat. Ayah) (Bladerunner remix) (Spearhead)
+06. dRamatic & dbAudio - 6 Degrees (Mars)
+07. Calibre - Hummer (Samurai Red Seal)
+08. Technicolour & Komatic - Those Feelings (Shogun LTD)
+09. Level 2 - No Time VIP (Liquid V)
+10. Atom - Dolly (Lynx remix) (Sonorous)(   Читать дальше...   )2012Жанр: Drum and BassФормат: Mp3, mixedПродолжительность: 01:11:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E56001FEB085FC6E945D768124F5D57E8C218EB9
+magnet:?xt=urn:btih:5A0B8C3F67E76CE9C5C9C28E1D1DE39CF0FC5CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,24 +33,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 61841   (94735) от 04.10.2025
+###  Публикация: 455888   (94101) от 22.02.2012
 
-Максим Леонидов (ex-Секрет) - 10 Альбомов (1995-2007)[MP3|192-320 kbps]<Rock>
+Nick Colionne - Keepin' It Cool (2006) [FLAC|Lossless]<Smooth Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_94101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Джерико (3:45)
-02. Мир Для Марии (3:28)
-03. Проспект Обуховской Обороны (4:53)
-04. Когда Я Был Сухой (3:57)(   Читать дальше...   )Жанр: Rock |Продолжительность: 09:48:05
+01. Can You Feel It (4:00)
+02. Keepin' It Cool (3:37)
+03. Always Thinkin' Of You (4:11)
+04. If You Ask Me (3:38)
+05. You Were There For Me (5:16)
+06. This Is The Song (3:59)
+07. John L (4:54)
+08. From Me to You (4:03)
+09. A Moment With You (4:02)
+10. Liquid (3:27)(   Читать дальше...   )2006Жанр: Smooth JazzПродолжительность: 00:54:32
 
 ## Скачать торент
 ```bash
@@ -53,26 +68,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822009   (94734) от 04.10.2025
+###  Публикация: 455896   (94094) от 22.02.2012
 
-Монстр: История Эда Гейна / Monster: The Ed Gein Story (2025) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-8 из 8) LE-Production, Dragon Money Studio
+Toronzo Cannon - Leaving Mood (2011) [APE|Lossless]<Blues>
 
->>Зарубежные сериалы
+>>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_94094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Третий сезон американского биографического криминального сериала-антологии «Монстры»
-Серийный убийца. Грабитель могил. Психопат. В замерзших полях Висконсина 1950-х годов на пришедшей в упадок ферме тихо жил дружелюбный, сдержанный отшельник по имени Эдди Гейн. Он скрывал в своем доме ужасы, настолько отвратительные, что они изменили представление об американском (   Читать дальше...   )Производство: США, Prospect Films, Ryan Murphy ProductionsЖанр: биография, триллер, драма, криминалРежиссер: Макс Винклер, Айэн БреннанАктеры: Чарли Ханнэм, Лори Меткалф, Сузанна Сон, Том Холландер, Вики Крипс, Оливия Уильямс, Лесли Менвилл, Джои Поллари, Тайлер Джейкоб Моор, Чарли ХоллПеревод: Дублированный (Dragon Money Studio), Многоголосый (LE-Production)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:44:00 серия
+01. She Loved Me (3:48)
+02. Chico's Song (4:06)
+03. Come Home (3:40)
+04. I Believe (5:10)
+05. Hard Luck (5:36)
+06. Open Letter (To Whom It May Concern) (4:18)
+07. I Can't Take Her Nowhere (4:18)
+08. Leaving Mood (3:42)
+09. She's Too Much (3:56)
+10. You're A Good Woman (4:14)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:00:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9CD0EB0385DFFA2C2EE216DE20D4170529E85AA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,25 +103,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530421   (94733) от 04.10.2025
+###  Публикация: 456083   (94093) от 22.02.2012
 
-Эффект бабочки / The Butterfly Effect (2004) BDRip [H.265/1080p] [10-bit] [Theatrical Cut]
+VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мальчик Эван перенял от своего отца-психопата, ныне запертого в доме для умалишённых, странную болезнь — он не помнит некоторых эпизодов своей жизни, причём в эти моменты происходили довольно странные, а то и ужасные события. Возмужав и поступив в колледж, Эван делает удивительное открытие. Читая дневники, которые он писал в детстве по совету врача, Эван может возвращаться (   Читать дальше...   )Производство: США, Канада / BenderSpink, FilmEngine, Katalyst Films, Province of British Columbia Production Services Tax CreditЖанр: фантастика, триллер, драмаРежиссер: Эрик Бресс, Дж. Макки ГруберАктеры: Эштон Кутчер, Эми Смарт, Элден Хенсон, Уильям Ли Скотт, Джон Патрик Амедори, Кевин Шмидт, Ирина Горовая, Джесси Джеймс, Мелора Уолтерс, Эрик СтолцПеревод: дублированный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:53:37
+01. Motta - Let Me Know [06:00]
+02. Celerity & DBR UK - Sonic Step [05:42]
+03. Undersound - Meet Me In My Shadow [06:52]
+04. Rene LaVice - Maintain [05:30]
+05. 2ndCityBlue - Bermudaz [06:55]
+06. Flatliners - Human Beings [06:25]
+07. SoliD - Blue Grooves [05:30]
+08. Grimm - Hunters March [06:20]
+09. Soultec Ft. Grimm - Last Call Of The Sun [06:12]
+10. Pouyah - Fooled [07:05](   Читать дальше...   )2012Жанр: Drum and BassФормат: WEBПродолжительность: 01:32:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F0BD68CF23C95AA69CC1913145AE29E780C6AD0
+magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,27 +138,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822011   (94732) от 04.10.2025
+###  Публикация: 455925   (94092) от 22.02.2012
 
-Шанхайский полдень / Shanghai Noon / Suk gam zi wong (2000) BDRip [AV1/2160p] [4K, SDR, 10-bit] [RUS Transfer] [hand made Upscale AI]
+Mark May Band - Release My Soul (2011) [APE|Lossless]<Blues>
 
->>Остальное
->>hand made * video
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_94092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда прекрасную китайскую принцессу похищают, Император отправляет на Дикий Запад троих самых верных и искусных телохранителей. Чон Ванг, естественно, не оказывается в их числе. Но тайными путями ему всё-таки удаётся попасть в воинственную делегацию и оказаться в самом сердце Америки и непредсказуемых событий.
-
-Вместе со случайным напарником китайский телохранитель (   Читать дальше...   )Производство: США, Гонконг / Jackie Chan Films Limited, Roger Birnbaum Productions, Spyglass Entertainment, Touchstone PicturesЖанр: боевик, комедия, приключения, вестернРежиссер: Том ДейАктеры: Джеки Чан, Оуэн Уилсон, Люси Лью, Брэндон Мэрилл, Роджер Юань, Ксандер Беркли, Юй Жунгуан, Я Хи Куи, Эрик Чен, Джейсон КоннериПеревод: Многоголосый профессиональный (Россия)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:50:17
+01. Six Strings or Two Legs (6:28)
+02. Move On (5:16)
+03. I Gotta Know (6:23)
+04. Eyes of India (6:35)
+05. Release My Soul (7:02)
+06. World of Suffering (7:13)
+07. Drifter (5:53)
+08. Vindablues (6:57)
+09. Devils Playpen (6:03)
+10. She Don't Shine (6:31)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:06:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CB0EF9C33C02DC0D00419C94FF155E101593C1B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,28 +173,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821761   (94731) от 04.10.2025
+###  Публикация: 455003   (94091) от 22.02.2012
 
-Lester Young - The Lester Young Story (1936 - 1949) 4CD, 2000, Proper Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
+VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
+ 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
+ 03. Bodyscrub - Resolution (Original Mix) (8:42)
+ 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
+ 05. Danase - Come On, We Play (6:25)
+ 06. Dani Sbert - Otherside (Original Mix) (7:01)
+ 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
+ 08. Diamandy - Breezer (Original Mix) (8:07)
+ 09. Doubleton - Diluente (Original Mix) (6:20)
+ 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454669   (94087) от 22.02.2012
+
+VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AC Slater & Xaphoon Jones - Believe Me (Botnek Remix) (5:50)
+ 02. Angelo Dore, Minimal Law - Experimental (Original Mix) (6:03)
+ 03. Atix - Divagation (Original Mix) (7:15)
+ 04. Audiowomb - Zoophyta (Original Mix) (7:56)
+ 05. Avrosse, Louie Cut - Double Trouble (Original Mix) (6:06)
+ 06. Danalog - Baked Beams (Original Mix) (8:13)
+ 07. On the Train (Derrick Carter Remix) (5:59)
+ 08. Deep Voice - I'm Freak (Andrea Roma Rmx) (6:56)
+ 09. Dima German - 2012 (D-Quattro Remix) (7:26)
+ 10. Emrah Celik - Let's Get Dangerous (Daniele Petronelli Remix) (6:05)(   Читать дальше...   )11.02.2012Жанр: MinimalПродолжительность: 02:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454998   (94083) от 22.02.2012
+
+VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afonso Maia - D Rather (Original Mix) (6:42)
+ 02. Andres Guerra - Bheis (Original Mix) (6:38)
+ 03. Brunno Santos - I'm Done With You (Juliano Silva Remix) (7:10)
+ 04. Cryteque - Sunny Flash (Original mix) (7:01)
+ 05. Daniele Petronelli and Steve Russell - Kat-I (Original Mix) (6:45)
+ 06. Domshe – Temptation (Tobias Hertz & Stefan Rieger Remix) (7:38)
+ 07. Hakan Ludvigson & Joachim Broeckers - Audiovit (Original Mix) (7:14)
+ 08. Ian F - Coming Back (Original) (7:15)
+ 09. Jill Bellac & Suspect One - Shaped (Min & Mal Remix) (6:11)
+ 10. Joel Fletcher & JDG - China Town (Original Mix) (7:03)(   Читать дальше...   )16.02.2012Жанр: MinimalПродолжительность: 02:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455928   (94076) от 22.02.2012
+
+VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_94076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It's Only a Paper Moon [3:09]
-02. Lover Come Back to Me [2:39]
-03. You're Driving Me Crazy [3:08]
-04. Lester's Be-Bop Boogie [3:16](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 04:54:25
+01.Jimmy Lunceford & his Orchestra - Call The Police (2:59)
+02.Louis Prima & his Orchestra - Robin Hood (3:05)
+03.Harry James & his Orchestra - Tuxedo Junction (3:02)
+04.Earle Warren & his Orchestra - Tush (2:52)
+05.Jimmy Lunceford & his Orchestra - Cement Mixer (Put-Ti Put-Ti) (2:45)
+06.Harry James & his Orchestra - Hodge Podge (3:00)
+07.Jimmy Lunceford & his Orchestra - Margie (3:01)
+08.Ray McKinley & his Orchestra - Down The Road Apiece (2:58)
+09.Jimmy Lunceford & his Orchestra - Water Faucet (2:40)
+10.Harry James & his Orchestra - Boog It (3:22)(   Читать дальше...   )2003Жанр: Jazz, Swing, Big BandПродолжительность: 00:59:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79563577E810F034776F312A689128DA3FCC7549
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +313,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 384601   (94730) от 04.10.2025
+###  Публикация: 454675   (94067) от 22.02.2012
 
-Разрисованная вуаль / The Painted Veil (2006) BDRip
+VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1920-е, молодой врач и его неверная жена Китти отправляются в отдалённую китайскую деревушку, чтобы бороться со вспышкой эпидемии холеры. Там поражённая преданностью мужа работе Китти начинает видеть его в ином свете и влюбляется в него.Производство: США, Канада, Китай / Bob Yari Productions, Class 5 Films, Colleton Company, TheЖанр: Драма, мелодрамаРежиссер: Джон КерранАктеры: Наоми Уоттс, Эдвард Нортон, Лив Шрайбер, Дайана Ригг, Тоби Джонс, Катрин Эн, Ли Бинь, Бин Ву, Алан Дэвид, Мари-Лор Дикуру, Салли ХокинсПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:04:00
+01. Acid Lupe - Orchestra (Original Mix) (7:10)
+ 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
+ 03. Dani San - Clikity Clack (Original Mix) (6:44)
+ 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
+ 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
+ 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
+ 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
+ 08. Leeks - Amoeba (Original Mix) (7:17)
+09. Lowboys - Hall Of Panic (7:30)
+ 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:236335603377D782002E34BC7764E34B8D44E4B9
+magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,215 +348,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822016   (94728) от 04.10.2025
+###  Публикация: 455981   (94063) от 21.02.2012
 
-Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Тоскуя по свету, мир без солнца начинает поедать самого себя. С каждым шагом твой путь меняется - а ты все бежишь за ускользающей тенью. Eclipsium - это хоррор от первого лица, где вы играете за отчаянного Скитальца. В поисках Её его путь пролегает через адские усыпальницы, соборы из плоти и даже сквозь космос, сжигая себя и жертвуя всем ради достижения своей цели.Тип издания: RepackРазработчик: HousefireЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADA097D6C3544C54F671E5B1A7E16151C1B05B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609307   (94726) от 04.10.2025
-
-Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Hypocrisy — шведская дэт-метал-группа, образованная в октябре 1991 года в Людвике Петером Тэгтгреном.1992 - Penetralia
-1993 - Osculum Obscenum
-1994 - The Fourth Dimension
-1996 - Abducted(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 17:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822015   (94724) от 04.10.2025
-
-Общак. Главная ОПГ России (2025) WEBRip [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бывшие участники и жертвы крупнейшей в мире преступной группировки «Общак» впервые рассказывают, как образцовый советский город Комсомольск стал мафиозной столицей Дальнего Востока; почему спустя двадцать лет после гибели лидера «Общака» Евгения Васина называют «Батей»; и как произошла трагедия, уничтожившая и Васина, и его империю.Производство: Россия | Pro100 MediaЖанр: документальный, криминалЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A611707BAB41AC9A99421899929B77CCC4CA9089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822014   (94722) от 04.10.2025
-
-Общак. Главная ОПГ России (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бывшие участники и жертвы крупнейшей в мире преступной группировки «Общак» впервые рассказывают, как образцовый советский город Комсомольск стал мафиозной столицей Дальнего Востока; почему спустя двадцать лет после гибели лидера «Общака» Евгения Васина называют «Батей»; и как произошла трагедия, уничтожившая и Васина, и его империю.Производство: Россия | Pro100 MediaЖанр: документальный, криминалЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65DA3D2BF3564E3395AD73678322EBD6C05096E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458461   (94718) от 26.02.2012
-
-На западном фронте без перемен / All quiet on the western front (1930) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о простых немецких школьниках старших классов, которые под действием патриотической пропаганды идут на войну, принимая её как игру, и не знают, что впереди их ждет только смерть.
-Пауль, мечтательный юноша, поэт, художник, закончив школу, под нажимом милитаристской пропаганды вместе с одноклассниками идет добровольцем на фронт. Каждый день войны уносит жизни (   Читать дальше...   )Производство: США, Universal PicturesЖанр: Драма, военный, история, экранизацияРежиссер: Льюис МайлстоунАктеры: Луис Волхайм, Лью Эйрз, Джон Рэй, Арнольд Люси, Бен Александр, Скотт Колк, Оуэн Дэвис мл., Уолтер Роджерс, Уильям Бэйкуэлл, Расселл Глисон, Ричард Александр, Харольд Гудвин, Слим Саммервилл, Дж. Пэт Коллинз, Берил Мерсер, Эдмунд Бриси, Зазу Питтс и др.Перевод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E836D9E0EF68E5C5015C9118478B0A3F7D04011B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458015   (94717) от 26.02.2012
-
-Рио Лобо / Rio Lobo (1970) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма начинается во время войны между Севером и Югом. Южане совершают дерзкое нападение на поезд северян и угоняют у них вагон с золотом. Преследовавший похитителей полковник Мак Нэлли неожиданно сам попадает к ним в плен, из которого его спасает капитан южан Пьер Кардонне.
-
-После войны МакНэлли и Пьера Кардонне встречаются вновь. Объединившись в поисках пропавшего золота, они узнают, что в Рио Лобо банда продажного шерифа терроризирует город. Возможно, это и есть те люди, которые ограбили поезд.Жанр: Вестерн, Приключения, ВоенныйРежиссер: Ховард ХоуксАктеры: Джон Уэйн, Хорхе Риверо, Дженнифер О’Нил, Джек Илэм, Кристофер Митчум, Виктор Френч, Сусана Досамантес, Шерри Лэнсинг, Дэвид Хаддлстон, Майк Генри, Билл Уильямс, Джим Дэвис, Дин Смит, Роберт Доннер, Джордж Плимптон, Эдвард Фолкнер, Питер Джейсон, Чак Кортни, Роберт Ротуэлл, Дон ’Красный’ Бэрри, Harold Cops, Стэнли Корсон, Сондра Карри, Хосе Эспиноза, Чак Хейуорд, Лэнс Хул, Фрэнк Кеннеди, Charlie Longfoot, Джон МакКи, Бойд ’Красный’ Морган, Грегг Палмер, Jim Preiean, Чак Роберсон, Дэнни Сэндс, Энтони Спэрроу Хоук, Боб Стил, Томми Тедеско, Этан Вейн, Хэнк УорденПеревод: Профессиональный (многоголосый, закадровый) НТВ + Оригинальная (английский) звуковая дорожкаПродолжительность: 01:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8F7FBA6DC4447ED04B5A2BFF786FCE441B9C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457449   (94715) от 26.02.2012
-
-Растровый клипарт - Цветы-2 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Клипарт цветов, продолжение релиза "Цветы". Здесь не у всех белый фон, но более высокое разрешение.Разрешение файлов: 3858x4768 - 3552x5163Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFF64055C09C1E07E534F261F1CD3FE56E57237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458509   (94714) от 26.02.2012
-
-Журнал | Ателье №1 (133) [2012] [PDF]
+Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №2 (2012) [PDF]
 
 >>Журналы
->>Хобби (журналы)
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ателье» — это первый профессиональный журнал о моде в России, ориентированный на владельцев ателье и мастерских по пошиву одежды, дизайн-студии, частных модельеров и дизайнеров.
-
- В каждом номере можно найти массу интересных и профессиональных статей, предназначенных для специалистов швейного бизнеса. Основные материалы журнала посвящены последним новостям моды в (   Читать дальше...   )Формат: PDF
+Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85E5517ED5FF50904F969CCF2377EB6319887D31
+magnet:?xt=urn:btih:BB12F93F5D6C9FA36FA77476ED5E083A60A1AE98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,25 +374,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821981   (94713) от 04.10.2025
+###  Публикация: 455673   (94058) от 21.02.2012
 
-Strava: бег, велоезда, хайкинг v431.9 Mod by PieMods [Ru/Multi]
+VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
 
->>Программы, Игры и прочее
->>Навигация для Android
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любите бегать, кататься на велосипеде или просто проводить время на свежем воздухе? Тогда бесплатное приложение Strava — это то, что вам нужно. Попробуйте, вам понравится! Миллионы бегунов, велогонщиков и просто активных людей используют Strava, чтобы записывать данные своих тренировок, следить за прогрессом, общаться с единомышленниками, а также делиться фотографиями, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.10.2025Разработчик: Strava Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+01. Dmitry Globa - La Aurora Boreal
+02. John '00' Flemming - The Astrophysical Nebula
+03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
+04. Matisse & Sadko - Amulet
+05. Limbo - Paradox
+06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
+07. Talpa - The Moon (Flegma & Nerso Remix)
+08. Aggresivnes - Futurasia (Blazer Remix)
+09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
+10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EB5BB09B1B8F2C48031F9D09383FB4F5724325B
+magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,25 +409,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821975   (94711) от 04.10.2025
+###  Публикация: 455992   (94037) от 21.02.2012
 
-EOBD Facile: OBD 2 авто сканер v3.79.1122 Mod by derrin [Ru/Multi]
+Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric Blues>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_94037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EOBD Facile - автосканер обд2 последнего поколения с технологией Bluetooth. С адаптером ELM327 ты становишься обладателем автомобильного сканера ODB! Загорелся индикатор проверки двигателя? Запусти диагностику OBD2 на своем смартфоне, чтобы выяснить причину включения значка чека - и не нужно ехать к механику на диагностику! Подключай устройство для автодиагностики (   Читать дальше...   )Тип издания: PlusРелиз состоялся: 29.09.2025Разработчик: Outils OBD FacileПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+01. Albert King - Searchin' For A Woman (2:49)
+02. Albert King - Bad Luck (3:06)
+03. Otis Rush - So Close (3:03)
+04. Albert King - Callin' For My Darlin' (2:47)
+05. Otis Rush - I Can't Stop (3:06)
+06. Albert King - Won't Be Hangin' Around (2:17)
+07. Otis Rush - I'm Satisfied (2:57)
+08. Otis Rush - All Your Love (2:26)
+09. Otis Rush - You Know My Love (2:56)
+10. Albert King - Merry Way (2:43)(   Читать дальше...   )1998Жанр: General Electric BluesПродолжительность: 00:39:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5014E9C0A622FF93F99CE932B7927B4031904E4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,25 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821976   (94709) от 04.10.2025
+###  Публикация: 455849   (94013) от 21.02.2012
 
-Промбезопасность. Тесты v3.5.3 Paid [Ru]
+Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Назначение приложения - подготовка работников к сдаче экзамена по промышленной безопасности. Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:Тип издания: Paid (antisplit)Релиз состоялся: 03.10.2025Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D134E794D8620BEF52B999A017C07F1EE8F6AC6
+magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,34 +470,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 457630   (94708) от 26.02.2012
+###  Публикация: 455058   (94011) от 21.02.2012
 
-Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
+Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
 
->>Other Styles
->>Folk
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Takaya Mija (05:36)
-02. Farias (05:26)
-03. Gerda (05:59)
-04. Benga (04:44)
-05. Sagrabat (Diumgo) feat. Julien Jacob (03:34)
-06. Oikoumene (07:41)
-07. Tapachula (07:09)
-08. Intifadah (05:13)
-09. Clean Kron (03:25)
-10. Sol De Morte (03:44)(   Читать дальше...   )2012Жанр: Rock, Folk, DarkwaveПродолжительность: 01:04:15
+1. Too Lazy (6:01)
+2. Play (5:51)
+3. Sweet Nothings (4:55)
+4. Fluffy Cloud (8:13)
+5. Endless Games (3:31)
+6. The Sun Come Up (7:16)
+7. Razorskit (1:52)
+8. Berlin Summer Nights (5:56)
+9. Take These Scissors (5:42)
+10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
+magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +505,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821979   (94707) от 04.10.2025
+###  Публикация: 455910   (93995) от 21.02.2012
 
-Электробезопасность. Тесты v3.1.1 Paid [Ru]
+Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_93995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:
-- II группа по электробезопасности до и выше 1000 В
-- III группа по электробезопасности до и выше 1000 В
-- IV группа по электробезопасности до и выше 1000 В(   Читать дальше...   )Тип издания: Paid (antisplit)Релиз состоялся: 03.10.2025Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+01. Life On The Line (5:01)
+02. Mercy (4:00)
+03. Bound To Roll (3:59)
+04. How Could Iґve Been So Blind (4:36)
+05. Shadow Play (4:40)
+06. Swamplands (4:14)
+07. 30 Days In The Hole (3:25)
+08. The Blues Wonґt Stay (4:19)
+09. Tear It Up (3:08)
+10. Burninґ Brides (5:15)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:53:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7295AEEE5F359645A5B5E730DC929720977F030D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,25 +540,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822021   (94706) от 04.10.2025
+###  Публикация: 455256   (93994) от 21.02.2012
 
-Жорж Сименон | Комиссар Мегрэ. Преступление в Голландии (2024) [MP3, Валерий Войтенко]
+[Wallpapers] Обои для рабочего стола.
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Французский подданный, профессор, задержан в Голландии как важный свидетель. Человек, пригласивший его прочесть лекции в его городке, убит. Мегрэ отправляют на выручку. Истина окажется такой неприглядно, что лучше бы её замолчать, но будет уже поздно...Жанр: ДетективИздательство: Аудиокнига своими руками / неофициальное издание профессионального актёраПродолжительность: 04:16:04
+Обои для рабочего стола,на любой вкус(280 шт.)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B49EB7A6B9B04F019E9316B67023A687992B2F97
+magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,28 +566,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822023   (94705) от 04.10.2025
+###  Публикация: 454996   (93989) от 21.02.2012
 
-VA - Music News For Forum vol.137 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Glebova & Tribeat - А он меня целует (DJ Прозрачный Remix) (03:20)
- 002. 5УТРА - Ай-ай-ай (M1CH3L P & Red Line Remix Radio Version) (02:58)
- 003. ADDicted! - Почему так (03:11)
- 004. aikko - Синий-красный (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:30:26
+01. Adelmo - Angela (Oscar And Chester Remix) (7:08)
+ 02. Anton Ishutin - April 12 (Original Mix) (7:17)
+ 03. Damolh33 - Sweep (Original Mix) (6:27)
+ 04. David Temessi – De Ja Vu (Zareh Kan Remix) (7:05)
+ 05. Dich - Erza Fire (Dub Dummies Remix) (8:21)
+ 06. Droplex - Descript (Mr. Wise Remix) (6:30)
+ 07. Edoardo Spolaore - Hope (Original Mix) (7:10)
+ 08. Emrah Celik - Let's Get Dangerous (Gokhan Guney, Emrah Celik Remix) (6:08)
+ 09. Gianni Ruocco – Caribean Week (Original Mix) (6:45)
+ 10. Marcel Knopf - Blood Smell (Dapayk Remix) (7:19)(   Читать дальше...   )15.02.2012Жанр: MinimalПродолжительность: 02:21:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A951F68EAFFD320861B687D6F092E32404A276E
+magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,25 +601,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822024   (94704) от 04.10.2025
+###  Публикация: 455001   (93985) от 21.02.2012
 
-Постапокалиптическое путешествие | Touring After the Apocalypse | Shuumatsu Touring [2025, TV, 1 из 12 эп.] WebRip 720p raw
+VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
 
->>Аниме с субтитрами
->>Онгоинги
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оставшись в одиночестве после конца света, две девушки едут на велосипедах по пустым руинам Японии — и они не собираются позволять краху цивилизации помешать им осматривать достопримечательности! Даже когда мир заканчивается, их путешествие продолжается.Производство: студия NexusЖанр: приключенияРежиссер: Токумото ЁсинобуПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+01. Afonso Maia - Playhead (Original Mix) (6:03)
+ 02. Cristian Glitch - One (Alessandro Grops Remix) (6:24)
+ 03. Destructo - Technology feat. Oliver (Original Mix) (5:09)
+ 04. Insect Elektrika - Man In Love With Fish (Original Mix) (6:43)
+ 05. Johnny Kaos – Lsd (7:40)
+ 06. Keira - Sguitara (Min & Mal Remix) (6:01)
+ 07. Was Bleibt (Jimpster Vocal Remix) (8:01)
+ 08. Kontak - Triangle (Minimal Law Remix) (6:00)
+ 09. Kriece - Ginger Explosion (Original Mix) (7:45)
+ 10. Lazy M - Stranger (Dani Sbert Big Bully Remix) (7:01)(   Читать дальше...   )17.02.2012Жанр: MinimalПродолжительность: 02:16:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95E3E6EF2AD9FF9EA4471617FB3B5F3693F93B39
+magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,25 +636,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821998   (94703) от 04.10.2025
+###  Публикация: 454665   (93983) от 21.02.2012
 
-Words of Wonders: Игра в слова v5.5.20 Mod by vadj [Ru/Multi]
+VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
 
->>Программы, Игры и прочее
->>Игры для Android
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Добро пожаловать в мир 7 чудес Words of Wonders! Эта замечательная игра в жанре «кроссворд» с элементами соединялки позволит вам не только улучшить запас слов и их написание, но и путешествовать, пересекать земной шар, искать скрытые тайны 7 чудес. найти слова соединить буквы в 7 чудес и увеличить свой запас слов запас.Тип издания: ModРелиз состоялся: 04.10.2025Разработчик: Fugo GamesПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+01. A.K.O - Rolling (Original Mix) (8:11)
+ 02. Artem Abdrakhmanov - Back Flip (Original Mix) (6:26)
+ 03. Bedoya - Minimetrico (Original Mix) (7:03)
+ 04. Bricklake - Reaktor (Chris Lawyer Remix) (6:07)
+ 05. Caiwo - Playing Games (Caiwo aka Music Supervisor ReWork) (7:38)
+ 06. D-Funkshion - Bim Bam (Original Mix) (7:11)
+ 07. Daniel Mehes - Highend (Andy Notalez Niaz Arca Remix) (6:37)
+ 08. Glitter - Vigilante (Original Mix) (6:09)
+ 09. Hertzman - Gift (Original Mix) (6:17)
+ 10. Jey Pee Razz - No Melody (Gaga Remix) (6:34)(   Читать дальше...   )09.02.2012Жанр: MinimalПродолжительность: 02:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10F661545C287F9720EB698CF340109383F7F9ED
+magnet:?xt=urn:btih:A6C4CF8D9E190CCEDDEEBDDAC3EA4247698424E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,25 +671,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821997   (94702) от 04.10.2025
+###  Публикация: 454668   (93979) от 21.02.2012
 
-BOOKlis: Слушай аудиокниги v2.3.0 Mod by SurvivalHorror [Ru]
+VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Закройте глаза и слушайте аудиокниги в профессиональной озвучке. Откройте для себя вселенные книг, которые оживают и повествуют в Буклис. BOOKlis — мобильное приложение, которое создано ценителями аудиокниг для таких же ценителей. Скачивайте и присоединяйтесь к сообществу Буклиса.Тип издания: AdfreeРелиз состоялся: 28.09.2025Разработчик: Буклис, ОООПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+01. Abcdavid - No Chance (Original Mix) (6:32)
+ 02. Anna - Down Under (7:49)
+ 03. Aquabeat - Whisky (Louie Cut Remix) (5:48)
+ 04. Avrosse - Droplet (Original Mix) (6:01)
+ 05. Disco Dancer (Felix Bernhardt Remix) (7:52)
+ 06. Cristian Glitch - El Pito (Zeitspule Remix) (7:11)
+ 07. Cryteque - Acid Rainbow (original mix) (6:16)
+ 08. Damolh33 - Red Beauty (Original Mix) (6:01)
+ 09. Dani San - Clikity Clack (Marco Raineri Remix) (5:00)
+ 10. Desto feat. Kitt Kidoxx - Element (Talstrasse 3-5 Remix) (6:56)(   Читать дальше...   )10.02.2012Жанр: MinimalПродолжительность: 02:15:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BADC99268127D3F9BB7B448AEC5A956D4B805A5F
+magnet:?xt=urn:btih:AF2FBE53AD32B0B7372FDB419C7BCF234998E1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,28 +706,158 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821995   (94701) от 04.10.2025
+###  Публикация: 455443   (93960) от 20.02.2012
 
-VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
 
->>Other Styles
->>Other (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
-03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
-04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
+01. Maybe It`s You (05:13)
+02. Close My Eyes (05:51)
+03. Space Trip (05:12)
+04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
+magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455166   (93957) от 20.02.2012
+
+DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
+02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
+03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
+04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
+05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
+06. alexander popov - elegia (original mix)
+07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
+08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
+09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
+10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455478   (93953) от 20.02.2012
+
+Газета | Сад, огород – кормилец и лекарь №4 (февраль 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93953.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFBFEA25E9FB8ADD378F1D7F1639251024E6736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454581   (93950) от 20.02.2012
+
+Журнал | Вестник арды [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вестник Арды - это литературно-публицистический журнал, посвященный творчеству писателя Дж. Р. Р. Толкина, работам, вдохновленным этим творчеством, а также жанру фэнтези, который благодаря ему возник.
+
+Тут публикуются:
+Исследовательские статьи об Арде.
+Исследовательские статьи кроссфентезийной тематики (например, о мифических существах, магии и т.п.).
+Статьи о различных мифологических системах.
+Творчество по мотивам текстов Дж. Р Р. Толкина.
+Переводы (в частности статей из Tolkien Studies).
+Авторские рисунки.
+Юмор.(   Читать дальше...   )2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454927   (93945) от 20.02.2012
+
+VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philter - Stairway To Heaven 07:53
+ 02. Dual Lane - Yalta Journey 07:59
+ 03. Solar Groove - Heretic 09:47
+ 04. Hypnos - Disco Doll 06:27
+ 05. Bio-Psy - Cheap Thrill 08:05
+ 06. Lightsphere - Faith 08:26
+ 07. Krystaline - Science Of Signs 08:00
+ 08. Peak Processor - White Rabbit 07:35
+ 09. Lunar Surface - Cosmic Base 07:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
 ```
 
 https://mybot314.ru/tekegram_catalog/

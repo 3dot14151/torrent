@@ -6,7 +6,7 @@ PeaZip 7.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843037.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pidgin 2.10.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843021.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LockScreen 1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843020.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Radiocent 3.5.0.85 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843018.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hard Disk Sentinel Pro 5.00 Build 8557 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843004.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Hard Disk Sentinel Pro 5.00 Build 8557 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842995.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Opera 68.0.3618.56 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842991.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ YouTube By Click Premium 2.2.127 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842989.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ USDownloader 1.3.5.9 Portable (26.04.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842987.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ PDF Shaper Professional 10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842983.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ HDCleaner 1.292 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842973.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Torch Browser 69.2.0.1704 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842962.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ReviverSoft PC Reviver 2.6.3.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842928.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Simple VHD Manager 1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842914.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ORPALIS PaperScan Professional 3.0.103 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842909.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Internet Download Manager 6.37 Build 11 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842893.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ SUMo Pro 5.10.16.455 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842891.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SQL Dynamite 2.5.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842882.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ R-Studio 7.8 Build 161189 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842850.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Slimjet 13.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842838.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Cakewalk SONAR Platinum 23.2.0 Build 45 (2017.02) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842834.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Xinorbis 8.0.6 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842833.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ O&O ShutUp10 1.4.1387 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842832.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Inkscape 0.92.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842821.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ YouTube By Click Premium 2.2.127 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842804.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ LosslessCut 3.21.0 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842798.jpg" />
 </div>
 
 

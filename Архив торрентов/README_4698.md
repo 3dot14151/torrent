@@ -6,7 +6,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.40.33721.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Office Tool Plus 10.10.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61085.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Balabolka 2.15.0.867 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61083.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Aiseesoft Video Converter Ultimate 10.8.28 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61079.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AnyBurn 6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61075.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ LDPlayer 9.0.68.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61070.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61066.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.0 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61065.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Topaz Video AI 4.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61060.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CrossOver Linux 24.0.1 [x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61030.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ADB AppControl 1.8.3 hotfix 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61020.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ StartAllBack 3.7.8 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60989.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Topaz Gigapixel AI 7.0.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60970.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ V-Ray 6.20.06 for 3ds Max 2020-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60944.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The Bat! Professional 11.1.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60931.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ GoodbyeDPI 0.2.2 Launcher 7.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60927.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ StartAllBack 3.7.8 (DC 02.04.2024) StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60921.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Ashampoo Driver Updater 1.6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60918.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Adobe Acrobat Pro 2024.001.20643 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60911.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (13112295) Repack Other s [Early Acc
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60900.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Midori Browser 11.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60892.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.1 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60883.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Adobe Acrobat Reader 2024.001.20643.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60881.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ StartAllBack 3.7.8 build 4901 (DC-02-04-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60876.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Kingston SSD Manager 1.5.4.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60875.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ FBReader Premium v3.6.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60864.jpg" />
 </div>
 
 

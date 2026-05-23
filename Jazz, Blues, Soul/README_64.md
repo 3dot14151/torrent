@@ -6,7 +6,7 @@ Willie Martinez La Familia Sextet - Family (2005) Cuch Be Witcha[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954049.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Warren Wolf - Incredible Jazz Vibes (2005) M&I Jazz[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954047.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sonny Rollins - Old Flames (1993) Milestone[FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954038.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Pink Martini - Je Dis Oui! (2016) [FLAC|Lossless|image + .cue] <Pop-Jazz, World 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953670.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Charlie Parker - Now's The Time (2005) 10CD Set /Germany 2005; Documents 222921/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953285.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Happy Valentines 20 Unforgettable Love Songs (2016) [MP3|320 кб/с] <Nu J
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953017.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Beyond The Sea: 50 Summer Classics (2006) [MP3|192 Kbps] <Jazz, Latin, Pop>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952840.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Louis Armstrong - What A Wonderful World (1996) [MP3|320 кб/с] <Jazz, Vocal J
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952728.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Jeff Healey Band - 5 Альбомов (1988 - 2000) [FLAC|Lossless|tracks + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952714.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blue Attitude - All Shades of Blue (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952269.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Vincent Ingala - Echoes Of The Heart (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951989.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lou Donaldson - Cosmos (1971) Remaster, 2014, Universal[FLAC|tracks+.cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951748.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lee Morgan - Indeed! (1956) Remaster, 2015, Universal[FLAC|tracks+.cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951695.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jacques Loussier - Plays Bach (1993) /1996 Telarc/ [FLAC|Lossless]<Jazz, Bop, Pi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951311.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Riccardo Del Fra - Chet Visions (2019) 2CD, Cristal Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951183.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Scott McKeon - Trouble (2010) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950907.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Nat Adderley Quintet - Workin': Live In Subway, Vol. 1 (1992) Remaster, 2016, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950865.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Andy Bey & The Bey Sisters (1964-1965) 2000, Prestige[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950863.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Hank Mobley - Dig Dis (1960) 2CD, 2011, Not Now Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950859.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Paul Smith - Brazilian Detour (1966) Remaster, 2013, Warner [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950790.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Chico Hamilton Trio - Introducing Freddie Gambrell (1958) Remaster, 1991, Toshib
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950789.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Woody Herman - Memorial: The 40th Anniversary Carnegie Hall Concert (1988) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950788.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Lee Morgan - The Sidewinder (1963) Remaster, 2013, Universal[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950780.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Pat Martino - Remember: A Tribute To Wes Montgomery (2006) Blue Note[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950766.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ The Blues Mystery - Diesel Rock (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950662.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ VA - A Groovy Kind of Sax (1995) авторская раздача [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950654.jpg" />
 </div>
 
 

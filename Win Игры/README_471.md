@@ -1,29 +1,3 @@
-###  Публикация: 1737071   (40564) от 12.10.2024
-
-Cash Cow DX (2024) [En] (1.1.2.0) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Святая корова, все дело в moooney! Отправляйтесь в безумное приключение, в котором вы будете бегать, прыгать и скользить, чтобы спасти богатство Cash Cow из лап этих подлых свиней и вернуть то, что принадлежит ей по праву! Не сомневайтесь - эта игра крепкая, как гвоздь! Вы готовы принять вызов?Тип издания: LicenseРазработчик: pixel games SARL-SЖанр: ЭкшеныЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11DC4C91BC55E84992FF52122A57C51A00452E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755054   (40552) от 13.10.2024
 
 The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) Repack FitGirl [Deluxe Edition]
@@ -32,7 +6,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) Repack FitGirl [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40552.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40546.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40540.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40535.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40527.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40525.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Kvark (2023) [Ru/Multi] (1.0.5.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40522.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40519.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0.13) Repack FitGirl [Supporte
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40514.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ DATE A LIVE: Ren Dystopia (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40513.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Garage Flipper (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40508.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40506.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40505.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Neckbreak (2019) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40484.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40460.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.55) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40453.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Shogun Showdown (2023) [Ru/Multi] (1.0.2.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40447.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40446.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Portal (2007) [Ru/Multi] (Build 13095453) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40428.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40417.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40412.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40345.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ SteamWorld Build (2023) [Ru/Multi] (1.0.12/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40334.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Game Builder Tycoon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40326.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40324.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F7590FA88EEDB58472CF4E2F3DDEDF87DA92843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694236   (40319) от 15.10.2024
+
+Kitten Burst (2024) [En] (4.04c) Scene Tenoke
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kitten Burst - это сюрреалистичная гоночная игра, где вместо привычным транспортных средств выступает… белый кот! События разворачиваются в далеком будущем, где киберпространство оказалось под угрозой уничтожения. Именно в попытках спасти родные Интернет-просторы хакер объединяет свои усилия с очаровательным котом, которому потребуется пробраться в Сеть и выяснить (   Читать дальше...   )Тип издания: SceneРазработчик: LithodelphisЖанр: Приключенческие игры, Инди, Гонки, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FFC8C38B295A55461A3BE2DB7E0C82FB9E9BA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

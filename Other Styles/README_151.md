@@ -6,7 +6,7 @@ Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221561.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Grand Theft Auto San Andreas Official Soundtrack (2004) 8CD, Box Set [FLAC|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221537.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221520.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Sweet Saxophone (2000) 3 CD [FLAC|Lossless|image + .cue] <Pop, Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221377.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Amure (Alexey Khatsko) - Geo (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enig
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221373.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221207.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tom Barabas - Sedona Suite (1992) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221064.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Faith Hill - It Matters To Me (1995) Warner W2 45872 [FLAC|Lossless|image + .cue
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220574.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220505.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220326.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220260.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, E
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220165.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219992.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219897.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219871.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219716.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ KamaSutra - Kama Sutra Erotic Massage (2011) [MP3|320 кб/с]<New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219712.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219693.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219619.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219577.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219534.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219500.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse 2CD Box Set (2004) Original 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219468.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Danheim - Runagaldr (2018) [MP3|320 Kbps] <Nordic Folk, Dark Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219420.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Tom Barabas - Piano Impressions (1994) [FLAC|Lossless|tracks + .cue] <New Age, P
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218822.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Tom Barabas - Magic In December (1991) [FLAC|tracks + cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218815.jpg" />
 </div>
 
 

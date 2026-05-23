@@ -1,55 +1,3 @@
-###  Публикация: 1558333   (529639) от 21.06.2022
-
-Невыносимая тяжесть огромного таланта / The Unbearable Weight of Massive Talent (2022) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Некогда востребованный актёр Николас Кейдж переживает затянувшийся кризис среднего возраста: карьера требует камбэка; бывшая жена и 16-летняя дочь устали от его раздутого эго; отелю, в котором он живет, Кейдж уже должен 600 000 долларов. А всё, что может предложить агент — это полететь за миллион на Майорку на день рождения фаната, оливкового короля Хави Гутьерреса. (   Читать дальше...   )Производство: США / Burr! Productions, Embassy Films, LionsgateЖанр: Боевик, комедия, криминалРежиссер: Том ГормикэнАктеры: Николас Кейдж, Педро Паскаль, Тиффани Хэддиш, Шэрон Хорган, Пако Леон, Нил Патрик Харрис, Лили  Мо Шин, Алессандра Мастронарди, Джейкоб Скипио, Katrin VankovaПеревод: Профессиональный многоголосый (Jaskier 18+, TVShows, NewComers 18+)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BA1EB8F8E1EF3AA5054B9D2384066F4CD028D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348102   (529637) от 21.06.2022
-
-Золотая середина / Zloty Srodek (2009) HDTVRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Выросшая в варшавской Старой Праге Мирка получила диплом юриста, но не забыла о своих корнях. Для жителей родного дома она стала последней надеждой. Чтобы помочь им, ей придется решиться на смелую мистификацию, и поможет ей в этом дядя Богумил - гример. Симпатичная девушка благодаря ему превратится в интересного паренька и отважится на самый безумный трюк во всей (   Читать дальше...   )Производство: Польша / JawaЖанр: КомедияРежиссер: Оляф ЛюбашенкоАктеры: Анна Пржыбыльска, Шимон Бобровски, Эдвард Линде-Любашенко, Цезары Пазура, Тамара Арцюх, Кшиштоф Ковалевский, Роберт Гонера, Павель Вильчак, Изабела Куна, Эдита ОльшувкаПеревод: Двуголосый закадровый (Любительский)Субтитры: ОтсутствуютПродолжительность: 01:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18FB967BC7383BEAAC1E90E37EED08C503BEDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819999   (529604) от 09.09.2014
 
 Малефисента / Maleficent (2014) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529604.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529545.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529542.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529538.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529526.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529523.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529522.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529513.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529461.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529455.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529408.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529404.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529399.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529370.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529353.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529345.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529341.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529339.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529336.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529328.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529326.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529145.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529123.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529109.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ XVI век, Испания. Одаренный молодой драматург
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDCF7385E77AB666941B1D275371034E9E8E7F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312910   (529104) от 06.07.2019
+
+Чудесные бойцы / Kei moon duen gap / The Miracle Fighters (1982) DVDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спасаясь от гнева правителя-самодура, начальник имперской охраны Као находит убежище в маленьком городке, где начинает жить со своим учеником Генгом. Однако спустя много лет к ним заявляется злобный чародей, который убивает Као, а Генгу делает выгодное предложение выдать себя за пропавшего без вести наследника престола. Но Генг решает отомстить за смерть учителя, (   Читать дальше...   )Производство: Гонконг, Golden Harvest Company, Paragon Films Ltd., Peace Film Production Co.Жанр: ужасы, фэнтези, боевик, комедияРежиссер: Юэнь Ву-ПинАктеры: Ят Чор Юэнь, Люн Ка-Янь, Юэнь Чун-Янь, Шун-Йи Юэнь, Эдди Ко, Чен Тиен Лунг, Ха Хуанг, Брэнди ЮэньПеревод: Авторский (Сергей Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCEEA094FE08DB820DEB6E87059CEB219B39CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312998   (529100) от 06.07.2019
+
+Ода Доблести / Xia ke hang / Ode To Gallantry (1982) DVDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непобедимый мастер кунг-фу периодически расправляется с кланами убийц, уничтожая всех до единого, если глава клана отказывается вступить в поединок. Оставшийся, ещё не наказанный клан идёт на хитрость — приглашает к себе во главу парня, который, не сильно-то разбирается в подобных делах. На его счастье находиться парнишка очень похожий на него — близнец, который (   Читать дальше...   )Производство: Гонконг / Shaw BrothersЖанр: боевикРежиссер: Чанг ЧеАктеры: Филип Квок, Чинг Тонг, Хул-Линг Лью, Ли Ванг, Чиен Сунь, Цуй Линг Ю, Шенг Чианг, Тин-чи ЧенгПеревод: Авторский (Сергей Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8F6BC8E6765603FA8FCC983EC1712E52EB36B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

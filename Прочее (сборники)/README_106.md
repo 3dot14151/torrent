@@ -6,7 +6,7 @@ VA - Радио Record представляет. Русская версия (20
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500606.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Music News vol.203 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500579.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Дрожь Танцпола. Клубные хиты (2012) [MP3|320 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500433.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Радио Energy - NRJ HOT30 (31.08.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500429.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - 100 Songs Part 2 (2019) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500283.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - Всё сразу 200 хитов Выпуск 7 50/50 (from Valik) (2015) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500207.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Новинки с разных популярных MP3 сайтов. Ver.8
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500175.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Музыка для потрясающего вечера (2012) [MP3|80-32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500077.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ VA - Территория Русских Новинок (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499617.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - 538 Dance Smash Vol.4 (2012) [MP3|320 кб/с]<Dance, House, Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499613.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - NRJ Hits 2012 Volume 2 (2CD) (2012) [MP3|~240~288 кб/с]<Dance, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499417.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Музыка для отдыха №2 (2011) [MP3|320 кб/с]<Piano, New A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499284.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - The Official UK Top 40 Singles Chart 02.08.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498615.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - не Громкие новинки недели 28 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498571.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Celestial Drift: Clubbing Disco Set (2022) [MP3|320 Kbps] <Club, Dance, Syn
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498530.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Dance Selected Summer (2022) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498522.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - ЕвроХит Топ 40 Europa Plus 02.08.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498505.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - 100 хитов в дорогу. Русский выпуск часть 3 (2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498400.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Relax FM (01.09.2012) [MP3|320 кб/с]<Relax, Ballads>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498116.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Pirate Club New World Hits (2012) [MP3|256-320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498110.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Радио DFM - D Чарт - Top-30 (02.09.2012) [MP3|320 кб/с]<Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498099.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Самый крутой клубный музон Vol.2 (2012) [MP3|320 к�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498056.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Italo Disco & Old Funky (2022) [MP3|320 Kbps] <Disco, Dance, Remixes>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497637.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ VA - The Best From Need For Speed (2012) [MP3|140-320 кб/с]<Rock, Electro, Ra
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497131.jpg" />
 </div>
 
 
@@ -789,7 +789,7 @@ VA - В машине с музыкой Vol.286 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496712.jpg" />
 </div>
 
 
@@ -818,7 +818,7 @@ VA - В машине с музыкой Vol.287 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496711.jpg" />
 </div>
 
 

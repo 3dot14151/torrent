@@ -1,29 +1,3 @@
-###  Публикация: 1841355   (1047924) от 10.12.2025
-
-Microsoft Visual Studio 2026 Professional 18.1.0 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FD4EA933CC6ACEE7D45DC82AFBFEEE889B7CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841376   (1047913) от 10.12.2025
 
 Microsoft Visual Studio 2022 Enterprise 17.14.22 (Offline Cache) [Ru/En]
@@ -32,7 +6,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.22 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047913.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.2 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046816.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Java SE Development Kit 19.0.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044806.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.25 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032906.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Microsoft Windows Desktop Runtime 5.0.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032010.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ PGI Visual Fortran + Workstation C/C++ 11.7 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029367.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Unity Pro 2019 4.21f1 x64 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027663.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Unity Pro 2020 2.7f1 x64 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026303.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ Unity Pro 2021.1.6f1 x64 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016955.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ Java SE Development Kit 16.0.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005294.jpg" />
 </div>
 
 
@@ -301,7 +275,7 @@ JGSoft RegexBuddy 4.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986872.jpg" />
 </div>
 
 
@@ -327,7 +301,7 @@ Construct 2 Business Edition r239 Stable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938092.jpg" />
 </div>
 
 
@@ -353,7 +327,7 @@ JetBrains ReSharper Ultimate 2019.3.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928572.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ Embarcadero Delphi 2010 collection of components 1.0 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919563.jpg" />
 </div>
 
 
@@ -412,7 +386,7 @@ JGSoft RegexMagic 2.3.1 Retail [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913249.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ Absoft Fortran 2016 + Gino Graphics 8.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910550.jpg" />
 </div>
 
 
@@ -467,7 +441,7 @@ Simply Fortran 3.2.2976 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908720.jpg" />
 </div>
 
 
@@ -493,7 +467,7 @@ VMProtect Ultimate 3.0.9 Build 695 Retail + Web License Manager [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898779.jpg" />
 </div>
 
 
@@ -519,7 +493,7 @@ CodeLobster PHP Edition Pro 5.11.4 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895458.jpg" />
 </div>
 
 
@@ -545,7 +519,7 @@ IAR Embedded Workbench for MSP430 6.40.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887612.jpg" />
 </div>
 
 
@@ -571,7 +545,7 @@ Tangible Software Source Code Converters portable by _Sef 14.02.2017 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879511.jpg" />
 </div>
 
 
@@ -597,7 +571,7 @@ DirectX Software Development Kit Июнь 2010 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842038.jpg" />
 </div>
 
 
@@ -623,7 +597,7 @@ Code Composer Studio 7.0.0.00043 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834775.jpg" />
 </div>
 
 
@@ -649,7 +623,7 @@ Code::Blocks 16.01 + Portable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832811.jpg" />
 </div>
 
 
@@ -675,7 +649,7 @@ Visual Assist X 10.9.2094 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832134.jpg" />
 </div>
 
 
@@ -686,6 +660,32 @@ Visual Assist позволяет увеличить возможности ре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C91430BD4067FF48430844ADDA086BE511C1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503010   (822578) от 17.10.2021
+
+Microsoft Visual Studio 2019 Community 16.11.5 (Offline Cache, Unofficial) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAC8D15E2D2652C8AFA27AEFE98842AE92561C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

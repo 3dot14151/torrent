@@ -6,7 +6,7 @@ Microsoft Office 2007 Pro Plus SP3 + Project 2007 Pro SP3 + Sharepoint Designer 
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520192.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tor Browser 5.0.1 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518338.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tor Browser 5.0.2 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509954.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MKVToolNix v6.4.1 ('Omega Point') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478480.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tor Browser 5.0.3 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470689.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tor Browser 2.3.25-13 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460107.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blender 2.8 [x86, x86-64] (tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422913.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MKVToolNix v6.5.0 ('Isn't she lovely') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401531.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tor Browser 2.3.25-14 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389299.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Aget 0.4.1 [i386, amd64] (deb + src)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355372.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tor Browser 2.3.25-15 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350238.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Skype for Linux 8.9.0.1 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348628.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tor Browser 5.0.4 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348560.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe Dreamweaver CS6 [MULTi / Русский] [x86, amd64] (wine)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342274.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Linux UsefulPack 12.11 (L) [Русский] (2012)[x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337294.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Skype for Linux Beta 5.5.0.1 [x86_x64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321043.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Skype for Linux 8.10.0.4 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321029.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Tor Browser 2.2.39-5 [i686, x86-64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319685.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Cinelerra 5.0 [i686, x86_64] (txz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314120.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Mattermost Server 5.16.0 [x64] (Бинарные файлы)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311006.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Adobe Dreamweaver CC 13.1 build 6443 [MULTi / Русский] [x86, amd64] (wine
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310824.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Dr.Web Workstations 6.0.2.0 [x86, x86-64] (*.run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299544.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Skype 4.3.0.37 [i386, amd64] (deb,rpm,tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298525.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Skype for Linux 8.11.0.4 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287298.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Sublime Text 3 Build 3156 Dev [x86_x64] (deb, rpm, tar.bz2, tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270060.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252022.jpg" />
 </div>
 
 

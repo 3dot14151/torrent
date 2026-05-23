@@ -6,7 +6,7 @@ KiCad 5.1.9 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027487.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sweet Home 3D 6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027477.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wallpaper Engine 1.5.42 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027453.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Topaz Gigapixel AI 5.4.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027451.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ TweakPower 1.171 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027373.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ OCCT 8.0.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027366.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PSPad 5.0.5 Build 567 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027359.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Windows 10 Manager 3.4.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027341.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Any Video Converter Ultimate 7.1.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027335.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Spotify 1.1.54.592 Portable by JolyAnderson [En/Ru] (авторская разд
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027326.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ FreeTube 0.12.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027306.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Advanced Installer 18.0 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027222.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Microsoft Edge 89.0.774.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027214.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Wise Disk Cleaner 10.4.3.792 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027197.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Infix PDF Editor Pro 7.6.0 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027195.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ OCCT 8.0.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027184.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ RarmaRadio Pro 2.72.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027182.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MAGIX Sound Forge Pro Suite 15.0.0.27 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027178.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ O&O ShutUp10 1.8.1419.318 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027169.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Windows 10 Manager 3.4.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027166.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Realtek High Definition Audio Driver 6.0.9116.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027154.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ WinRAR 6.01 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027153.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AnyDesk 6.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027139.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Navicat Premium 15.0.22 x86/x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027132.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Opera GX 73.0.3856.414 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027105.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ WhatsApp 2.2106.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027081.jpg" />
 </div>
 
 

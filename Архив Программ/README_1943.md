@@ -6,7 +6,7 @@ Coolutils Total PDF Converter 5.1.89 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149055.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BELOFF 2018.12.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149037.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Inkscape 1.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149034.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.3 Build 10 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149012.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BlueStacks App Player 2.5.83.6332 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148980.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft Windows x86 x64 Plus PE StartSoft 38-2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148964.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ EarthView 7.7.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148956.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adguard 6.1.298.1564 RC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148953.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Aiseesoft Screen Recorder 1.0.10 Portable by poni-koni [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148869.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ FXSound Pro 1.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148864.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Topaz Video AI 4.0.4 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148858.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.75 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148795.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Vivaldi 2.10.1745.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148778.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Clean Space 2015.04 Portable by SoftsPortateis [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148763.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Opera One 105.0.4970.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148747.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Vivaldi 2.10.1745.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148715.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ XYplorer 16.10.0200 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148668.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Topaz Photo AI 2.1.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148657.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ FileZilla 3.46.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148647.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Any DVD Converter for Android 4.5.8 Portable by PortableAppZ [Multi/Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148638.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Windows System Control Center 2.5.0.4 Portable by Alecs962 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148633.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ NETGATE Spy Emergency 11.0.505.0 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148592.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148586.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Aiseesoft Screen Recorder 2.1.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148571.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ pdfFactory Pro 7.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148555.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Allavsoft Video Downloader Converter 3.26.0.8721 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148545.jpg" />
 </div>
 
 

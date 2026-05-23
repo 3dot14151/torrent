@@ -6,7 +6,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18387.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.4061 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18380.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18371.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18365.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adguard 7.20.3 (7.20.4994.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18353.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wondershare PDFelement 11.4.17.3480 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18341.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SIV (System Information Viewer) 5.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18336.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Capture One 23 Enterprise 16.5.11.2898 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18334.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.47 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18299.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18286.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ OCCT 14.0.11 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18284.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Snappy Driver Installer Origin R815 | Драйверпаки 25.04.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18278.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5854 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18274.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Atlantis Word Processor 4.4.5.5 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18260.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VCap Downloader 0.1.31.6535 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18253.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Visual Studio 2022 Professional 17.14.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18210.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ V-Ray 7.10.00 for 3ds Max 2021-2026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18145.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Abelssoft SSD Fresh Plus 2026 15.01.61691 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18141.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ EasyUEFI Technician 5.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18122.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Any Video Downloader Pro 9.2.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18114.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ OCCT 14.0.12 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18100.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18062.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Windows 7 SP1 7601.27729 x64 3in1 by OneSmiLe [17.05.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18036.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ YT Downloader 9.12.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18024.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ IObit Smart Defrag Pro 10.4.0.441 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17994.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17980.jpg" />
 </div>
 
 

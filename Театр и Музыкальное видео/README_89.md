@@ -1,111 +1,3 @@
-###  Публикация: 710213   (415660) от 14.10.2013
-
-Огонь Кристиана Лубутена 3D / Feu: Crazy Horse Paris (2012) Blu-Ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый создатель туфель с красной подошвой ставит шоу в известном парижском клубе «CRAZY HORSE PARIS». По словам самого Лубутена, танцевальные номера в парижском кабаре «это памятник, памятник танцу, фантастическая идея праздника для женщин от женщин».Производство: Франция (студия KaBo)Жанр: Документальный, Мюзикл, ШоуРежиссер: Бруно ХаллинАктеры: Люмина Классика, Нука Карамель, Бейби Лайт, Кристиан Лубутен, Лив Менот, Дива Новита, Фьямма Роза, Ясна Снигура, Псикко Тико, Лоа ВаинаПеревод: Многоголосый закадровыйСубтитры: РусскиеПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947818   (415489) от 18.10.2015
-
-Верный робот (1965) WEBRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Станислава Лема
-Однажды писатель Том Клемпнер получает по почте посылку с роботом по имени Граумер, хотя он его совсем не заказывал. Но, так как робот ему достался даром, он решает оставить его у себя. Робот оказался очень услужливым, и даже начал давать писателю весьма дельные советы,
-но вскоре в доме начинают пропадать вещи, а Клемпнер получает (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Телеспектакль, фантастикаРежиссер: И. РассомахинАктеры: Робот - С. Юрский,  Клемпнер - В. Стржельчик,  Господин Гордон - В. Эренберг,  Госпожа Гордон - В. Кибардина,  Господин Доннель - Р. Лебедев,  Госпожа Доннель - Л. Штыкан,  Тип - И. Щепетнов,  посыльные - Е. Иванов Д. ЛиндесПродолжительность: 01:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFC6866B7B63A8EBCF20EA04634164641DC64E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070127   (415165) от 02.10.2018
-
-Шарль Азнавур в Карнеги-Холле / Charles Aznavour au Carnegie Hall (1995) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Композитор и вокалист Шарль Азнавур является одним из самых известных музыкантов Франции, его часто сравнивают с такими с эстрадными певцами, как Морис Шевалье или Фрэнк Синатра.
-Вашему вниманию представлен концерт Шарля Азнавура, записанный в прямом эфире в июне 1995 года в Карнеги-Холле.
-В этом концерте Шарль Азнавур исполняет 27 песен на французском и английском (   Читать дальше...   )Производство: Seven Stars Systems S.A.Жанр: МузыкальныйАктеры: Charles AznavourПеревод: ОтсутствуетПродолжительность: 01:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6323E247407F9B64831A5B53E1387149CAE29275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 830528   (414277) от 17.10.2014
-
-Иисус Христос Cуперзвезда / Jesus Christ Superstar (2000) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"А не замахнуться ли нам на Тима, нашего, Райса?!" - подумали однажды Гейл Эдвардс с Ником Моррисом, и замахнулись... Да ещё как! Взяли да и поставили заново классическую рок-оперу 'Иисус Христос - Суперзвезда'. Мало того, что поставили, ещё видео-версию ремейка сняли. Получилоcь крайне занятно: Иуда в косухе ревнует безбородого Иисуса в рэперских штанах (   Читать дальше...   )Производство: СШАЖанр: Рок-опера, ДрамаРежиссер: Гейл Эдвардс /Gale Edwards, Ник Моррис /Nick MorrisАктеры: Иисус Христос: Glenn Carter(Гленн Картер ) Иуда Искариот: Jerome Pradon (Джером Прэдон) Мария Магдалина: Renee Castle (Рене Кастл) Царь Ирод: Rik Mayall (Рик Майалл) Понтий Пилат: Fred Johanson (Фред Йохансон) Кайафас: Frederick B. Owens(Фредерик Б. Оуэнс) Аннас: Michael Shaeffer(Майкл Шаффер) Саймон Зелота: Tony Vincent(Тони Винсент) Питер: Cavin Cornwall (Кевин (   Читать дальше...   )Перевод: ДублированныйЯзык озвучки: РусскийПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0C8A88EE4771345ECD709C43E9A9BACC09B03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412526   (413464) от 01.10.2020
 
 Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <Instrumental Moden Metal>
@@ -114,7 +6,7 @@ Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <In
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413464.jpg" />
 </div>
 
 
@@ -141,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_412787.jpg" />
 </div>
 
 
@@ -169,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412249.jpg" />
 </div>
 
 
@@ -195,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411750.jpg" />
 </div>
 
 
@@ -221,7 +113,7 @@ VA - Осенний марафон № 198 / Видеоклипы (Лучшая 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411098.jpg" />
 </div>
 
 
@@ -250,7 +142,7 @@ Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409693.jpg" />
 </div>
 
 
@@ -276,7 +168,7 @@ Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409681.jpg" />
 </div>
 
 
@@ -307,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409588.jpg" />
 </div>
 
 
@@ -334,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409176.jpg" />
 </div>
 
 
@@ -363,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408728.jpg" />
 </div>
 
 
@@ -389,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408562.jpg" />
 </div>
 
 
@@ -415,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408193.jpg" />
 </div>
 
 
@@ -441,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408132.jpg" />
 </div>
 
 
@@ -468,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407880.jpg" />
 </div>
 
 
@@ -495,7 +387,7 @@ Rammstein - Live Aus Berlin (1998) DVDRip [H.264] [DE / DE, EN, RU Sub]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407666.jpg" />
 </div>
 
 
@@ -524,7 +416,7 @@ Masami Okui - V-mode ~10th Anniversary~ Disc 2 (2003) DVDRip [H.264] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407220.jpg" />
 </div>
 
 
@@ -553,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406989.jpg" />
 </div>
 
 
@@ -582,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406920.jpg" />
 </div>
 
 
@@ -611,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406584.jpg" />
 </div>
 
 
@@ -648,7 +540,7 @@ Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406556.jpg" />
 </div>
 
 
@@ -674,7 +566,7 @@ Dreamshow - Animals (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406178.jpg" />
 </div>
 
 
@@ -700,7 +592,7 @@ Gary Moore - The Definitive Montreux Collection (5 альбомов 1990-2001) (
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406088.jpg" />
 </div>
 
 
@@ -714,6 +606,110 @@ Gary Moore - The Definitive Montreux Collection (5 альбомов 1990-2001) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCC76E93C27EF20B480242240BCF888F28D1342B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561416   (406071) от 17.10.2012
+
+Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ELECTRO-HOPПродолжительность: 00:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9999D1B26954D2829CF75B5C29BB2A3F9A4323A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561894   (405774) от 18.10.2012
+
+Сборник клипов - VA - Various Music part. 35 (2012) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C925B1FF727A9A0A5BC91BDE09BE20A873647511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562332   (405647) от 19.10.2012
+
+DJMask - Hymn Of Angel (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Relax, Chill OutПродолжительность: 00:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D1D2E33E51A1D4C8014208F11CEF2F86D598B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562343   (405610) от 19.10.2012
+
+Poshout feat Ange - Beside (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DCAA1A3FF393549BF120CD5A1B87FF069E7EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

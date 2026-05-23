@@ -1,137 +1,3 @@
-###  Публикация: 96824   (644569) от 30.03.2019
-
-Ю.Б.Филиппович | Основы биохимии [1999] [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Однотомный учебник по биохимии.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7337F17DDFC1A81D829595338BA55C4A3DEBB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142188   (644475) от 13.06.2017
-
-Н.А. Тюнин, А.В. Родин (ред.) | Программный ремонт сотовых телефонов Samsung и Motorola (2008) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга является логическим продолжением первой книги издательств "Ремонт и Сервис 21" и "СОЛОН-Пресс" (серия Ремонт, выпуск 93) по теме программного ремонта сотовых телефонов. В этом издании приводятся материалы по инженерному программированию и ремонту более 120 моделей телефонов Samsung и около 100 - Motorola.
-В книге рассматриваются программные (   Читать дальше...   )Жанр: Радиосвязь, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47734AD2521292B49037F25128C73D158C68DDAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142091   (644464) от 13.06.2017
-
-Ю.П. Бахарев | Что такое координаты и зачем они нужны (2017) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Знакомство с методом координатами мы начнем с разбора самого простого случая: с определения точки, прямой и их взаимного расположения, что такое числовая ось.
-Евклид определил точку как то, что не имеет измерений. В современной аксиоматике геометрии точка является первичным понятием, задаваемым перечнем его свойств. В геометрии, топологии и близких разделах математики (   Читать дальше...   )Жанр: ГеометрияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8FE9721AF7CAFAA45D8DAFCA9806A38EA95044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226619   (644378) от 27.05.2018
-
-Н.Я. Жульнев | Правила дорожного движения 2018 с комментариями и иллюстрациями (2018) [PDF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание предназначено в первую очередь для тех, кто решил получить водительское удостоверение. В основе книги лежит официальный текст Правил дорожного движения Российской Федерации со всеми последними изменениями и дополнениями, сопровождаемый комментариями и иллюстрациями. Книга написана доступным языком и не оставит «белых пятен» при изучении текста Правил. (   Читать дальше...   )Жанр: Автомобили и ПДД, Нормативные правовые акты, Учебные справочникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7487B644385298ABD20E79ED33AF95E260D3CBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032151   (644003) от 08.07.2016
-
-Г. А. Багатурия | Размышления марксоведа (2013) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В работе выдающегося современного ученого-марксоведа Георгия Александровича Багатурия рассматриваются актуальные вопросы социально-политического учения марксизма.
-
-Для всех, кто интересуется политическим учением марксизма.Жанр: История, политология, философияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B4CA45ADAF17AE40B75DB0C43B0CFE2F4BEC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032832   (643908) от 08.07.2016
 
 А. Запольскис | Реактивные самолеты Люфваффе (1999) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643908.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643728.jpg" />
 </div>
 
 
@@ -195,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643597.jpg" />
 </div>
 
 
@@ -222,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643576.jpg" />
 </div>
 
 
@@ -248,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643574.jpg" />
 </div>
 
 
@@ -275,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643502.jpg" />
 </div>
 
 
@@ -301,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643501.jpg" />
 </div>
 
 
@@ -327,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643493.jpg" />
 </div>
 
 
@@ -353,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643459.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643416.jpg" />
 </div>
 
 
@@ -406,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643371.jpg" />
 </div>
 
 
@@ -435,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643300.jpg" />
 </div>
 
 
@@ -461,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643232.jpg" />
 </div>
 
 
@@ -488,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643196.jpg" />
 </div>
 
 
@@ -514,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643189.jpg" />
 </div>
 
 
@@ -542,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643092.jpg" />
 </div>
 
 
@@ -568,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643030.jpg" />
 </div>
 
 
@@ -594,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642963.jpg" />
 </div>
 
 
@@ -620,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642922.jpg" />
 </div>
 
 
@@ -646,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642920.jpg" />
 </div>
 
 
@@ -672,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642832.jpg" />
 </div>
 
 
@@ -685,6 +551,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1953E74E0A1BE6877EE8796C342D920CAA759AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142399   (642825) от 14.06.2017
+
+С.В. Юдин | Математика в экономике: Учебное пособие (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642825.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии кратко описаны пакеты программ, распространяемые на условиях лицензии GNU GPL, не предполагающей регистрации и оплаты за использование. Показано, как с помощью этих программ решать практически любые экономико-математические задачи.
+Приведены примеры решения сорока восьми задач.
+Пособие предназначено для студентов экономических специальностей, преподавателей (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A5E81D6293897034DBE94B1BD875D6BF5A0A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142440   (642824) от 14.06.2017
+
+А.Д. Трухний | Парогазовые установки электростанций (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены термодинамические основы комбинированных и парогазовых циклов; основные характеристики утилизационных ПГУ, ПГУ с параллельной схемой, с дожиганием, с газопаровой турбиной, сбросные ПГУ, ПГУ с высоконапорным парогенератором, с нагревом питательной воды выхлопными газами ГТУ. Изложены особенности технологического процесса парогазовой ТЭС; принципиальные (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5180F62289496F7C390ECA8EB558BB168983A147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142305   (642822) от 14.06.2017
+
+Э.Р. Жданов и др. | Компьютерное моделирование физических явлений и процессов методом Монте-Карло (2005) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие предназначено студентам, обучающимся по специальностям 010400 - Физика, 032200 – Физика, 030100 – Информатика, 030500.06 – Профессиональное обучение (информатика, ВТ и компьютерные технологии), по направлениям 510400 – Физика, 511800 – Математика, компьютерные науки, для отработки навыков и умений математического и компьютерного моделирования физических (   Читать дальше...   )Жанр: Физика, информатикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F67CA26CDF9916B525889783D8A11D89F4CCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292859   (642804) от 31.03.2019
+
+Павел Евдокименко | Принцип пуповины. Новая система для здоровья и жизни (2019) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная медицина давно превратилась в бизнес, многие врачи без зазрения совести разводят пациентов на деньги, диагностируют несуществующие болезни и назначают своим пациентам «коммерчески обоснованное лечение», отрабатывая интересы фармакологических компаний. Большинство больных людей вынуждены годами, а порой и пожизненно пить сомнительные, а то и просто вредные (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EE31BAA40551F8839D56C5455E60FE3312CA17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142430   (642718) от 14.06.2017
+
+А.Н. Рабодзей (сост.) | БЭК 28. Infineon. Транзисторы S-IGBT, интеллектуальные ключи и мостовые драйверы (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены краткие описания и технические параметры новых ключевых приборов фирмы Infineon: быстродействующих биполярных транзисторов с изолированным затвором (технология NPT IGBT) и DuoPack® семейств S-IGBT, интеллектуальных ключей семейств TEMPFET®, HITFET®, PROFET®, TRILITHIC® и других схем управления исполнительными механизмами.
+Наряду с новыми приборами в издание (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC13B704170D5D44278409A36CC8F9D77A839E05
 ```
 
 https://mybot314.ru/tekegram_catalog/

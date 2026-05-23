@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2024.002.20736 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57353.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HWiNFO 8.02 Build 5440 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57343.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.1 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57339.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ inPixio Photo Focus Pro 4.3.8621.22315 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57336.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ IObit Uninstaller Pro 13.5.0.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57323.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Telegram Desktop 5.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57321.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ WindowManager 10.17.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57318.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Alt SwitchER 21.17 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57317.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Double Commander 1.1.14 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57316.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ RedNotebook 2.33.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57315.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Aiseesoft Blu-ray Player 6.7.62 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57310.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57308.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Wondershare UniConverter 15.5.8.70 RePack (& Portable) by elchupacabra (06.05.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57305.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ashampoo WinOptimizer 27.00.01 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57304.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Skype 8.119.0.201 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57296.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0507) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57295.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0507) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57288.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ USB Device Tree Viewer 4.2.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57283.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ashampoo WinOptimizer 27.00.01 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57279.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe Illustrator 2024 28.5.0.132 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57269.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Adobe Dreamweaver 2021 21.4.0.15620 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57257.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57255.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Adobe Acrobat Pro 2024.002.20736 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57251.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Windows 7 SP1 x64 (3in1) Activated by Updated Edition (08.05.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57241.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Adobe Animate 2024 24.0.3.19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57235.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Ableton - Live Suite 11.3.25 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57232.jpg" />
 </div>
 
 

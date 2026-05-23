@@ -1,29 +1,3 @@
-###  Публикация: 1820620   (238) от 28.09.2025
-
-Icebound Secrets 2: Soul Hunter (2025) [En] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистического приключения Icebound Secrets. Какое зло скрывается в извращенном таинственном мире темных фей? Погрузитесь в мир, полный спрятанных предметов и тайн, где каждая подсказка приближает вас к истине. Сможет ли детeктив, рискуя столкнуться с опасностями и коварными испытаниями, освободить заточенные души и восстановить равновесие в этом мистическом (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6E14C7CD469435CFCD5F6744385350DC22F9A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769461   (201) от 29.09.2025
 
 New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
@@ -32,7 +6,7 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_201.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_198.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_190.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Arctic Awakening (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_180.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Wandering Sword (2023) [Multi] (1.24.30/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ PixARK (2019) [Ru/Multi] (1.216/dlc) Repack R.G. Alkad
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28714) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Mage and Monsters II (2025) [Ru/Multi] (1.07b) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Placid Plastic Duck Simulator (2022) [Ru/Multi] (2.2.0/dlc) Repack FitGirl [More
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Coromon (2022) [Ru/Multi] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42d/dlc) Repack Other s [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Primal Planet (2025) [Ru/Multi] (1.0.250909.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (1.0.0) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Temtem: Swarm (2024) [Ru/Multi] (0.8.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The House of Tesla (2025) [Ru/Multi] (Build 20154873) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Deep Rock Galactic: Survivor (2024) [Ru/Multi] (1.0.40P/dlc) Repack Other s [Gol
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10962) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:028AF60B78115342EBC4F736BB28CE61D1F9CF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820776   (98) от 29.09.2025
+
+Slime Rancher 2 (2022) [Ru/Multi] (1.0.0) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slime Rancher 2 - это продолжение удостоенной наград и ставшей хитом оригинальной игры, нашедшей более 15 миллионов поклонников по всему миру. Отправьтесь вместе с Беатрикс Лебо в новое путешествие на Радужный остров, в таинственный край древних технологий и неизвестных природных ресурсов, навстречу настоящей лавине незнакомых трясуче-прыгучих слаймов. тараясь разгадать (   Читать дальше...   )Тип издания: RepackРазработчик: Monomi ParkЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAAC2CB01E336BB516571EC694210614826B576
 ```
 
 https://mybot314.ru/tekegram_catalog/

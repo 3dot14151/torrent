@@ -6,7 +6,7 @@ The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311091.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311055.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305972.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304579.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304575.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Agony UNRATED (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304435.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Breaking Bones (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303817.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ One Day For Ched (2012) [En] (1.0.5/dlc) Repack Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303751.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302570.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Homefront [Ru/En] (Rip/1.0.384501) 2011 | R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302151.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Radiation Island (2016) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301668.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301517.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Hollow (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300659.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.05/2dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298993.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Hollow (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298439.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298435.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298430.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298331.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Maize (2016) [En] (1300) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297278.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296375.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Betrayer (2014) [Multi] (1.8.5816) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295247.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Generation Zero (2019) [Ru/Multi] (Build 20191028/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294331.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Borderlands (2009) [Ru] (1.5.0/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292597.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292538.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291220.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290756.jpg" />
 </div>
 
 

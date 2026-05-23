@@ -6,7 +6,7 @@ Ookami Shoujo to Kuro Ouji | Wolf Girl and Black Prince | Волчица и Чё
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика зака�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714217.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Girls' Frontline | Shaonu Qianxian: Renxing Xiao Juchang | Девушки на �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713189.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712877.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Beatless | Без пульса | Слабый удар [2018, TV, 24 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712858.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712786.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 + 4sp] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712463.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Aku no Hana / Flowers of Evil / Цветы зла [2013, TV, 13] BDrip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712027.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Rakudai Kishi no Cavalry | Rakudai Kishi no Eiyuutan | Chivalry of a Failed Knig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711341.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Eromanga-sensei (2019) | Эроманга-сэнсэй OVA [2019, OVA, 2 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711005.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710994.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Caligula | Калигула [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710973.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Sword Art Online Alternative: Gun Gale Online | Мастера меча онла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710746.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Mirai no Mirai | Мирай из будущего [2018, Movie] BDrip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710438.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Code Geass Hangyaku no Lelouch | Code Geass - Lelouch of the Rebellion | Код 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709316.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Non Non Biyori Movie: Vacation | Деревенская глубинка: Кан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708965.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Teekyuu 3 | Теннис 3 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707590.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Teekyuu 5 | Теннис 5 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707589.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Teekyuu 6 | Теннис 6 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707587.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Teekyuu 2 | Теннис 2 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707585.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Usakame | Кролик и черепаха [2016, TV, 12 из 12 + 1 SP из 1] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707583.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Teekyuu | Теннис [2012, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707579.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Teekyuu 7 | Теннис 7 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707576.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Fukigen na Mononokean | The Morose Mononokean | Обитель мрачного 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707572.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Teekyuu 8 | Теннис 8 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707533.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Teekyuu 9 | Теннис 9 [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707522.jpg" />
 </div>
 
 

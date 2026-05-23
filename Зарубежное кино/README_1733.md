@@ -1,55 +1,3 @@
-###  Публикация: 1629725   (199169) от 27.04.2023
-
-Залёт / Le test (2021) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь идеальной семьи полностью меняется, когда Анна, мать четверых детей, внезапно обнаруживает в мусорном ведре положительный тест на беременность. У неё возникает несколько версий: подружка младшего сына, дочь-тинейджер, любовница мужа, а у старшего сына, оказывается, тоже есть девушка, и не одна. Распутывание тайны провоцирует череду шокирующих и смешных открытий...Производство: Франция, 2425 Films, Apollo Films, Centre National de la Cinématographie (CNC)Жанр: комедияРежиссер: Эммануэль Пулен-АрноВ ролях: Александра Лами, Филипп Катрин, Маттео Перес, Хоаким Фосси, Хлоя Гайяр, Пабло Кобо, Люсиль Желан, Лувия Башелье, Айдан Ле Грумейек, Сельма ГуюПеревод: дублированныйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEADA0A245634B35E45B5F26ED7BEBDB8EF3C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629659   (199165) от 27.04.2023
-
-Последняя охота / The Last Manhunt (2022) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В 1909 году, на закате Дикого Запада, Вилли Бой влюбляется в юную туземную красавицу Карлоту. Ее отец, шаман чемеуэви и вождь местного племени, не одобряет их отношения. Когда вождь погибает от случайного выстрела, молодые люди пытаются скрыться в беспощадной пустыне Мохаве. Отряд шерифа и двое индейцев отправляются на их поиски.Производство: США / On The RoamЖанр: вестернРежиссер: Кристиан КамаргоАктеры: Джейсон Момоа, Мартин Сенсмейер, Маинеи Киминака, Зан Маккларнон, Лили Гладстоун, Рауль Макс Трухильо, Брэндон Оакес, Кристиан Камарго, Уэйд Уильямс, Джейми СивесПеревод: Профессиональный многоголосый (IVI)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABF8FC4B002D6B77A1CFA1DC9D00F487851F4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629765   (199163) от 27.04.2023
 
 Крик 6 / Scream VI (2023) WEB-DLRip [H.264/720p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199163.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199162.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199157.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199150.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199138.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199126.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199124.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199120.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199118.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199116.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199114.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199113.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199107.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199098.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199094.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199090.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199053.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199038.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199034.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199022.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199004.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199001.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198989.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198968.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3009D23F3CC49BDA641B6E7F4DEC2EEFEB083D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630978   (198963) от 04.05.2023
+
+Сыграем в убийство? / Murder, Anyone? (2022) WEB-DLRip [H.264/1080p] [EN / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сложный, сильно запутанный, совершенно безумный и смешной процесс создания авангардного, сюрреалистического, умопомрачительного нео-нуарного триллера. И получается в результате: наполненная весельем и хаосом комедийная пьеса внутри фильма, в которой рассматриваются сложности языка, искусства, театра, кино и многого другого.Производство: США / Red Phoenix Productions, Sandaled Kid ProductionsЖанр: Комедия, Криминал, мистикаРежиссер: Джеймс Каллен БрэссакАктеры: Кристос Эндрюс, Галадриель Стинман, Морис ЛаМарш, Чарльз М. Хауэлл IV, Карла Коллинз, Спенсер Бреслин, Dani Abraham, Джеймс Каллен Брэссак, Тайлер Кристофер, Гектор Дэвид мл.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (hardsub)Продолжительность: 01:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99E0AAB3EE1B18AD011BF417C2F232E12B45E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630456   (198962) от 02.05.2023
+
+Козырные тузы / Smokin' Aces (2006) DVDRemux [Fullscreen]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гангстер Бадди Израэл согласился сотрудничать с ФБР и дать показания против своих мафиозных дружков. За его жизнь главой мафии назначено крупное вознаграждение в миллион долларов, и Бадди грозит реальная опасность распрощаться с жизнью еще до начала суда.
+Охрана Израэла поручена двум агентам ФБР – Месснеру и Карратерсу, которым предстоит нелегкая задача защищать (   Читать дальше...   )Производство: Великобритания, Франция, США / Universal Pictures, StudioCanal, Relativity MediaЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Джо КарнаханАктеры: Райан Рейнольдс, Энди Гарсиа, Джереми Пивен, Рэй Лиотта, Алишиа Кис, Тараджи П. Хенсон, Коммон, Крис Пайн, Джоэл Эдгертон, Нестор КарбонеллПеревод: Дублированный, профессиональный двухголосый, авторскийЯзык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9760D0B9F31EA6F6BE0F7030039723B27BF4DCAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

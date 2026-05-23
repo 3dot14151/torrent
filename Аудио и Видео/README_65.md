@@ -1,359 +1,3 @@
-###  Публикация: 1199910   (797253) от 18.01.2018
-
-Пила 8 / Jigsaw (2017) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, КанадаЖанр: Ужасы, триллер, криминал, детективРежиссер: Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07611E24BB91223D77488AD0766ACEF8DE10707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385595   (797157) от 25.05.2020
-
-Баошу | Возрождение времени (2020) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В самый разгар межзвездной войны Юнь Тяньмин оказывается на передовой. Больной раком и решивший свести счеты с жизнью, он был заморожен и отправлен в космос. Там его подбирает флот Трисоляриса. После десятилетий жестоких пыток Юн сдается и начинает сотрудничать с инопланетянами. Он помогает поработить человечество. Получив здоровое клонированное тело, Юнь ведет жизнь (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 10:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9FBF1E791ECDFDA34F52A5E64E244E297A6D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385460   (797145) от 25.05.2020
-
-Подозрительные лица / The Usual Suspects (1995) WEB-DL [1080p] ATV [MVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Обычно, если есть преступление, есть мотив. Обычно, если проводится опознание, по крайней мере есть один подозреваемый. Но это не было обычным преступлением… Пятеро преступников столкнулись в одном необычном месте и решили прокрутить одно дельце. Но кто-то более сильный и могущественный, кто-то, чье имя пугает всех преступников мира, хочет, чтобы они поработали на (   Читать дальше...   )Производство: США, Германия / Bad Hat Harry Productions, Blue ParrotЖанр: Триллер, криминал, детективРежиссер: Брайэн СингерАктеры: Стивен Болдуин, Гэбриел Бирн, Бенисио Дель Торо, Кевин Поллак, Кевин Спейси, Чазз Пальминтери, Пит Постлетуэйт, Сьюзи Эймис, Джанкарло Эспозито, Дэн ХедайяПеревод: Многоголосый профессиональный, двухголосый, авторскийСубтитры: Русские (Captions, full - Nerflix), английские (BluRay; SDH, Netflix)Продолжительность: 01:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D5B5BCF5AE206F3E62EE4DFC6EA3459D7B3CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385706   (797129) от 25.05.2020
-
-Обратная связь / Feedback (2019) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Популярный журналист Джарвис Долан ведёт ночную радиопрограмму под названием «Суровая реальность». Он заработал репутацию на резкой манере общения и новостях про звёзд, и грядущий эфир собирался начать с раскрытия публике очередного скандала. Но в этот вечер всё пошло не так — в студию вламываются двое вооружённых неизвестных в масках, и у них свой план ведения передачи.Производство: Испания, США / Ombra Films, Vaca Films, Xunta de GaliciaЖанр: Триллер, криминалРежиссер: Педро КорредоираАктеры: Эдди Марсан, Пол Андерсон, Ивана Бакеро, Ричард Брэйк, Оливер Куперсмит, Алексис Родни, Энтони Хэд, Алана Боден, Начо Альдегуэр, Стивен ХьюзПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6427D4AF83489872FA968B7BE5D1F0C2B3E4E85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385581   (797119) от 25.05.2020
-
-Стивен Кинг | Институт (2020) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Еще недавно у двенадцатилетнего Люка Эллиса была вполне привычная жизнь: школа, обеды с родителями в любимой пиццерии, вечера в компании лучшего друга… Пока одним июньским утром он не просыпается в собственной комнате, вот только в ней нет окон и находится она в тщательно укрытом от всего мира месте под названием «Институт». Здесь над похищенными из разных городов (   Читать дальше...   )Жанр: УжасыФормат: M4BПродолжительность: 21:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FDEE565A071B43AD57C87B8BDA2381D24187F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385443   (797103) от 25.05.2020
-
-Основной инстинкт / Basic Instinct (1992) BDRip [1080p] ATV4 [MVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Детектив Ник Каррен ведет расследование по делу об извращенном убийстве на сексуальной почве. Подозрение падает на подругу убитого Кэтрин — писательницу, автора шокирующих романов, которая в своей последней книге подробно описала абсолютно аналогичное преступление.Производство: Франция, США, Великобритания / Carolco Pictures, Canal+Жанр: Триллер, драма, детективРежиссер: Пол ВерховенАктеры: Майкл Дуглас, Шэрон Стоун, Джордж Дзундза, Джинн Трипплхорн, Дэнис Арндт, Лейлани Сарелл, Брюс А. Янг, Челси Росс, Дороти Мэлоун, Уэйн НайтПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторский одноголосыйСубтитры: Русские (full) английскиеПродолжительность: 02:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A00A64396C5D0463935B89B74E88CA3322E1DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385484   (797102) от 25.05.2020
-
-Спутник (2020) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1983 год. На землю возвращается космический аппарат, но от людей скрывают, что из двух космонавтов живым возвращается только один. Что произошло на борту, остается загадкой, но факты указывают на то, что космонавт столкнулся в полете с новой формой жизни и вернулся на землю не совсем один… Нейрофизиолог Татьяна Климова пытается докопаться до правды и спасти (   Читать дальше...   )Производство: Россия / Art Pictures Studio, «Водород», Hype FilmЖанр: Фантастика, триллер, драмаРежиссер: Егор АбраменкоАктеры: Оксана Акиньшина, Пётр Фёдоров, Фёдор Бондарчук, Антон Васильев, Павел Устинов, Виталия КорниенкоПеревод: Не требуется (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B98917A0B3B51CFA25F88CA441298F7D969FC68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508660   (796979) от 09.11.2021
-
-VA - Airport Lounge, vol. 3 (2014) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Bessie Boni, Gianna Partner - Mystic Revelation (5:01)
-02. B & W - U Feel 4 U (4:37)
-03. Middle - Warm Sunset (4:51)
-04. Didascalis - Così... (7:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8F1038BE699FCB9457284FD167B889AE1DA7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508681   (796978) от 09.11.2021
-
-VA - Airport Lounge, vol. 6 (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Chambre 19 - La Pluie d'eté (Original Mix) (5:59)
-02. Tranquillo - As Days Go By (Original Mix) (6:42)
-03. Black Orpheus - Touching the Sky (Original Mix) (3:55)
-04. Weathertunes - Down the River (Original Mix) (6:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5E425F3B4BA9EDE41E21C0E6BC3207FCCB8A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508683   (796977) от 09.11.2021
-
-VA - Airport Lounge, vol. 9 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Twentyeight - Stars (Original Version) (5:52)
-02. Dreamhunter - Illusion (Original Mix) (4:15)
-03. Dub Mars - You Give Me the Honor (Original Mix) (4:19)
-04. Counterweight - Close to You (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B7DD79CB839CF55DB81332F7AC09392B3126DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508670   (796976) от 09.11.2021
-
-VA - Airport Lounge, vol. 6 (2015) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Pnfa - Along the Way (6:01)
-02. Yiddu Delhi - Tender Touch (4:28)
-03. Tranquillo - Elaborated Compassion (4:32)
-04. Hijos De La Playa - Playa D'en Bossa Jam (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C42D879C250597A131323621E09C08F84F0330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508685   (796975) от 09.11.2021
-
-VA - Airport Lounge, vol. 10 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Oberhon, Ideo Hijima - A Quiet Place (Original Mix) (5:30)
-02. NsE - Purple Rain (Original Mix) (3:58)
-03. Rex Kramer - Margarets Hope (Original Mix) (4:48)
-04. Dig It All, Rahul Talwar - There Is Snow (Original Mix) (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCB5661E6EF3D335946B8A79B3F9FC9AFFDA584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508666   (796934) от 09.11.2021
-
-VA - Airport Lounge, vol. 5 (2014) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. B & W - Spirits (4:43)
-02. Daniele Soriani, Adriana Salvadori - Silk (D-Soriani Chilly Mix) (6:54)
-03. Ambiworx - Bamboo and Ebony (7:00)
-04. Alpha Centaury - Natale 2012 (1:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7564482CAD932CDCA23324BC7F7FD021262F550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508663   (796933) от 09.11.2021
 
 VA - Airport Lounge, vol. 4 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
@@ -362,7 +6,7 @@ VA - Airport Lounge, vol. 4 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796933.jpg" />
 </div>
 
 
@@ -391,7 +35,7 @@ VA - Airport Lounge, vol. 11 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796932.jpg" />
 </div>
 
 
@@ -420,7 +64,7 @@ VA - Airport Lounge, vol. 2 (2014) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796931.jpg" />
 </div>
 
 
@@ -449,7 +93,7 @@ VA - Airport Lounge, vol. 8 (2016) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796930.jpg" />
 </div>
 
 
@@ -478,7 +122,7 @@ VA - Airport Lounge, vol. 7 (2016) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796925.jpg" />
 </div>
 
 
@@ -507,7 +151,7 @@ VA - Airport Lounge, vol. 5 (2019) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796924.jpg" />
 </div>
 
 
@@ -536,7 +180,7 @@ VA - 50 Melodic Tunes of Winter 2021 (2021) [AAC|~309 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796919.jpg" />
 </div>
 
 
@@ -565,7 +209,7 @@ VA - Airport Lounge, vol. 1 (2010) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796916.jpg" />
 </div>
 
 
@@ -594,7 +238,7 @@ t.A.T.u. - 200 KM/H In The Wrong Lane (10th Anniversary Edition) (2012) [AAC|~33
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796866.jpg" />
 </div>
 
 
@@ -623,7 +267,7 @@ AIR - 10 000 Hz Legend (2021) [AAC|~343 Kbps] <Leftfield, Downtempo, Experimenta
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796865.jpg" />
 </div>
 
 
@@ -652,7 +296,7 @@ t.A.T.u. - 200 по встречной (2002) [AAC|~338 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796812.jpg" />
 </div>
 
 
@@ -681,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796795.jpg" />
 </div>
 
 
@@ -707,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796722.jpg" />
 </div>
 
 
@@ -718,6 +362,365 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84BAE7C83614A70B1FF95D187043AD348DECEDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385903   (796653) от 26.05.2020
+
+Идеальная няня / Chanson douce (2019) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796653.jpg" />
+</div>
+
+
+###  Подробнее
+
+У нее есть ключи от их квартиры. Они сами впустили ее в свою жизнь и отдали в ее руки своих детей. Молодая пара не могла даже мечтать, что сможет найти идеальную няню — строгую, опрятную француженку с огромным опытом. Она выглядит заботливой и доброй, но в ее душе скрывается всепоглощающая тьма.Производство: Франция / Why Not Productions, Pan Européenne, StudioCanalЖанр: Драма, криминалРежиссер: Люси БорлетоАктеры: Карин Вьяр, Лейла Бехти, Антуан Райнарц, Ассия Да Сильва, Ноэль Ренод, Рехаб Мехаль Бенсаин, Калипсо Перетятко, Бенжамин Патисье, Макс Патисье, Лор ДжаппикониПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full) Английские (Full)Продолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA11209412E399E0AA5C932E22EF75C3B9CEAA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508822   (796345) от 10.11.2021
+
+VA - Follow the Light (Beautiful Chill out Tunes), Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VAN - Excursion (Original Mix) (2:35)
+02. Alexandra Hampton, Ahbee - Mirage (Original Mix) (5:54)
+03. Weathertunes - Flower Fields (Original Mix) (5:01)
+04. Peter Pearson - Unconditional (Original Mix) (5:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C3113B268A851525296DDE06FB0ED467895094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508821   (796343) от 10.11.2021
+
+VA - Follow the Light (Beautiful Chill out Tunes), Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco - Mad (Original Mix) (4:00)
+02. Steen Thottrup - Diversities (Original Mix) (4:11)
+03. Peter Pearson - Summer Vibes (Original Mix) (6:06)
+04. Lemongrass, Jane Maximova - Frozen Boy (Original Mix) (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883DFFF458CF73953FB2A533A6A6A257C0F82386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508819   (796342) от 10.11.2021
+
+VA - Follow the Light (Beautiful Chill out Tunes), Vol. 2 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corrado Saija - Closing Eyes (Vanelitne) (3:24)
+02. VAN - Road (Original Mix) (1:06)
+03. Atlantique - Another Day, Another Island (Original Mix) (7:06)
+04. Jane Maximova - Only (Original Mix) (6:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A08944034F566439AAA028A5772C3A220E429D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508836   (796341) от 10.11.2021
+
+The Aces - Under My Influence (Deluxe) (2021) [AAC|~321 Kbps] <Indie Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daydream (2:31)
+02. New Emotion (3:01)
+03. My Phone is Trying to Kill Me (2:55)
+04. Kelly (3:08)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896E7BBA13D0D3C91B114BD17D3988B4754017B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508818   (796328) от 10.11.2021
+
+VA - Follow the Light (Beautiful Chill out Tunes), Vol. 1 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - So Far Away (Original Mix) (6:31)
+02. Marga Sol - Call of an Angel (Original Mix) (3:20)
+03. Pier-O - Dawn (Original Mix) (5:12)
+04. Ventures - Stay (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54514F041544AA005F80B659A6068D0341AB26B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508823   (796285) от 10.11.2021
+
+VA - Aphrodisiac Grooves (2021) [AAC|~303 Kbps] <Downtempo, Nu Soul, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soultrend Orchestra, Frankie Lovecchio, Papik - Fire (4:23)
+02. Jestofunk, James Thompson - Straight To You (Short Mix) (5:09)
+03. Ithamara Koorax, Haroldo Jobim, Arnaldo De Souteiro, Jose Roberto Betrami, Jeorge Pescara - Never Can Say Goodbye (5:14)
+04. Anduze - Julie (3:27)(   Читать дальше...   )Жанр: Downtempo, Nu Soul, JazzПродолжительность: 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4C4D10881840BC4648B87958FA49F0A74F52F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508825   (796276) от 10.11.2021
+
+VA - Bedroom Jazz Vibes, Vol.1 (Smooth Sexy Lounge Sounds For Chillout) (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coolcut - Please Come Home (Extended Nightsnip Mix) (8:34)
+02. Jizz Jazz - Lost in Your Eyes (Cool Chillax Saxy Extended Mix) (5:52)
+03. Chocolate Drops - Reversed Stars (4:36)
+04. Smooth Pack - So Much More (Extended Sensual Sax Mix) (6:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A37F5613E7ABF89B2AF434AB02D81C9A3561B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011690   (796229) от 28.04.2016
+
+Да здравствует Цезарь! / Hail, Caesar! (2016) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Голливуд — империю блеска, роскоши и порока. Здесь обитают кумиры миллионов. Что ни день — пиршество для светских хроникеров. И вот однажды исчезает исполнитель главной роли в фильме «Да здравствует Цезарь!». Ни жена, ни многочисленные любовницы не знают, где он. И теперь продюсера студии ждет веселый денек, ведь он должен найти звезду раньше репортеров…Производство: Великобритания, США, ЯпонияЖанр: Комедия, детективРежиссер: Джоэл КоэнАктеры: Джош Бролин, Джордж Клуни, Олден Эренрайк, Рэйф Файнс, Скарлетт Йоханссон, Тильда Суинтон, Фрэнсис МакДорманд, Ченнинг Татум, Джона Хилл, Вероника ОсориоПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB49472ADEB9B09E512121AB1A90112528BBBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011679   (796186) от 28.04.2016
+
+Да здравствует Цезарь! / Hail, Caesar! (2016) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Голливуд — империю блеска, роскоши и порока. Здесь обитают кумиры миллионов. Что ни день — пиршество для светских хроникеров. И вот однажды исчезает исполнитель главной роли в фильме «Да здравствует Цезарь!». Ни жена, ни многочисленные любовницы не знают, где он. И теперь продюсера студии ждет веселый денек, ведь он должен найти звезду раньше репортеров…Производство: Великобритания, США, ЯпонияЖанр: Комедия, детективРежиссер: Джоэл КоэнАктеры: Джош Бролин, Джордж Клуни, Олден Эренрайк, Рэйф Файнс, Скарлетт Йоханссон, Тильда Суинтон, Фрэнсис МакДорманд, Ченнинг Татум, Джона Хилл, Вероника ОсориоПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF41F73BDAD3DAB1033408E241C66A0BEC67E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508889   (796185) от 10.11.2021
+
+Идентичность / Passing (2021) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьные подруги Клэр Кендри и Айрин Редфилд встречаются спустя несколько лет. Старые отношения возрождают прошлые идеи, рискующие разрушить жизни обеих.Производство: Великобритания, США / AUM Group, Film4, Flat Five ProductionsЖанр: драмаРежиссер: Ребекка ХоллАктеры: Тесса Томпсон, Рут Негга, Андре Холланд, Билл Кэмп, Гбенга Акиннагбе, Антуанетта Кроу-Легаси, Александр СкарсгардПеревод: ДублированныйСубтитры: русские (forced, full), английские, украинскиеПродолжительность: 01:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298519CBBFB0E2A9DBD300922263BD56AE7782D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200261   (796147) от 20.01.2018
+
+Жги!  (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796147.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого человека есть право на жизнь, свободу и стремление к счастью. Надсмотрщице в женской колонии выпадает шанс изменить свою судьбу, приняв участие в главном песенном шоу страны. Однако сильного голоса для этого недостаточно. Через множество комичных ситуаций и череду драматических событий героине предстоит заново найти себя. А единственным человеком, способный (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Кирилл ПлетнёвАктеры: Инга Оболдина, Виктория Исакова, Анна Уколова, Владимир Ильин, Данил Стеклов, Никита Кологривый, Татьяна Догилева, Ольга Бузова, Александра Бортич, Екатерина АгееваПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE37C580F28F2DCEC11E1AD9C3D91AB34373D2CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200476   (796145) от 20.01.2018
+
+Жги!  (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796145.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого человека есть право на жизнь, свободу и стремление к счастью. Надсмотрщице в женской колонии выпадает шанс изменить свою судьбу, приняв участие в главном песенном шоу страны. Однако сильного голоса для этого недостаточно. Через множество комичных ситуаций и череду драматических событий героине предстоит заново найти себя. А единственным человеком, способный (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Кирилл ПлетнёвАктеры: Инга Оболдина, Виктория Исакова, Анна Уколова, Владимир Ильин, Данил Стеклов, Никита Кологривый, Татьяна Догилева, Ольга Бузова, Александра Бортич, Екатерина АгееваПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5FEF2BF8D274C2628BF84CFE76CDEC4FA6C8BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 195673   (830459) от 25.04.2010
-
-Джонатан Свифт | Путешествия Гулливера (2007) [MP3, Валерий Кухарешин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-«Школьная библиотека» знакомит своих слушателей с творчеством английского писателя-сатирика, поэта, публициста и политического деятеля Джонатана Свифта. Его бессмертная книга «Путешествия Гулливера» – не только острая сатира на европейское общество, но и роман-путешествие, и фантастический роман, и философская притча, в которой Свифт делится своими неутешительными (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: АСТ, АудиокнигаПродолжительность: 12:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA793C9612B1B75E91D0A930199639492E21DC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195508   (830260) от 25.04.2010
-
-Владимир Васильев | Техник Большого Киева (Охота на дикие грузовики) (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Совершенно невероятная смесь фэнтези и фантастики, иронии – и серьезности. Мир, где маги работают техниками, эльфы обитают в «спальных районах», гномы издавна освоили профессию шахтеров, а вервольфы – «крестные отцы» местной мафии.
-Мир, в котором ведьмаки сражаются не с чудовищами, а – со взбесившейся техникой…
-Мир Большого Киева…Жанр: Фантастика
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502209   (830205) от 13.10.2021
-
-Марина Серова | Секретный агент Багира. Цель оправдывает средства (2021) [MP3, Ирина Данилова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Багира в шоке – ничего себе секретный агент! Да таких агентов, которых по телевизору показывают во время выполнения задания, на пушечный выстрел к разведработе нельзя подпускать! Как же она камеры не заметила?! Теперь вся операция поставлена под угрозу из-за кадров, где она красуется в компании наркоторговца Асхана. И как раз сейчас, когда она уже вплотную подобралась (   Читать дальше...   )Жанр: ДетективПродолжительность: 05:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D51079E7976AAC6421C436471358456D62E99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502200   (830204) от 13.10.2021
 
 Александр Верт | «Дети Эштара» Книга 2. Урод (2021) [MP3, Борис Клейнберг]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830204.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830112.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830100.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830098.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830068.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830058.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830057.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830004.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830001.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829996.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829995.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829960.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829904.jpg" />
 </div>
 
 
@@ -431,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829892.jpg" />
 </div>
 
 
@@ -457,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829885.jpg" />
 </div>
 
 
@@ -485,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829851.jpg" />
 </div>
 
 
@@ -511,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829845.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829817.jpg" />
 </div>
 
 
@@ -563,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829815.jpg" />
 </div>
 
 
@@ -590,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829812.jpg" />
 </div>
 
 
@@ -617,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829810.jpg" />
 </div>
 
 
@@ -643,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829803.jpg" />
 </div>
 
 
@@ -669,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829799.jpg" />
 </div>
 
 
@@ -680,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:120E978950DEC0EFADAB57EEA5ECC84CAB285B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114664   (829794) от 16.03.2017
+
+Валентин Распутин | Уроки французского (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829794.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Уроки французского» — одно из лучших произведений Валентина Распутина. Героиня рассказа — молоденькая учительница французского языка — одна лишь увидит, как нелегко живется ее талантливому, но полуголодному ученику. Испробовав все открытые способы помочь ему, она решится, по словам директора школы, на «преступление» — отважится играть с мальчишкой в «пристенок» (   Читать дальше...   )Жанр: ДрамаПродолжительность: 01:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D67F9CA385EFFFFAE2FC942F0E0B47B59A175C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380991   (829761) от 05.05.2020
+
+Жан Кокто | Священные чудовища (1990) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая актриса Лиан, желая приобщиться к миру знаменитостей, выдает себя за любовницу Флорана, мужа актрисы по имени Эстер. Обман скоро обнаруживается, но Лиан, поселясь в доме Эстер, в действительности становится любовницей Флорана. Эстер покидает свой дом…Жанр: Аудиоспектакль, трагикомедия, классикаЯзык озвучки: РусскийПродолжительность: 01:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B978AAA751A8200582AFD852296DCC65D855A52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114736   (829709) от 16.03.2017
+
+Татьяна Полякова | Одна против всех (Книга 4). Один неверный шаг (2016) [MP3, Мария Абалкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829709.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Не ввязывайся!» – вопил мой внутренний голос, но вместо этого я сказала, что видела мужчину, уводившего мальчика с детской площадки… И завертелось!.. Вот так, ты делаешь внутренний выбор, причинно-следственные связи приходят в движение, и твоя жизнь летит ко всем чертям. Зачем я так глупо подставилась?! Но все дело было в ребенке. Не хотелось, чтобы с ним приключилась (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65ADA198BC5EA4311FDB239B920668BFE1104195
 ```
 
 https://mybot314.ru/tekegram_catalog/

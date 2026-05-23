@@ -1,55 +1,3 @@
-###  Публикация: 1740947   (47883) от 04.08.2024
-
-ES File Explorer File Manager v4.4.2.12 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-ES File Explorer (File Manager) — это полнофункциональный файловый менеджер (изображения, музыка, фильмы, документы, приложения) как для локального, так и для сетевого использования! Имея более 500 миллионов пользователей по всему миру, ES File Explorer (менеджер файлов) помогает эффективно и действенно управлять вашим телефоном Android и файлами, а также обмениваться (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 03.08.2024Разработчик: ES GlobalПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609EA081223C725C3F9180A1083FB1E16805F783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591410   (47267) от 10.08.2024
-
-Mock Locations (fake GPS path) v1.24.6 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Mock Locations позволяет подделать данные о расположении Вашего телефона по данным GPS и сети оператора. Вы просто прокладываете маршрут на карте и нажимаете кнопку "Поехали" для того что бы все приложения в Вашем телефоне получали поддельную информацию о местоположении.  Может имитировать перемещение по определённой траектории. Это поможет при разработке (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 06.08.2024Разработчик: DvaoruПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7AA790DBE5EEF25429342385F5712AEB290901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733689   (47247) от 10.08.2024
 
 Listonic / Список покупок v8.10.1 Mod by NURIK kz [Ru/Multi]
@@ -58,7 +6,7 @@ Listonic / Список покупок v8.10.1 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47247.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ SnapEdit - AI photo editor v6.7.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47226.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8.6 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47184.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ jetAudio HD Music Player Plus v12.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47170.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ WPS Office + PDF v18.12 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47164.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.09 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47159.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Photo Sherlock v1.119 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47153.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Astrological Charts / Астрологические Карты Pro v11.0 [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47149.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ GPS АнтиРадар v45.2 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47140.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ jetAudio HD Music Player Plus v12.2.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47136.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47135.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ Horary Chart / Астрология: Хорарная Карта v4.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47118.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ PhotoRoom v5.2.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47109.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47003.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ Unified Remote v3.24.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46977.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.85 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46699.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ PDF Extra PDF Editor & Scanner v10.16.2608 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46433.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ ADV Screen Recorder v4.13.1 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46393.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ PictureThis - Plant Identification v4.3.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46380.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ AR Ruler App: Линейка Рулетка v2.8.7 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46375.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ Bria Mobile: VoIP Softphone v6.16.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46325.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ TV+ HD v1.2.5 Mod by ajrys [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46254.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46244.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46220.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6EAA2AB792FAB299A4A4513FEA6B237AEB7FB1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718672   (45908) от 23.08.2024
+
+VRadio - Online Radio App v2.7.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое, минималистичное и функциональное интернет-радио для вашего телефона с возможностью трансляции на устройства в локальной сети. В наличии обширный каталог с множеством категорий. В наличии эквалайзер, таймер сна, поддержка записи аудиопотока и немало других полезных функций. В данном приложении можно менять темы оформления.Тип издания: PremiumРелиз состоялся: 22.08.2024Разработчик: Voulimiotis IoannisПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7694F6C279B0C57EE90E1C2BB626BE73A9CC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744913   (45864) от 23.08.2024
+
+Picture Insect: Bug Identifier v2.8.30 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увидели незнакомое насекомое? Просто наведите на него камеру телефона, и приложение Picture Insect предоставит все ответы. Исследуйте удивительный мир насекомых. Когда бы вам ни захотелось узнать, что за насекомое перед вами, изучить таксономию паука, прочесть больше о бабочке, приложение Picture Insect станет путеводителем по планете насекомых который вам понадобится (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.08.2024Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5048E4E75C9D30CFBEF80DF83AB322FCB65E5CE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1352167   (1001203) от 13.01.2020
-
-REFUGE (2020) [Ru/Multi] (1.0) License HOODLUM
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Игра представляет из себя рогалик от третьего лица, сбалансированный элементами слешера и медленного боя с перекатами. В игре, игроку предстоит исследовать открытый мир и уничтожать боссов, тем самым зарабатывая особую валюту, которая сохраняется навсегда и позволяет открывать новые предметы, которые после открытия начнут выпадать в новых забегах, что даёт большую (   Читать дальше...   )Тип издания: LicenseРазработчик: TlySoftЖанр: ActionЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DBEF40D243FD74DEE3F42756142DB539A1A464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489084   (1001118) от 14.08.2021
 
 Hermes 4: Tricks of Thanatos / Гермес 4: Проделки Танатоса (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Hermes 4: Tricks of Thanatos / Гермес 4: Проделки Танатоса
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001118.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Demon's Residence (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001105.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Veil of Mystery. Seven Little Gnomes / Под покровом тайны. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000986.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000732.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/upd5a/dlc) Repack Other s [Director
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000723.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Kane & Lynch Dilogy [Ru/En] (RePack) 2007 - 2010 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000575.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Shank: Dilogy [En/Ru] (Repack) 201 - 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000573.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Closure [En] (Repack) 2012 | R.G. Origami
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000332.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Quantum Conundrum [Ru/En] (Repack/1.0.8623.0/2 DLC) 2012 | R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999527.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999518.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Doom 3 BFG Edition [Ru/En] (RePack/1.0.0.1u1) 2012 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999503.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Pure [Ru/En] (RePack) 2008 l R.G. Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999499.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ I Am Alive [Ru/En] (Lossless Repack/1.01) 2012 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999491.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999221.jpg" />
 </div>
 
 
@@ -404,7 +378,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0) 2012 | Audioslave
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999044.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ Karateka [Ru/En/Multi5] (L) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998484.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ Indie Game Collection [Ru/En/Multi13] (Repack) 2005 - 2012 | R.G. ILITA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998480.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ Ricochet Infinity (2007) [Ru/En] (3.0.62) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998476.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ GTR2 Light [Ru] (RePack/2.0.0.0) 2006 (2013) | SimProject
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998473.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ Homefront [Ru/En] (RePack/1.0.384501) 2011 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998465.jpg" />
 </div>
 
 
@@ -564,7 +538,7 @@ Driver: San Francisco [Ru/En/Multi10] (L/1.0.04.1114) 2012 | *PROPHET*
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998464.jpg" />
 </div>
 
 
@@ -590,7 +564,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998189.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ Worms: Ultimate Mayhem [Ru/En/Multi9] (Steam-Rip/DLC) 2011 | R.G. Игроман
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997912.jpg" />
 </div>
 
 
@@ -650,7 +624,7 @@ Men of War: Assault Squad Game of the Year Edition / В Тылу врага 2: �
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997622.jpg" />
 </div>
 
 
@@ -680,7 +654,7 @@ Crazy Machines 2 Happy New Year Bundle Edition [En] (Add-on/1.06) 2013 | TINYISO
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997381.jpg" />
 </div>
 
 
@@ -693,6 +667,32 @@ Crazy Machines 2 Happy New Year Bundle Edition [En] (Add-on/1.06) 2013 | TINYISO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:609F83EBD180E71D9D294638FD821D781FF8D263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602635   (997358) от 13.01.2013
+
+Closure [En] (RePack) 2012 | R.G. Механики
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Closure – логический платформер, использующий концепцию света и тени. Главная особенность игры заключается в том, что только то, что видно в данный момент на экране, на самом деле существует. Так, например, если какой-то предмет или поверхность освещаются светом, то значит с ним можно взаимодействовать, а если на них находит тень – они перестают существовать.(   Читать дальше...   )Тип издания: RepackЖанр: Arcade (Platform) / LogicЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D21D9D9FD71438C7348BBA2170BDA4C813D2045
 ```
 
 https://mybot314.ru/tekegram_catalog/

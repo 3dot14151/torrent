@@ -1,189 +1,3 @@
-###  Публикация: 908097   (635287) от 13.06.2015
-
-KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Проект KaOS представил июньский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. Plasma/KDE desktop 5. Ядро Linux Kernel 4.0.5, glibc 2.21 и Binutils 2.25, libpng 1.6 series, systemd 220
-
-Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве основного рабочего окружения последнюю версию (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908314   (633336) от 14.06.2015
-
-Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Представлен очередной релиз французского дистрибутива на основе текущей версии Debian 8 "Jessie" с DE Xfce 4.12. Отметим, что ранее дистрибутив базировался на текущих версиях Xubuntu.
-
-Рабочее окружение включает в себя по умолчанию Conky, Smtube, Kodi/XBMC Media Center, VLC, GIMP, Clementine, CoverGloobus, RadioTray, Slingscold, Skippy-xd, Kazam, а также (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EEC25C3FD490D21BA14DAC172B184F3B99BACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143575   (633012) от 19.06.2017
-
-Debian GNU/Linux 9.0 + nonfree Stretch [i386] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После более двух лет разработки состоялся релиз Debian GNU/Linux 9.0 (Stretch), доступный для десяти официально поддерживаемых архитектур, среди которых: Intel IA-32/x86 (i686), Intel EM64T / x86-64 (amd64), ARM EABI (armel), 64-bit ARM (arm64), ARMv7 (armhf), MIPS (mips, mipsel, mips64el), PowerPC 64 (ppc64el) и IBM System z (s390x). Релиз посвящён Яну Мердоку, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7951E4973E67CDD36C441EC2A3F29772F484D47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908530   (631881) от 15.06.2015
-
-Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих столов) [i686] 3xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net. В релизе представлены дистрибутивы с DE от команды разработчиков - 0.8.13 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C866234EC9CDA06C9615890D6B8A8A2714ED26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908528   (631413) от 15.06.2015
-
-Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих столов) [x86-64] 3xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net. В релизе представлены дистрибутивы с DE от команды разработчиков - 0.8.13 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2611B7CB6316176C1EABE6E55D8DB37E92006384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909239   (629745) от 16.06.2015
-
-Tor Browser 4.5.2 [анонимный доступ в сети] [х86, x64] (bundle)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB28C8C7F193838B2F7D100257D7C93D53C6ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909244   (627505) от 17.06.2015
-
-Tor Browser 5.0a2  (Alpha2)  [анонимный доступ в сети] [х86, x64] (bundle)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80C21E53C9FB2DC92D305DBD4AAADBD3992D33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144919   (625357) от 23.06.2017
 
 OpenMandriva Lx 3.02 PLASMA [i586, x86-64] 2xDVD
@@ -192,7 +6,7 @@ OpenMandriva Lx 3.02 PLASMA [i586, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625357.jpg" />
 </div>
 
 
@@ -218,7 +32,7 @@ Lubuntu 13.10 Saucy Alpha II (легкий дистрибутив) [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623952.jpg" />
 </div>
 
 
@@ -246,7 +60,7 @@ Kubuntu 13.10 Saucy Alpha II [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623829.jpg" />
 </div>
 
 
@@ -272,7 +86,7 @@ Antergos 17.6 [i586, x86_64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623393.jpg" />
 </div>
 
 
@@ -298,7 +112,7 @@ Autodesk Maya 2017 Update 3 [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623056.jpg" />
 </div>
 
 
@@ -325,7 +139,7 @@ Parted Magic 2016.07.12 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622285.jpg" />
 </div>
 
 
@@ -351,7 +165,7 @@ Ubuntu Gnome 13.10 Saucy Alpha II [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621707.jpg" />
 </div>
 
 
@@ -379,7 +193,7 @@ Sabayon 17.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621537.jpg" />
 </div>
 
 
@@ -405,7 +219,7 @@ Bricsys BricsCAD Platinum 17 17.1.20 Build 47302 [x64] (.tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621238.jpg" />
 </div>
 
 
@@ -431,7 +245,7 @@ OpenVPN Access Server 2.6.1 [En]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620083.jpg" />
 </div>
 
 
@@ -457,7 +271,7 @@ Mageia 5 Cauldron [i586] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619959.jpg" />
 </div>
 
 
@@ -483,7 +297,7 @@ Mageia 5 Cauldron [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619621.jpg" />
 </div>
 
 
@@ -509,7 +323,7 @@ Mageia 5 Cauldron Live [i586, x86-64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619615.jpg" />
 </div>
 
 
@@ -535,7 +349,7 @@ OpenVMS 8.4 [Alpha] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617439.jpg" />
 </div>
 
 
@@ -561,7 +375,7 @@ Solus Linux (Budgie DE) 2017.04.18.0 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614324.jpg" />
 </div>
 
 
@@ -589,7 +403,7 @@ Sabayon 17.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612649.jpg" />
 </div>
 
 
@@ -615,7 +429,7 @@ Maplesoft Maple 2017.1a Build 1238644 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612533.jpg" />
 </div>
 
 
@@ -641,7 +455,7 @@ Debian 9.0.0 [amd64] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609183.jpg" />
 </div>
 
 
@@ -668,7 +482,7 @@ PCLinuxOS 2017.06.20 (LXDE, MATE, XFCE, KDE) [x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609066.jpg" />
 </div>
 
 
@@ -679,6 +493,196 @@ PCLinuxOS - один из самых популярных на Западе ва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24083F4DAD26D0E158FA073BFF77708FCB892A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147739   (607191) от 03.07.2017
+
+Linux Mint 18.2 Sonya (KDE, XFCE, Mate, Cinnamon) [32bit] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA6A909E556051920E4C6FD4A5B296B8D623246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297334   (604012) от 22.04.2019
+
+Ctlos Linux Openbox/i3 v2.1 — iso образ, основанный на Arch Linux 2.1 [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604012.jpg" />
+</div>
+
+
+###  Подробнее
+
+В образе два оконных менеджера, установка происходит в openbox, после установки в менеджере входа(sddm) есть возможность выбора i3.
+Конфиг i3 находится в
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4612324B909D0B589EB8FB6D2514936F4D240A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148220   (603807) от 06.07.2017
+
+Proxmox VE 5.0 [x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Proxmox Virtual Environment (Proxmox VE) — система виртуализации с открытым исходным кодом, основанная на Debian GNU/Linux.
+
+В качестве гипервизоров использует KVM и LXC (начиная с версии 4.0). Соответственно, способна выполнять любые поддерживаемые KVM ОС (Linux, *BSD, Windows и другие) с минимальными потерями производительности и Linux без потерь.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556EABFE7E46D8B3ED21C9C2D4CC1F28B44F8ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286359   (601827) от 27.04.2019
+
+Debian GNU/Linux 9.8.0 + nonfree Stretch [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступно девятое корректирующее обновление дистрибутива Debian 9, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 70 обновлений с устранением проблем со стабильностью и 52 обновления с устранением уязвимостей.
+
+Из изменений в Debian 9.9 можно отметить удаление 5 пакетов: gcontactsync, google-tasks-sync, mozilla-gnome-kerying, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028DAD42ED9BF4ACEC5764C38D071070F3E2D084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913837   (600981) от 30.06.2015
+
+OpenMandriva Lx 2014.2 [i586, x86-64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступен корректирующий выпуск дистрибутива OpenMandriva Lx 2014.2. Выпуск посвящён компании Mandriva, недавно прекратившей своё существование, и даёт понять, что дело компании живо и продолжается силами сообщества. OpenMandriva Lx 2014.2 является четвёртым выпуском после того как компания Mandriva S.A. передала управление проектом в руки некоммерческой организации (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1582D02BC92076C1F606933CAD8C2B3C6199112F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913743   (600921) от 30.06.2015
+
+Parrot Security OS Full Edition 1.9 [amd64] ISO
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parrot Security OS  операционная система для специалистов в области компьютерной безопасности:, предназначенная для тестирования web-приложений, инжиниринг, взлом, конфиденциальность / анонимность и криптографии . Основан на Debian и разработан Frozenbox network. Parrot Security OS предназначен для каждого, от Pro pentester до новичка,  может использоваться также для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7ED456C3F74BBD7FDC86962495D489F959291AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298845   (600704) от 30.04.2019
+
+Debian GNU/Linux 9.9.0 + nonfree 9.9 [amd64] 2xDLBD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступно девятое корректирующее обновление дистрибутива Debian 9, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 70 обновлений с устранением проблем со стабильностью и 52 обновления с устранением уязвимостей.
+
+Из изменений в Debian 9.9 можно отметить удаление 5 пакетов: gcontactsync, google-tasks-sync, mozilla-gnome-kerying, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816D822A0CBD9E7A56C97FAEE774CB6758F2D8CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

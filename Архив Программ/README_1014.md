@@ -6,7 +6,7 @@ Ashampoo HDD Control 2.10 Portable by Valx [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532065.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Dr.Web Security Space 7.0.1.08090 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532063.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ CyberLink PowerDVD Ultra 12.0.1905.56 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532060.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Ummy Video Downloader 1.7.1.0 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531988.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bandicam 3.2.3.1114 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531972.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Windows x86 x64 USB Release by StartSoft 12-2019 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531953.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Adobe Photoshop CC 2019 v20.0.5.27259 (x64) Repack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531947.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ HP Elite 7000, 7100 Recovery Disk (DVD Kit 583401-B52) / Windows 7 Professional 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531911.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ GeoGebra 6.0.715.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531795.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531783.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BurnAware Professional 15.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531777.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NeoSpy PRO 4.0.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531740.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Avidemux 2.8.1 Nightly(r220617) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531655.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AIMP 5.03 Build 2391 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531646.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531643.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Atomix Virtual DJ Pro Infinity 8.0.0 build 2391.1045 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531615.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Icecream Screen Recorder PRO 4.92 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531570.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531517.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ XviD4PSP 7.0.158 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531497.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Adobe AIR 18.0.0.199 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531495.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Cyberfox 40.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531485.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Google Chrome 44.0.2403.155 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531440.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ IObit Uninstaller 5.0.3.168 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531434.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ TeamViewer Free 10.0.45862 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531428.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Maxthon Browser 5.2.3.5000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531391.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Maxthon Browser 5.2.3.5000 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531386.jpg" />
 </div>
 
 

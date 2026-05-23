@@ -1,55 +1,3 @@
-###  Публикация: 1472844   (1013897) от 27.05.2021
-
-Рыцари справедливости / Retfærdighedens ryttere / Riders of Justice (2020) WEB-DL [H/264/1080p-LQ]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Когда жена Маркуса трагически погибает в железнодорожной катастрофе, это кажется нелепой случайностью. А если это тщательно спланированное убийство? Военный, сумасшедший математик и парочка гиков объединяются, чтобы выяснить, что случилось на самом деле. Теперь они — Рыцари справедливости.Производство: Дания / Film i Vast, Zentropa Entertainments, Zentropa International SwedenЖанр: Боевик, драма, комедияРежиссер: Андерс Томас ЙенсенАктеры: Мадс Миккельсен, Николай Ли Каас, Andrea Heick Gadeberg, Ларс Брюгманн, Николас Бро, Густав Линд, Роланд Мюллер, Альберт Рудбек Линдхардт, Энн Биргитте Линд, Омар ШаргавиПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:620A13AB0A6DDC38BAB159C04EE4DDA075F8DA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473249   (1013818) от 28.05.2021
-
-Вечерняя школа / Night School (2018) BDRip [H.264/1080p] [Extended Cut] [МVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Тедди добился успеха в жизни: нет образования, девушка ушла, и он работает в костюме курицы возле стрип-клуба. У него есть последний шанс начать все заново — вернуться за школьную парту и получить аттестат. Кто сказал, что учиться никогда не поздно?Производство: США / Hartbeat Productions, Perfect World Pictures, Universal PicturesЖанр: КомедияРежиссер: Малкольм Д. ЛиАктеры: Кевин Харт, Тиффани Хэддиш, Роб Риггл, Романи Малко, Таран Киллэм, Мэгалин Эчиканвоке, Аль Мадригал, Мэри Линн Райскаб, Кит Дэвид, Энн УинтерсПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Английские + Commentary, французские, испанскиеПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25AAE59FDFB4972491AE4196512AFCA5E865F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469454   (1013792) от 28.05.2021
 
 Горячие штучки / Dirty Dealing 3D (2018) WEB-DL [H.264/1080p-LQ] [МVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013792.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013745.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013666.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013665.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013656.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013633.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013631.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013599.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013498.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013471.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013465.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013449.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013448.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013420.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013361.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013356.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013352.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013348.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013312.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013301.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013288.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013276.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013209.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013176.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ Blackgammon – так называется панк-металическая г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB8C8DAAA93C09FE7F11A280197A98BC1AFF3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468485   (1013164) от 01.06.2021
+
+Однажды в Лондоне / Once Upon a Time in London (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 50-е годы. Время расцвета криминальной группировки, которая осталась в истории как группировка близнецов Край. Когда-то они были друзьями и партнерами по преступному бизнесу. Но, однажды между ними словно пробежала черная кошка, и они стали заклятыми врагами.Производство: Великобритания / Gateway FilmsЖанр: криминалРежиссер: Саймон РамлиАктеры: Терри Стоун, Энди Беквит, Джош Майерс, Крис Данн, Николас Гекс, Лео Грегори, Али Кук, Джо Иган, Эми Лоутон, Джастин СалинджерПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: ОтсутствуютПродолжительность: 01:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427731F97FFB7EB34BD505F1295D001242183529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474256   (1013153) от 01.06.2021
+
+Дядя Дятел / Uncle Peckerhead (2020) BDRip [H.264/1080p] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013153.jpg" />
+</div>
+
+
+###  Подробнее
+
+1990-е. Начинающая панк-группа отправляется в первый тур по окрестным барам, когда им в водители набивается немолодой мужчина. Он говорит приятелям, что его фамилия Дятел, и вскоре ребята выясняют о нём ужасное - приятный и безобидный с виду дядя в полночь имеет свойство превращаться в страшное плотоядное существо. Тем не менее, двое из троих участников панк-коллектива (   Читать дальше...   )Производство: США / Subtle T-RexЖанр: Ужасы, комедияРежиссер: Мэтт ЛоуренсАктеры: Чет Сигел, Дэвид Литтлтон, Джефф Риддл, Руби МакКоллистер, Майк Лоуренс, David Bluvband, Ruth Lolla, Морин МакГоун, Амир Хан, Шеннон О’НилПеревод: Многоголосый закадровый, профессиональный (IVI)Субтитры: АнглийскиеПродолжительность: 01:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C75D1C0174DEAD6DBDBD01E2AB8231EE6ED7674
 ```
 
 https://mybot314.ru/tekegram_catalog/

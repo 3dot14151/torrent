@@ -6,7 +6,7 @@ VA - Music News For Forum vol.156 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052725.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Music News For Forum vol.155 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052229.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - No name compilation part 41 Assorted (2026) [MP3|320 Kbps] <Italodisco, Ita
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052204.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Лучшие песни Радио DFM за 2025 год (2026) [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051735.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Лучшие песни Европа Плюс за 2025 год (2026) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051534.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Music News For Forum vol.154 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051334.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Giza Larue - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad & Soul Son
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051099.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ai - No name compilation part 40 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051096.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Hard Rock: Steel Anthems (2025) [MP3|320 Kbps] <Hard-Rock, Metal, Core>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051005.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ai - No name compilation part 39 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050789.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ai - No name compilation part 38 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050788.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050786.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ai - No name compilation part 36 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050785.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050426.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Richard Marx - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050420.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050415.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050414.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050411.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - ЕвроХит Топ 40 Europa Plus 26.12.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050242.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Chris Rea - This is Chris Rea (2025) [MP3|320 Kbps] <Blues, Rock, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049992.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Music News For Forum vol.153 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049948.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Муз. 2025 by Yuridar [MP3|320 Kbps] <Rock, Pop, Blues, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049779.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Music News For Forum vol.152 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049745.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dakota Lane - Favorites Collection part 3 country music (2025) [MP3|320 Kbps] <c
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049545.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Marius - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Reggae, Ai>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049543.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - No name compilation part 30 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049541.jpg" />
 </div>
 
 

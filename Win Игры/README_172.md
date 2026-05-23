@@ -1,29 +1,3 @@
-###  Публикация: 1222536   (684561) от 29.04.2018
-
-Monster Prom (2018) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Осталось всего 3 недели до выпускного вечера, и у вас еще нет пары ... и вы монстр. Но это нормально, потому что в вашей средней школе все остальные тоже! Monster Prom - симулятор свиданий в средней школе для монстров.Тип издания: RepackРазработчик: Beautiful GlitchЖанр: Simulator, Visual novel, 2DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013DD021E37CD194952FE520E2560628A090EC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134884   (684365) от 17.05.2017
 
 Shio (2017) [Ru/Multi] (1.0.1) License HI2U
@@ -32,7 +6,7 @@ Shio (2017) [Ru/Multi] (1.0.1) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684365.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684361.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ CRIMSON METAL (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684357.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Hiddenverse. The Iron Tower (2018) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684327.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks (2018) [En] (1.0) Unoffici
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684233.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Myths of the World 14: Love Beyond (2017) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684135.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Fright Chasers 4: Thrills, Chills and Kills / Ловцы Страхов 4: Тр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684000.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Bad, the Ugly and the Sober / Злой, плохой и трезвый [Ru] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683823.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Coffin Dodgers (2015) [Ru/Multi] (1.2.4) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683765.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Secret City 2: The Sunken Kingdom / Тайный город 2: Затонувш�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683601.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ DooM in the Dark (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683500.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Lost Lands: The Four Horsemen / Затерянные Земли. Четыре В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683108.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Lost Trails / Остров: Затерянные судьбы (2015) [Ru] Unoffi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683106.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Lemma (2015) [Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682704.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Tales of Terror 3: Estate of the Heart / Трепетные Истории 3: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682573.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Hockey Question Mark (2017) [En] (0.55 uh .59) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682400.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682266.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Prey (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682262.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ On Rusty Trails (2016) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681857.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681825.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0/upd9) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681791.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Infected: The Twin Vaccine Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680970.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ EMPORIUM (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680638.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680524.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Woodcutter Simulator 2012 (L) [Multi3/-] 2012 | PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680457.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Woodcutter Simulator 2012 (L) [Multi3/-] 2012 | PROPHET
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:933E51E0243286D0F189EA2DF6A8953074B064A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290163   (680429) от 19.03.2019
+
+Mystery of the Ancients 7: Black Dagger (2018) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680429.jpg" />
+</div>
+
+
+###  Подробнее
+
+На полицейский участок было совершено нападение, и Вас просят заняться расследованием этого дела. Но ситуация быстро принимает опасный поворот, когда улики указывают на древний кинжал и призрака, владеющего им! С таким опасным противником и бесчисленными семьями, оказавшимися в опасности, сможете ли Вы раскрыть происхождение дьявола и спасти всех?Тип издания: UnofficialРазработчик: MariaglorumЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7E076DAC38FC264A4729226CC695DD676C7A1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

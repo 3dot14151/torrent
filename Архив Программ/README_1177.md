@@ -6,7 +6,7 @@ Re-Loader Activator 1.4 RC 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446795.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack Update 14.4.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446720.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ uTorrent Pro 3.5.5 Build 45798 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446684.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 20.09.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446670.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Toolkit 2.6 Beta 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446639.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CoolUtils PDF Combine 5.1.90 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446606.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mozilla Firefox 50.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446594.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BestReminder v2019.08.29.20 IMPROVED [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446563.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Sonible - smart:Сomp 1.0.2 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446561.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ WinCatalog 2019 19.1.0.829 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446558.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ F-Secure Freedome VPN 2.51.70.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446542.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Defender Tools 1.15 b05 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446514.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ JetBrains IntelliJ IDEA 14.1.5 Build #IU-141.2735.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446466.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BurnAware Professional 9.5 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446434.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CoolUtils PDF Combine 5.1.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446431.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Slimjet 12.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446421.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ CoolUtils PDF Combine 7.1.0.3 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446396.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ MediBang Paint Pro 24.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446394.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ GPU-Z 2.11.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446366.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Complete Internet Repair 5.1.0.3955 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446363.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ArtMoney Pro 7.44 Portable by KloneB@DGuY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446295.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Zemana AntiMalware 2.17.2.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446293.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Windows 10 Pro-Home Insider Preview 10.0.10558 [En] WZT
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446287.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Win 7 PE x86 compact by Xemom1 03.10.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446283.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ GenArts Sapphire Plugin 9.0 CE RePack by Team VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446275.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Re:Vision Effects Twixtor Pro 6.2.3 CE RePack by Team VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446271.jpg" />
 </div>
 
 

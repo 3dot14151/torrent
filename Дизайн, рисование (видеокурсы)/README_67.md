@@ -6,7 +6,7 @@ Udemy, Jose Moreno | Blender & Substance - Modeling and Texturing Videogame Prop
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204925.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204867.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204855.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204854.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Udemy, Sime Bugarija | Complete Blender beginner workflow for Cinematic animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204828.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Skillshare, Harry Jones | Blender 3D for Beginners: Create a 3D Vaporwave Animat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204768.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Outgang, Laura Gallagher | Outgang - Become a Better Character Artist (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204258.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Udemy, Hamidreza Afshari | Texturing a Scene with Substance 3D Painter (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204127.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Saif Alshrideh | The Ultimate weapon course (Create Sniper in Blender 3.4 ) (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204119.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Artstation, Tyler Smith | Intro to UE4 lighting Exterior and Interior (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204104.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204062.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204047.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Udemy, Victory 3D, Mieszko Lacinski | Create a Prop for VFX Pipeline with Maya, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204017.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Kimvoronin, Ким Воронин | PowerPoint Ниндзя (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204007.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ School of Motion, Nol Honig | After Effects Kickstart (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204005.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203745.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Pro-Infografika, Ариадна Юсупова, Мурад Юсупов | Про
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203720.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Antipin-STUDIO, Антипин Виталий | Основа основ (про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203687.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203685.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Teletype, Роман Горелик | Бандл от Науки Дизайна.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203681.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Rebelway, Saber Jlassi | Рендеринг в Karma в Houdini 19 (2021) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203655.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Breezzly, Анастасия Свеженцева | Создание экскл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203650.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Bazanova Art, Ольга Базанова | Гиперреализм (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203581.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ FXPHD, Liam Whitehouse | Realtime Cinema Environments in Unreal Engine (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203560.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Kalacheva School, Ирина Климова и др. | Все онлайн ку�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203521.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Kalacheva School, Татьяна Головко | Анималистика в Di
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203495.jpg" />
 </div>
 
 

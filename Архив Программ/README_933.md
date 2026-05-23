@@ -6,7 +6,7 @@ Daum PotPlayer 1.6.55390 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578846.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCleaner 5.08.5308 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578844.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CloneBD 1.0.4.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578842.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Maxthon Cloud Browser 4.4.7.600 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578840.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VueScan Pro 9.5.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578831.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Daum PotPlayer 1.6.55390 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578828.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 Manager 3.6.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578800.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Waterfox 39.0 x64 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578784.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows System Control Center 2.5.0.2 Portable by Alecs962 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578778.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Punto Switcher 4.1.0 Build 432 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578769.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Radiocent 2.1.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578754.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Opera Developer 32.0.1926.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578744.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Skype 7.7.0.102 RePack AIO (Silent & Portable) by SPecialiST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578741.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ CCleaner 5.08.5308 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578728.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Open Shell (Classic Shell) 4.4.170 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578707.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6721.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578678.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ SUMo PRO 4.0.2.270 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578677.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ CCleaner 5.08.5308 Professional [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578675.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Hotspot Shield Elite 4.20.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578673.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Smart Driver Updater 4.0 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578671.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Daum PotPlayer 1.6.55390 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578670.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Cборник свежих ключей для продуктов Касперс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578651.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft Forefront Endpoint Protection 2012 4.8.204.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578646.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ EZ CD Audio Converter 3.1.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578644.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ The Foundry MODO 901 SP1 Build 88298 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578632.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ DriverPack Solution Online 16.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578626.jpg" />
 </div>
 
 

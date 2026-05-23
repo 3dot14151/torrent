@@ -6,7 +6,7 @@ IcoFX 3.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175853.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CoolUtils Total Image Converter 8.2.0.263 RePack (& Portable) by Dodakaedr [Mult
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175769.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ HitPaw Watermark Remover 2.1.0.15 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175336.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CameraBag Pro 2023.4.0 RePack (& Portable) by elchupacabra
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175112.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174309.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Moho Pro 14.0 build 20230910 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173559.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.1.3578 (x64) Portable by conservator [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173109.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ IcoFX 3.9.0 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172980.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Fotosizer Pro 3.17.2.584 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172260.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FotoWorks XL 2024 24.0.0 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171369.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ TurboCollage Advanced / Home / Professional 7.2.11.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171313.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DxO PureRAW 3.6.2 build 26 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171135.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170781.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ SILKYPIX JPEG Photography 11.2.11.0 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170012.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ SILKYPIX Developer Studio Pro 11.0.12.0 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169050.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Teorex Inpaint 10.2.2 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168956.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ SmallFoto 7.1 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168859.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Adobe Photoshop 2024 (25.1.0.120) Portable by XpucT [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166575.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164773.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Fransiz AIFilter #1 Professional  v1.11.03926 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164175.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Recolored 1.1.0 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163903.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ RF SCreater 2.3.3 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163845.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161881.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ SILKYPIX Developer Studio Pro 11.0.12.1 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160562.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Photomatix Pro 7.1.1 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160539.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ SILKYPIX Developer Studio Pro 11.0.12.1 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160372.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Beethoven - Van Swieten Society (van Swieten Society) (2012) [FLAC|image +.cue]<
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303379.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brahms - Symphonies Nos. 1 & 3 (Gunter Wand & NDR Symphony Orchestra) (2001) [FL
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303368.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rachmaninov - Complete Works for Piano and Orchestra (Rafael Orozco & Royal Phil
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303231.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ David Garrett - Unlimited: Greatest Hits (Deluxe Version, Digipak) (2018) [FLAC|
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303106.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302748.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302713.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Carlo Bergonzi - Carlo Bergonzi - Grandi Voci (1958-1967) 1994 Decca Records [FL
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302629.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Handel;  Academy of St. Martin in the Fields Chorus, Sir Neville Marriner - Mess
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302462.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richte
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302406.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Simon Rattle & Berliner Philharmoniker - Чайковский: Щелкунчи�
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302182.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Antonio Vivaldi / Il giardino armonico - Le quattro stagion / The Four Seasons /
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302124.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ New London Chorale - Songs from the Heart (2008) [FLAC|Lossless|image + .cue] <C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301356.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ New London Chorale - It's For You (1999) [FLAC|Lossless|image + .cue] <Сrossove
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301353.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Various Composers - Music Prague Cathedral (2007) [FLAC|Lossless]<Classical, Bar
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301225.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Liszt - Symphonic Poems - Michael Halasz (Vol.2) (1992) [FLAC|Lossless]<Classica
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301140.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chopin, Liszt - Piano Concertos (Martha Argerich & London Symphony Orchestra) (1
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301134.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ The Piano Guys - Limitless (2018) [MP3|320 Kbps] <Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300883.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - 100 Christmas Masterworks (2018) [MP3|320 Kbps] <Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300748.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Wayne Gratz - 16 альбомов (1989 - 2011) [MP3|192-320 кб/с]<Instrument
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300610.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Handel - Messiah (highlights) (1967) 1997 EMI Classics [FLAC|Lossless|image + .c
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300010.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Bizet; Academy of St Martin in the Fields, Sir Neville Marriner - Symphony in C 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299835.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Naoko Yoshino - Baroque Harp (1998) Philips Classics 1999 [FLAC|Lossless|image +
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299685.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Wiener Volksopern Orchester, dirigent Hans Hagen. - Strausswaltzer (~1967) [FLAC
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298902.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Beethoven - Piano Concerto no.5, Sonatas Op.13, Pathetique Sonata Op.90 (Friedri
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298802.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Berlioz - Symphonie Fantastique (Jos van Immerseel & Anima Eterna Brugge) (2013)
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298794.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Tchaikovsky; Emil Gilels, David Oistrakh, Zubin Mehta, Eugene Ormandy - Piano Co
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297814.jpg" />
 </div>
 
 

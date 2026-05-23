@@ -6,7 +6,7 @@ Foreigner - Original Album Series (2009) 5CD Box Set [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950809.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Magnesis (Magnésis) - La Dame de Braise (2015) [FLAC|Lossless|image + .cue] <Ne
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950776.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Arritmia - Redes (2016) [FLAC|Lossless|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950764.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tony MacAlpine - Concrete Gardens (2015) [FLAC|Lossless|image + .cue] <Instrumen
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950693.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Rome Pro(G)ject - 2 Albums (2012, 2016) 2CD [FLAC|Lossless|image + .cue] <Ne
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950647.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Michael Bolton - Timeless the classics (2003)[FLAC|Lossless|tracks + .cue] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949741.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949655.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ a noend of mine - The Serenity's Eve (2016) [FLAC|Lossless|Web-DL|tracks] <Depre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949600.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tame Impala - The Slow Rush (2020) [FLAC|Lossless|tracks + .cue] <Psychedelic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949554.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jerry Lee Lewis - At Sun Records: The Collected Works (2015) 18CD, Compilation [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949536.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Steve Vai - Mystery Tracks - Archives Vol. 3 (2003) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949149.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Radio Gold Volume 4 (2001) [FLAC|Lossless|image + .cue] <Doo Wop, Rock & Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948322.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Chuck Berry - On The Blues Side (1993) [FLAC|Lossless|image + .cue] <Rock & Roll
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948082.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ James LaBrie - Elements Of Persuasion (2005) [FLAC|Lossless|image + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947583.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pink Floyd - The Early Years 1965–1972 (2016) 11CD [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946934.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dark Hearts Blues - In Peace, Alone (2016) [FLAC|Lossless|tracks] <Hard Rock, Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946908.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Anna Meredith - FIBS (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945334.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Phil Collins – Take A Look At Me Now... (2016) The Complete Albums Box, 4CD, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945249.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The ID - The Masque (2016) [FLAC|Lossless|tracks] <Neo-prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945033.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Regent - Illusions (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944994.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Blind Ego - Liquid (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944864.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Elton John - Wonderful Crazy Night (2016) Deluxe Edition [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943622.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ GPS (ex-Asia) - Window to the soul (2006) US Edition [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943525.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sonia Dada - Sonia Dada (1992) [FLAC|Lossless|tracks + .cue] <Rock Soul>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943017.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Stereophonics - Graffiti On The Train (2CD, Deluxe Edition) (2013) [FLAC (tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942780.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Shadow Show - Silhouettes (2020) [FLAC|Lossless|tracks + .cue] <Rock, Female Voc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942614.jpg" />
 </div>
 
 

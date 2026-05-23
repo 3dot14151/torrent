@@ -6,7 +6,7 @@ Adobe Premiere Pro 2020 14.0.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PhotoInstrument 7.4 Build 820 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943432.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943420.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Java SE Runtime Environment 8 Update 74 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943419.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ICE Book Reader Pro 9.4.5 + SkinPack Portable by Valx [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943412.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rufus 2.7 (Build 848) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943411.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943346.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VLC Media Player 2.2.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943344.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Pinnacle TVCenter Pro 5.4.1.3038 [Русский в том числе...]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943299.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tor Browser Bundle 5.5.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943264.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Andy 46.2.53 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943263.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VLC Media Player 2.2.2 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943258.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Dr.Web Security Space 11.0.1.2030 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943252.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ CyberLink PowerDVD Ultra 15.0.2211.58 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943140.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Atomix Virtual DJ Pro Infinity 8.1 build 2828.1112 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943126.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Atomix Virtual DJ Pro Infinity 8.1 build 2828.1112 Portable by PortableAppZ [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943120.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kaspersky Free Antivirus 16.0.1.445.0.173.0 (Веб-установщик) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943112.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Kaspersky Total Security 2016 16.0.1.445 MR1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943104.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Zentimo xStorage Manager 1.9.7.1258 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942927.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Zentimo xStorage Manager 1.9.7.1258 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942910.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Zentimo xStorage Manager 1.9.7.1258 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942821.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Actual Window Rollup 8.10 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942712.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Abelssoft StartupStar 2017 9.0 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942638.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ultimate Settings Panel 5.3.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942630.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ USB Disk Security 6.2.0.125 DC 05.03.2013 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942613.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.01.08 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942608.jpg" />
 </div>
 
 

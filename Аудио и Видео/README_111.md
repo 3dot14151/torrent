@@ -1,368 +1,3 @@
-###  Публикация: 1532079   (716765) от 18.02.2022
-
-VA - Iconic Lounge (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Crossing Colors - Bright Sun Rays (5:33)
-02. Leisure Pleasure - Grape Leaves (5:54)
-03. Exquisite Frame - Supernatural Twist (6:15)
-04. The Biosnakes - Drop Me a Line (5:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608F87C340DD8FEE95BAF41C7670EEEA1884A9CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532229   (716760) от 18.02.2022
-
-VA - Lounge Jazz in Rio De Janeiro (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Zeb - Brazilenco (5:40)
-02. Gazzara - Rhodes to Bahia (5:49)
-03. LTJ XPerience - Sombre Guitar (2Gether Project Trumpet Take) (6:12)
-04. DJ Rodriguez - Peter Pan's Syndrome (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C21B71CECAB36A8D946C3A196F970D027C6583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532083   (716754) от 18.02.2022
-
-VA - Summer Vibes (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Koenig Eltz - Alluded (5:47)
-02. Schlichting - Rethinking (6:00)
-03. Pique Dame - Souvenir de Bordeaux (6:14)
-04. Fascinating Case - Immersive Experiences (5:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F470E243F6D82880CD3DBEB31F94574555ABD192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532069   (716752) от 18.02.2022
-
-VA - Lounge Jazz in New York (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Ohm Guru - Please, Please, Please, Let Me Get What I Want (3:35)
-02. Matteo Brancaleoni - How Am I Supposed to Live Without You (5:21)
-03. Banda Brasileira - Cosmic Girl (4:34)
-04. Agostino Maria Ticino - An Easy Way to Spend a Day (2:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7E4A5D7011CC8C005621E815F0C2B289ED9A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532237   (716751) от 18.02.2022
-
-VA - Lounge Jazz in Berlin (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Joao Donato, Palmyra, Levita - A Rà (4:39)
-02. Mauro Falardo - The Yellow Karma (5:39)
-03. Papik, Alan Scaffardi - Crazy (4:32)
-04. Jestofunk - Say it again (6:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE4A92899CD7E4FF434690022FB460E02D05979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285876   (716673) от 28.02.2019
-
-Вы умрете, или мы вернем вам деньги / Dead in a Week: Or Your Money Back (2018) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После очередной неудавшейся попытки свести счеты с жизнью незадачливый писатель Уильям обращается к услугам наемного убийцы Лесли — неумолимого ангела смерти из «Гильдии Убийц» — организации, готовой оказать помощь всякому, кто нуждается в быстром и безболезненном уходе из жизни. У Лесли доброе сердце, но нетвердая рука. Начальство мечтает отправить его на пенсию, (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедияРежиссер: Том ЭдмундсАктеры: Кристофер Экклстон, Анайрин Барнард, Том Уилкинсон, Фрейя Мавор, Гетин Энтони, Найджел Линдсэй, Мэрион Бэйли, Натали Баскомб, Марсия Уоррен, Велибор ТопичПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F785F484C2872FAA3672DAE5260CD2C2C8D0B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532232   (716644) от 18.02.2022
-
-VA - Lounge Jazz in Los Angeles (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. I-dep - Make Somebody Smile (Club Edit) (6:01)
-02. Belladonna - Melodies (7:30)
-03. Big Mojo - Don't Cry for Me (Submantra Deep Remix) (6:26)
-04. Papik, Ely Bruna - Special Love (3:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8BC9F8E638243045F3405B314157382EE13266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532073   (716640) от 18.02.2022
-
-VA - Lounge Jazz in Paris (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~338 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Dagmar's Collective - C'Est Si Bon (2:26)
-02. LTJ-Xperience - And I Love Him (Remix) (5:47)
-03. Kelly Joyce - Ce Que J'Aime de Toi (Alternative Version) (2:46)
-04. Arcoiris - Volta Pro Mar (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0702C4334D92E15031B51F960F48629EEF57AFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532236   (716639) от 18.02.2022
-
-VA - Lounge Jazz in Moscow (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~344 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Black Mighty Wax - Shake Your Heart (4:01)
-02. Cybophonia - Vostok Jazz (4:52)
-03. Papik, Walter Ricci - My Sharona (2:50)
-04. LTJ XPerience - Feel My Soul (5:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB92449E2A3D817C0B222F7A4132757F47281157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668677   (716601) от 18.06.2013
-
-Темный рыцарь: Возрождение легенды / The Dark Knight Rises (2012) [1080p] BDRip [ATV]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Восемь лет назад Бэтмен растворился в ночи, превратившись из героя в беглеца. Приняв на себя вину за смерть прокурора Харви Дента, Темный рыцарь пожертвовал всем. Вместе с комиссаром Гордоном они решили, что так будет лучше для всех. Пока преступность была раздавлена антикриминальным актом Дента, ложь действовала.
-
-Но с появлением хитрой воровки с загадочным прошлым (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, Драма, КриминалРежиссер: Кристофер Нолан
-Актеры: Кристиан Бэйл, Том Харди, Энн Хэтэуэй, Джозеф Гордон-Левитт, Марион Котийяр, Гари Олдман, Морган Фриман, Майкл Кейн, Мэтью Модайн, Бен Мендельсон, Дэниел Сунджата, Эйден Гиллен, Лиам Нисон, Алон Абутбул, Берн Горман, Нестор Карбонелл, Джуно Темпл, Брент Бриско, Регги Ли, Крис Эллис, Киллиан Мёрфи, Том Конти, Десмонд Харрингтон, Бретт КалленПеревод: Русский, Английский, УкраинскийСубтитры: русские, английскиеЯзык субтитров: Русский (форсированный), Русский, Английский, Английский (SDH)Продолжительность: 02:44:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285748   (716570) от 28.02.2019
-
-Лоро / Loro (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На закрытых вечеринках и дорогих приемах в Риме и на Сардинии его всегда окружают самые красивые и самые опасные люди, готовые на все, лишь бы получить доступ к живой легенде. «Лоро» («они») — это нувориши-итальянцы и их нравы, воплощение которых — тиран и весельчак, гедонист и романтик, скандальный политик и миллиардер Сильвио Берлускони.Производство: Италия, Франция / Direzione Generale Cinema, Fondazione Sardegna Film Commission, Indigo Film, OCS, Pathe, Regione LazioЖанр: Биография, ДрамаРежиссер: Паоло СоррентиноАктеры: Тони Сервилло, Елена София Риччи, Риккардо Скамарчо, Касия Смутняк, Эвридиче Аксэн, Фабрицио Бентивольо, Роберто Де Франческо, Дарио Кантарелли, Анна Бонаюто, Джованни ЭспозитоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78B31E4D728A2E83DE384F71569CBC07C06DCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285870   (716559) от 28.02.2019
-
-З.К. / O.G. (2018) WEB-DL [1080p] ATV AMZN (MVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Луи — заключенный учреждения строгого режима в Индиане. Он бывший предводитель опасной тюремной банды, который проводит последние недели своего 24-летнего срока. Но после появления в тюрьме дерзкого молодого парня по имени Бичер его скорое освобождение может сорваться.Производство: США / Brookstreet Pictures, Great Curve FilmsЖанр: ДрамаРежиссер: Мадлен СэклерАктеры: Джеффри Райт, Уильям Фихтнер, Бойд Холбрук, Мэр Уиннингхэм, Дэвид Патрик Келли, Юл Васкес, Бахни Турпин, Райан Кутрона, Ато Эссонда, Кевин ДжексонПеревод: Профессиональный многоголосый (Amedia)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53125D136508F3F71133EBBBB9ECF011C2E5C663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285875   (716556) от 28.02.2019
-
-Звезда родилась / A Star Is Born (2018) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кантри-музыкант Джексон Мейн, чья карьера быстро катится под откос, однажды знакомится с никому не известной талантливой певицей Элли. Между героями вспыхивает страстный роман. Джек помогает Элли добиться успеха. Но чем стремительнее набирает обороты музыкальная карьера Элли, тем сложнее ему мириться со своей увядающей славой.Производство: СШАЖанр: Мелодрама, музыкаРежиссер: Брэдли КуперАктеры: Леди Гага, Брэдли Купер, Сэм Эллиотт, Эндрю Дайс Клэй, Рафи Гаврон, Энтони Рамос, Дэйв Шаппелл, Алек Болдуин, Марлон Уильямс, Брэнди КарлайлПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  АнглийскиеПродолжительность: 02:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD48C8C3D6CF8C0BB653298530BB0D947B1E3237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791282   (715896) от 30.05.2014
 
 Лего. Фильм / The Lego Movie (2014) HDRip [576p] iPad
@@ -371,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715896.jpg" />
 </div>
 
 
@@ -397,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715870.jpg" />
 </div>
 
 
@@ -423,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715828.jpg" />
 </div>
 
 
@@ -449,7 +84,7 @@ VA - Дэдпул / Deadpool Reloaded (More Music from the Motion Picture) (2016
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715827.jpg" />
 </div>
 
 
@@ -478,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715513.jpg" />
 </div>
 
 
@@ -504,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715454.jpg" />
 </div>
 
 
@@ -530,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715406.jpg" />
 </div>
 
 
@@ -556,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715371.jpg" />
 </div>
 
 
@@ -582,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715349.jpg" />
 </div>
 
 
@@ -608,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715301.jpg" />
 </div>
 
 
@@ -634,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715278.jpg" />
 </div>
 
 
@@ -660,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715233.jpg" />
 </div>
 
 
@@ -686,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715184.jpg" />
 </div>
 
 
@@ -697,6 +332,364 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:878D4032E286DD8A1BC25AF24E656A852D490430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893348   (715043) от 28.04.2015
+
+Белая белая ночь  (2014) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень приезжает в Петербург на концерт и пропадает. На его поиски из Москвы отправляется частный детектив Игорь. В ходе расследования он встречается с разными людьми, перед ним возникает современная гнетущая атмосфера города, в котором он сам жил много лет назад. В результате Игорь узнает, что пропавший парень случайно оказался втянутым в криминальную историю, связанную с современной застройкой исторического центра Петербурга. Он находит парня в больнице избитым, в состоянии комы и обнаруживает, что (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Рамиль СалахутдиновАктеры: Ирина Обрезкова, Артем Цыпин, Сергей Барковский, Оксана Базилевич, Алла Еминцева, Дмитрий Гульнев, Петр Касатьев, Владимир Марьянов, Светлана Обидина, Юрий ОрловПеревод: Не требуетсяПродолжительность: 02:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C24311AE89A5BD6681F3DAEC9BCE79702348621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400941   (715019) от 07.08.2020
+
+На обочине / Sideways (2004) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель-неудачник, потихоньку спивающийся школьный учитель литературы Майлз Рэймонд берет своего лучшего друга, вышедшего в тираж актера Джека, в поездку по винодельням Калифорнии. Джеку нужно расслабиться перед свадьбой, запланированной через неделю. Два приятеля не догадываются, что ждет их впереди и насколько эта неделя изменит их жизнь.Производство: США, Венгрия / Fox Searchlight Pictures,Michael London Productions,Sideways Productions Inc.Жанр: Драма, мелодрама, комедияРежиссер: Александр ПэйнАктеры: Пол Джаматти, Томас Хейден Чёрч, Вирджиния Мэдсен, Сандра О, Мэрилуиз Бёрк, Патрик Галлахер, Мисси Доти, М. К. Гейни, Джессика Хехт, Алисия РайнерПеревод: Дублированный, профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 02:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D34FE1505053722D7414F558FE7594786981771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893403   (714930) от 28.04.2015
+
+Гнездо дракона / Dragon Nest: Warriors' Dawn (2014) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что всегда неуклюжий, но несомненно талантливый парень станет великим героем, который спасет свою красивейшую планету от пробудившегося зла?
+Много лет, пока легендарный Черный дракон спал, земля Алтера хранила хрупкий мир между расами людей, эльфов и неведомых нашему миру животных. Когда же он пробудился, охваченные ужасом жители были вынуждены бежать сквозь остров в попытке найти спасение…Производство: США, Китай, Франция / Mili PicturesЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Юэфэн СонгАктеры: Цзяо Сюй, Гуаньлин Джи, Йинг Хуан, Давей Шен, Сянлонг Менг, Йе Сунь, Тиан Джин, Хон Шан, Цзытун Ся, Блайт ОффартПеревод: ДублированныйОзвучка / Автор перевода: (iTunes)Продолжительность: 01:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5453D23FBA5A3EE5B1020309E5834A70CD61E315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532281   (714842) от 19.02.2022
+
+VA - Oriental Deep House Gems 1 (2019) [AAC|~315 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Blue Sun - Ad Astra Per Aspera (Original Mix) (5:10)
+02. Serdar Ayyildiz - El Besito (Original Mix) (5:07)
+03. Nacho Sotomayor - Nirvana Song (Dreamers inc & ThroDef remix) (6:13)
+04. Omar Gharbi - Pecado De Amor (Original Mix) (5:58)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E552145A4217C0179C6609DD9FD9800CB482939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532322   (714841) от 19.02.2022
+
+VA - Coffee Chill Time, Vol. 5 (2019) [AAC|~314 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brazil Beat - O Barquinho (Original Mix) (2:34)
+02. Francesca Gramegna - What Is Love (Original Mix) (3:38)
+03. Gabrielle Chiararo - Holding Back the Years (Original Mix) (4:23)
+04. Luna A. Whibbe - Minutos (Original Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5D161E9DEEDBB9BFF879CAA7682886864E45DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532317   (714838) от 19.02.2022
+
+Marga Sol - Oriental Gems (2021) [AAC|~333 Kbps] <Deep House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Mine (5:04)
+02. Awakening (4:20)
+03. Children (6:42)
+04. Golden Sunrise (4:53)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1447FEEAA7233562163234B296EA854E3B6097DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532318   (714837) от 19.02.2022
+
+VA - Coffee Chill Time, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Therese - White Air (4:06)
+02. DJ MNX, Sifat - Buddha Paradise (5:13)
+03. Michael e - Shadows & Light (6:09)
+04. Euphonic Traveller - Montmartre (7:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC936B02F796572E25CB5D8906A06158FDAB48C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532282   (714835) от 19.02.2022
+
+VA - Oriental Deep House Gems 2 (2020) [AAC|~329 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phanoman - Le Balat (Original Mix) (4:33)
+02. Project Blue Sun - Mysterious Girl (Original Mix) (5:14)
+03. Nick Alexiou - Around My Dreams (Original Retouch Mix) (4:32)
+04. Aamir Kangda - Come in My Arms (Instumental Version) (4:21)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D637D881C71CF70BF5A141A1E5A7E76C29DD32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532327   (714833) от 19.02.2022
+
+VA - Golden Girls (Indie Soft Voices) (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jane Maximova - Novel (4:09)
+02. Marga Sol - It's You (3:50)
+03. Leo de la Rosa, Maneela - First Affair (Down Tempo Version) (4:55)
+04. Five Seasons - Before You Sleep (5:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F87CC5669E8C4A6E31C22D458A5C7121C1B4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893215   (714807) от 28.04.2015
+
+Гнездо дракона / Dragon Nest: Warriors' Dawn (2014) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что всегда неуклюжий, но несомненно талантливый парень станет великим героем, который спасет свою красивейшую планету от пробудившегося зла?
+Много лет, пока легендарный Черный дракон спал, земля Алтера хранила хрупкий мир между расами людей, эльфов и неведомых нашему миру животных. Когда же он пробудился, охваченные ужасом жители были вынуждены бежать сквозь остров в попытке найти спасение…Производство: США, Китай, Франция / Mili PicturesЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Юэфэн СонгАктеры: Цзяо Сюй, Гуаньлин Джи, Йинг Хуан, Давей Шен, Сянлонг Менг, Йе Сунь, Тиан Джин, Хон Шан, Цзытун Ся, Блайт ОффартПеревод: ДублированныйОзвучка / Автор перевода: (iTunes)Продолжительность: 01:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183412BB9C386765D135E12FD4445B7E1DAD1E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286053   (714802) от 01.03.2019
+
+Гадкие лебеди (2006) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714802.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной повести братьев Стругацких. История о городе-призраке с интернатом для одаренных детей. Там подрастает племя молодое и пугающе странное, чьими учителями являются существа «мокрецы» - то ли мутанты, то ли пришельцы. В городе происходит беспричинное изменение климата, напоминающее вселенский потоп. Естественно, вокруг вьются бесчисленные комиссии, (   Читать дальше...   )Производство: Россия, Франция, Швейцария / Ф.А. по Культуре и Кинематографии, CDP, CNC, Proline FilmЖанр: Фантастика, Драма, ДетективРежиссер: Константин ЛопушанскийАктеры: Григорий Гладий, Леонид Мозговой, Алексей Кортнев, Римма Саркисян, Лаура Пицхелаури, Сергей Барковский, Дмитрий Исполатов, Ольга Самошина, Алексей Ингелевич, Константин АнисимовПеревод: Не требуетсяСубтитры: Английские (вшитые, отключаемые)Продолжительность: 01:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EF43C768F79964DA08DED89205E4533D48FA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286124   (714510) от 01.03.2019
+
+Дурацкое дело нехитрое / Kraftidioten / In Order of Disappearance (2014) BDRip [1080p] ATV (MVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвегия. Зима. Трудолюбивый Нилс управляет мощным плужным снегоочистителем, который очищает дороги и горные проходы негостеприимного обледенелого ландшафта местности, где он сам живёт. Совсем недавно он был признан жителем года за свои старания, а теперь получает известие о том, что его сын погиб в результате передозировки героина. Отказываясь верить в правдивость (   Читать дальше...   )Производство: Норвегия, Дания, Швеция / 2014 Paradox, Zentropa Entertainments5 ApS, Zentropa International Sweden ABЖанр: Триллер, Криминал, КомедияРежиссер: Ханс Петтер МуландАктеры: Стеллан Скарсгард, Биргитта Йорт Сёренсен, Тобиас Зантельман, Кристофер Хивью, Бруно Ганц, Якоб Офтебро, Пол Сверре Валхейм Хаген, Андерс Баасмо Кристиансен, Сергей Трифунович, Петер АндерссонПеревод: Профессиональный многоголосый (iTunes)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D159E46B32FCF2D3B2FC86D1ABE75365C1FC26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791819   (713882) от 31.05.2014
+
+Охотники за сокровищами / The Monuments Men (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях — величайшей охоте на сокровища в истории. Во время Второй мировой войны команда из искусствоведов и хранителей музеев объединяется, чтобы спасти известные произведения искусства, похищенные нацистами, прежде чем те успеют их уничтожить.Жанр: Военный, драма, комедияПродюсер: Джордж Клуни, Грант Хеслов, Кристоф ФиссерВ ролях: Джордж Клуни, Мэтт Дэймон, Билл Мюррей, Джон Гудман, Жан Дюжарден, Боб Бэлабан, Хью Бонневилль, Кейт Бланшетт, Димитрий Леонидас, Юстус фон ДонаньиПеревод: Профессиональный (дублированный)Язык субтитров: Русский, АнглийскийПродолжительность: 01:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1492F53E606E677A21364E4BEB5AC8EBEF1C223
 ```
 
 https://mybot314.ru/tekegram_catalog/

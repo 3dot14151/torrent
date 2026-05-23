@@ -1,29 +1,3 @@
-###  Публикация: 1751008   (42805) от 22.09.2024
-
-Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete Season]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую историю в серии Life is Strange от DONTNOD Entertainment. Из-за трагических событий братья Шон и Даниэль Диасы сбегают из дома. Скрываясь от полиции, они обнаруживают у Даниэля телекинетическую способность - умение двигать предметы силой мысли. В поисках убежища братья отправляются в мексиканский городок Пуэрто-Лобос, на родину их отца. На плечи (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E0BB7AAEF76B3F8E0B5E47834D4113523D9991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551107   (42795) от 22.09.2024
 
 Portal Reloaded (2021) [En] (1.0.1HF) Repack dixen18
@@ -32,7 +6,7 @@ Portal Reloaded (2021) [En] (1.0.1HF) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42795.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Elon and the Divine Proof (2024) [Multi] (1.5a) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42789.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42781.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Castle of Lord Velimir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42770.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Garlant: My Story (2024) [Multi] (1.1.0.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42769.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42763.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42762.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Planetbase (2015) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42756.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42747.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Gimmick! 2 (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42735.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42731.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Broforce (2015) [Multi] (3148/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42686.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Spiral (2024) [Multi] (20240920PC-01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42684.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.1 HotFix 3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42681.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42670.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42665.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Combat Mission: Battle for Normandy (2023) [En] (4.05/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42653.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Just a To the Moon Series Beach Episode (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42650.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42646.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.22714s/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42631.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42588.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Virtual Rides 3 - Funfair Simulator (2017) [Multi] (2.6.0f2.2/dlc) License GOG [
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42579.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42575.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42574.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Grapple Dogs: Cosmic Canines (2024) [Multi] (1.0.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42557.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Grapple Dogs: Cosmic Canines - это 2D экшен-платформер, рас
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:008B73DC8318C680AF729D8D3E9DA817C4989B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751273   (42548) от 24.09.2024
+
+The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы оказываетесь в доме, не похожем ни на один из тех, что вы видели раньше. Вы быстро понимаете, что это не обычный дом, а таинственное сооружение, построенное из ваших собственных сомнений и страхов. И вы оказались в ловушке. Вы блуждаете и ищете выход, но на вашем пути стоит нечто ужасное. Вы стремитесь к свету, но тьма не отпускает вас. Вам нужно пройти ряд испытаний, (   Читать дальше...   )Тип издания: SceneРазработчик: Hooligans EntertainmentЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97783DADF64062C99C8707B36C19041AE7CEAF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

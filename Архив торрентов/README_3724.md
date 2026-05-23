@@ -6,7 +6,7 @@ Default Folder X 6.0 a7 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235584.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Disk Space Analyzer Pro 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235583.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Glarysoft Malware Hunter PRO 1.166.0.784 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235579.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adobe Audition 2022 22.4.0.49 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235576.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FastStone Capture 10.0 Final RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235567.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Seven / 7 Минут Упражнение v9.15.08 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235559.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Chrono Plus - Time Tracker 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235556.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Keep It 1.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235555.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Cocktail Ventura Edition 16.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235552.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AVS Video Software 12.9.6.32 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235549.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Spotify 1.2.10.760 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235536.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NCH ClickCharts Diagram Pro 8.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235528.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Task Office 8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235526.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Opera 98.0.4759.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235524.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VideoDuke 2.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235522.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Dropshare 5.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235519.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ OneCommander Pro 3.44.1.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235518.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Wondershare UniConverter 14.1.17.189 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235513.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ SiteSucker 4.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235510.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Stats 2.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235509.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tixati 3.18 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235508.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Icecream Screen Recorder PRO 7.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235503.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Transcend SSD Scope 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235501.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kerish Doctor 2022 4.90 (Update 13.09.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235495.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ PhoneRescue for iOS 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235491.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ EarthView 7.7.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235483.jpg" />
 </div>
 
 

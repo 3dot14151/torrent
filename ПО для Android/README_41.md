@@ -1,56 +1,3 @@
-###  Публикация: 922620   (815389) от 21.10.2021
-
-Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Работа с дробями. Пошаговые операции. Алгебра. Выдает промежуточные результаты при вводе выражения. Вводимые выражения преобразуются и выдаются в виде картинки, как если бы вы записывали формулы в привычном виде на листе бумаги. На одном экране, можно вводить несколько разных выражений для расчета, разделяя их. Каждое выражение получается на отдельной строке. Вы (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 19.08.2021Разработчик: Mathlab Apps, LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F89BF642778A0E50B42A9AAB6AA1C257396D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383044   (815293) от 13.05.2020
-
-Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы задумывались, почему некоторые люди в последний момент не садятся в самолет, который разобьется?
-Как успешные бизнесмены чувствуют тенденции рынка? Неужели для этого надо быть ясновидящим? Каждый день каждый из нас сталкивается с множеством выборов, от которых зависит наша жизнь. Как сделать выбор наиболее благоприятным? Можно часами размышлять и анализировать, (   Читать дальше...   )Тип издания: Пиратка (открыта Premium, удалён мусор)Релиз состоялся: 22.01.2020Разработчик: Oleksandr AlbulПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5361D12B40D13897D0B55F50FFCF04F38CB8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197573   (815289) от 07.01.2018
 
 Справочник Розенталя v2.96 Ad-Free [Ru] - Справочник по правописанию и стилистике русского языка
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815289.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ Wifi WPS Plus v3.3.5 Ad-Free [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815227.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814940.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ Shortcut Maker Pro v3.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813988.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811530.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ Pure Tuber (ex. Vanced Tuber) v3.1.8.101 + Mod [Ru/Multi] (обновляема�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809478.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807430.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ Pilzlexikon 2 PRO 1.0.17 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804173.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802363.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801025.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800746.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799979.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798925.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ TouchRetouch v4.4.16 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797171.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797083.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796504.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ Android 12 Clock Widgets v7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795376.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ Yi Pro - Yi Action Camera 3.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794400.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ PingTools Network Utilities 3.68 [Ru/Multi] - утилита для провер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793206.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ Footej Camera 2 Premium 2020.5.6 [Ru/Multi] - Приложение камеры
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793110.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ Analog Clock Constructor-7 v4.44 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792622.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792345.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ UFO VPN 2.3.10 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791757.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ Personal Vault PRO 3.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791258.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ Personal Vault - Удобный менеджер паролей предоста
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:051691FF1E877B2DEACFE3339B0478415CC8B673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387370   (791248) от 02.06.2020
+
+Bliss - Icon Pack 1.3.4 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bliss - Icon Pack - Отличное приложение, которое содержит в себе множество иконок, и не только! Вы сможете подобрать то, что подходит именно вам, на свой вкус. Так же можно выбрать готовый набор стандартных иконок, и изменить его по своему усмотрению. Или же создать что то свое. Данное приложение содержит в себе более чем 1250 иконок, в отличном качестве. А так же (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 31.05.2018Разработчик: BladeXDesignsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C1CF188FB62CF11C7ABCD273DD338CF319D723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387435   (791211) от 02.06.2020
+
+Frequency generator / Генератор частоты 4.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение "Генератор частоты" имеет несколько инструментов для генерации высокочастотных сигналов. Генератор используется для преобразования сигналов, для измерений и в других областях.Тип издания: PremiumРелиз состоялся: 22.05.2020Разработчик: Hoel BoedecПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FF70AA8C2B80881E71638B221FBE1F5DA87715
 ```
 
 https://mybot314.ru/tekegram_catalog/

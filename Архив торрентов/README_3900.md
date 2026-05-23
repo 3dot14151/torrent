@@ -6,7 +6,7 @@ PotPlayer 220914 (1.7.21801) Stable + Portable (x86/x64) by SamLab (15.09.2022) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207965.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Atomix VirtualDJ 2021 Pro Infinity 8.5.7131 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207960.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ OGWhatsApp 17.51 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207958.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207943.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Truecaller BETA: определитель номера 13.26.6 Mod by Amr Gamal 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207941.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ChrisPC Win Experience Index 7.19.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207939.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Google Chrome 115.0.5790.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207938.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wondershare UniConverter Ultimate 15.0.0.19 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207936.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Topaz Photo AI 1.4.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207932.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BELOFF [dp] 2022.09.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207929.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Topaz Video AI 3.1.4 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207925.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ MSMG ToolKit 13.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207922.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AIMP для Android 4.00.1343 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207919.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WhatsApp 2.2305.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207910.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ TreeSize Professional 9.0.2.1843 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207901.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Magic Partition Recovery Home / Office / Unlimited Edition 4.8 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207899.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.978]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207898.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FabFilter - Total Bundle 2023.02.06 SAL, VST, VST 3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207896.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ FileMenu Tools 8.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207891.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ AMD Ryzen Master 2.11.1.2623 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207888.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ macOS 12 Monterey 12.6.8 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207885.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ StartAllBack 3.6.10 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207883.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207879.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Opera 95.0.4635.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207875.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ StartAllBack 3.6.0 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207869.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ StartAllBack 3.6.10 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207867.jpg" />
 </div>
 
 

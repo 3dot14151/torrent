@@ -1,55 +1,3 @@
-###  Публикация: 1191417   (264341) от 13.12.2017
-
-CLO Enterprise 3.2.45 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-"CLO Enterprise" является более продвинутой версией программы "Marvelous Designer", и понравится дизайнерам одежды, так как собственно и была создана для того, чтобы ее создавать в 3D режиме. Теперь разрабатывать новые коллекции и экспериментировать вы сможете гораздо удобнее чем раньше, все нужные инструменты под рукой, интерфейс в целом понятен, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2154374EAFD52C457E0378683E4581D63B2ED06F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340999   (262811) от 26.11.2019
-
-Exoside QuadRemesher 1.01 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Плагин Quad Remesher - это технология автоматического пересчета квадов или так сказать автоматической ретопологии .Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC610F7BF2338A3382D9EABE2BFBB510786AFC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838512   (260906) от 23.11.2025
 
 AMS Ландшафтный Дизайн 3D 11.0 [Ru]
@@ -58,7 +6,7 @@ AMS Ландшафтный Дизайн 3D 11.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260906.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260789.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259774.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ Marvelous Designer Enterprise 2025.2.81 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257764.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ AMS Мой Дом 3D 4.15 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256665.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ V-Ray 6.00.03 for SketchUp 2019-2023 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252198.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ SpeedTree Modeler v9.1.1 Cinema Edition Win x64 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234893.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ Terragen Professional 4.5.71 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231414.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ Adobe Substance 3D Sampler 3.3.1 Build 1866 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230614.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ Nitro4D NitroCap v1.55 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227164.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ SpeedTree Cinema v8.4.2 + Game Engines UE4/Unity/Indie v8.4.2/Clarisse v8.4.1 [E
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219123.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215102.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ Adobe Substance 3D Stager 1.2.1 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213330.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ Chaos Vantage 3.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212202.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ ColorCorrect for 3ds Max 1 - 2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211106.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ Gaea 1.3.1.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208781.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207376.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ Bricklink Studio 2.23.7 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207287.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ Agisoft Metashape Professional 1.8.5.14930 (x64) [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207239.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206836.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ The Foundry Modo 16.1v1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200533.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ Singular Inversions FaceGen Artist Pro 3.12 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200258.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ Itoo RailClone Lite 5.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199738.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ Exoside QuadRemesher 1.2.1 for 3ds Max [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199263.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ Exoside QuadRemesher 1.2.1 for 3ds Max [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8561C60B897840AAC6116180BEBF5E99364126A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631682   (198797) от 06.05.2023
+
+Дизайн Интерьера 3D 8.0 Repack KaktusTV [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198797.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DB82505F9A1957DDB8ABDD344C839EBEC81FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632915   (198500) от 12.05.2023
+
+CrazyTalk Pipeline RePack by PooShock 8.12.3124.1 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198500.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrazyTalk — программа для анимации в реальном времени статических фотографий с помощью фирменной технологии 3D фото морфинга Facetrix с добавлением эмоций, речи, звукового сопровождения, также можно добавить элементы лица и еще многое другое.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778053D72CE102A530A98226383A8564FA14AFEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

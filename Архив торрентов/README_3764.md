@@ -6,7 +6,7 @@ StartAllBack 3.6.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230650.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Revo Uninstaller Pro 5.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230647.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Reg Organizer 9.20 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230646.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YT Downloader 9.1.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230644.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 115.0.5790.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230638.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Uninstaller Pro 11.5.0.3 RePack (& Portable) by elchupacabra (08.06.2022) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230634.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Emurasoft EmEditor Professional 22.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230629.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Revo Uninstaller Pro 5.1.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230621.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VueScan Pro 9.8.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230611.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 4.3 RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230609.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AllDup 4.5.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230608.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230606.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adguard 7.10 (7.10.3952.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230602.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PreSonus Studio One 6 Professional 6.0.0 + PreSonus Hub [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230598.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Firefox Browser 114.0.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230597.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Tor Browser Bundle 11.0.14 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230596.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Reg Organizer 9.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230595.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ XYplorer 24.70.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230594.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Chromium 115.0.5790.102 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230591.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Spotify 1.2.13.656 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230589.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Brave Browser 1.52.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230588.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sandboxie 5.65.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230585.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ WinToUSB Technician 7.9 Release 2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230583.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ TweakPower 2.039 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230579.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ FBackup 9.8.805 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230575.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Luminous Black - Poweramp Skin 8.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230574.jpg" />
 </div>
 
 

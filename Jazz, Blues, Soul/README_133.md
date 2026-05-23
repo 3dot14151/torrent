@@ -6,7 +6,7 @@ Count Basie - Chairman Of The Board (1958) 2003, Roulette [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791155.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Baptiste Herbin - Dreams and Connections (2018) [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791152.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nathan Beretta - Where I Belong (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791094.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Philip Catherine - Oscar (1990) Igloo [FLAC|Lossless|tracks + .cue] <Post-Bop, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791063.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791059.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791056.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John Hammond - Southern Fried (1969) Reissue, 2002, Water [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791021.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Trish Kerr - Clover (2018) [MP3|320 Kbps] <Blues Rock, Jazz Rock, Female Vocal>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790983.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Katie Melua / Кэти Мелуа - Secret Symphony (2012) Dramatico, DRAMCD0078
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790981.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Katie Melua / Кэти Мелуа - Pictures (2007) Japan issue [MP3|320 Kbps] <
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790974.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Maynard Ferguson - Primal Scream (1976) 2004, Wounded Bird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790973.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Katie Melua / Кэти Мелуа - Secret Symphony (2012) Special Bonus Edit 2x
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790972.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ David "Fathead" Newman - It's Mister Fathead (1958 - 1967) 2CD, 1997, 32 Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790863.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dan Knight - Montreux (1998) After Hours [FLAC|Lossless|tracks + .cue] <Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790686.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mike McGinnis - Recurring Dream (2017) Sunnyside Communications [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790561.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790560.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, �
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790538.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Kazumi Watanabe - Guitar Renaissance V (2012) [FLAC|Lossless|image + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790532.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Beth Hart / Бет Харт - Screamin' For My Supper (1999) Atlantic, Lava, 143
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790526.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790524.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790522.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790521.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ David Linx - 7000 Miles (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790518.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Charlie Haden & Kenny Barron - Night And The City (1996) 1998, Verve [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790517.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Debbie Kirkland - Coming From Blue (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790513.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dead Combo - Odeon Hotel (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Blues, Folk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790511.jpg" />
 </div>
 
 

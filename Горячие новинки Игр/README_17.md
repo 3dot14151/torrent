@@ -6,7 +6,7 @@ RuneQuest: Warlords (2025) [Ru/Multi] (1.0.0a) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048995.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Express No. 6 (2025) [Ru/En] (Build 21111253) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048991.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Art of Reflection (2025) [Ru/Multi] (2465) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048813.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Yakuza 0 (2025) [Ru/Multi] (1.11) Repack FitGirl [Director's Cut]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048778.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Yakuza 0 (2025) [Ru/Multi] (1.11) Repack seleZen [Director's Cut]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048777.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048765.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Cold White (2024) [Ru/Multi] (build 21100504) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048764.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048763.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Last Case of John Morley (2025) [Ru/Multi] (Build 20987894) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048519.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ANGST: A TALE OF SURVIVAL (2025) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048516.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048515.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ HELL OF FEAR Mind Breach (2025) [Ru/Multi] (161.5.1.f) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048514.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Morsels (2025) [Multi] (0.28.13) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048512.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048510.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048421.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048419.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Constance (2025) [Ru/Multi] (1.0.1.40150) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048386.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21057229) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048385.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21057229) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048384.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Samurai Academy Paws of Fury (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048342.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ayasa: Shadows of Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048327.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048326.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048324.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Routine (2025) [Ru/Multi] (R.1.6.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048321.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048291.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048283.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978747.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TurbulenceFD v1.0 build 1372 RePack by Bezru4ko [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978737.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera 66.0.3515.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978729.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MediaHuman YouTube Downloader 3.9.9.32 (2801) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978717.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mozilla Thunderbird 68.4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978715.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978710.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Panda Global Protection 2010 Build 3.01.00 Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978699.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Registry Winner 6.6.2.3 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978689.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Far Manager 3.0 build 3156 Stable + Portable [MulTi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978672.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ cFosSpeed 9.01 Build 2031 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978671.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Phase One Capture One Pro 9.0.2.13 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978657.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AdminPE10 1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978644.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Program4Pc Video Converter Pro 10.6 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978619.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Skype 8.56.0.103 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978613.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Movavi Photo Editor 6.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978609.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Notepad++ 7.8.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978606.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ AMD Radeon Software Adrenalin 2020 Edition 20.1.3 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978605.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ PGWare PCBoost 4.1.28.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978595.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ PGWare SuperRam 6.1.28.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978589.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ashampoo Burning Studio 12 12.0.5.0 Final Portable by punsh [MULTi / Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978568.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Skype 8.56.0.103 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978541.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Snappy Driver Installer Origin R708 / Драйверпаки 20000 [Multi/Ru] (�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978537.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ MCS Drivers Disk (альтернатива K-Systems) 19.11.05.1535 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978530.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Total Commander 9.22a MAX-Pack 2020.01.26 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978528.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Download Master 5.14.2.1329 Final RePack (& Portable) by D!akov [Ru/En/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978508.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ HitmanPro 3.5.4 Build 84 Rus (x86+x64) [русский + английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978503.jpg" />
 </div>
 
 

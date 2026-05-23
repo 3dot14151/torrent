@@ -6,7 +6,7 @@ save2pc Ultimate 5.4.9 Build 1566 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SMPlayer 17.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691296.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skype Ad Remover 1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691284.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adobe Audition CC 2014.2 7.2.0.52 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691273.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691262.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Tipard Video Converter Ultimate 9.2.30 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691261.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Coolmuster Android Assistant 4.2.80 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691255.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wise Care 365 Pro 4.8.4.466 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691251.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ SpeedyFox 2.0.23 Build 128  Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691137.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Opera 52.0.2871.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691134.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ iCare Format Recovery 6.1.3 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691133.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IObit Smart Defrag Pro 5.8.6.1286 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691126.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Display Driver Uninstaller 17.0.6.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691066.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Everything 1.4.1.873 Beta + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690985.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Spectrasonics - Omnisphere 2.3.2h (x86/x64) + 146 Libraries [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690953.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Adobe Photoshop CC 2018 (19.1.3.49649) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690945.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BELOFF 2018.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690943.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SAP2000 Ultimate 19.1.1 build 1328 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690897.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Stardock Start10 1.55 RePack by Tyran [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690890.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690881.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ TagScanner 6.0.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690871.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690796.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Panda Free Antivirus 2016 16.1.3 DC 20.06.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690785.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ uTorrent Pro 3.5 Build 43804 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690782.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690770.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ StressMyPC 2.82 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690659.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1140737   (654567) от 07.06.2017
-
-В поисках галактики / Galaxy Quest (1999) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вся Америка усаживалась к телеэкранам, когда начинался любимый зрителями сериал «В поисках Галактики». Герои этой фантастической саги были воистину народными героями. Но прошли годы, и сериал надоел телевизионным боссам. «В поисках Галактики» закрыли, а труппу распустили на все четыре стороны.
-Безработные бедолаги-актеры, исполнявшие главные роли астронавтов, вынуждены (   Читать дальше...   )Производство: США / DreamWorks SKG, Gran ViaЖанр: Фантастика, Комедия, ПриключенияРежиссер: Дин ПаризоАктеры: Тим Аллен, Сигурни Уивер, Алан Рикман, Тони Шэлуб, Сэм Рокуэлл, Дэрил Митчелл, Энрико Колантони, Робин Сакс, Патрик Брин, Мисси ПайлПеревод: Многоголосый, двуголосый закадровый, авторскийСубтитры: Русские, английские (полные, SDH)Продолжительность: 01:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E356E760EDCCA4FA3CEF2E42D898CFB46F00B95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140353   (654565) от 07.06.2017
-
-Женщина в черном 2: Ангел смерти / The Woman in Black 2: Angel of Death (2014) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Во время Второй мировой войны группу школьников и их юную учительницу Еву эвакуируют из подвергшегося бомбардировкам Лондона в заброшенное поместье, расположенное в деревенской глуши. Вскоре в деревне начинают происходить странные события. Ева с помощью начальника местного гарнизона Гарри обнаруживает, что приезд детей пробудил темные силы, внушающие больший ужас, (   Читать дальше...   )Производство: Великобритания, США, Канада / Alliance Films, Da Vinci Media Ventures, Exclusive Media GroupЖанр: Ужасы, Триллер, ДрамаРежиссер: Том ХарперАктеры: Фиби Фокс, Джереми Ирвин, Хелен МакКрори, Эдриан Роулинз, Лиэнн Бест, Нед Деннехи, Окли Пендергаст, Джуд Райт, Амелия Пиджон, Каспер ОлпрессПеревод: Дублированный (Лицензия)Субтитры: Английские (Full), Английские (SDH), Английские (SDH, Colored)Продолжительность: 01:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF1BE6C66CD4BEC1E3A3C8E20A5F56C9043D7E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140598   (654563) от 07.06.2017
 
 Женщины ХХ века / 20th Century Women (2016) BDRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654563.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654560.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654558.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654557.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654556.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_654499.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654494.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654491.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654487.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654478.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_654311.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654288.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654284.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654267.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654227.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654214.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654210.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654158.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654141.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654137.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654130.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654112.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654095.jpg" />
 </div>
 
 
@@ -664,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654094.jpg" />
 </div>
 
 
@@ -675,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC685356014EC9383B7874C301A15A6C5D2A4740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904447   (654087) от 03.06.2015
+
+Законопослушный гражданин / Law Abiding Citizen (2009) BDRemux [H.264/1080p] [Theatriacal cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добропорядочный житель Филадельфии Клайд Шелтон теряет семью в результате бандитского нападения. Но когда преступники оказались в руках правосудия, выяснилось, что юридической Системе удобнее пойти на сделку с одним из бандитов, чтобы дать высшую меру другому.
+Помощник окружного прокурора Ник Райс идет на эту сделку, вопреки протестам возмущенного Шелтона, свято (   Читать дальше...   )Производство: USA / Film Department, The, Gerard Butler Alan Siegel Entertainment, Warp FilmsЖанр: триллер, драма, криминалРежиссер: Ф. Гэри ГрейАктеры: Джейми Фокс, Джерард Батлер, Колм Мини, Брюс МакГилл, Лесли Бибб, Майкл Ирби, Грегори Итцин, Реджина Холл, Эмиральд Янг, Кристиан СтолтеПеревод: Дублированный , Многоголосый закадровыйЯзык субтитров: Русский , АнглийскийФормат: BDAVПродолжительность: 01:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E0EB9D210387EC939DFB592516E63F88189B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904094   (654067) от 03.06.2015
+
+2012: Замерзший мир / 2012: Ice Age (2011) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654067.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, чего мы так давно боялись, случилось! На Земле стремительно началось похолодание! Лед сковывает мировые океаны, а бесконечно падающий снег превращает огромные города в снежные равнины! Люди отчаянно пытаются избежать надвигающегося ледникового периода, но у них практически нет шанса выжить на ледяной планете…Производство: США, The AsylumЖанр: Фантастика, БоевикРежиссер: Трэвис ФортАктеры: Патрик Лабьорто, Джули МакКалло, Ник Афанасьев, Кэти Уилсон, Кайл Моррис, Джералд Уэбб, Тед Монте, Джесси Дэйли, Шон КориПеревод: Многоголосый закадровый, профессиональный двухголосыйСубтитры: Вшитые отключаемыеЯзык субтитров: Датские, финские, норвежские, шведскиеПродолжительность: 01:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D1BD87E094C211CB425641103F1877EB99E671
 ```
 
 https://mybot314.ru/tekegram_catalog/

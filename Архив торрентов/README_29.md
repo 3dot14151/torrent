@@ -6,7 +6,7 @@ FotoJet Photo Editor 1.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041766.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Permute 3 v3.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041765.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cookie 6.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041764.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ aText 2.36.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041763.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hookshot 1.16.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041761.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ RSS Menu 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041760.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VideoProc (former MacX Video Converter Pro) 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041758.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Rottenwood 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041756.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Cocktail Big Sur Edition 14.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041752.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Eon Timer 2.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041750.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Downie 4 v4.1.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041748.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BBEdit 13 v13.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041747.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Book Collector 20.2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041746.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Internet Status 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041745.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MacX Video Converter Pro 6.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041743.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ RAW Power 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041740.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ FotoJet Designer 1.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041738.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FileZilla 3.52.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041734.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bartender 4 v4.0.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041732.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ FileZilla 3.52.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041731.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Performance Index 64 Pro 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041730.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Firefox Browser ESR 78.6.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041728.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Cleaner-App Pro 8.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041725.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ CudaText 1.120.0.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041724.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Glary Disk Cleaner 5.0.1.228 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041721.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Balabolka 2.15.0.767 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041720.jpg" />
 </div>
 
 

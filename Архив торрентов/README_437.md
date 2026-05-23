@@ -6,7 +6,7 @@ OCCT 5.5.3.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963206.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ openSUSE 12.3 Dartmouth RC1 [i586, x86-64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963188.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ CPU-Z 1.75.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963177.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Emurasoft EmEditor Professional 19.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963159.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Denzel Curry & Kenny Beats - UNLOCKED (2020) EP [FLAC|Lossless|Web-DL|tracks] <H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963158.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Opera 66.0.3515.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963155.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ LDPlayer 3.83 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963150.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Product Key Explorer 4.2.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963148.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ FoneLab Data Retriever 1.2.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963147.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mirillis Action! 4.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963145.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963129.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Microsoft Office 2016 Standard 16.0.4312.1000 RePack by KpoJIuK (2016.01) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963111.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Endless Legend (2014) [Ru/Multi] (1.3.5 S3/dlc) SteamRip Let'sРlay [Emperor Edi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963108.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ LDPlayer 4.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963096.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ OCCT 5.5.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963088.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ USDownloader 1.3.5.9 Portable (13.02.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963083.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AtomicClock — NTP Time (with widget) v1.7.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963082.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Manjaro Linux 0.8-r13-0218 (Arch + LXDE) [i686, x86-64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963057.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Hard Disk Sentinel Pro 5.60 Build 11463 Final RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963054.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Pixelmator Pro 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963053.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ CleanMyPC 1.10.5.2041 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963049.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ AirMail 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963044.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Adobe Flash Player 32.0.0.330 (Adobe Runtimes AllInOne 11.02.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963040.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Sketch 63.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963036.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ MAGIX Movie Edit Pro 2020 Premium 19.0.2.58 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962981.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962970.jpg" />
 </div>
 
 

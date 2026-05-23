@@ -1,107 +1,3 @@
-###  Публикация: 682098   (624633) от 26.07.2013
-
-Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Steve Angello & Laidback Luke Ft Robin S - Show me LoveЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C656AB3549EAA1867C46FF0D2772F176F9684F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035302   (624491) от 18.07.2016
-
-Волшебная флейта. (Моцарт) / Mozart - Die Zauberflote (1992) DVD9
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Волшебная флейта (нем. Die Zauberflöte) (K.620) — опера-зингшпиль Моцарта в двух действиях; либретто Э. Шиканедера....далее -Жанр: OperaПеревод: ОтсутствуетЯзык субтитров: English, Francais, EspanolПродолжительность: 02:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B35613D98D7F4779F1AB8D8B99553FFBC5127C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521923   (624409) от 12.07.2012
-
-Сборник Советской Эстрады №2 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1967EA70ED57E64F5E711E26ECD96708E2DED495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521918   (624405) от 12.07.2012
-
-Сборник Советской Эстрады №1 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8796FB1C3C372D6F6C5ACB566BD106877B3B36F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682105   (624359) от 26.07.2013
 
 Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
@@ -110,7 +6,7 @@ Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624359.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624088.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623635.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623550.jpg" />
 </div>
 
 
@@ -217,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623513.jpg" />
 </div>
 
 
@@ -243,7 +139,7 @@ Rihanna - Good Girl Gone Bad Live (2008) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623461.jpg" />
 </div>
 
 
@@ -269,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623423.jpg" />
 </div>
 
 
@@ -296,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623387.jpg" />
 </div>
 
 
@@ -325,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622168.jpg" />
 </div>
 
 
@@ -354,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621509.jpg" />
 </div>
 
 
@@ -380,7 +276,7 @@ Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620979.jpg" />
 </div>
 
 
@@ -406,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620697.jpg" />
 </div>
 
 
@@ -432,7 +328,7 @@ Black Sabbath: Paranoid - Classic Albums (1970/2010) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620392.jpg" />
 </div>
 
 
@@ -462,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620260.jpg" />
 </div>
 
 
@@ -488,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620014.jpg" />
 </div>
 
 
@@ -517,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619476.jpg" />
 </div>
 
 
@@ -543,7 +439,7 @@ Gia. Lights Out (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619227.jpg" />
 </div>
 
 
@@ -569,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618616.jpg" />
 </div>
 
 
@@ -595,7 +491,7 @@ Jimi Hendrix: Jimi Plays Berkeley (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_618538.jpg" />
 </div>
 
 
@@ -621,7 +517,7 @@ Duran Duran - A Diamond In the Mind (2011) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_618337.jpg" />
 </div>
 
 
@@ -660,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618302.jpg" />
 </div>
 
 
@@ -689,7 +585,7 @@ In Flames - Rock Am Ring (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617902.jpg" />
 </div>
 
 
@@ -703,6 +599,122 @@ Rock am Ring — один из крупнейших рок-фестивалей,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A33976ECB4F767B9B14DE3001D96305532B153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684824   (617897) от 29.07.2013
+
+Новая Волна 2013. Международный конкурс молодых исполнителей. День 1-6 (2013) DVB
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу в концертный зал "Дзинтари". Участники конкурсной программы уже прошли сложные региональные, окружные и национальные отборочные туры в России, Украине, Белоруссии, Армении, Финляндии и Латвии. Россию в этом году представят: группа FRUKTЫ, Арсений Бородин, группа (   Читать дальше...   )День 1
+01. Диcкотека Авария - Ноги
+02. Ани Лорак - Зажигай сердце
+03. В.Меладзе/Валерия - Не теряй меня(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 6 x ~ 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CD890307691736AC805DA0231486434C41C608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352275   (617819) от 19.06.2011
+
+Сурганова и оркестр - Концерт на Красной площади   (2011.12.06) TvRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана Сурганова и оркестр на гала-концерте «Россия молодая» в Москве на Красной площади 12. 06. 2011 года, в рамках празднования Дня России.
+Cветлана Яковлевна Сурганова поздравила всех с праздником и пожелала стране мудрых правителей..
+1.	Я не жалею
+.
+2.	ВеснаЖанр: VIP-Punk-DecadenceПродолжительность: 00:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEF43A7FEF0EDB969760C51F15CCFE329B60236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036988   (617172) от 22.07.2016
+
+Savage Garden - The Video Collection (1998) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617172.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Program Start
+2.	I Want You
+3.	To The Moon & Back
+4.	Truly Madly Deeply(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетЯзык субтитров: English (lyrics)Продолжительность: 00:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FC34EE0590FC8FB44DF7DEA4EBB980985B5E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523704   (616473) от 16.07.2012
+
+Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеография группы Girls' Generation (SNSD)
+
+Girls' Generation (аббревиатура So Nyeo Shi Dae - SNSD)- корейская группа которая состоит из девяти девушек: Лим Юна (Lim Yoona), Стефани Хвон (Tiffany), Квон Юри (Kwon Yuri), Ким Хёён (Kim Hyoyeon), Чхве Суён (Choi Sooyoung), Сэ Чжихён (Сэхён (Seo Juhyun (Seohyun))), Ким Тэён (Kim Taeyeon), Джессика Чон (Jessica Jung), (   Читать дальше...   )Жанр: POP (kpop)Перевод: ОригинальныйСубтитры: Корейские, Японские, Китайские, Английские (вконверчены в некоторые файлы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D1FD9FD137642EA1B2990849A1716C6CE45179
 ```
 
 https://mybot314.ru/tekegram_catalog/

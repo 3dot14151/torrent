@@ -1,31 +1,3 @@
-###  Публикация: 615215   (978261) от 07.02.2013
-
-Man of Prey / Мародер [En] (L) 2009 | PROPHET
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Игра Мародер – это новая тактическая стратегия от студии Апейрон с использованием фирменной механики SPM и элементами РПГ. Сюжет игры создан по мотивам книги Беркема аль Атоми «Мародер».
-В стране пришли к власти проамериканские силы и в Россию были введены американские «миротворцы» для «наведения порядка и окончательного провозглашения демократии». На деле же, иноземцев интересовали лишь природные ресурсы. Поддержание порядка и благополучия гражданского населения не входило в задачи военного контингента. После самороспуска органов управления, военных и милиции большая часть населения провинциального уральского городка «Тридцатки» погрязла в кровопролитной гражданской войне.
-Игрок выступает в роли мародера Ахмета, которому предстоит выжить в сложившейся ситуации. Начав игру с двустволкой и кучкой патронов, игроку предстоит собрать «семью» (отряд от одного до четырех человек), вооружить её и выжить в условиях постоянной войны «всех против всех».(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy / Real-time / Tactical / RPG / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436A2309B2E5A8D8A9AED9886098D6CC082C9B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356582   (977546) от 31.01.2020
 
 Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2: Проклятие масок (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -34,7 +6,7 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977546.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ Terra Incognita (2020) [En] (1.0) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977397.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977341.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ Effie (2020) [Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977338.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ Catherine Classic (2019) [Ru] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977331.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ Astra Exodus (2020) [Multi] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977326.jpg" />
 </div>
 
 
@@ -190,7 +162,7 @@ Sanctum [Ru/En/Milti12] (L/1.5.22889/5 DLC) 2011 | PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977226.jpg" />
 </div>
 
 
@@ -218,7 +190,7 @@ R.A.W.: Realms of Ancient War [En/Ru] (Lossless Repack/1.0.u1) 2012 | R.G. Origa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977122.jpg" />
 </div>
 
 
@@ -245,7 +217,7 @@ Defense Grid: The Awakening [En] (Steam-Rip/8 DLC) 2008 | R.G. Игроманы
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977089.jpg" />
 </div>
 
 
@@ -275,7 +247,7 @@ Magic Gate. Faces of Darkness / Волшебные врата. Лики тьмы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976559.jpg" />
 </div>
 
 
@@ -301,7 +273,7 @@ Mutant Football League (2017) [En] (1.01.2020smb/hf/dlc) Repack HOODLUM [Dynasty
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976294.jpg" />
 </div>
 
 
@@ -327,7 +299,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976233.jpg" />
 </div>
 
 
@@ -353,7 +325,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976185.jpg" />
 </div>
 
 
@@ -379,7 +351,7 @@ The Pedestrian (2020) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976176.jpg" />
 </div>
 
 
@@ -405,7 +377,7 @@ Devil's Hunt (2019) [Ru/Multi] (1.05) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976167.jpg" />
 </div>
 
 
@@ -431,7 +403,7 @@ Cognition: An Erica Reed Thriller. Episode 1 [En] (L/3.5.6.44817) 2012 | HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976022.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ Deadlight [Ru/En/Multi6] (Repack/1.0.9249.u.1) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975782.jpg" />
 </div>
 
 
@@ -490,7 +462,7 @@ Sanctum [Ru/En] (RePack/1.5.22889) 2011 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975779.jpg" />
 </div>
 
 
@@ -517,7 +489,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975100.jpg" />
 </div>
 
 
@@ -543,7 +515,7 @@ Song of Horror (2019) [Multi] (1.31.0.0/upd3/dlc) License CODEX [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975090.jpg" />
 </div>
 
 
@@ -569,7 +541,7 @@ Another Dawn (2020) [Ru/Multi] (1.02) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975043.jpg" />
 </div>
 
 
@@ -595,7 +567,7 @@ Antology Gothic / Антология Gothic [Ru/En/De] (L) 2001 - 2011
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974434.jpg" />
 </div>
 
 
@@ -622,7 +594,7 @@ Labyrinths of the World 2: Forbidden Muse / Лабиринты Мира 2: За�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974265.jpg" />
 </div>
 
 
@@ -648,7 +620,7 @@ The Unseen Fears 5: Ominous Talent / Невидимые страхи 5: Злов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974221.jpg" />
 </div>
 
 
@@ -674,7 +646,7 @@ Living Legends 8: The Crystal Tear / Живые легенды 8. Хрустал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974200.jpg" />
 </div>
 
 
@@ -685,6 +657,32 @@ Living Legends 8: The Crystal Tear / Живые легенды 8. Хрустал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74F60A9E732DC98404A1F98426D67DCCD0A45E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357326   (974012) от 03.02.2020
+
+Outbreak (2017) [En] (1.18.0/dlc) License PLAZA [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найди припасы и сразись с нежитью в Outbreak - олдовый survival-horror. Ограниченный инвентарь, орды нежити охотятся на тебя. Выбирай между приобретением дополнительного оружия, целительных предметов или необходимых инструментов для развития. У тебя только одна жизнь. Смирись с этим! Deluxe Edition включает в себя игру Outbreak и 8 наборов анимированных косметических (   Читать дальше...   )Тип издания: LicenseРазработчик: Dead Drop Studios LLCЖанр: Action, Shooter (Top-Down 2D), Adventure (Survival, Horror)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A0C3211E2DB3F693E779B7FB65C59DAA44F59E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 1232212   (602204) от 23.06.2018
-
-Жоэль Диккер | Маркус Гольдман (Книга 1). Правда о деле Гарри Квеберта (2018) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие этой истории с головокружительным сюжетом и неожиданным концом происходит в США. Молодой успешный романист Маркус Гольдман мается от отсутствия вдохновения и отправляется за помощью к своему учителю, знаменитому писателю Гарри Квеберту. Однако внезапно выясняется, что помощь требуется самому Гарри, обвиненному в убийстве, которое произошло в тихом американском (   Читать дальше...   )Жанр: ДетективИздательство: АудиокнигаПродолжительность: 21:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41EFC11F0D5774128EE2F7952A0387259FC9CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547976   (602036) от 30.04.2022
-
-Анна Джейн | «Небесная музыка» Книга 1. Луна (2022) [MP3, Евгения Осинцева]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Санни – талантливая певица, которая играет в собственной группе и мечтает покорить музыкальный Олимп. В ее жизни все идет хорошо, пока она не встречает Дастина – известного актера с отвратительным характером, и Кристиана – богатого наследника, который весело прожигает жизнь.
-Санни и не подозревает, что однажды ей сделают предложение, от которого она не сможет отказаться. (   Читать дальше...   )Жанр: Остросюжетный романПродолжительность: 20:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E290B3D271C3AC0856B6F57D9EAF718AFCBE9AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547867   (601995) от 30.04.2022
-
-Роберт Шекли | Цивилизация статуса (2017) [MP3, Максим Суханов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Цивилизация статуса» - один из самых известных научно-фантастических романов Роберта Шекли. Главный герой - 27-летний гражданин Уилл Баррент обвинён в убийстве и попадает на планету-тюрьму Омега. Особенностью государственного устройства является то, что каждый гражданин обязан употреблять наркотики, посещать чёрные мессы, нарушать закон и убивать. Баррент ничего (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастика, Социальная фантастикаПеревод: Владимир БакановПродолжительность: 05:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64814B12130D671A67B9AAADBC0BCD94B30CC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547899   (601990) от 30.04.2022
 
 Макс Вальтер | Курьер (2022) [MP3, Сергей Вышегородцев]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601990.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601989.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601958.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601917.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601902.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601886.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601882.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601879.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601868.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601847.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601841.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601834.jpg" />
 </div>
 
 
@@ -400,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601764.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601739.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601730.jpg" />
 </div>
 
 
@@ -478,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601664.jpg" />
 </div>
 
 
@@ -504,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601102.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601096.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600999.jpg" />
 </div>
 
 
@@ -582,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600909.jpg" />
 </div>
 
 
@@ -608,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600884.jpg" />
 </div>
 
 
@@ -634,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600423.jpg" />
 </div>
 
 
@@ -660,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600316.jpg" />
 </div>
 
 
@@ -671,6 +592,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:481F727E859A3EBA7322550C63A1E2B87B46BB85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149600   (600305) от 11.07.2017
+
+Марианна Фредрикссон | Анна, Ханна и Юханна (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ханна, Юханна и Анна, три поколения дочерей суровой северной страны. Их нрав подобен водам озера близ родовой усадьбы при старой мельнице на шведско-норвежской границе. Эмоциональная умеренность граничит с холодностью. Супружеская верность и чадолюбие уживаются с неспособностью найти общий язык с самыми близкими. Однако трудно отыскать столь разных женщин одной семьи. (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1996B9B2423C31AAEC7D91A996221F0254892708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149565   (600304) от 11.07.2017
+
+Ричард Олдингтон | Все люди враги (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600304.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе английского писателя повествуется о судьбе Энтони Кларендона, представителя "потерянного поколения". Произведение претендует на эпический размах, рамки его действия - 1900-1927 годы. Годы, страны, люди мелькают на пути "сентиментального паломничества" героя. Жизнеописание героя поделено на два периода: до и после войны. Между ними пролегает (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 24:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E544B904EA298D4F417FB825C7453B96A6C1AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149545   (600300) от 11.07.2017
+
+Ричард Олдингтон | Смерть героя (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600300.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Смерть героя" - история короткой жизни молодого человека, убитого на войне. Жизни частной, пытавшейся в замкнутом кругу пробить свой путь, собственную дорожку: были искания, бунтарские порывы, была приверженность идеалам. И вдруг все оборвалось. Это антивоенный роман, однако фронтовым сценам отведено менее его половины. Автора интересуют не только следствия, (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 15:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683A5961FA4AD8A0F81A88EA8D82DE4A6D70A5D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

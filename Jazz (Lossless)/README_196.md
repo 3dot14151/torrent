@@ -6,7 +6,7 @@ Leni Stern - Words (1995) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400666.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ V.A. - Vintage Lounge (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Nu Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399999.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Lin Halliday - Airegin (2000) Delmark [FLAC|Lossless|image + .cue] <Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399821.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Maria Emig Trio - Introducing (2016) Gateway Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399803.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Johnny Hodges & Wild Bill Davis - Joe's Blues (1965) 2007, Lone Hill Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399737.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Buddy Rich & Maynard Ferguson - Two Big Bands Play Selections From West Side Sto
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399733.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Steve Marcus - Smile (1993) Red Baron [FLAC|Lossless|image + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399623.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Sam Levine - Smooth Sax Romance (2011) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399430.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ The Gary Burton Quartet - Duster (1967) 2014, Sony Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398742.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Courtney Pine - Journey to the Urge Within (1986) [APE|Lossless]<Post-Bop, Saxop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398243.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Cpt Kirk - Starship Cadillac (2010) [APE|Lossless]<Jazz-Rock, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398195.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Woody Herman - Blowin' Up a Storm (1958) 1994, Drive Archive [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397803.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Jackie McLean - Jackie's Bag (1959, 1960) 2010, Analogue Productions [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397799.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Hank Mobley - A Caddy for Daddy (1965) 2009, Analogue Productions [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397797.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Nicki Parrott - Dear Blossom (2017) Arbor Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397695.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Cordovan - Highway 10 Blues (2006) [FLAC|Lossless]<Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397182.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Charles Sullivan - Re-Entry (1976) 2010, Whynot [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396788.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Miroslav Vitous - Infinite Search (1969) 1998, EastWest [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396783.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ John Handy - Mosaic Select 35 (1965 - 1968) 3CD, 2009, Mosaic Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395821.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Erik Soderlind - Twist For Jimmy Smith (2009) Prophone Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395815.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Bria Skonberg - With A Twist (2017) Sony Music/Okeh [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395762.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Chris Barber's Jazz Band - he Original Copenhagen Concert, Odd Fellow Palæet, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394929.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Ruby Braff - Ruby Braff Goes “Girl Crazy” (1958) 2009, Wounded Bird Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394926.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ EABS - Repetitions (Letters To Krzysztof Komeda) (2017) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394892.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Art Blakey - The Prime Source (1954 - 1956) 4CD, 2007, Proper Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394165.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Terry Gibbs - Plays Jewish Melodies In Jazztime (1963) 2002, Verve [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394164.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1652678   (206319) от 14.08.2023
-
-Друг мой / Amigomio (1994) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-8-летний мальчик вместе с отцом, спасаясь от военной диктатуры, установившейся в Аргентине в начале 80-х, отправляются в опасное путешествие по Латинской Америке.Производство: Аргентина, Германия / ARTE, Aleph Producciones S.A. и др.Жанр: драмаРежиссер: Алькидес Кьеза, Жанин МеерапфельАктеры: Марио Адорф, Даниэль Кузнечка, Диего Месаглио, Debora Brandwajnman, Атилио Веронелли, Manuel Tricallotis, Кристоф Бауманн, Rossana Iturralde, Хьюго Позо, Габриела СаласПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, немецкийСубтитры: русские (Мария Игнатова), английскиеПродолжительность: 01:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C23BD7D16126816738101426F211D66B96A48D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582477   (206315) от 09.10.2022
-
-Красный рубин / Red Stone (2021) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Опасному наемному убийце поручено выследить подростка, который стал свидетелем убийства своего старшего брата от рук безжалостного южного криминального авторитета. Наемный стрелок должен выследить мальчика, прежде чем его первыми найдут либо приспешники-соперники, либо ФБР. По мере того как часы идут, киллер начинает сомневаться в своих смертоносных способностях (   Читать дальше...   )Производство: США / Alfa Whiskey Entertainment, Muscular PuppyЖанр: Триллер, драма, криминал, детективРежиссер: Дерек ПрэслиАктеры: Нил Макдонаф, Дэш Мелроз, Майкл Кудлиц, Билли Блэр, Джейсон Дуглас, Доминик Скотт Кэй, Майк Допуд, Александрия ДеБерри, Адам Андерсон, Дарла ДелгадоПеревод: Профессиональный многоголосый (Okko)Субтитры: Английские (Full)Продолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C692804238500F75210B7E9F92A0FEA810A09F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652960   (206305) от 14.08.2023
 
 Бродячие псы 2 / Yamikin dogguzu 2 / Stray Dogz 2 (2016) WEB-DLRip [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206305.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206302.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206286.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206262.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206248.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ KKN: Деревня танцев / KKN di Desa Penari (2022) WEBRip [DVO]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206241.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206237.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206233.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206220.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206219.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206216.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206204.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206200.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206191.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206180.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206179.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206156.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206153.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206150.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206149.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206141.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206139.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206118.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206111.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:471476B0B9687948DDD7BD328595231C8393108D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582742   (206109) от 11.10.2022
+
+Смерть в прерии / Terror on the Prairie (2022) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец XIX века. Семья переселенцев в прериях Монтаны еле сводит концы с концами. Однажды отец семейства отправляется в ближайший населённый пункт в поисках работы, а его жена остаётся с двумя детьми — девятилетним сыном и дочерью-младенцем. Когда мимо проезжает шайка бандитов, женщина вступает с ними в противостояние и теперь вынуждена держать осаду в собственном (   Читать дальше...   )Производство: США / Voltage Pictures, Bonfire Legend, The Daily WireЖанр: вестерн, драма, триллерРежиссер: Майкл ПолишАктеры: Джина Карано, Ник Сирси, Дональд Серроне, Риз Бекер, Тайлер Фишер, Гэбриел-Кэйн Дэй Льюис, Маттиас Хьюз, Хит Фриман, Самира Армстронг, Том ДрагтПеревод: Дублированный (Pride Production | КиноПоиск HD)Язык озвучки: русскийПродолжительность: 01:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE40A3DB5A2879FEDC60A49763BD117057BDEF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653744   (206106) от 17.08.2023
+
+Дрянные девчонки / Mean Girls (2004) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий частично основан на книге Розалинд Уайзман 2002 года "Пчелиные матки и подражатели"... Хирон, шестнадцатилетняя дочь зоологов, недавно переехала из Африки в Эванстон, штат Иллинойс. Школьные изгои Дженис и Дэмиэн рассказывают Кэйди о различных компаниях и предостерегают от общения с тремя самыми популярными в школе девушками «Баунти» во главе с (   Читать дальше...   )Производство: США, Канада, Broadway Video, M.G. Films, Paramount PicturesЖанр: комедияРежиссер: Марк УотерсАктеры: Линдси Лохан, Рэйчел МакАдамс, Лиззи Каплан, Лейси Чэберт, Аманда Сайфред, Тина Фей, Тим Медоуз, Джонатан Беннетт, Дэниэл Фрэнзиси, Эми Полер, Ана Гастейер, Нил Флинн, Дэниэл ДеСанто, Раджив Сурендра, Диего Клаттенхофф, Дэвид РеалеПеревод: дублированный, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеКачество: BDRipПродолжительность: 01:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46227AD905ABF0A19D4C81F1F28DE62A24BA94C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

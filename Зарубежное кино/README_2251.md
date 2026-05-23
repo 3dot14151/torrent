@@ -1,55 +1,3 @@
-###  Публикация: 1800064   (16167) от 31.05.2025
-
-Шоугёлз / Showgirls (1995) UHD BDRip [H.265/1080p] [10-bit] [US Transfer Vinegar Syndrome]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молодая длинноногая танцовщица Номи отчаянно пытается добиться успеха в Лас-Вегасе и устроиться в популярное шоу. Но пока ей приходится согласиться на работу в стриптизе. Вскоре девушке достаётся счастливый билет - она знакомится с королевой сцены Лас-Вегаса Кристал. Та устраивает Номи в своё шоу и вводит её в истинный мир шоу-бизнеса Лас-Вегаса - мир случая, предательства (   Читать дальше...   )Производство: Франция, США / Carolco Pictures Inc., Chargeurs, United Artists, Vegas ProductionsЖанр: драмаРежиссер: Пол ВерховенАктеры: Элизабет Беркли, Кайл МакЛоклен, Джина Гершон, Гленн Пламмер, Роберт Дави, Алан Рачинс, Джина Равера, Лин Туччи, Грег Трэвис, Аль РуссоПеревод: дублированный официальный (Невафильм), профессиональный многоголосый (CP Digital, Black Street Records, CTC, ТакТребаПродакшн), профессиональный двухголосый (Від студия), авторский (Юрий Живов, Михаил Яроцкий, Андрей Гаврилов)Язык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB52ADDC3117B25279B6E30E976AFBBA40F72CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799963   (16140) от 31.05.2025
-
-Переводчица / The Interpreter (2005) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Переводчица случайно узнает о готовящемся убийстве главы одного африканского государства, который должен на днях посетить Генеральную ассамблею ООН. Пытаясь предотвратить покушение, она подвергает свою жизнь смертельной опасности. И пока она сама не стала жертвой, ей отчаянно нужно, чтобы кто-нибудь ей поверил и помог...Производство: Великобритания, Франция, Германия, США, ЮАР / Mirage Entertainment, Misher Films, Motion Picture JOTA Produktions, Studio Canal, Universal Pictures, Working Title FilmsЖанр: триллер, криминал, детективРежиссер: Сидни ПоллакАктеры: Николь Кидман, Шон Пенн, Кэтрин Кинер, Еспер Кристенсен, Иван Атталь, Эрл Кэмерон, Джордж Харрис, Майкл Райт, Клайд Кусацу, Эрик КинлисайдПеревод: Дублированный, многоголосый, двуголосый, одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Forced, SDH)Продолжительность: 02:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52D26888694FC7052F4935D1CD94D6499C4CB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800025   (16127) от 31.05.2025
 
 Игра вдовы / La viuda negra / A Widow's Game (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16127.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16123.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16122.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16067.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15986.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15985.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15959.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15954.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15933.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15769.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15764.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15706.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15702.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15685.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15661.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15647.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15610.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15601.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15600.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15593.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15577.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15570.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15530.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15511.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:175FD8A4A3DE95ED3944936484EC59B97DF78EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734088   (15496) от 06.06.2025
+
+Наследник / Потомок / Gwigongja / The Childe (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой боксёр Марко Хан — так называемый копино, корейско-филиппинских кровей — всю жизнь прожил на Филиппинах и никогда не видел отца-корейца. Его мать тяжело больна, поэтому, пытаясь накопить на лечение, парень хватается за любые возможности заработка и разыскивает корейских родственников. Однажды на него выходят адвокаты, утверждающие, что его богатый папа наконец-то (   Читать дальше...   )Производство: Корея Южная / Goldmoon Film, Next Entertainment WorldЖанр: боевик, криминалРежиссер: Пак Хун-джонАктеры: Ким Сон-хо, Кан Тхэ-джу, Ким Ган-у, Ко А-ра, Хо Джун-сок, Чон Ра-эль, Ку Со-джун, Ли Ги-ён, Чхве Джон-у, Джастин Джон ХарвиПеревод: Дублированный (Велес), Многоголосый, (TVShows), авторский (Ю. Сербин)Язык озвучки: Русский, корейскийСубтитры: Русские (Forced, Full), английские, вьетнамскиеПродолжительность: 01:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E927AD94312CE9375FB84B9C1EBAE0CB601AF0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800750   (15480) от 06.06.2025
+
+Пункт назначения 4 / The Final Destination (2009) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15480.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Ника О`Бэннона было видение — на автогонках произойдёт ужасная трагедия, жертвами которой станут его друзья и он сам. Как и прежде группе счастливчиков, благодаря Нику, удаётся выжить, но смерть вовсе не спешит вычёркивать их из своего списка.Производство: США / FlipZide Pictures, New Line Cinema, Practical PicturesЖанр: ужасы, триллерРежиссер: Дэвид Р. ЭллисАктеры: Бобби Кампо, Шантель Ван Сантен, Ник Зано, Хейли Уэбб, Майкелти Уильямсон, Криста Аллен, Эндрю Фисцелла, Джастин Уэлборн, Стефани Онор, Лара ГрайсПеревод: дублированный официальный (Мосфильм-Мастер, Line In), профессиональный многоголосый (Киномания, ICTV), авторский (Юрий Сербин, Андрей Гаврилов, Дмитрий Есарев), любительский одноголосый (Сергей Черкасов)Язык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F107D0442C75694C6297188EDFF7B75609A68C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

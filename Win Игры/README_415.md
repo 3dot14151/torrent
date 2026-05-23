@@ -1,29 +1,3 @@
-###  Публикация: 1716027   (59803) от 13.04.2024
-
-A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-A Divine Guide To Puzzle Solving бросает вас в мир богов в качестве обычного человека. Тобла, таинственное божество головоломок, выбирает вас. Не совсем по своей воле вы становитесь божественным испытателем головоломок, которому поручено разобраться с последними творениями Тоблы. Ключом к разгадке станет Swap Beam. Эта уникальная способность позволяет вам менять (   Читать дальше...   )Тип издания: RepackРазработчик: Nementic GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F19DE4753E925F44B0B93FF5826A10EC586DF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716066   (59758) от 14.04.2024
 
 Terra Memoria (2024) [Multi] (2024.3.13a) Repack FitGirl [Deluxe Edition]
@@ -32,7 +6,7 @@ Terra Memoria (2024) [Multi] (2024.3.13a) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59758.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59757.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ RimWorld (2018) [Ru/Multi] (1.5.4063/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59751.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ One Last Breath (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59747.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Beat Slayer (2024) [Multi] (1.1.14) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59746.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Thaumaturge (2024) [Ru/Multi] (71.135/dlc) Repack Decepticon [Digital Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59744.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shadow Corridor 2 (2024) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59722.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Deber (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59721.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59688.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053/dlc) Repack Decepticon
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59668.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Yet Another Fantasy Title / YAFT (2024) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59565.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BMX Streets (2024) [En] (1.0.0.109.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59561.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.17) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59558.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59554.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Anomaly Loop (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59547.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59537.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ My Life: Farm Vet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59533.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Acolyte of the Altar (2024) [En] (1.0.69) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59529.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59521.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.4f0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59461.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ INSPIRE (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59456.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Harold Halibut (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59455.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Shanghai Summer (2024) [Ru/Multi] (1.6.20.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59451.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59436.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59426.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Sheba: A New Dawn повествует о мире, что переносит в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F05A048DEC954FE7ED5A8B2A293F83614D68E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716797   (59418) от 17.04.2024
+
+Knight Cats 3: Whisper of the Universe / Коты-рыцари 3: Шепот Вселенной (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей сказочной серии игр Knight Cats. Быть шаманкой непросто, но для вас это - призвание, которым вы очень дорожите. Вы с нетерпением ждёте возможности поделиться даром со своей приёмной дочерью, вашей преемницей. Но когда размеренную жизнь нарушает наступление тьмы, даже помощи духа Вселенной может оказаться недостаточно! Ваша ученица пропала, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCE45F09BA42DCD09800D3EC7B13E03D8D9171F
 ```
 
 https://mybot314.ru/tekegram_catalog/

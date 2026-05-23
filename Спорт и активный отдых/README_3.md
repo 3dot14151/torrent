@@ -6,7 +6,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Матч з
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057974.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. 1/2 фин�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057868.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. 1/2 фин�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057867.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ XXV Зимние Олимпийские игры 2026. Фигурное ката
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057648.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. 1/4 фин�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057483.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. 1/4 фин�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057482.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. 1/4 фин�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057481.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. 1/4 фин�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057480.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057103.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057101.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057079.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057026.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057024.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057023.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056986.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ XXV Зимние Олимпийские игры 2026. Фигурное ката
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056772.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ XXV Зимние Олимпийские игры 2026. Италия. Лыжны�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056733.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056682.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056652.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056650.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056649.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056648.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056647.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ XXV Зимние Олимпийские игры 2026. Хоккей. Групп�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056644.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ XXV Зимние Олимпийские игры 2026. Италия. Горно�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056522.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ XXV Зимние Олимпийские игры 2026. Италия. Лыжны�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056518.jpg" />
 </div>
 
 

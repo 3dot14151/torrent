@@ -6,7 +6,7 @@ Windows Server 2022 LTSC [10.0.20348.4171], Version 21H2 (Updated September 2025
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2496.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows Server [10.0.25398.1849], version 23H2 (Updated September 2025) - Ори
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2477.jpg" />
 </div>
 
 

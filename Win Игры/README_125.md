@@ -1,29 +1,3 @@
-###  Публикация: 1416228   (795372) от 11.11.2021
-
-Neverending Nightmares (2014) [Ru/Multi] (3.3.22469) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Neverending Nightmares — это психологический хоррор, созданный на основе настоящей психологической проблемы разработчика, и её лечении. Томас просыпается в ужасе после кошмара и обнаруживает, что сон продолжается. Он начинает спускаться всё глубже в кошмар. От ужасных призраков нужно прятаться, от своих страхов — убегать. Ему придётся разобраться, какие из встреченных (   Читать дальше...   )Тип издания: LicenseРазработчик: Infinitap GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962991AB2C679BB17DFF45F641FF61AA325DAA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509010   (795360) от 11.11.2021
 
 Fossilfuel (2021) [En] (1.07/dlc) License PLAZA
@@ -32,7 +6,7 @@ Fossilfuel (2021) [En] (1.07/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795360.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Among Trees (2021) [En] (0.5.27) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795305.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Detail: Episode 1-3 (2015-2016) [En] (3.0.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795178.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Grizzly Valley (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795155.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Hidden Expedition 16: The Golden Secrets / Секретная экспедици
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794983.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Mystery Case Files 17: Rewind / За семью печатями 17: Вспят�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794982.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Dark Parables 15: The Match Girl's Lost Paradise (2018) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794925.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Dreadful Tales: The Space Between (2019) [En] (1.0) [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794861.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Tennis Manager 2021 (2021) [Multi] (1.6.2129) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794823.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Queen's Quest 2: Stories of Forgotten Past / Королевский квест 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794812.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ LEGO Pirates of the Caribbean / LEGO Пираты Карибского моря 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794774.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Mutant Football League (2017) [En] (1.0) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794770.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Ghost Files: The Face of Guilt /  Дело призрака: Лики вины (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794769.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Treasures of the Aegean (2021) [Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794745.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Queen's Quest 3: The End of Dawn /  Королевский квест 3: Кон�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794744.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794695.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794680.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) License PLAZA [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794666.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ The Fall of Lazarus (2017) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794656.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Slice of Sea (2021) [Ru/Multi] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794613.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Punk Wars (2021) [Ru/Multi] (1.0.6) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794606.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Hidden Dragon: Legend (2018) [En/Ja/Ch] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794596.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Door Kickers: Action Squad (2018) [Ru/Multi] (1.2.13dlc1rc1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794546.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79.d2f5cadd/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794542.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) Repack Other s [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794531.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Panacea: Last Will - игра в жанре Survival Horror, выдержанн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DCD6A78B54FD72A1121749D53BA4D828A8E6AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450922   (794525) от 12.11.2021
+
+Yaga (2021) [Ru/Multi] (1.3.23/dlc) License GOG [Armful Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одолей и разгроми убийственные легенды славянской мифологии в этой мрачно забавной ролевой игре, которая меняется каждый раз, когда вы играете. Играйте за Ивана, за невероятно невезучего однорукого кузнеца, который должен выполнить невыполнимые задачи, данные ему царём. В то время, как таинственная ведьма Баба Яга следит за судьбой Ивана.Тип издания: LicenseРазработчик: Breadcrumbs InteractiveЖанр: Ролевая игра, Экшн, КомедияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2D3AF283F3048FCB12C9079C200FAB78164E4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

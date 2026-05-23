@@ -6,7 +6,7 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049116.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049102.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ No Means Nothing (2025) [Ru/Multi] (1.0.1) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049101.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ I'm on Observation Duty 8 (2025) [Ru/Multi] (1.0.3-d2437e5) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049100.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Star Ores Inc. (2025) [Ru/Multi] (1.0.23) License GOG [Book Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049099.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Star Ores Inc. (2025) [Ru/Multi] (1.0.23) Repack FitGirl [Book Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049098.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Christmas Wonderland 16 / Рождественская Страна Чудес 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049095.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Chaos Galaxy II (2) (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049094.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.132/dlc) Scene Rune [Digital Collect
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049093.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.0-10461+185182) Repack Other s [Build
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049074.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Abra-Cooking-Dabra (2025) [Ru/Multi] (1.0.13r1) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049073.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179951/dlc) Repack HardwareMining [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049060.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049048.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049047.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Skate Story (2025) [Ru/Multi] (Build 21094509) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048998.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skate Story (2025) [Ru/Multi] (Build 21094509) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048997.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ RuneQuest: Warlords (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048996.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ RuneQuest: Warlords (2025) [Ru/Multi] (1.0.0a) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048995.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Express No. 6 (2025) [Ru/En] (Build 21111253) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048991.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack Let'sРlay [XL Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048990.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Toziuha Night: Order of the Alchemists (2024) [Multi] (1.0.5.0/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048840.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Chronicles of Albian 3: The Vanishing Village / Хроники Альбиана 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048823.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Art of Reflection (2025) [Ru/Multi] (2465) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048813.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048779.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Yakuza 0 (2025) [Ru/Multi] (1.11) Repack FitGirl [Director's Cut]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048778.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Yakuza 0 (2025) [Ru/Multi] (1.11) Repack seleZen [Director's Cut]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048777.jpg" />
 </div>
 
 

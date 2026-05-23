@@ -1,29 +1,3 @@
-###  Публикация: 1134031   (690780) от 14.05.2017
-
-The Fan (2017) [En/Fr] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-The Fan - это интерактивная новелла с элементами point and click квеста, сделанная с помощью фотографий, в которой игроков ждут реально существующие люди и локации. Игроков ждет история жуткого серийного убийцы, который охотился за женщинами и приносил их в жертву в подземельях Парижа.Тип издания: RepackРазработчик: Ezhaac StudioЖанр: Adventure (Horror), InteractiveЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F005D0850A7ECDE1F1C198628493AAB71F6FE79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289000   (690388) от 14.03.2019
 
 Dark Romance 8: Winter Lily (2018) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Dark Romance 8: Winter Lily (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690388.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Labyrinths of the World 7: A Dangerous Game (2018) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690385.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mystery Case Files 21: The Harbinger (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690333.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Frostpunk (2018) [Ru/Multi] (1.6/dlc) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690320.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hexagon Defense (2016) [En] (1.01) License
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690270.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Whispered Secrets 9: Cursed Wealth (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690226.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Grim Tales 14: The Time Traveler (2018) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690223.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dark Tales 12: Edgar Allan Poe's Morella (2017) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690222.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Bridge! 2: The Construction Game (2016) [En/De] (1.0.2) Repack R.G. Механи
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689957.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.5.9139/dlc) Repack =nemos=
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689956.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dovetail Games Flight School (2016) [En/Multi] (1.0.8470) License HI2U
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689952.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Call to Arms (2018) [Ru/Multi] (1.200/dlc) Repack xatab [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689886.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Peaky Blinders: Mastermind (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689874.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Caligula Effect: Overdose (2019) [En/Ja] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689787.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.3.2/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689785.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Lost Lagoon 2: Cursed & Forgotten / Затерянная лагуна 2. Нов�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689473.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Rayman Origins [Ru/En/Multi8] (RePack/1.0.32504) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689382.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Containment Initiative (2018) [En] (1.45) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688939.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Euro Fishing (2015) [Ru/En] (1.0/dlc) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688835.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Sanctuary RPG (2015) [En] (2.3.1) License GOG [Black Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688770.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Whispered Secrets 13: Tying the Knot (2022) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688489.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ DRAGON BALL FighterZ (2018) [Ru/Multi] (1.14) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688138.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Breached (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688095.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Blackguards (2014) [Ru/En] (1.7.23231/dlc) Repack =nemos=
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688093.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Mighty No. 9 (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688091.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Mighty No. 9 (2016) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15315BD8501FB9FF90353463C29F30EFCA4C9F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028664   (688085) от 23.06.2016
+
+Asemblance (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asemblance — это приключенческая игра от первого лица, действие которой разворачивается внутри машины, воссоздающей воспоминания.Тип издания: RepackРазработчик: Nilo StudiosЖанр: Adventure, 1st Person, 3D, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C9457D1B0822B6BE8EA5E139A65D2B1811BB38
 ```
 
 https://mybot314.ru/tekegram_catalog/

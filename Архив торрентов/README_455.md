@@ -6,7 +6,7 @@ Tor Browser Bundle 6.0 Alpha 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Photo Commander 14.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958191.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SUMo Pro 4.3.1.303 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958186.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Yate 5 v5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958182.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Smooze 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958181.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958175.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958174.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Free Video Call Recorder for Skype 1.2.41 build 119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958145.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ PDF-XChange Editor 5.5.316.1 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958142.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ocenaudio 3.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958141.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Privacy Eraser Free 4.59.2 Build 3386 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958131.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Xilisoft Video Converter Ultimate 7.8.13 Build 20160125 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958130.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AMA Supercross Championship: Tampa (16.02.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958129.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Auslogics File Recovery 9.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958121.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Soft4Boost Easy Disc Burner 6.5.5.341 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958119.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Auslogics Duplicate File Finder 8.4.0.0 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958111.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Auslogics BoostSpeed 11.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958110.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ AusLogics Disk Defrag Pro 9.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958109.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Microsoft Visual Studio 2019 Community 16.4.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958105.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ WRC 2020: Этап 2. Ралли Швеции. Обзор (13-16.02.2020) /  WRC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958100.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The KMPlayer 4.0.4.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958090.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Alternate File Shredder 2.520 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958088.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ FinePrint Software (FinePrint 10.16 / pdfFactory Pro 7.16) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958084.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ R-Studio 7.8 Build 160808 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958080.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Total Commander 8.52a Extended 16.1 Full | Lite RePack (&Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958072.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Eraser 6.2.0.2986 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958071.jpg" />
 </div>
 
 

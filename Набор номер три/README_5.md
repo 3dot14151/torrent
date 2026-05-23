@@ -1,108 +1,3 @@
-###  Публикация: 1854143   (1057162) от 17.02.2026
-
-Ученый раскрыл, мог ли челябинский метеорит привести к катастрофе
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Миллионный Челябинск на южном Урале ожидала бы катастрофа, сопоставимая со взрывом 20 атомных бомб над японской Хиросимой, если бы Чебаркульский метеорит 13 лет назад взорвался на высоте около одного километра над Землей, сказал РИА Новости научный руководитель обсерватории Ка-Дар и астрофермы "Астроверты" Стас Короткий.Метеорит пролетел и взорвался 15 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853589   (1057000) от 15.02.2026
-
-Роутеры — новые жертвы дефицита: память для них подорожала в семь раз и это не предел
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В контексте влияния роста цен на память чаще принято говорить о проблемах производителей ПК и смартфонов, но в действительности могут пострадать и производители телекоммуникационного оборудования и телевизионных приставок. Теперь доля затрат на память в себестоимости компонентов для таких устройств выросла с 3 до 20 % всего за год, и микросхем памяти для их производства (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853605   (1056907) от 15.02.2026
-
-Создан двухсторонний телевизор
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Компания TPV Technology Group представила первый в мире телевизор, имеющий экраны с двух сторон. На это обратило внимание издание TechRadar.Устройство GP TV имеет две стороны — условно фронтальную и тыльную. На каждой из них находится по 48-дюймовому экрану. Дисплеи имеют матрицу OLED разрешением 4К. Модель имеет металлические ножки, созданные из переработанных материалов, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-https://www.techradar.com/pro/worlds-largest-monitor-company-designed-a-4k-48-inch-oled-dual-sided-smart-gaming-display-with-metal-feet-a-magnetic-power-socket-and-an-alienware-inspired-sound-system-but-who-will-actually-use-it
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853840   (1056899) от 16.02.2026
-
-У Western Digital не осталось свободных производственных мощностей, рост цен на HDD неизбежен — Wccftech
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Журналисты портала Wccftech обратили внимание на довольно любопытное заявление генерального директора компании Western Digital Ирвинга Тана, сделанное в ходе пресс-конференции, посвященной последнему финансовому отчету фирмы.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853396   (1056653) от 14.02.2026
 
 Нейросеть пришлось отучать от мата после месяца общения с клиентами компании ЖКХ
@@ -111,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056653.jpg" />
 </div>
 
 
@@ -137,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056571.jpg" />
 </div>
 
 
@@ -163,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056445.jpg" />
 </div>
 
 
@@ -189,39 +84,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056336.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Домен видеохостинга YouTube перестал определяться через DNS-серверы, подконтрольные Роскомнадзору, сообщил Telegram-канал «Эксплойт» со ссылкой на российских интернет-провайдеров. Записи о youtube.com удалили из Национальной системы доменных имён, после чего DNS-серверы российских провайдеров перестали возвращать ip-адреса для доменов видеохостинга. Это означает, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852670   (1056216) от 11.02.2026
-
-Илон Маск призвал начать полноценное освоение Луны
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Техномагнат Илон Маск, владелец SpaceX и Tesla, призвал начать полноценное освоение Луны. Об этом пишет РБК в Telegram-канале.Накануне пользователь соцсетей с ником DogDesigner опубликовал коллаж из снимка первого самолета с двигателем братьев Райтов, совершивший полет в декабре 1903 года, и фотографии американского астронавта Нила Армстронга на поверхности Луны (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056215.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056165.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056133.jpg" />
 </div>
 
 
@@ -321,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056070.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056069.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056045.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055955.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055883.jpg" />
 </div>
 
 
@@ -452,7 +321,7 @@ YouTube включил ИИ-дубляж для всех — в том числ�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055738.jpg" />
 </div>
 
 
@@ -478,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055679.jpg" />
 </div>
 
 
@@ -504,7 +373,7 @@ Windows 10 Pro 22H2 19045.6812 x64 by SanLex [Lightweight] [Ru-En] (2026.02.05) 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055673.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055580.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055519.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055476.jpg" />
 </div>
 
 
@@ -609,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055335.jpg" />
 </div>
 
 
@@ -635,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055296.jpg" />
 </div>
 
 
@@ -661,13 +530,144 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055095.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Компания Microsoft всерьёз пересматривает подход к интеграции в Windows 11 инструментов на базе искусственного интеллекта, включая виртуального помощника Copilot и спорную функцию Recall, которая фиксирует все действия пользователя операционной системы. Софтверный гигант сократит функциональность Copilot и пересмотрит концепцию Recall в рамках серьёзного изменения (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850968   (1054949) от 01.02.2026
+
+Астрономы обнаружили сотни космических аномалий с помощью нового инструмента
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астрономы из Европейского космического агентства (ESA) разработали новый инструмент на базе искусственного интеллекта под названием AnomalyMatch, который позволил провести систематический поиск редких и необычных объектов в огромном архиве данных космического телескопа «Хаббл» (Hubble). За 35 лет наблюдений накопился неподъёмный для анализа человеком набор данных. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850971   (1054935) от 02.02.2026
+
+Никто никому ничего не должен
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Депутаты Национального собрания Франции (нижняя палата парламента) единогласно поддержали законопроект, который отменяет понятие «супружеский долг», сообщает BFMTV. В случае его принятия в законе будет закреплено, что супруги не обязаны вступать в половые отношения. Теперь документ рассмотрят в Сенате.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850866   (1054899) от 31.01.2026
+
+Акции Microsoft показали сильнейшее падение с 2020 года
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акции Microsoft упали на 11%, что стало самым сильным падением почти за шесть лет, передает Bloomberg. Снижение произошло после того, как компания отчиталась о рекордных расходах и замедлении роста продаж облачных услуг, отмечает агентство. Это усилило опасения инвесторов по поводу того, что компания не сможет окупить вложения в ИИ так быстро, как ожидалосьАкции (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850916   (1054725) от 01.02.2026
+
+В ответах ChatGPT обнаружили региональную дискриминацию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054725.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChatGPT систематически отдаёт предпочтение богатым западным регионам в ответах на широкий спектр вопросов в диапазоне от «Где люди красивее?» до «Какая страна безопаснее?», и виной всему предубеждения в обучающих массивах. Таким открытием поделились учёные Оксфордского (Великобритания) и Кентуккийского (США) университетов.Исследователи представили анализ 20 млн запросов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850342   (1054579) от 30.01.2026
+
+Во Франции депутаты поддержали закон о запрете соцсетей для детей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Национальное собрание Франции в первом чтении приняло законопроект, который запрещает детям младше 15 лет использовать социальные сети, передает Franceinfo. Голосование прошло в ночь на 27 января. За принятие законопроекта проголосовали 116 депутатов.Президент Франции Эмманюэль Макрон попросил правительство ускорить процедуру принятия закона. По его словам, запрет (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

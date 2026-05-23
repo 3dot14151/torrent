@@ -1,55 +1,3 @@
-###  Публикация: 1313124   (524227) от 08.07.2019
-
-Мы всегда жили в замке / We Have Always Lived in the Castle (2018) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История семьи отшельников Блэквудов — двух молодых сестёр и больного дяди, — которые стали мишенью злых пересудов после загадочной гибели остальных родственников. Сёстры укрываются в поместье — своем особенном закрытом мире, чьи границы самовольно нарушает красавец-кузен, приехавший с корыстными намерениями.Производство: США, Mighty Engine, Furthur Films, Albyn MediaЖанр: Триллер, драма, детективРежиссер: Стэйси ПассонАктеры: Таисса Фармига, Александра Даддарио, Себастиан Стэн, Стефен Хоган, Криспин Гловер, Патрик Джозеф Бернс, Уна Кэрролл, Питер Кунан, Джоэнн Кроуфорд, Боско ХоганПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131E8A4A0A5FE8CBD28760FDA770B8503B4226D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313285   (524224) от 08.07.2019
-
-За мечтой / Teen Spirit (2018) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вайолет выросла в маленьком городке и всегда мечтала о славе. Участие в национальном конкурсе — это шанс добиться всего. Как справиться с неуверенностью, страхом и победить?Производство: Великобритания, США / Automatik Entertainment, Interscope FilmsЖанр: Драма, музыкаРежиссер: Макс МингеллаАктеры: Элль Фэннинг, Агнешка Гроховска, Арчи Мадекве, Златко Бурич, Милли Брэйди, Вивиан Опара, Риа Змитрович, Олив Грэй, Эндрю ЭллисПеревод: Дублированный (iTunes), Многоголосый закадровый x2Субтитры: английские (полные, SDH)Продолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CBEE8E957B0EB86E72E20370E2417363A9A18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240565   (524155) от 12.08.2018
 
 Единственный живой парень в Нью-Йорке / The Only Living Boy in New York (2017) BDRip [H.264/1080p] [MVO] [PR]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524155.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524106.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524099.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524091.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523906.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523810.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523808.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523778.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523775.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523774.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523767.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523675.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523650.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523636.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523572.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523471.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523414.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523396.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523393.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523385.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523362.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523295.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523240.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523128.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A849BC937CD8B89DA6FE85974258353945A5A064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928116   (523080) от 15.08.2015
+
+Хакеры / Hackers (1995) Blu-ray [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекаясь манипуляциями в коммерческих сетях, начинающий хакер делает почти невозможное: взламывает защиту секретного компьютера Гибсон в корпорации Эллингтон. При этом он случайно подключается к схеме хищения средств, искусно замаскированной кем-то под компьютерный вирус, действие которого может привести к глобальной экологической катастрофе.
+Молодой хакер и его (   Читать дальше...   )Производство: СШАЖанр: Триллер, Криминал, Комедия, ДрамаРежиссер: Иэн СофтлиАктеры: Джонни Ли Миллер, Анджелина Джоли, Джесс Бредфорд, Мэттью Лиллард, Лоуренс Мейсон, Реноли Сантьяго, Фишер Стивенс, Альберта Уотсон, Даррен Ли, Майкл Гастон, Марк Энтони, Фелисити ХаффманПеревод: Дублированный, многоголосый закадровый х4, авторский х2 (С. Визгунов, П. Карцев)Язык субтитров: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0153D3CE2B8DB6A551836692BC5598EB48B1CE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927954   (523077) от 15.08.2015
+
+Безумный Макс: Дорога ярости / Mad Max: Fury Road (2015) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло не так много времени, после того как Макс Рокатански, отомстив за смерть жены и сына, покинул ряды «Основного силового патруля». Теперь он в одиночку скитается по миру, который медленно умирает от последствий нефтяного кризиса и глобальной войны, унесшей жизни большинства жителей Земли. Автомобиль «Перехватчик» — единственное, что у него осталось от прошлой (   Читать дальше...   )Производство: Австралия, США / Kennedy Miller Productions, Village Roadshow Pictures, Village Roadshow PicturesЖанр: боевик, фантастика, приключенияРежиссер: Джордж МиллерАктеры: Том Харди, Шарлиз Терон, Николас Холт, Хью Кияс-Бёрн, Райли Кио, Роузи Хантингтон-Уайтли, Зои Кравиц, Эбби Ли, Кортни Итон, Нэйтан ДжонсПеревод: профессиональный (полное дублирование), авторский (одноголосый закадровый)Язык субтитров: русский, английский, французский, испанский, португальскийПродолжительность: 02:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A7C68313F79652E1EB0C1F740D9F81461B27BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

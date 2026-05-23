@@ -6,7 +6,7 @@ Hard Disk Sentinel PRO 5.70.2 Build 11973 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025579.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FurMark 1.25.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025576.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PotPlayer 210318 (1.7.21465) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025575.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Greenshot 1.2.10.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025572.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kaspersky Lab Products Remover 1.0.1641.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025565.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025532.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MathWorks MATLAB R2021a (9.10.0.1602886) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025513.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BlueStacks App Player 4.280.0.1022 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025508.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Stephan Jolk - Live @ Bled Castle, Slovenia (2021-03-07) [MP3|320 Kbps] <Deep Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025499.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Text Editor Pro 15.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025476.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Character Animator 2021 v4.0[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025475.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Balabolka 2.15.0.776 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025467.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Adobe Animate 2021 v21.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025464.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ K-Lite Codec Pack Update 16.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025457.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Comedy Баттл (19.03.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025456.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Free Download Manager 6.14.0.3798 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025452.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Opera 74.0.3911.232 Portable by JolyAnderson [Multi/Ru] (авторская ра
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025448.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Adobe XD v38.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025428.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Adobe Audition 2021 v14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025423.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Adobe Media Encoder 2021 v15.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025413.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Telegram Desktop 2.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025410.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ NIUBI Partition Editor Pro 7.4.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025408.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Adobe Premiere Rush v1.5.54 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025407.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025404.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Telegram Desktop 2.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025396.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ PotPlayer 210318 (1.7.21467) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025393.jpg" />
 </div>
 
 

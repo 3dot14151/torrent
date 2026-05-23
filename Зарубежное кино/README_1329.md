@@ -1,55 +1,3 @@
-###  Публикация: 1416563   (362175) от 18.10.2020
-
-С днем смерти / Death of Me (2020) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Супруги-американцы Кристин и Нейл проводят отпуск на одном из тайских островов. В день отъезда у них всё идет наперекосяк: сначала они просыпаются грязные в разгромленной комнате и ничего не могут вспомнить, потом чуть не опаздывают на паром, а после выясняется, что пропали их паспорта. А когда пара решает восстановить в памяти события предыдущего дня и просматривает (   Читать дальше...   )Производство: США Benetone Films, 13 Films, Dobre FilmsЖанр: Ужасы, детективРежиссер: Даррен Линн БоусманАктеры: Мэгги Кью, Люк Хемсворт, Александра Эссоу, Майкл С. Нью, Кэт Ингкарат, Келли Б. Джонс, Анхель Ладао, Рим РоманнПеревод: Многоголосый любительский (AlphaProject)Субтитры: АнглийскиеПродолжительность: 01:34:42Реклама: Нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8C24FC062870EEC3476DAE01D0CF68C669ED53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576398   (362162) от 17.11.2012
-
-Вспомнить всё / Total Recall (2012) BDRip [H.264] [Hi10P] [Extended Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Он — обычный рабочий-строитель, живущий в маленькой квартирке в захудалом районе города будущего где-то в Новой Азии. Хотя собственная жизнь его в целом устраивает, он не может избавиться от чувства, что ему хочется чего-то большего. Потребность в новых будоражащих впечатлениях приводит его в офис компании «Вспомнить всё», имплантирующей в память своих клиентов воспоминания-фантазии, (   Читать дальше...   )Производство: США, Канада / Total Recall, Original Film, Rekall ProductionsЖанр: Фантастика, Боевик, ТриллерРежиссер: Лен УайзманАктеры: Колин Фаррелл, Кейт Бекинсейл, Джессика Бил, Брайан Крэнстон, Джон Чо, Билл Найи, Букем Вудбайн, Уилл Юн Ли, Милтон Барнс, Джеймс МакгоунПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: русский (форс-е, полные), украинский (форс-е), английский (полные - 2 вида)Продолжительность: 02:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6797673CC11A9DFCC27FADC8D619945996DFC011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576690   (362159) от 17.11.2012
 
 Синистер / Sinister (2012) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362159.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362118.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362083.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362081.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362080.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362013.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361859.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361764.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361762.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361609.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_361601.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361486.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361483.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361480.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361475.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361469.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361362.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361350.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361333.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361236.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361234.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361188.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361091.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361060.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BFA2BAA935D0AD2F6322BACA534E1DBD68E1840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576711   (361044) от 16.09.2022
+
+Идеальное убийство / Хороший сосед / The Good Neighbor (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид и Роберт едут после вечеринки на автомобиле и случайно сбивают свою новую знакомую. Сестра погибшей Ванесса начинает собственное расследование, которое приводит к цепочке загадочных смертей. Всё больше указывает на то, что всё произошедшее кем-то тщательно спланировано.Производство: США, Латвия / Altit Media Group, Forma Pro Films, RNG EntertainmentЖанр: триллер, детективРежиссер: Штефан РикАктеры: Джонатан Риз Майерс, Люк Клайнтенк, Брюс Дэвисон, Элоиза Смит, Иева Флоренс, Регина Разума, Агнесе Цируле, Юрийс Дьяконовс, Максим Бусел, Иева СеглинаПеревод: Многоголосый любительскийЯзык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF3912702992F7069C97D91A51C33F1833F90E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255886   (361031) от 19.10.2018
+
+Тарзан. Легенда / The Legend of Tarzan (2016) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приспособившийся к жизни в Лондоне Тарзан возвращается в свой бывший дом, в джунгли, чтобы разобраться в том, что происходит в лагере горнодобывающей компании.Производство: Великобритания, Канада, США / Warner Bros., Village Roadshow Pictures, RatPac-Dune EntertainmentЖанр: Фэнтези, боевик, драма, мелодрама, приключенияРежиссер: Дэвид ЙейтсАктеры: Александр Скарсгард, Марго Робби, Сэмюэл Л. Джексон, Кристоф Вальц, Джимон Хонсу, Джим Бродбент, Каспер Крамп, Хэдли Фрайзер, Женевьев О’Рейли, Саймон Расселл БилПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, эстонские, латышские, литовские, португальскиеПродолжительность: 01:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905AB692CB7939974AF298C2A0E7ED05F0E3B0D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

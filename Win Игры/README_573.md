@@ -1,29 +1,3 @@
-###  Публикация: 1804065   (11511) от 14.07.2025
-
-Shadow of the Night (2023) [En] (2.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Охотьтесь и сражайтесь с вызовами Природы! Система, в которой вы можете видеть уровень сложности для каждого отдельного раздела и свой собственный счет за убийство медведя на этих уровнях сложности. Защитите себя от хищных медведей, борясь с голодом и жаждой. Между тем, вы можете собирать древесину и материалы для горения, разводить огонь, готовить мясо и определять (   Читать дальше...   )Тип издания: RepackРазработчик: Uğur ÇELİKЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488BCA6BD1424D30AEDAE7A5BF8F91DF1014F335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806810   (11469) от 15.07.2025
 
 Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
@@ -32,7 +6,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11469.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.5.8) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11371.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Murky Divers (2024) [Ru/Multi] (1.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11362.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11342.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11339.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11338.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Automate It: Factory Puzzle (2025) [Ru/Multi] (1.0.0.6) Repack FitGirl [Supporte
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11320.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11267.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11265.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Stronghold Crusader (2025) [Ru/Multi] (1.00) Repack FitGirl [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11251.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11248.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ready or Not (2023) [Ru/Multi] (Build 19222255/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11222.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ready or Not (2023) [Ru/Multi] (88602/dlc) Repack FitGirl [LSPD Bundle - Censore
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11214.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11147.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11131.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ratten Reich (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11129.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.7.0.0/00.017.002/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11115.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Fragments of Truth: An MCF Story (2025) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11105.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Legendary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11064.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Scene Rune [Vanguard Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11034.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.04.20550/dlc) Repack LetsPlay [Digital D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11026.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11018.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0r18) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10999.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10994.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Reus 2 (2024) [Ru/Multi] (1.8.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10992.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Reus 2 выделяется своей уникальностью и увлек�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04E192082B1A982638F9D782020A6A6D1D2D2EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807424   (10991) от 19.07.2025
+
+DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10991.jpg" />
+</div>
+
+
+###  Подробнее
+
+DOOMER SIMULATOR погружает игрока в жизнь человека, проживающего в постсоветской хрущевке на рубеже веков. Быт персонажа представляет собой круговорот из работы на заводе, заваривания лапши и употребления крепкого чая. Этот распорядок дня дополняется периодами глубокого самокопания и определенными вредными привычками. В квартире ветхие советские вещи соседствуют (   Читать дальше...   )Тип издания: RepackРазработчик: Sebasa Games TaganrogЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A010F4E4557CD4C0202BB87235434B59777507DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

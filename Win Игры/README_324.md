@@ -1,29 +1,3 @@
-###  Публикация: 1551535   (214969) от 27.10.2022
-
-LEMURIA (2022) [Ru/Multi] (1.2.5/dlc) License DOGE
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Приключенческий шутер от 3-го лица с перестрелками, диалогами и многочисленными катсценами, действие которого происходит на фоне массовых уличных беспорядков и начала смертельной эпидемии. Когда цивилизация начинает рушиться и её законы перестают действовать, все возникающие проблемы приходится решать новыми методами. Оружие, девушки, автомобили, золото, уран и пачки (   Читать дальше...   )Тип издания: LicenseРазработчик: amQuestsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76FB664748BE0E2FA3AA6E9649DDEB1D2AB0DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514123   (214909) от 04.12.2021
 
 World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
@@ -32,7 +6,7 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214909.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Shieldwall Chronicles: Swords of the North (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214906.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) Repack R.G. Механики [Deluxe E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214864.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214824.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Highrise Mogul (2021) [En] (1.01) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214804.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214728.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Solar Ash (2021) [Ru/Multi] (1.03.44179) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214676.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Europa Universalis IV (2013) [En/Multi] (1.14.01/dlc) Repack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214623.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214617.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214604.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Guild 3 (2017) [Ru/Multi] (1.0.6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214572.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ MXGP 2021 - The Official Motocross Videogame (2021) [Multi] (1.0b7737829) Licens
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214544.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ship Graveyard Simulator (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214498.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.8.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214481.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Shelter Manager (2021) [Ru/Multi] (0.5.5_prod2) License TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214377.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 7575778/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214268.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214220.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Unseen Fears 3: Last Dance / Невидимые страхи 3: Послед
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214110.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lightracer Spark (2023) [Multi] (1.2.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213989.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213968.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Tropico 6 (2019) [Ru] (1.070/dlc) Repack Other s [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213949.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Valakas Story (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213928.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Evil Bank Manager (2018) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213748.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Legendary Tales 4: Map of Hope (2025) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213554.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213550.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30AE8AC68C8F42EBC442FD34753D26FD8841911B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653095   (213527) от 19.08.2023
+
+Turbo Overkill (2023) [Ru/Multi] (1.00) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Overkill 1.0 наконец-то здесь! Ноги, руки, велосипеды — бензопилы повсюду! Они понадобятся вам, чтобы очистить Рай, которым управляет Син (супер-ИИ), троица охотников за головами (Моу, Потрошитель и Джаз) и около 150 000 усиленных киберпанков. Лучший FPS от Apogee со времен Duke Nukem 3D. Удачной охоты, сэр!Тип издания: RepackРазработчик: Trigger Happy InteractiveЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9271D506AECF8343A8FB2B5B4F4688499A7322E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

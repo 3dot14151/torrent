@@ -6,7 +6,7 @@ Cuckoo no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036975.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036652.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036308.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036298.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bannou Bunka Nekomusume Dash! | All Purpose Cultural Cat Girl Nuku-Nuku Dash | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036282.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Elf o Karu Mono-tachi II | Those Who Hunt Elves II | Те, кто охотятс
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035981.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Mushikago no Cagaster | Cagaster of an Insect Cage | Убийца насеком
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035979.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Elf o Karu Mono-tachi | Those Who Hunt Elves | Те, кто охотятся н�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035972.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Maesetsu! Opening Act | Разогрев! [2020, TV, 12 из 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035937.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Show by Rock!! Mashumairesh!! | Рок-шоу! (2020) [2020, TV, 12] BDRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035716.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sangatsu no Lion (2017) | March Comes In Like a Lion (2017) | Мартовски
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035458.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035448.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sangatsu no Lion | March Comes in like a Lion | Мартовский лев [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035446.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kanojo ga Flag o Oraretara | If Her Flag Breaks | Если бы я сломал 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034885.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Xanadu Dragonslayer Densetsu | Ксанаду: Легенда об истреб�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034629.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Rail Romanesque | Романтика рельсов [ТВ-1] [2020, TV, 12 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033542.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Golden Kamuy OAD | Золотое божество OVA [2018, OVA, 4 эп.] DVDr
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033469.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Boruto: Naruto Next Generations / Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033112.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Yama no Susume: Next Summit | Encouragement of Climb: Next Summit | В горы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032707.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Strange Dawn | Странный рассвет [2000, TV, 13] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032693.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032489.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Shironeko Project: Zero Chronicle | White Cat Project | Проект «Бела�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031831.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Shadowverse Flame | Поэзия теней [ТВ-2] [2022, TV, 50 эп. + SP] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030850.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Boruto: Naruto Next Generations | Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030620.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Kumo no You ni Kaze no You ni | Like the Clouds, Like the Wind | Словно о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030465.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Tondemo Skill de Isekai Hourou Meshi | Кулинарные скитания в 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030171.jpg" />
 </div>
 
 

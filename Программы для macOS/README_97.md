@@ -6,7 +6,7 @@
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415600.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JetBrains AppCode 2020.2.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415571.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iZotope - RX 8 Audio Editor Advanced STANDALONE, VST, VST3, AAX 8.1.0.544 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415390.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Notefile 2.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415095.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FiveNotes 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415055.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ QuickLinks 2.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414915.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Dark Mode Switch 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414911.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ TextMan 1.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414782.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Wake on Lan for Mac 1.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414780.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ One Switch 1.26.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414757.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Flowstate 1.33 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414753.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wondershare DVD Creator 6.1.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414654.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Cool Menu 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414644.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Chaos Control Premium 1.16 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414642.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Boring Old Menu Bar 1.23 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414634.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ SmartSound SonicFire Pro 6 v.6.6.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414624.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ GoodTimes 1.3.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414467.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ KeyKey — Typing Practice 2.9.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414422.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ OS X Server 3.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413955.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Apple Aperture 3.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413947.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Canvas Draw 5 v5.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413194.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ FX Photo Studio CK (Pro) 3.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413162.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ JetBrains PhpStorm 2020.2.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413149.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Templates Lab for MS Office 3.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413019.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ DayRate - Currency Converter 5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412662.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ AnyTrans v6.0.1 (20170920)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412598.jpg" />
 </div>
 
 

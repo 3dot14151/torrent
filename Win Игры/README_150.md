@@ -1,29 +1,3 @@
-###  Публикация: 1356120   (751296) от 12.07.2020
-
-Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в программу «Первопроходец»! В нашем веселом и ярком приключении для одного или двух игроков вы играете за нового работника корпорации «Родной Космос», которая с гордостью называет себя четвертой лучшей межзвездной компанией. Вас выбросили на неизведанной планете почти без оборудования, и теперь ваша задача – определить, подходит ли планета для заселения (   Читать дальше...   )Тип издания: RepackРазработчик: Typhoon StudiosЖанр: Adventure, Action, RPG, 1st Person, 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADED8F362C264694CC344DD2FB6359AE52ED7898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281555   (751202) от 08.02.2019
 
 Monster Energy Supercross 2 (2019) [Multi] (1.0/dlc) License CODEX [The Official Videogame]
@@ -32,7 +6,7 @@ Monster Energy Supercross 2 (2019) [Multi] (1.0/dlc) License CODEX [The Official
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751202.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751193.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ IS Defense (2016) [En] (1.0 u5/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751184.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Royal Legends: Marshes Curse / Королевские легенды: Прокл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751130.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_750515.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Ominous Objects 2: Phantom Reflection (2015) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750124.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Demon Archive: The Adventure of Derek (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749969.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Embrace of Ocean: Story of Hope (2017) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749922.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ PuppetShow 15: Porcelain Smile / Шоу марионеток 15: Фарфоро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749817.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749729.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Spirit of Revenge: Cursed Castle / Месть духа. Проклятый за�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749654.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Absolver (2017) [Ru/Multi] (1.29/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749591.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ POSTAL Redux (2016) [En] (1.1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749476.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Monstrum (2015) [En] (1.4.1) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749468.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Haunted Legends 12: Monstrous Alchemy / Легенды о призраках 12:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749219.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Saga of the Nine Worlds: The Gathering (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748042.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ On The Road - Truck Simulator (2019) [Ru/Multi] (1.1.3.49) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748037.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Dreadful Tales: The Space Between / Жуткие истории: Кто таит
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747955.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747876.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Facility 47 (2015) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747872.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Mars Horizon (2020) [Ru/Multi] (1.4.1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747773.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747728.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Rise & Shine (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747704.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747583.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747474.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DC88347500E2219974392DA1D392997B9F217F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216760   (747472) от 01.04.2018
+
+DESPOILER (2018) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пилотируйте свой корабль на воздушной подушке через пустынные дикие земли, собирая ценный лом который вам нужен чтобы разблокировать улучшения, обновить свой корабль и победить в этой нелёгкой гонке.Тип издания: LicenseРазработчик: Parallax LabsЖанр: Action, RacingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C762D09D94CBBE6524273C6CF569C2F29A8CE3CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

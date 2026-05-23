@@ -6,7 +6,7 @@ Forgotten Tales - All The Sinners (Japan Edition) (2004) [WavPack|Lossless]<Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993595.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Love And Death - Between Here & Lost (2013) [FLAC|Lossless]<Nu Metal | Alt. Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993516.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Aspid - Musa (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993334.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Envenomed - Evil Unseen (2014) [FLAC|Lossless|image + .cue] <Melodic Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993332.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Dysentery - Internal Devastation (2011) [FLAC|Lossless]<Slamming Brutal Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992937.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ nuERA - Dialysis (2012) [FLAC|Lossless]<Nu Metal | Rapcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992936.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Angellore - La Litanie Des Cendres (2015) [FLAC|Lossless|image + .cue] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991988.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Grin - Translucent Blades (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Shoe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991987.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Defeated Sanity - 4 альбома (2004-2013) [FLAC|Lossless]<Technical Brutal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991196.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Royal Hunt - Show Me How to Live (2011) [FLAC|Lossless]<Progressive Neoclassical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990906.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Despised Icon - The Healing Process (2005) [APE|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990853.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Abnormal Thought Patterns - Abnormal Thought Patterns (2011) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990851.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Abnormal Thought Patterns - Manipulation Under Anesthesia (2013) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990808.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Flotsam And Jetsam - The Cold (2010) Korean Ed. [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990806.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dusk Dwell - Through the Bright Halls (2018) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990798.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Ancient Ceremony - 2CD (1997 - 2002) [WavPack|Lossless]<Symphonic Black/Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990576.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Dreamshade - 3 Альбома (2008-2013) Дискография [FLAC|Lossless]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990287.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Otep - 7 Альбомов (2002-2013) Дискография [FLAC|Lossless]<Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989967.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Stamina - System of Power (2017) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989887.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ System Of A Down - Kill Rock n Roll greatest hits (2008) [FLAC|Lossless] <Nu-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989661.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Arise - 3CD (2003 - 2009) [WavPack|Lossless]<Melodic Death Metal / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989607.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Arkhon Infaustus - Hell Injection (2001) [WavPack|Lossless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989548.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989346.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Elixir - Mindcreeper (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989110.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ As Likely As Not - Stand Up and Nerve (2011) [WavPack|Lossless]<Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988307.jpg" />
 </div>
 
 
@@ -793,7 +793,7 @@ Metallica - 11 альбомов (1983-2008) Japan Mini-LP SHM-CD /2010, Universa
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987616.jpg" />
 </div>
 
 

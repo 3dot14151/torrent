@@ -1,29 +1,3 @@
-###  Публикация: 1684887   (9079) от 07.08.2025
-
-House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пора стряхнуть пыль с молотка - «Хаус Флиппер» возвращается в новом виде! Покупайте и ремонтируйте заброшенные дома! Или вы предпочитаете строить новые? Теперь можно и это! Примерьте роль флиппера-новичка и заработайте состояние, помогая жителям милого городка Pinnacove.Тип издания: RepackРазработчик: Frozen District, EmpyreanЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C0BB7340ECECE86DD2D39ABAE6DC4CD1AADE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810918   (9061) от 07.08.2025
 
 Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Mul
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9061.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9059.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9052.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Luto (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9048.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9020.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Castle Crashers (2012) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Complete Bundle]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8993.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8985.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.2 CL#424353/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8951.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8938.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.16) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8931.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Hidden Portals: Eternal Balance / Скрытые порталы: Вечный б
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8927.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Grim Chronicles: Superior Sorcery (2025) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8897.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.2 CL#424353) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8890.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8881.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack FitGirl [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8875.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The House of the Dead 2: Remake (2025) [Multi] (1.0) Scene FairLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8871.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8858.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (build 19526651) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8846.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Le Mans Ultimate (2024) [Multi] (1.0) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8845.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Digger: Galactic Treasures (2025) [Ru/Multi] (1.05.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8844.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Count of Monte Clicker (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8839.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Yomi 2 (2023) [Ru/Multi] (2841/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8835.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8830.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.2_92.3d163d7) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8816.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Koboo: The Tree Spirit (2024) [En] (1.02) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8809.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Koboo: The Tree Spirit предлагает уникальное сочетан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6000ADAA4E6FA4CFD8CD4D5FE23B48DCA0D975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811271   (8791) от 09.08.2025
+
+Relaxing Time 3: Enchanting France / Время отдыха 3: Чарующая Франция (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной игры Relaxing Time. Побалуй себя парижскими каникулами! Дядя Кассиус приглашает тебя удовлетворить свою страсть к архитектуре. Теперь во Франции! Здесь ты встретишься не только с семьей, но и с экспертами, которые живут в столице романтики и сохраняют ее историю и красоту. Этот город способен удовлетворить даже самых привередливых.Тип издания: UnofficialРазработчик: Relax GamesЖанр: Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5C84C387B14F4F49431F3B809D82E8774A5DD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

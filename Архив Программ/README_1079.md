@@ -6,7 +6,7 @@ FL Studio Producer Edition 20.8.4.2576 + FLEX Extensions & Addition Plugins RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499254.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DensPlay 2.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499251.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Shockwave Player 12.2.0.162 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499244.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoolUtils Total Image Converter 5.1.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499243.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Logitech SetPoint 6.67.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499238.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ObjectRescue Pro 6.8 build 945 [Русский- Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499184.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.50 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499171.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Re-Loader 1.4 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499157.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Skype 7.10.73.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499155.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ EasyHDR PRO 2.22.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499119.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Uninstall Tool тихая установка by moRaLIst 3.2 Build 5274 Final [�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499118.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ HitmanPro 3.7.9 Build 245 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499080.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe components: Flash Player 18.0.0.232 + AIR 18.0.0.199 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499076.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Rowbyte Plexus 2.0.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499075.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Skype 7.10.32.101 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499069.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Techsmith Snagit Portable by Boomer 11.0.1 Build 93 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499062.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Total Commander 8.01 LitePack | PowerPack 2012.9 Final RePack (& Portable) by D!
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499049.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Re-Loader Activator 1.4 Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499019.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VirtualBox 5.0.4 r102546 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499018.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ PortableAppZ PC v.07.09.15 by Stranger47 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499007.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Total Commander 8.01 Final [MAX-Pack 2012.9.2] AiO-Smart-SFX [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499001.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AVS All-In-One Install Package 2.2.2.94 Portable by Maverick [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498994.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498988.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Novicorp WinToFlash Professional 1.2.0007 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498963.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Promt 11 Dictionaries Collection RePack by MKN (08.09.2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498959.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NewBlue Titler Pro 4.0 build 150529 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498958.jpg" />
 </div>
 
 

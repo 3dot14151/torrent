@@ -6,7 +6,7 @@ Ry Cooder - The Prodigal Son (2018) [MP3|320 Kbps] <Blues Rock, Roots>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659744.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Frank Avitabile - Bemsha Swing (2002) Dreyfus Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659381.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Carla Bley - Looking For America (2003) ECM Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659374.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rebecca Martin - People Behave Like Ballads (2004) MaxJazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659368.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nat Adderley - Work Song (2008) [FLAC|Lossless]<Jazz, Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659366.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Bill Perkins Big Band - Our Man Woody (1999) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659348.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Gina Sicilia - Tug Of War (2017) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659288.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adi Barar Band - Hold On! (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659285.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Bill Tole And His Orchestra - On The Move (1990) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659277.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ The Junior Mance Quintet - Here 'Tis: Play The Music Of Dizzy Gillespie (1992) S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659251.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Weather Report - I Sing The Body Electric (2014) [FLAC|Lossless]<Jazz, Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659225.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ David Sanborn - Time and The River (2015) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659222.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ John Petters Swing Band - Sing Sing Sing (2013) [MP3|320 кб/с]<Jazz, Retro Sw
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659217.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Bill Stewart - Think Before You Think (1998) [FLAC|Lossless]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659125.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Jessy J - My One And Only One (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658967.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Billie Holiday - Music For Torching (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658961.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Wille and the Bandits - When the World Stood Still (2022) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658943.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ The Blues Against Youth - As the Tide Gets High and Low (2022) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_658941.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Takao Uematsu Quartet & Quintet - Debut (1970) 2013, Three Blind Mice [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658831.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ The Robbie McIntosh Band - Emotional Bends (2000) [APE|Lossless|image + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658225.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Sandi Thom - Merchants And Thieves (2010) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658220.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ The Kentucky Headhunters & Johnnie Johnson - Meet Me in Bluesland (2015) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658215.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Frank Lowe - Black Beings (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658173.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Tony Holiday & The Velvetones - No Need To Rush It (2015) [MP3|320 кб/с]<Harm
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658168.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Steve Tallis And The Zombi Party - Zombi Party (1993) [MP3|320 кб/с]<Blues, F
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658085.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Buddy Moss - The Essential (2002) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658082.jpg" />
 </div>
 
 

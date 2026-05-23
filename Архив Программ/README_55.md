@@ -6,7 +6,7 @@ Icecream Slideshow Maker PRO 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VueScan Pro 9.7.99 (08.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034794.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Toolkit 2.7.1 Stable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034749.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Strawberry 1.0.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034742.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Duplicate File Detective 7.2.69.0 (x64) Professional / Enterprise / Server Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034740.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PDF-XChange Editor Plus 9.5.367.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034735.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034733.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Privacy Eraser Free 5.8.0 Build 3816 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034670.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Q-Dir 9.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034645.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sandboxie 5.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034641.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PrivaZer 4.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034624.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PotPlayer 210127 (1.7.21419) DC210201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034623.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PotPlayer 1.7.21419 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034613.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ DP Animation Maker 3.4.34 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034610.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AIMP 4.70 Build 2242 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034588.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ foobar2000 1.6.4 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034581.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ PotPlayer 1.7.21419 (x64) DC 210201 Stable RePack (& portable) by 7sh3 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034554.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Music Collection 3.5.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034537.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ PDF Shaper Professional 13.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034528.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ DxO FilmPack 6.9.0 Build 11 Elite (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034527.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ FileOptimizer 16.20.2771 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034500.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Avast Premium Security 23.2.6053 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034499.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Photoshop Lightroom Classic 12.2.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034495.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.4 Build 9 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034492.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Macrium Reflect v 7.3.5555 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034406.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Opera GX 96.0.4693.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034394.jpg" />
 </div>
 
 

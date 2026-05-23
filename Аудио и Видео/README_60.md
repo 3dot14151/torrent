@@ -1,353 +1,3 @@
-###  Публикация: 1199524   (800954) от 16.01.2018
-
-Дозор джунглей / Les as de la jungle (2017) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пингвин Морис тигрового окраса уверен, что он и в самом деле тигр — герой, в котором нуждаются джунгли. Вместе со своей энергичной командой разношерстных животных под названием «Дозор джунглей» он неусыпно стоит на страже справедливости и покоя. С переменным успехом, конечно, но они стараются. Однако вскоре ему предстоит столкнуться с невероятно коварным и безжалостным (   Читать дальше...   )Производство: ФранцияЖанр: Мультфильм, приключения, семейныйРежиссер: Дэвид АлоАктеры: Paul Borne, Филипп Бозо, Паскаль Касанова, Эммануэль Кюртиль, Мишель Меля, Селин Монсарра, Лоран Морто, Жан-Филипп Пюмартин, Барбара Тиссье, Алексис ТомассианПеревод: Дублированный (Лицензия)Субтитры: НетПродолжительность: 01:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C62943F442BC98F9656D91CFE7CC1A36E7C6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384854   (800926) от 22.05.2020
-
-Кир Булычёв | Царицын ключ (2020) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фольклорная экспедиция, отправившаяся за песнями и сказками в далёкую уральскую деревушку Полуехтовы Ручьи, никак не ожидала обнаружить здесь настоящее волшебное царство. В этом глухом уголке растёт малина величиной с кулак, живёт говорящий ворон Григорий, бродит сама собой мельница и, следуя старинной традиции, каждое утро стреляет из пушки медведь!.. А всё потому, (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 05:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01CD9136D3AA062F367F956CF28F287BD0F5D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384957   (800793) от 22.05.2020
-
-Тёмное наследие / Inheritance (2020) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Богатый и влиятельный отец семейства внезапно умирает. Его жена и дочь начинают разбираться в оставленном им наследстве. Погружаясь в прошлое отца, девушка узнает о завещании, оставленном для нее одной. Однако она не подозревает, что скоро столкнется с правдой, которая станет угрозой для всей её семьи.Производство: США, Highland Film Group (HFG), Ingenious Media, Southpaw EntertainmentЖанр: Триллер, драма, детективРежиссер: Вон СтайнАктеры: Лили Коллинз, Саймон Пегг, Конни Нильсен, Чейс Кроуфорд, Марке Ричардсон II, Майкл Бич, Крис Гэнн, Хосе Херрера, Кристина ДеРоса, Харрисон СтоунПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A24B06CE64360C75D38EBA475C3EB06666A5B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384954   (800789) от 22.05.2020
-
-Тёмное наследие / Inheritance (2020) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Богатый и влиятельный отец семейства внезапно умирает. Его жена и дочь начинают разбираться в оставленном им наследстве. Погружаясь в прошлое отца, девушка узнает о завещании, оставленном для нее одной. Однако она не подозревает, что скоро столкнется с правдой, которая станет угрозой для всей её семьи.Производство: США, Highland Film Group (HFG), Ingenious Media, Southpaw EntertainmentЖанр: Триллер, драма, детективРежиссер: Вон СтайнАктеры: Лили Коллинз, Саймон Пегг, Конни Нильсен, Чейс Кроуфорд, Марке Ричардсон II, Майкл Бич, Крис Гэнн, Хосе Херрера, Кристина ДеРоса, Харрисон СтоунПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9B1483D328AF46E21CF8DBA940D17EDF270A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384887   (800776) от 22.05.2020
-
-Ловец снов / Dreamkatcher (2020) WEB-DL [1080p] ATV [AVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Совсем немного времени прошло после убийства жены Люка соседским мальчишкой в отдалённом лесном домике, но мужчина привозит туда свою новую пассию Гейл и сына Джоша. Ребёнка мучают страшные сны, в которых ему является мёртвая мама, а Гейл — детский психилог со стажем — изо всех сил пытается помочь мальчику. Однажды, наслушавшись рассказов соседки про ловцы снов, (   Читать дальше...   )Производство: США / Taylor Lane ProductionsЖанр: УжасыРежиссер: Керри ХаррисАктеры: Рада Митчелл, Генри Томас, Лин Шэй, Жуль Уиллкокс, Джозеф Бишара, Финлэй Войтаг-Хиссонг, Дункан Фостер-Аллен, Дж. Кристиан Ингвордсен, Белла Мари Фучиле, Каллен РиераПеревод: Авторский одноголосый (Андрей Дольский)Субтитры: Русские (full, SDH), английские (SDH)Продолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76E96CF30D2451959F989B38B562EBDB09A4EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273469   (800624) от 01.01.2019
-
-Вы умрете, или мы вернем вам деньги / Dead in a Week: Or Your Money Back (2018) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После очередной неудавшейся попытки свести счеты с жизнью незадачливый писатель Уильям обращается к услугам наемного убийцы Лесли — неумолимого ангела смерти из «Гильдии Убийц» — организации, готовой оказать помощь всякому, кто нуждается в быстром и безболезненном уходе из жизни. У Лесли доброе сердце, но нетвердая рука. Начальство мечтает отправить его на пенсию, (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедияРежиссер: Том ЭдмундсАктеры: Кристофер Экклстон, Анайрин Барнард, Том Уилкинсон, Фрейя Мавор, Гетин Энтони, Найджел Линдсэй, Мэрион Бэйли, Натали Баскомб, Марсия Уоррен, Велибор ТопичПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F30C9F0F0334CEA42627CDD777616E511BEA63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273457   (800598) от 01.01.2019
-
-Вы умрете, или мы вернем вам деньги / Dead in a Week: Or Your Money Back (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После очередной неудавшейся попытки свести счеты с жизнью незадачливый писатель Уильям обращается к услугам наемного убийцы Лесли — неумолимого ангела смерти из «Гильдии Убийц» — организации, готовой оказать помощь всякому, кто нуждается в быстром и безболезненном уходе из жизни. У Лесли доброе сердце, но нетвердая рука. Начальство мечтает отправить его на пенсию, (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедияРежиссер: Том ЭдмундсАктеры: Кристофер Экклстон, Анайрин Барнард, Том Уилкинсон, Фрейя Мавор, Гетин Энтони, Найджел Линдсэй, Мэрион Бэйли, Натали Баскомб, Марсия Уоррен, Велибор ТопичПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF5B2A3DE747F7D0C8303D0AA676611CC2A1408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121473   (800440) от 02.04.2017
-
-Джеки / Jackie (2016) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-О Жаклин Кеннеди — первой леди Соединенных Штатов в начале 60-х, самой популярной женщине своего времени, иконе стиля — написаны десятки книг и снято немало фильмов, но огромный интерес к ее жизни с годами не угасает. В этой ленте авторы воспроизвели один из трагических моментов в американской истории — убийство президента Кеннеди в Далласе — и последовавшие за ним (   Читать дальше...   )Производство: Чили, Франция, США, ГонконгЖанр: Драма, биографияРежиссер: Пабло ЛарраинАктеры: Натали Портман, Питер Сарсгаард, Грета Гервиг, Билли Крадап, Джон Хёрт, Ричард Э. Грант, Каспар Филлипсон, Бет Грант, Джон Кэрролл Линч, Макс КаселлаПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5350B2F044379413EBF5B09A2D7A188A28C36C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199718   (800298) от 17.01.2018
-
-Дозор джунглей / Les as de la jungle (2017) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пингвин Морис тигрового окраса уверен, что он и в самом деле тигр — герой, в котором нуждаются джунгли. Вместе со своей энергичной командой разношерстных животных под названием «Дозор джунглей» он неусыпно стоит на страже справедливости и покоя. С переменным успехом, конечно, но они стараются. Однако вскоре ему предстоит столкнуться с невероятно коварным и безжалостным (   Читать дальше...   )Производство: ФранцияЖанр: Мультфильм, приключения, семейныйРежиссер: Дэвид АлоАктеры: Paul Borne, Филипп Бозо, Паскаль Касанова, Эммануэль Кюртиль, Мишель Меля, Селин Монсарра, Лоран Морто, Жан-Филипп Пюмартин, Барбара Тиссье, Алексис ТомассианПеревод: Дублированный (Лицензия)Субтитры: НетПродолжительность: 01:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F32648B9C6FEE475E9E127BB868080676280EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506435   (800267) от 31.10.2021
-
-Chrizz Morisson - Magic Worlds: Summer Remix Edition (2018) [AAC|~325 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson, Timi Kullai - Here I Go 2018 (Dolls Edit) (3:09)
-02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai, Pamela O'Neal - So Special (Dolls House Remix) (3:27)
-03. Linda Rocco, Lane Mccray, Chrizz Morisson, Andy Stead - Take Me to the River (Dolls Radio Mix) (4:16)
-04. Chrizz Morisson, Timi Kullai, Lightwarrior - Let's Get Up (Randy Norton Edit) (   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376433F7505D7521C681B07B5A2AB7B9114F892A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506478   (800266) от 31.10.2021
-
-VA - Toxic Lounge Tunes, Vol. 5 (2013) [AAC|~331 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Summer Daze (3:37)
-02. Guenter Haas - Cayo Coco (6:14)
-03. Placid Larry - Sprinkler (4:52)
-04. Barclay & Cream - Natural Thing (Alexander Metzger Mix) (5:16)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F173C8919E8EFF7F3F8D758039549F0999583ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506420   (800265) от 31.10.2021
-
-Chrizz Morisson - Magic Worlds (2021) [AAC|~326 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson, Timi Kullai, Lightwarrior - Let's Get Up (Radio Mix) (4:47)
-02. Chrizz Morisson, Latisha Van Simon - Near Me (Cm Tropical Mix) (3:41)
-03. Chrizz Morisson, Timi Kullai - Here I Go (Radio Mix) (3:23)
-04. Chrizz Morisson, Latisha Van Simon - From Here on Up (Cm Tropical Mix) (3:20)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99C10E3E4DFC5C6B5B729300C57A0C641AB7A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506421   (800264) от 31.10.2021
-
-Chrizz Morisson - Universe (2021) [AAC|~330 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson, Rick De Hey, Timi Kullai - Blue (Da Ba Dee) (Radio Mix) (3:40)
-02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai - Sugar (House Radio Mix) (3:23)
-03. Chrizz Morisson, Fio - Feel Free (Radio Mix) (3:49)
-04. Chrizz Morisson, Marko Skye - Calling of My Heart (Airplay Radio Mix) (3:44)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8380402504CB26E9EA68A536F3A08FB8CEEE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121402   (800259) от 02.04.2017
 
 Аисты / Storks (2016) BDRip [720p] ATV
@@ -356,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800259.jpg" />
 </div>
 
 
@@ -382,7 +32,7 @@ VA - Toxic Lounge Tunes, Vol. 4 (2013) [AAC|~326 Kbps] <Downtempo, Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800251.jpg" />
 </div>
 
 
@@ -411,7 +61,7 @@ VA - Toxic Lounge Tunes, Vol. 2 (2011) [AAC|~325 Kbps] <Downtempo, Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800244.jpg" />
 </div>
 
 
@@ -440,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800219.jpg" />
 </div>
 
 
@@ -466,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800214.jpg" />
 </div>
 
 
@@ -492,7 +142,7 @@ VA - Toxic Lounge Tunes (2009) [AAC|~313 Kbps] <Downtempo, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800189.jpg" />
 </div>
 
 
@@ -521,7 +171,7 @@ VA - Toxic Lounge Tunes, Vol. 3 (2012) [AAC|~325 Kbps] <Downtempo, Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800172.jpg" />
 </div>
 
 
@@ -550,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800126.jpg" />
 </div>
 
 
@@ -576,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800119.jpg" />
 </div>
 
 
@@ -603,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799733.jpg" />
 </div>
 
 
@@ -629,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799732.jpg" />
 </div>
 
 
@@ -655,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799613.jpg" />
 </div>
 
 
@@ -681,7 +331,7 @@ VA - Eight Years Eisenwaren (2021) [AAC|~308 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799568.jpg" />
 </div>
 
 
@@ -695,6 +345,383 @@ VA - Eight Years Eisenwaren (2021) [AAC|~308 Kbps] <House, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C16A4EB27D95D31FF4E255252865C59AB030DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506731   (799567) от 01.11.2021
+
+Marco Bedini - Bufalo Essentials, vol. 2 (2021) [AAC|~339 Kbps] <House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretender (8:37)
+02. History (7:29)
+03. Loopmoon - Ancestral Technology (Marco Bedini Remix) (5:48)
+04. Flavours (6:47)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 01:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C665048D5A750612D2714598349BFC8D6AD8EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506636   (799565) от 01.11.2021
+
+VA - Mykonos Chillout Café, Vol. 4 (Feelings Del Mar) (2009) [AAC|~338 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noise Boyz - Blue Cabbage (Sax 2 Jazz Mix) (6:21)
+02. Green Lemon - Visiting Suntown in June (A Deep Breath Mix) (6:00)
+03. Bay Area - Echoes of Aquantis (Red Horizon Mix) (5:19)
+04. Noise Boyz, Io Vita - Make It Right - Joyful (Missing U Mix) (5:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E9BD56F2B96280C9993D81BF29FC47ADDBAC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506733   (799563) от 01.11.2021
+
+Marco Bedini - Bufalo Essentials, vol. 3 (2021) [AAC|~308 Kbps] <House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertrance (6:23)
+02. Paramunt (Dave Bloom Remix) (7:16)
+03. Begainned (6:46)
+04. Exoplanet (6:28)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D0821C60B49A3E920753AB53F5FFB3E1EA04A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506625   (799559) от 01.11.2021
+
+VA - Tribal Lineage (Compiled by Boom Shankar) (2019) [AAC|~343 Kbps] <Psy-Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthropod - United Front (6:44)
+02. Kundalini - Affirmation (7:31)
+03. Jirah, Random - A Maze (8:30)
+04. Vertical, Inverse Out - Platonic (6:57)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20359D8AAB510C57561C7873D96CF7B41A4C92AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506634   (799557) от 01.11.2021
+
+VA - Mykonos Chillout Café, Vol. 3 (Feelings Del Mar) (2009) [AAC|~339 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man Behind C. - Mykonos Lounge Flight (Magic Waves Mix) (5:56)
+02. Cafe Americaine - Maritime (Caribic Flow Mix) (5:38)
+03. Deeparture - Dambes (5:23)
+04. The Man Behind C. - Back in Time (Bossa Chill Mix) (6:28)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE0C17CB3100E8FAAE3F891DCC9F0B8FF836EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506728   (799554) от 01.11.2021
+
+Marco Bedini - Bufalo Essentials (2019) [AAC|~332 Kbps] <House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Order (6:12)
+02. Glish Up (6:44)
+03. Dark Nights (5:36)
+04. Genealogic (6:50)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1D6E363C6AB058F54D4F58AED28D989667FBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506643   (799550) от 01.11.2021
+
+October Noir - Thirteen (2019) [AAC|~312 Kbps] <Gothic, Doom Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tombstones (9:12)
+02. Burn (6:53)
+03. Spellbound (6:43)
+04. Little Drummer Boy (9:12)(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2F8DD9361EDC15D1C4E617177FA0A7000550CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506628   (799539) от 01.11.2021
+
+VA - Tribal Lineage 3 (Compiled by Boom Shankar) (2021) [AAC|~329 Kbps] <Psy-Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trancemancer - Awakening (8:07)
+02. Architekt - Tranquilized (6:13)
+03. Sabretooth, Bunker Jack - Puffball (8:20)
+04. Inverse Out - How Do You Feel? (7:17)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E484D4EDEB140726C1E3A7768B9588265410FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506632   (799538) от 01.11.2021
+
+VA - Mykonos Chillout Café, Vol. 2 (Feelings Del Mar) (2008) [AAC|~341 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillwalker - Homeless (Mykonos Beach Cut) (5:19)
+02. Noise Boyz - Summer Storm (Blue Sky Mix) (5:50)
+03. Alexsandro Da Silva - My Celebration (Vocal Mix) (4:20)
+04. The Man Behind C. - Aimless Memories (More Time for Less Mix) (6:20)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEB4C0DAFCD7A8EF54237653EC66989E7691961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506662   (799537) от 01.11.2021
+
+VA - In Love with Lounge, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Without You (Original Mix) (3:16)
+02. Decò - 60's Mood (Original Mix) (4:10)
+03. Kiwi Twist - Dark Tango (Original Mix) (3:13)
+04. Johannes Huppertz - By the Way (Original Mix) (5:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5B787BB123AFFA3FB47CB04CCA1144596AACB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506631   (799536) от 01.11.2021
+
+VA - Mykonos Chillout Café (Feelings Del Mar) (2007) [AAC|~328 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Blue - Sun of Haleakala (Piano Dream Mix) (5:43)
+02. Smash - Pour Lina (8:55)
+03. Frank Borell - Say That U Want Me (Spheric Chill Session) (4:36)
+04. Manoa - Harmonic Slide (Lounge Mix) (7:23)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5ACB5ABCA2A23FEE108FA65DF116647E5B8FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506645   (799535) от 01.11.2021
+
+October Noir - Fate, Wine, & Wisteria (2021) [AAC|~305 Kbps] <Gothic, Doom Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fate (0:50)
+02. Windows (6:48)
+03. Reverence (Make You Love) (6:41)
+04. Effigy (5:42)(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723086C68B23C567195FCFA379161438C049571F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506664   (799533) от 01.11.2021
+
+VA - In Love with Lounge, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillson, Marc Hartman - Smiling Faces (Original Mix) (4:09)
+02. Sami Sivananda - Temple Tunes (Original Mix) (6:46)
+03. Dreamhunter - Wolf in the Snow (Original Mix) (4:05)
+04. Artur Bayramgalin - Toronto Lights (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A9BEF548D0FBA5AA6FB13DE3E0D3091E43A425
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617068.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crying is not Enough (2018) [Ru/Multi] (1.0/upd1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616474.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Haunted: Hells Reach (2011) [Multi] (1.0 Build 8564469/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616002.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Devil May Cry 4 (2015) [Multi] (1.0.0.0/dlc) SteamRip Let'sРlay [Special Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611976.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ POSTAL Redux (2016) [En/Ch] (4.3.0/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608307.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Toukiden: Kiwami (2015) [En/Jap] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608174.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607352.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) License PLAZA [Complete Pack]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607279.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ECHO (2017) [Ru/En] (24.03.2019) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606007.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Crying is not Enough: Remastered (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604535.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Remember Me (2013) [Ru/Multi] (1.0.2056.0/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604170.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sniper Elite V2 (2012) [Ru/En] (1.13/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604160.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Assassin's Creed (2008) [Ru/Multi] (1.02v2) License GOG [Director's Cut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603997.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603996.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603747.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603517.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Prince of Persia: The Two Thrones / Принц Персии: Два трона (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603509.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603023.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.04) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602072.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dark Sector (2009) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600670.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Watch_Dogs 2 / Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack R.G. Cata
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599460.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/En] (1.0.0.1/upd1/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598992.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Deadly Dozen Reloaded (2022) [Multi] (1.03) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597372.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Rune Classic / Руна (2001) [Ru/Multi] (1.11/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596023.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/upd2/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595486.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Sniper Elite Anthology / Sniper Elite Антология  (2005-2017) [Ru/En] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593719.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_311.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шальной �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_286.jpg" />
 </div>
 
 

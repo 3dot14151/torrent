@@ -1,29 +1,3 @@
-###  Публикация: 1396704   (736484) от 24.07.2020
-
-Hydroneer (2020) [Ru/Multi] (1.3.6) Repack Other s
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Hydroneer — это песочница про добычу золота и других ресурсов для постройки массивных добывающих машин и своей базы для разных задач. Используйте примитивные инструменты, механизмы, работающие на воде и построенные вами структуры для добычи и улучшения ваших процессов в этой магнатообразной прогрессивной системе. Стройте механизмы, куйте оружие, рыбачьте, и копайте (   Читать дальше...   )Тип издания: RepackРазработчик: Foulball HangoverЖанр: Simulator (Sandbox), Strategy, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734B8912B3B5A30FB933DA535291B7B3499B91FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345049   (736480) от 24.07.2020
 
 Transport Fever 2 (2019) [Ru/Multi] (29596) Repack xatab (обновляемая)
@@ -32,7 +6,7 @@ Transport Fever 2 (2019) [Ru/Multi] (29596) Repack xatab (обновляемая
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736480.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Whispering Willows (2014) [Ru/Multi] (1.6.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736362.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Crows Eye (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736295.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Creaks (2020) [Ru/Multi] (1.0.0.5311171hf) Repack xatab
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735960.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Creaks (2020) [Ru/Multi] (1.0) License GOG [Collector's Edition] (обновля
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735955.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ One Piece: Pirate Warriors 4 (2020) [Ru/Multi] (1.0.1.0/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735948.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Feud: Wild West Tactics (2020) [En] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735503.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Necrobarista (2020) [Ru/Multi] (1.0.2) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735502.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Escapists 2 (2017) [Ru/Multi] (27.666175/dlc) License GOG [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735501.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ World War Z (2019) [Ru/Multi] (1.70/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735494.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ CARRION (2020) [Ru/Multi] (1.0.3) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735048.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Typing Of The Dead: Overkill (2013) [Ru/En] (1.0u1) Repack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734526.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Edge of Reality 8: Lost Secrets of the Forest / Край реальности 8:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734402.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cubers: Arena (2020) [Ru/Multi] (9043596) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734140.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Monster Hunter: World (2018) (14.00.00/dlc) [Ru/Multi] Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734104.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Magic City Detective: Wings of Revenge (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733978.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ On The Verge II (2020) [Ru/En] (1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733684.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733299.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Hellpoint (2020) [Ru/Multi] (0.284) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733266.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2491/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733263.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Xuan-Yuan Sword VII (2020) [Ru/Multi] (1.26/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733009.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Reverie Knights Tactics (2022) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733003.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Mary Skelter 2 (2022) [En] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732999.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Deja Vu / Дежавю (2020) [Ru] (1.0) Unofficial [Collector's Edition / Ко�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732635.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Groovy (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732419.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Groovy - это основанная на физике, игра платфор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46E4516F3B7BF8D533750C1C323EB1F7E8016B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021521   (732389) от 29.05.2016
+
+Meridian: New World (2014) [Ru/Multi] (1.04) License PROPHET
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meridian: New World — это стратегия, в которой вы играете роль Дэниела Хансона, коммандира первой экспедиции на планету Меридиан. Ваше цель — разведать тамошние секреты. Сформируйте мир вокруг себя посредством каждого принятого решения и каждого проведенного с командой диалога.Тип издания: LicenseРазработчик: Elder GamesЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FB22200E929AB8E5DE3F7824FD7182C39FCAF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

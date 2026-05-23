@@ -1,29 +1,3 @@
-###  Публикация: 1000761   (602799) от 08.07.2017
-
-Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Might and Delight приглашает вас переступить порог сказочного мира Shelter. Представляем Paws! Тьма сгущается упруго, лес сбивает вас с пути, но гораздо легче с другом.. к дому вместе добрести... Paws – это история о том, как двое симпатичных и необычных героев пробиваются к дому через всевозможные трудности и опасности, которые таит в себе дикая природа. Игра сочетает (   Читать дальше...   )Тип издания: LicenseРазработчик: Might and DelightЖанр: AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11968B67DC16BE407EDC09C54FD6823A7134F2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547496   (602753) от 28.04.2022
 
 The Serpent Rogue (2022) [Ru/Multi] (0.0.160) Repack Other s
@@ -32,7 +6,7 @@ The Serpent Rogue (2022) [Ru/Multi] (0.0.160) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602753.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Tunnels of Despair (2018) [Ru/Multi] (1.06) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602695.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Hidden Expedition 18: Neptunes Gift (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602641.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602356.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Inner Voices (2017) [Ru/Multi] (20170704) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602347.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602323.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Candle (2016) [Ru/Multi] (1.1.17) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602310.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Stanley Parable (2022) [Ru/Multi] (1.04) Repack Other s [Ultra Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602267.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ SIMULACRA (2017) [En] (1.0.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602103.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.04) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602072.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Cuphead (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602063.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Paranormal Files 3: Enjoy the Shopping (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601853.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Apocalipsis: Harry at the End of the World (2018) [Ru/Multi] (1.0/dlc) License G
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601806.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.6.0/dlc) Repack R.G. Механ
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601791.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601557.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601555.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Mystery Trackers 16: The Fall of Iron Rock / Охотники за тайнам�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601543.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) Repack Other s [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601537.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Spirit of Revenge 2: Elizabeth's Secret (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601215.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mayan Prophecies: Cursed Island / Пророчества Майя. Прокля�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600929.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ VALKYRIE DRIVE -BHIKKHUNI- (2017) [En/Jp] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600893.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ History2048 - 3D puzzle number game (2017) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600832.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Labyrinth Escape (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600830.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Witches, Heroes and Magic (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600783.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.112) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600716.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.112) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C53BE4F084176E31F8EFD258C87080D9629A506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547347   (600712) от 01.05.2022
+
+Command & Conquer: Red Alert 3: Generals Evolution (2022) [Ru/En] (0.3 Beta) Mod
+
+>>Win Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Generals Evolution предусматривает перенос C&C: Generals - Zero Hour на движок “SAGE 2.0”, который используется в Red Alert 3 с максимально возможной точностью. Так как Red Alert 3 всё-таки совершенно другая игра, многие вещи будут чувствоваться иначе. Помимо этого для создания эффектов частиц и прекрасных визуальных эффектов (HDR, CC и др.) используется RNA-рендер, (   Читать дальше...   )Тип издания: ModРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4F6DC8634FBF7D14F6493FE0EC6BEAE3522F35
 ```
 
 https://mybot314.ru/tekegram_catalog/

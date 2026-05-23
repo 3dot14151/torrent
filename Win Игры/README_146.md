@@ -1,29 +1,3 @@
-###  Публикация: 1279941   (764224) от 31.01.2019
-
-Lumo (2016) [Ru/Multi] (1.11.08) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Lumo, волшебный платформер повышенной степени уютности. Иногда для приключения не нужен повод, во всяком случае – серьезный. В самом деле, не все же время спасать миры!Тип издания: RepackРазработчик: Triple Eh?Жанр: Adventure (Puzzle), 3D, IsometricЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD69BD27FF346A685B40960C4E16A43D9BEC971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279953   (764222) от 31.01.2019
 
 Headlander (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
@@ -32,7 +6,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764222.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Solstice Chronicles: MIA (2017) [Ru/Multi] (1.03) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764136.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Trackmania Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764084.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764081.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ XCOM 2 - WOTC Customization Pack [Ru/En] Mod firstlast2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764014.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763894.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Paranormal Activity: The Lost Soul (2018) [En] (1.03) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763891.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Nanoui (2018) [En] (1.0.1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763890.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Ghost of a Tale (2018) [Ru/Multi] (6.39) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763859.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Greed 3: Old Enemies Returning (2017) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763646.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ The Cursed Forest (2019) [Ru/Multi] (1.0.6) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763412.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ The Christmas Spirit 5: Golden Ticket / Дух Рождества 5: Золот�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763333.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Grim Tales 21: Echo of the Past / Страшные сказки 21: Эхо пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763326.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763201.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Re-Legion (2019) [Ru/Multi] (1.0.0.194-j) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763197.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Chronicles of Magic: Divided Kingdoms / Магические Хроники: Р�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762992.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762758.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Queen's Tales 2: Sins of the Past (2015) [En] Unofficial [Collector's Edition / 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762524.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Contract with the Devil (2015) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762480.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack Other s [Special Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762387.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ final m00n Defender of the Cubes (2019) [En/Ge] (1.0) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761586.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Armored Evolution (2019) [En] (2.0.b) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761579.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Riddlord: The Consequence (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761575.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Gigapocalypse (2021) [Multi] (1.9.81) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761529.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Charterstone (2020) [Multi] (1.2.7) License GOG [Digital Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761516.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Charterstone (2020) [Multi] (1.2.7) License GOG [Digital Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D66F7A2214E7C15E871122D7CB029D6E07680DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280206   (761502) от 02.02.2019
+
+Not in Heaven (2019) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Not in Heaven – это сюрреалистичное приключение в жанре ужасов от третьего лица, в котором вы окажетесь в роли восьмилетней девочки по имени Эмили. После того, как мать Эмили погибла, отцу пришлось воспитывать дочь одному.Тип издания: LicenseРазработчик: Ricardo PratasЖанр: Adventure, Quest, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E89DF01EFE6FA92773DB7C86A4945CF25359092
 ```
 
 https://mybot314.ru/tekegram_catalog/

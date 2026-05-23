@@ -6,7 +6,7 @@ VA - Бездна хитов DFM   (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707724.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Good Feeling 10s (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707043.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Ишь ты, масленица (2019) [MP3|320 Kbps] <Pop, Pop-Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706976.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706935.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706933.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706571.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sandra - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705884.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Драйвовый молодежный весенний музон вып�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705403.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Русский отрыв Русского радио. Версия № 5 (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705390.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Весенняя 100-ка популярных треков выпуск �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705388.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Душевный сборник Русского радио. Выпуск �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705222.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Bravo All Stars: Planet Pop (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704315.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Молодежная тусовка. Летнее настроение (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704066.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Megahits Sommer 2016 (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703956.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Хитовый свежачок. Сборник 50/50 (2016) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703823.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Зайцев нет. Летний топ (2016) [MP3|256-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703707.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Горячая весенняя танцплощадка выпуск № 2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703040.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Музыкальный подарок на радио Europa Plus. Сбор
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702820.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Afric Simone - Daya-Du-Da (2017)(Compilation) 2CD [MP3|320 Kbps] <Electronic, Fu
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702732.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - EUROMANIA: Dance Club vol. 1-4 (2016) [MP3|320 Kbps] <Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702451.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Shazam: Хит-парад Russia Top 100 (2018) [MP3|320 Kbps] <Pop, Dance,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702200.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Весенний молодежный хитовичок. Версия № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701259.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Зажигай вместе с Europa Plus. Выпуск № 3 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701162.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Дискотека Hit FM. Любимая музыка. Часть № 3 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700712.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - German Top 50 Official Dance Charts 20.04.2018 (2018) [MP3|320 Kbps] <Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700653.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - German Top 100 Single Charts 20.04.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700632.jpg" />
 </div>
 
 

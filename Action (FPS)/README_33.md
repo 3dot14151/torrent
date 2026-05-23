@@ -6,7 +6,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (2.0.1/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267271.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265623.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264757.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264332.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88874/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264160.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Emily Wants to Play Too (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264038.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sniper: Ghost Warrior (2010) [Multi] (1.2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263461.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sniper: Ghost Warrior 2 (2013) [Multi] (3.4.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263428.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/Multi] (3.8.6/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263083.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261654.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Killbug (2023) [En] (1.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260755.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260733.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260717.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260672.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260144.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Quake II (1997) [Ru/Multi] (1.0.6002.0/dlc) Repack Necros [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258064.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.4.0#840/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257615.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Warhammer 40 000: Fire Warrior [Ru] (RePack) 2003 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257057.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256996.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Zero Hour (2020) [Ru/Multi] (Build 20792172/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256773.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Resident Evil Village (2021) [Ru/Multi] (10415597/dlc) Repack dixen18 [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254971.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Karagon (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254932.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Dread Templar (2023) [Ru/Multi] (1.0.2b_fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252285.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Crysis 2 Remastered (2022) [Ru/En] (1.0) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251975.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Quake 4 (2005) [Multi] (1.4.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251971.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251855.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MyLanViewer 4.14.2 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995095.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 8 Manager 1.0.5 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995059.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CCleaner 3.26.1888 Free / Professional / Business Edition RePack (& Portable) by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995031.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AntiWinBlock 1.1 LIVE CD/USB [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995021.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Windows Doctor 2.7.4.0 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995005.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ NanWick Windows Uninstaller 1.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995003.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ HitmanPro 3.7 Kickstart 3.7 Build 183 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995000.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Teleport Pro 1.68 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994986.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ MiniTool Partition Wizard Server Edition 7.7 RePack [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994979.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ICQ 8.0 Build 5988 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994904.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Light Image Resizer 4.4.1.2 + PortableAppZ [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994853.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Advanced SystemCare Pro 6.1.9.218 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994808.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Foxit Advanced PDF Editor 3.04 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994804.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Google Chrome 24.0.1312.56 Stable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994779.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ WebcamMax 7.7.1.6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994772.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Reg Organizer 6.0 Final Portable [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994761.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Reg Organizer 6.0 Final RePack (& Portable) by KpoJIuK [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994743.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Remote Desktop Manager Enterprise 8.0.14.0 Beta [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994740.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994735.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Active@ File Recovery Professional 10.0.6 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994700.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Kaspersky World 1.3.8.77 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994687.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Advanced SystemCare Pro 6.1.9.220 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994676.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Reg Organizer 6.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994656.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ WinISO Standard 6.3.0.4770 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994545.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ qBittorrent 3.0.8 Stable Portable by PortableApps [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994542.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ IObit Uninstaller 2.4.6.322 Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994530.jpg" />
 </div>
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1701501   (116421) от 21.02.2024
-
-Евгений Прядеев, Павел Барчук | Позывной Курсант (Книга 1) (2024) [MP3, Олег  Троицкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я был успешным юристом. Деньги, девочки, гулянки! Жизнь удалась! По крайней мере, так мне казалось. А зря… Судьба решила, я должен сделать что-то достойное и вот! 1938 год…Я – детдомовец в секретной школе НКВД. Товарищи меня ненавидят. Рядом вьётся мутный чекист. Впереди – нелегальная работа. На кону – мое будущее. Если выживу, конечно… Примечания автора: ✔ (   Читать дальше...   )Жанр: Попаданцы, Альтернативная историяИздательство: ЛитРес: чтецПродолжительность: 07:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F939E20B758AEF7A7749658C25C4409A4C677A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 426679   (116417) от 21.02.2024
-
-Дмитрий Щеглов | Женщина – миф. Хроники времён Фаины Раневской (2009) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Женщина – миф.
-Ещё до появления телевизоров её знали и любили во всей нашей огромной стране. Зрители обожали её роли, отдельные реплики и словечки из них повторяли все – от пионеров до академиков и генсеков.
-О великой Фаине Раневской рассказывает эта книга, о её жизни, творчестве, её непростом колючем характере, остром языке и, конечно же, о времени в котором (   Читать дальше...   )Жанр: ЖЗЛ, воспоминания, биография, мемуарыИздательство: Нигде не купишьПродолжительность: 12:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ABB03C06CDEC5A8BB4575C0E7B4BB311014DA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701449   (116392) от 21.02.2024
-
-Ральф Рене | Как NASA показало Америке Луну (2023) [MP3, Владимир Захаров]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вопрос о том, были ли американские астронавты на Луне, время от времени всплывает в средствах массовой информации и будоражит умы по обе стороны Атлантического океана. Множится число скептиков, которые указывают на нестыковки в официальной версии NASA, а также на то, что многие вопросы, возникшие после американских лунных миссий, до сих пор остаются без ответа.
-Существует (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 04:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEBE4D0F64FCCE3AA1945CF9867231A8680002B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701599   (116349) от 21.02.2024
 
 Эдмонд Гамильтон | Имеющий крылья (2022) [MP3, Puffin Сafe]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116349.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116344.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116336.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116274.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116263.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116260.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116258.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116241.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116229.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116218.jpg" />
 </div>
 
 
@@ -355,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116214.jpg" />
 </div>
 
 
@@ -381,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116189.jpg" />
 </div>
 
 
@@ -408,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116187.jpg" />
 </div>
 
 
@@ -437,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116160.jpg" />
 </div>
 
 
@@ -463,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116159.jpg" />
 </div>
 
 
@@ -489,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116082.jpg" />
 </div>
 
 
@@ -515,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116078.jpg" />
 </div>
 
 
@@ -541,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116064.jpg" />
 </div>
 
 
@@ -569,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116051.jpg" />
 </div>
 
 
@@ -595,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116030.jpg" />
 </div>
 
 
@@ -623,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116023.jpg" />
 </div>
 
 
@@ -649,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116006.jpg" />
 </div>
 
 
@@ -675,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115985.jpg" />
 </div>
 
 
@@ -686,6 +605,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11452E748763557AFF7F435232551F05C7C359DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702404   (115939) от 24.02.2024
+
+Дмитрий Распопов | Связь без брака (Книга 3). Время разбрасывать камни (2024) [MP3, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115939.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Время разбрасывать камни» – фантастический роман Дмитрия Распопова, третья книга цикла «Связь без брака», жанр попаданцы, альтернативная история.
+
+Жизнь пошла под откос, когда ты, пойманный на взятке, попадаешь в тюрьму. Жена от тебя уходит, родственники отворачиваются, деньги заканчиваются – и отныне все твои друзья и собутыльники такие же, как и ты, бывшие сидельцы. (   Читать дальше...   )Жанр: Фантастика, Альтернативная история, ПопаданцыИздательство: ИДДКПродолжительность: 08:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A13E4496F1892E71967BB008FC00A0D0070011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752383   (115937) от 24.02.2024
+
+Стивен Кинг | 1922 (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115937.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новый сборник вошла драматическая повесть "1922 год" о фермере, совершившего с сыном преступление, за которое рано или поздно им пришлось расплатиться; а также рассказы, написанные Кингом в середине 70-х. Кроме того, в сборник вошел переозвученный рассказ "Газонокосильщик" (версия 2014 года).Жанр: Драма, триллер, хоррорИздательство: Аудиокнига своими руками
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DCBE381F9BE89B58188882A98FAE4A8E0FCB9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334415   (115930) от 24.02.2024
+
+Виктор Курочкин | На войне как на войне (2008) [MP3, Евгений Баранов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения. Из фондов «Радио России».
+Писатель–фронтовик Виктор Александрович Курочкин (1923–1976).
+Поветь «На войне как на войне» одна из самых искренних и пронзительных произведений о Великой Отечественной войне. Герой повести «На войне как на войне», командир самоходного орудия, Саня Малешкин, молодой парень, юность которого пришлась на жестокое (   Читать дальше...   )Жанр: Русская литература, классика, военная проза, повестьИздательство: Радио РоссииПродолжительность: 03:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07267A50A4C1693B7ED468D048D9C4176B2652F
 ```
 
 https://mybot314.ru/tekegram_catalog/

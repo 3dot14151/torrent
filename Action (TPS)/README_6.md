@@ -6,7 +6,7 @@ TRON: Evolution: The Video Game [Ru/En] (RePack) 2010 | R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994598.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993871.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Oni / Они [Ru/En] (RePack) 2001 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993837.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Legacy of Kain / Наследие Каина Антология [Ru/En] (Repack/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991453.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mafia II / Мафия 2 (2010) [Ru] (1.0.0.1upd5а/dlc) Repack xatab [Director's
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989579.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Alice: Madness Returns [En/Multi6] (L/1.0) 2011 | THETA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988788.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Manhunt: Dilogy [Ru/En/Multi6] (RePack) 2004-2009 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988786.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Driver 3 / Driv3r (2004) [Ru] (2.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984303.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tom Clancy's Splinter Cell: Conviction [Ru/En] (Lossless RePack/1.04) 2010 l R.G
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983543.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Grand Theft Auto (1997) [En] (1.0) Unofficial
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983143.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981357.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Ghostbusters: The Video Game [Ru/En] (RePack) 2009 l R.G. Games
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980869.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dead Space 3 (2013) [Ru/Multi] (1.0) 2013 License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980432.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979881.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Lost Planet 2 (2010) [Ru/En] (1.1) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979786.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Zombie Army Trilogy (2015) [Ru/En] (1.8.20.01) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978651.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Onimusha 3: Demon Siege [Ru/En/Multi6] (Repack/1.1.0.0) 2004 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978290.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Effie (2020) [Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977338.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Devil's Hunt (2019) [Ru/Multi] (1.05) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976167.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/8dlc) Repack R.G. Games [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975705.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Outbreak (2017) [En] (1.18.0/dlc) License PLAZA [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974012.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Slaughter 3: The Rebels (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971455.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Scarface: The World is Yours (2006) [En/Ru] (1.0) Repack R.G. Games
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971122.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970293.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru/En/Multi12) [LossLess RePack/1.7/2 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969085.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Stranglehold Collector's Edition / Stranglehold. Коллекционное из
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968144.jpg" />
 </div>
 
 

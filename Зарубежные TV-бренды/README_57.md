@@ -1,29 +1,3 @@
-###  Публикация: 1295041   (623978) от 10.04.2019
-
-NGW: Дикая природа: Остров Воскресения / Wild Life: Resurrection Island (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кинорежиссер Берти Грегори пускается в путешествие по легендарному острову Южная Георгия. Этот остров знаменит тем, что на нем собралось такое множество представителей дикой природы, что их концентрация является одной из самых высоких в мире.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Берти ГрегориПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB9A0A219B808E22A386FD2BD15DCC1A633C371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910002   (623935) от 19.06.2015
 
 Discovery. Сокровища из кладовки / Backroad Bounty (2014) HDTVRip [Серии 1-13]
@@ -32,7 +6,7 @@ Discovery. Сокровища из кладовки / Backroad Bounty (2014) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623935.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC: Веллингтон - железный герцог без маски / We
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623774.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG. Бушующие миры. Космический ветер / Storm Worlds.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623539.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC. Самая дикая мечта. Покорение Эвереста / The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623201.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623163.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622869.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Discovery: Один на один с природой / Alone in the Wild (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622564.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC: Амазонка с Брюсом Перри / Amazon with Bruce Parry (2008
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622535.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622519.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622434.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622348.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Animal Planet: Живой или вымерший. Гигант Мадагаск
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622181.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ NG. Осушить Бермудский треугольник / Drain the Bermu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621561.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621008.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ NG: Когда сталкиваются континенты / When Continents C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620928.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620777.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620738.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ BBC: Выдающиеся женщины ХХ столетия. Агата Кр�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620695.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ BBC: Выдающиеся женщины ХХ столетия. Одри Хеп�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620546.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620526.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Discovery. Короли Леса / Kings of the Wood (2022) WEBRip [H.264/1080p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619904.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ NG: В пещере кристаллов / Into the Crystal Cave (2010) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619502.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Discovery. Акула Тьмы: Ярость Субмарины / Shark of Darkn
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619490.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ NG.Запреты: Экстремальное лечение / NG.Taboo: Freaky 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619126.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618968.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479910934671AD026787EF21AFDFBC2D7947FEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230087   (618964) от 10.06.2018
+
+NGW: Там, где встречаются океаны / Where Oceans Collide (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершите вместе с нами путешествие в Центральную Америку, этот своеобразный кластер из шести стран, расположившихся на территории, являющейся домом для самых разнообразных представителей дикой природы.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид ХэмлинПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCED9C4BE651C8CE0C32C3E4446598AF640F106
 ```
 
 https://mybot314.ru/tekegram_catalog/

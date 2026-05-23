@@ -1,85 +1,3 @@
-###  Публикация: 1670412   (172084) от 20.10.2023
-
-Виктор Глебов | Эргоном (Книга 1). Последний ассасин (2023) [MP3, Юрий Гуржий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Из киллера в мага! Чего же не сделаешь ради того, чтобы выжить в мире, где каждый враг жаждет твоей смерти?!
-
-Моё кредо – эргономичность во всём. Этого требует моя профессия, ведь я – киллер экстра-класса. Вот только не ожидал, что меня подставит контора, на которую я работал пятнадцать лет! А что окажусь в другом мире, где правят аристократические кланы, а окружённый (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 09:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDBF20DDD6861F89F2A900D3D674B580767DAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670378   (172047) от 20.10.2023
-
-Дмитрий Дашко | Мент (Книга 5). Москва (2023) [MP3, Илья Дементьев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новый город, новое назначение, новые дела в составе сводной «летучей» бригады. И снова нет покоя оперу из будущего, которого перенесло в двадцатые годы прошлого столетия. Их ведь не зря прозвали «ревущими».Жанр: ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 05:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F66A1103DF12E613062D91A37B5DBFB4E7B8ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356973   (172025) от 20.10.2023
-
-Евгений  Шварц | Тень (2007) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Литературные чтения.
-
-Пьесы Евгения Львовича Шварца (1896–1958) одинаково любимы и детьми, и взрослыми по книгам, спектаклям и экранизациям: «Золушка», «Снежная королева», «Тень», «Обыкновенное чудо». Это не столько сказки, сколько философские притчи о любви и ненависти, добре и зле, в которых необыкновенное, сказочное сочетается с реальным и узнаваемым. Пьеса (   Читать дальше...   )Жанр: ПьесаИздательство: Студия «АРДИС»Продолжительность: 03:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7807DE5F49BF1C476F48298485086192C8B16272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227732   (172024) от 20.10.2023
 
 Олег Басилашвили | Неужели это я?! Господи... (2015) [MP3, Аркадий Бухмин]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172024.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172022.jpg" />
 </div>
 
 
@@ -142,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172021.jpg" />
 </div>
 
 
@@ -169,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172020.jpg" />
 </div>
 
 
@@ -196,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172017.jpg" />
 </div>
 
 
@@ -225,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172016.jpg" />
 </div>
 
 
@@ -253,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172015.jpg" />
 </div>
 
 
@@ -282,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172013.jpg" />
 </div>
 
 
@@ -309,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172012.jpg" />
 </div>
 
 
@@ -335,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172009.jpg" />
 </div>
 
 
@@ -361,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172008.jpg" />
 </div>
 
 
@@ -390,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172006.jpg" />
 </div>
 
 
@@ -418,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172005.jpg" />
 </div>
 
 
@@ -447,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172004.jpg" />
 </div>
 
 
@@ -474,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172000.jpg" />
 </div>
 
 
@@ -500,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171997.jpg" />
 </div>
 
 
@@ -526,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171990.jpg" />
 </div>
 
 
@@ -553,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171932.jpg" />
 </div>
 
 
@@ -580,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171881.jpg" />
 </div>
 
 
@@ -606,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171856.jpg" />
 </div>
 
 
@@ -635,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171848.jpg" />
 </div>
 
 
@@ -664,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171836.jpg" />
 </div>
 
 
@@ -691,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171832.jpg" />
 </div>
 
 
@@ -703,6 +621,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2167CF7D5B7476ACE34F2D3B3F8C550B361A2DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 424141   (171829) от 21.10.2023
+
+Алексей Константинович Толстой | Князь Серебряный (2007) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Константинович Толстой (1817–1875) – русский писатель, поэт, драматург, граф, член–корреспондент Петербургской АН. Создатель баллад, сатирических стихотворений, исторического романа «Князь Серебряный» (опубликован в 1863 году), драматической трилогии «Смерть Иоанна Грозного» (1866), «Царь Фёдор Иоаннович» (1868) и «Царь Борис» (1870). Автор проникновенной (   Читать дальше...   )Жанр: Русская литература, классика, исторический романИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 18:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B09103C7147105F139739558B7FF66F447EA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443721   (171828) от 21.10.2023
+
+Александр Куприн | Волшебный ковёр. Повести и рассказы (2009) [MP3, Вадим Цимбалов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Иванович Куприн (1870–1938) – русский писатель.
+Героев Куприна отличает духовная целостность и неподдельное нравственное величие.
+Рассказ «Волшебный ковёр» Александр Куприн закончил 18 сентября 1919 года.
+Он предназначался для детского журнала «Северное сияние», редактором которого был Горький. Но напечатан рассказ так и не был, к тому же он стал последним (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Вира-МПродолжительность: 03:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37315BFE90102861686DD029B7450BB290FF5A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 353497   (171824) от 21.10.2023
+
+Фёдор Тютчев | Весенняя гроза (2008) [MP3, Сергей Казаков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Поэтическая библиотека.
+Фёдор Иванович Тютчев (1803–1873) – государственный муж, поэт, чье творческое наследие является жемчужиной русской литературы XIX века. Душевные переживания, драматичная любовь нашли отражение в его удивительно лиричных стихотворных произведениях.
+
+В творчестве поэта пейзажная лирика тесно переплетена с философскими раздумьями о жизни, (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 01:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E54C85AAD03689DF92045A669B220E024FEE85
 ```
 
 https://mybot314.ru/tekegram_catalog/

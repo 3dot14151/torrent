@@ -6,7 +6,7 @@ Microsoft .NET 7.0.5 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200017.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PotPlayer 230407 (1.7.21902) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200016.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Altair Flow Simulator 2022.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200014.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Magic Recovery Software 2023.04 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200007.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Slimjet 38.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199997.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ R-Drive Image System Recovery Media Creator Technician 7.1 Build 7105 RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199988.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Antivirus Removal Tool 2023.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199981.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Visual Studio Code 1.77.3 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199978.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ SamDrivers 23.2 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199967.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PlayerFab 7.0.4.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199966.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft Edge 112.0.1722.39 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199958.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ LDPlayer 9.0.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199956.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft PowerToys 0.69.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199952.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ DxO PhotoLab Elite 6.5.0 build 171 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199951.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Total Commander 10.52 (08.04.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199947.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NetLimiter 5.2.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199936.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Windows 10 Manager 3.7.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199934.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Topaz Photo AI 1.3.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199923.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ant Download Manager Pro 2.10.1 Build 84864 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199922.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Clipboard Fusion Pro + portable + MSI 6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199920.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AIO Boot NewGen 23.4.11.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199913.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Topaz Photo AI 1.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199911.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Advanced Installer 20.5 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199901.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NetBalancer 11.2.1.3390 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199895.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ DATAKIT CrossManager 2023.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199875.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ NetSetMan 5.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199871.jpg" />
 </div>
 
 

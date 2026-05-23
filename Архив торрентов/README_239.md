@@ -6,7 +6,7 @@ DjVu Reader Pro 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002164.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Adobe Illustrator 2020 24.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002141.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alfred 4 Powerpack 4.0.8 (build1133) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002130.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Firefox Browser 78.13.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002062.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mozilla Thunderbird 78.13.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002051.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Skype 8.75.0.140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002050.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Microsoft .NET 5.0.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002039.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Emurasoft EmEditor Professional 21.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002035.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ File & Image Uploader 8.1.4 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002034.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Opera 78.0.4093.147 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002027.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Telegram Desktop 2.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002022.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wise Care 365 Pro 5.8.3.577 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002021.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ K-Lite Codec Pack Update 16.3.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002017.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002012.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002010.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002007.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MAGIX Sound Forge Pro 15.0 Build 64 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002005.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Twixl Publisher 10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002004.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Alek Stark - Electrica Eclectica (2019) Fundamental Records [FLAC|Lossless|Vinyl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002002.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wattagio 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002001.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Slidepad 1.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002000.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ While - Even (2000) Chocolate Industries [FLAC|Lossless|WEB-DL|tracks] <IDM, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001998.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ JixiPix Aquarella 1.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001996.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Linguist 1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001994.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Skylum Luminar AI 1.4.1.8358 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001978.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Locust - The Plaintive (2019) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001970.jpg" />
 </div>
 
 

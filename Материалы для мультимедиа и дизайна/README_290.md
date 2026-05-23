@@ -1,29 +1,3 @@
-###  Публикация: 1191036   (265835) от 11.12.2017
-
-Растровый клипарт - Creative Market - Isolated Food Items Vol.5 - 1500119 [PNG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Содержит PSD и PNG файлы с: кофе в зернах, старинные коробки, сахар, кофейные чашки, кофе в портафильтр, деревянный ковш, кофе с молоком, кофейный мешок, кофе горшок, фильтр, сахарница, молоко, поднос чая, чайные чашки, чайник для заварки, чай в коробках, инфузоры, пакетики чая, чая горшок, сахар пипетка, ложка и т. д.Формат: PNG, PSDРазрешение файлов: 3000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F54946B35AE86F05E4D64B4CDDE05AA976CFC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190851   (265774) от 11.12.2017
 
 Растровый клипарт - Creative Market - Isolated Food Items Vol.1 - 1500086 [PNG, PSD]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265774.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265683.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265647.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265634.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265307.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Creative Market - Christmas Scene Creator V.1 - 2040244 [PNG, JPG, PSD]
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265303.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265301.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265256.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Kitbash3D - Props: Rooftops [MAX, MA, OBJ, FBX, C4D]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265254.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265249.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265100.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265047.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264943.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264881.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264878.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264856.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264843.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264799.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264752.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Soundiron - Hyperion Strings Elements [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264623.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ Design Cuts - Vintage Floral Gold Foil Monograms [PNG, JPG]
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264587.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ Hum3D - Honda Valkyrie GL1800C 2015 [Scanline|V-Ray|*.max, 3DS, C4D, OBJ, FBX, L
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264578.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ Creative Market - Cute Characters - vector clip art - 4197356 [PNG, JPG, EPS]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264567.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Kitbash3D - Props: Greebles [MAX, OBJ, FBX, C4D]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264547.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ Kitbash3D - Props: Street Side [MAX, MA, OBJ, C4D]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264541.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Kitbash3D - Props: Street Side [MAX, MA, OBJ, C4D]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2BBC10FA1B490E40190FB74B4DD07085C3CAC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339817   (264539) от 21.11.2019
+
+Kitbash3D - Edo Japan [OBJ, FBX, C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте исторические деревни сёгунской Японии, населенные традициями самураев между 1600-ми и 1800-ми годами, или любой древний, мистический мир, воплощающий культовые восточные философии. Вы можете использовать святыни, храмы этого комплекта, чтобы создавать новые и фантастические миры, которые способствуют всевозможным магическим проектам.Формат: OBJ, FBX, C4D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F14ADA06397261CC382BB47F356A0B618DF921
 ```
 
 https://mybot314.ru/tekegram_catalog/

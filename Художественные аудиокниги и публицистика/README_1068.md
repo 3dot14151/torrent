@@ -1,86 +1,3 @@
-###  Публикация: 1794695   (19753) от 30.04.2025
-
-Михаил Лермонтов | Боярин Орша (1963) [MP3, Александр Борисов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека школьника.
-Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
-Поэма М.Ю. Лермонтова «Боярин Орша» не была издана при жизни поэта. Первая публикация состоялась уже после его гибели, в 1842 году. Точная дата написания поэмы неизвестна. До нас дошли авторизированная (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CB501B8A37085CCC6EF6F3DEDC95599E36B8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794970   (19679) от 01.05.2025
-
-Хуянь Юнь | Проклятие Желтого императора (2025) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главный судмедэксперт Китая, Лэй Жун, начинает получать странные и пугающие посылки: человеческие останки, из которых невозможно выделить ДНК. Отправитель ставит условие: если следователям не удастся обнаружить преступника, он начнет убивать людей с помощью проклятия.
-
-Тик-так. Отсчет пошел…
-(   Читать дальше...   )Жанр: полицейский детектив, триллерПеревод: Надежда ЯковлеваИздательство: АСТПродолжительность: 18:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0C87519D7798DB0F26B6D45AAA5F1F4EC7EDE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752103   (19653) от 01.05.2025
-
-Грегори Бенфорд | Погружение (2024) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"В недалеком будущем многие виды животных исчезли, и заповедники существуют на основе восстановленных видов. Одним из таких видов являются шимпанзе, которым не удалось привить сотрудничество с людьми, поэтому их исследование продолжается. Одной из услуг такого заповедника является "Погружение", представляющее собой синхронизацию с разумом животных (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 02:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032F8670F96B0939101A78BAEBB537E00D4AB088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795020   (19623) от 02.05.2025
 
 Константин Волков | Из блокады (2025) [MP3, Роман Ефимов]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19623.jpg" />
 </div>
 
 
@@ -117,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19551.jpg" />
 </div>
 
 
@@ -143,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19455.jpg" />
 </div>
 
 
@@ -170,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19443.jpg" />
 </div>
 
 
@@ -196,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19442.jpg" />
 </div>
 
 
@@ -222,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19438.jpg" />
 </div>
 
 
@@ -251,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19413.jpg" />
 </div>
 
 
@@ -279,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19355.jpg" />
 </div>
 
 
@@ -305,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19245.jpg" />
 </div>
 
 
@@ -333,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19144.jpg" />
 </div>
 
 
@@ -362,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19134.jpg" />
 </div>
 
 
@@ -388,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19077.jpg" />
 </div>
 
 
@@ -414,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19065.jpg" />
 </div>
 
 
@@ -443,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19058.jpg" />
 </div>
 
 
@@ -469,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19043.jpg" />
 </div>
 
 
@@ -496,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19033.jpg" />
 </div>
 
 
@@ -524,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19024.jpg" />
 </div>
 
 
@@ -552,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18971.jpg" />
 </div>
 
 
@@ -580,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18962.jpg" />
 </div>
 
 
@@ -607,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18941.jpg" />
 </div>
 
 
@@ -633,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18933.jpg" />
 </div>
 
 
@@ -662,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18612.jpg" />
 </div>
 
 
@@ -688,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18575.jpg" />
 </div>
 
 
@@ -699,6 +616,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0656D86D26F6E905B0F9258F115CBB9F2FCDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796412   (18542) от 12.05.2025
+
+Алексей Евтушенко | Чужак из ниоткуда (Книга 2). (2025) [MP3, Илья Алёхин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьбе было мало, что ты оказался в теле подростка и в другом времени, отстоящим от твоего минимум на двести лет. Это ещё и другая планета! Значит, нужно вернуться домой. Любым способом. Невозможно? Всё возможно, если ты живёшь в лучшей стране на этой планете - Союзе Советских Социалистических Республик.Жанр: Альтернативная история, Попаданцы во времени, Назад в СССРИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEAECDF7356D69BA576C8898E7E088F3EA1787C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796439   (18529) от 12.05.2025
+
+Виктор Гросов | Вежа. Русь (Книга 1). Русь. Строительство империи (2025). [MP3, Sibiryak]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симулятор князя?
+Антон попал в Древнюю Русь.
+Ресурсы, технологии, оборона – всё по хардкору!
+И он намерен выиграть.(   Читать дальше...   )Жанр: Попаданцы во времени, РеалРПГ, Альтернативная историяИздательство: ИДДКПродолжительность: 09:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5168316E69BE4F6617A5558BA156B49D0F5A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796786   (18522) от 12.05.2025
+
+Юлия Латынина | Сотворение Бога. Краткая история монотеизма (2025) [MP3, Мария Сми]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18522.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора книг «Иисус. Историческое расследование» и «Христос с тысячью лиц».
+
+Важность идеи монотеизма трудно переоценить – весь современный мир сформирован монотеизмом.
+Однако монотеизм, если вдуматься – это очень странная идея. Вера в то, что есть один-единственный бог-творец, который всеблаг, но одновременно отвечает за смерти, эпидемии, за рак и инфаркты, за (   Читать дальше...   )Жанр: Историческое расследование, История религии, Популярно об истории, Религиозно-философская проблематикаЯзык озвучки: РусскийИздательство: ЭКСМОПродолжительность: 27:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43ACCAA020D8BBCD6BF41149659596D96B5E51A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

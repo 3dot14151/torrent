@@ -6,7 +6,7 @@ Moderat - Running (2016) [MP3|320 кб/с] <Electronica, Techno, IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751877.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ u-he - Hive 1.2.1.8256 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751874.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Pale Moon 28.3.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751868.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Aaron and Melissa | Подкасты (2017-2018) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751860.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VueScan Pro 9.7.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751821.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Boxy SVG 3  v3.74.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751766.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Smooze Pro 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751765.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Golden Software Didger 5.11.1438 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751758.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Stand Up. Лучшее (2016.05.22) SATRip (сезон 4, выпуск 10)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751757.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ashampoo WinOptimizer 14.00.00 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751754.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ashampoo WinOptimizer 14.00.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751749.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751746.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ iStatistica Pro 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751741.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Blue Cat's All Plug-Ins Pack (v.2019.2) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751733.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ CleanMyPC 1.10.0.1987 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751726.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Wallpaper Engine 1.3.8 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751702.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ SQLPro for SQLite 2022.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751682.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ BluePlum Home Inventory 4 v4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751676.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ PDF Checkpoint 1.9.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751674.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Viper FTP 6.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751673.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Allavsoft Video Downloader Converter 3.24.2.8045 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751671.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Photomatix Pro 6 v6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751667.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Ablazing Winter Sessions 2022 [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751665.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Keka 1.2.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751663.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751658.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Image Uploader 1.3.1 Build 4314 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751651.jpg" />
 </div>
 
 

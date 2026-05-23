@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119371.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mullvad Browser 13.0.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119364.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WinContig 5.0.2.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119363.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Steinberg - WaveLab 12 Pro 12.0.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119362.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Telegram Desktop 4.14.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119350.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Skype 8.112.0.206 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119340.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ StaxRip 2.35.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119323.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Internet Download Manager 6.42 Build 3 RePack by elchupacabra (04.02.2024) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119288.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ iTop VPN 5.3.0.5106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119284.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Autodesk 3ds Max 2024.2.1 RePack by xetrin [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119273.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Download Master 7.1.2.1729 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119255.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ JetBrains PyCharm Professional 2023.3.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119254.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ SoftMaker Office Professional 2024 rev. S1208.0127 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119252.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ uTorrent Pack 1.2.3.82 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119230.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Psiphon 3 build 181 (05.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119225.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Windows 10 Debloater 2.6.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119222.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ KeePass Password Safe 2.56 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119221.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft Visual Studio 2022 Professional 17.8.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119218.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Reg Organizer 9.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119217.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ uTorrent Pro 3.6.0 Build 47008 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119216.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Antivirus Removal Tool 2024.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119209.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Topaz Video AI 4.1.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119204.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ HWiNFO 7.72 Build 5355 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119194.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Download Master 7.1.2.1729 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119193.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Windows 10 Manager 3.9.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119187.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ RAM Saver Professional 24.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119185.jpg" />
 </div>
 
 

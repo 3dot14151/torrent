@@ -6,7 +6,7 @@ Adorable Adventures (2026) [Ru/Multi] (Build 23014882) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068167.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TerraTech Legion (2026) [Ru/Multi] (1.0.2.3/dlc) Repack Let'sРlay [Supporter Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068150.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Spotter: Dig or Die (2026) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068147.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ inKONBINI: One Store. Many Stories (2026) [Ru/Multi] (1.0.204.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068145.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Coma 3: Bloodlines (2026) [Ru/Multi] (1.1.3/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067832.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bylina / Былина (2026) [Ru/Multi] (4.1/dlc) Repack FitGirl [Digital Deluxe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067830.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Occultist (2026) [Ru/Multi] (1.0.1.5) Repack Let'sРlay [Digital Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067779.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Coma 3: Bloodlines (2026) [Ru/Multi] (1.0.31/dlc) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067773.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Aphelion (2026) [Ru/Multi] (1.03.1628077) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067767.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Project Vesperi (2026) [Ru/En] (1.5.0) Repack Let'sРlay [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067757.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Moomintroll: Winter's Warmth (2026) [Ru/Multi] (0.1.1261.refs/dlc) Repack Let's�
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067413.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Aphelion (2026) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067361.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Aphelion (2026) [Ru/Multi] (1.03.1628077) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067333.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sudden Strike 5 (2026) [Ru/Multi] (1.02.28385/dlc) Repack FitGirl [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067032.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Causal Loop (2026) [Ru/Multi] (CL-RC-1.0.1-2026-04-25) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066897.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Trench Lord Eastern Front (2026) [Ru/Multi] (1.03.002.4) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066892.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1102) Repack Other s [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066869.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Causal Loop (2026) [Ru/Multi] (cl-1.0-2026-04-23) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066868.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Alaska Gold Fever (2026) [Ru/Multi] (2026.04.25.01) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066857.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Shapez 2 - Factory (2024) [Ru/Multi] (1.0.3-rc3/dlc) Repack Let'sРlay [Supporte
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066836.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Shapez 2 - Factory (2024) [Ru/Multi] (1.0.2-rc1/dlc) Repack Other s [Supporter E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066830.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sudden Strike 5 (2026) [Ru/Multi] (1.02.28385/dlc) Repack Let'sРlay [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066816.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Kristala (2024) [Multi] (1.0.3/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066771.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ YAR: Forgotten Throne / ЯР: Забытый Чертог (2024) [Ru/Multi] (1.0
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066642.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Jay and Silent Bob: Chronic Blunt Punch (2026) [Multi] (Build 22858920) Scene Te
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066630.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066628.jpg" />
 </div>
 
 

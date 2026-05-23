@@ -1,29 +1,3 @@
-###  Публикация: 1433599   (156038) от 21.12.2020
-
-Мир природы: Слоны - долгая дорога домой / Natural World. Elephants Without Borders (2009) HDTVRip [H.264/720p] (сезон 27, серия 11)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Слонам в Ботсване живется хорошо, даже очень хорошо! Но местное население обеспокоено этим благополучием, поскольку считает, что такое количество слонов представляет потенциальную угрозу их жилищам и огородам... Они считают, что 60 000 слонов нужно просто убить. Ученый Майк Чейз занимается изучением этих могучих животных. С помощью современной телеметрической аппаратуры (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)&Animal PlanetЖанр: Документальный, природа, фаунаРежиссер: Майк ХолдингПеревод: Одноголосый закадровый, профессиональный (Селена Интернешнл)Субтитры: АнглийскиеПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0459B0816868234186620311C187AE3D6BA516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521662   (155568) от 23.12.2015
 
 BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
@@ -32,7 +6,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155568.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC. Horizon: Конопля: вредная трава? / Canabis: The Evil Wee
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155416.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152360.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151059.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ BBC. Настоящий доктор Живаго / The Real Doctor Zhivago (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146886.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145365.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ BBC: Атлантида в джунглях / Jungle Atlantis (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145116.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144999.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144647.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141028.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ BBC: Итальянские сады с Монти Доном / Monty Don’s It
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141020.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138635.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134709.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132268.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131829.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131824.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131823.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ BBC. Подделка или удача / Fake or Fortune? (2016) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131790.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131250.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130216.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130197.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130174.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130162.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130160.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130153.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3959E03E2D5D58EB883CEF05FA08099DA08A9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525310   (129853) от 20.01.2022
+
+BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на разновидности и способности белок, а также на то, как они вдохновляют на изобретение новых технологий в робототехнике. Вдобавок понаблюдайте за процессом воспитания людьми осиротевшей белочки.Производство: Великобритания, BBC StudiosЖанр: документальный, живая природаРежиссер: Том ДжарвисПеревод: дублированный (Русский Репортаж)Субтитры: отсутствуютПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62069EC2707535EFBF316E335808041FBDE05B9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

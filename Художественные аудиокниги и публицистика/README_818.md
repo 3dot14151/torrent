@@ -1,86 +1,3 @@
-###  Публикация: 1515350   (170342) от 06.12.2021
-
-Рэй Брэдбери | Чёртово колесо (2021) [MP3, Кирилл Головин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Крутится  чёртово колесо, но крутится не так как обычно, а назад, и вот с каждым оборотом хозяин аттракциона теряет год жизни, превращаясь в мальчишку, который может проникнуть туда, куда не пустят взрослого…Жанр: ФантастикаПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC61322FAD1A45F1946385DFD5641D216C7E8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596230   (170333) от 09.12.2022
-
-Юрий Тарарев, Александр Тарарев | Я работаю на себя (Книга 4). Доминирование (2022) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я РАБОТАЮ НА СЕБЯ!
-
-А на кого еще я должен работать?!
-(   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаПродолжительность: 05:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F474B9A1FBD148A9E77123F30444CB1D31112509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344461   (170321) от 10.12.2019
-
-Евгений Щепетнов | День Непослушания 2. Будем Жить! (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Метеориты занесли на Землю смертоносные вирусы, и почти все взрослые погибли, а те, кто не погиб, переродились в кровожадных мутантов. Погибли или превратились в мохнатых злобных мутантов и маленькие дети – те, кому не исполнилось 10 лет. Выжили и сохранили рассудок только подростки 10–15 лет. Им и пришлось создавать новый мир и новую цивилизацию.
-
-Действие романа-антиутопии (   Читать дальше...   )Жанр: Фантастика, БоевикПродолжительность: 09:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6220C1F4FB1BCBAFD6A8712CE5A510FE1D314BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344305   (170311) от 10.12.2019
 
 Стивен Кинг | Ночная смена (сборник) (2019) [MP3]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170311.jpg" />
 </div>
 
 
@@ -117,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170293.jpg" />
 </div>
 
 
@@ -145,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170278.jpg" />
 </div>
 
 
@@ -171,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170262.jpg" />
 </div>
 
 
@@ -199,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170247.jpg" />
 </div>
 
 
@@ -225,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170227.jpg" />
 </div>
 
 
@@ -251,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170201.jpg" />
 </div>
 
 
@@ -279,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170183.jpg" />
 </div>
 
 
@@ -305,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170150.jpg" />
 </div>
 
 
@@ -331,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170102.jpg" />
 </div>
 
 
@@ -357,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170036.jpg" />
 </div>
 
 
@@ -383,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169996.jpg" />
 </div>
 
 
@@ -409,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169980.jpg" />
 </div>
 
 
@@ -435,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169913.jpg" />
 </div>
 
 
@@ -461,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169908.jpg" />
 </div>
 
 
@@ -487,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169882.jpg" />
 </div>
 
 
@@ -513,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169869.jpg" />
 </div>
 
 
@@ -541,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169823.jpg" />
 </div>
 
 
@@ -568,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169817.jpg" />
 </div>
 
 
@@ -594,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169803.jpg" />
 </div>
 
 
@@ -620,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169789.jpg" />
 </div>
 
 
@@ -646,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169762.jpg" />
 </div>
 
 
@@ -672,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169750.jpg" />
 </div>
 
 
@@ -683,6 +600,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A57303E7D0A9CD0876518880BA4DAFF1E70705A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333426   (169739) от 27.10.2023
+
+Антон Чехов | Степь. Радиоспектакль (2011) [MP3, Михаил Ефремов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл: Литературный сериал.
+Надеясь на то, что повесть «Степь» раскроет глаза читателям и покажет им какое богатство, какие залежи красоты остаются еще нетронутыми
+Воспоминания с детства дорогих картин южной России, которые Чехов берег в душе, он объединил в повести «Степь». В ней писатель изображает равнину, лиловую даль, овцеводов, попов, ночные грозы, постоялые (   Читать дальше...   )Жанр: Классика, повестьИздательство: Радио «Культура»Продолжительность: 04:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD8650DAC2E1E744BB7F29F0B58943A807E972F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431204   (169723) от 27.10.2023
+
+Антон Чехов | Степь. Скучная история. Дуэль. Палата №6 (2007) [MP3, Олег Исаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169723.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокниге представлены наиболее известные повести Антона Павловича Чехова (1860–1904) – непревзойденного мастера короткого рассказа, «драматурга человеческих душ».
+Их лейтмотив – бессилие перед косностью и скукой беспросветной русской жизни, вызывающей тоску и отчаяние. Безынициативные и вялые герои чеховских повестей осознают безысходность ситуации, страдают (   Читать дальше...   )Жанр: Классика, повестьИздательство: БиблиофоникаПродолжительность: 14:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD616C1A348016DC6A9B2C8439FAFD7339674E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430630   (169648) от 11.12.2020
+
+Линкольн Чайлд, Дуглас Престон | Старые кости (2020) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как гласит история, в 1846 году караван переселенцев на Дикий Запад застрял в занесенных снегом горах Сьерра-Невады. Последствия зимовки были ужасными, свидетельства немногих выживших очевидцев были слишком невероятны и запутанны, а со временем крупицы фактов обросли сомнительными сенсационными подробностями… И вот спустя почти два столетия молодой археолог Нора (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 12:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C4D78148185ABCF999BE355C2C1B600CAE0EEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

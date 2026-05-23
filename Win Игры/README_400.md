@@ -1,30 +1,3 @@
-###  Публикация: 480255   (87497) от 09.04.2012
-
-Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Игра, продолжающая традиции знаменитой серии «В тылу врага 2» и исторической стратегии «Черные бушлаты».
- Стратегия в реальном времени «Штрафбат» создана на основе мемуаров фронтовиков и других документальных материалов. В ней раскрыта история отдельного штрафного (офицерского) батальона Центрального, а впоследствии Белорусского, фронта.(   Читать дальше...   )Тип издания: RePackРазработчик: 1С-СофтКлабЖанр: Strategy (Real-time / Tactical) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E8F98F5239CB2D1AFFAF887E5D90F30FA5EC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480566   (87460) от 09.04.2012
 
 Dark Strokes: Sins of the Fathers. Collector's Edition / Сердце тьмы. Запретный город. Коллекционное издание (L) [Ru] 2012
@@ -33,7 +6,7 @@ Dark Strokes: Sins of the Fathers. Collector's Edition / Сердце тьмы. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87460.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Bomber-Mario (P) [En] 2010
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87445.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Stray Souls: Dollhouse Story. Collector Edition / Заблудшие души. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87431.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Aaron Crane: Paintings Come Alive / Аарон Крэйн. Картины ожи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87421.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Brick of Consciousness: Dorian Gray Syndrome. Collector's Edition / Край с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87394.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ Deadly 30 (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87277.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87201.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ Necronomicon / Книга Мертвых: Потерянные души (P) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87196.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87004.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Azkend 2: The World Beneath (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86938.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86874.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86871.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Manhunt Дилогия (P) [Ru] 2004-2009
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86869.jpg" />
 </div>
 
 
@@ -373,7 +346,7 @@ Twisted Lands: Insomniac. Collector's Edition / Гиблые земли. Бес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86815.jpg" />
 </div>
 
 
@@ -399,7 +372,7 @@ Gobs of Fobs (P) [En] 2006
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86748.jpg" />
 </div>
 
 
@@ -425,7 +398,7 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86650.jpg" />
 </div>
 
 
@@ -451,7 +424,7 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86649.jpg" />
 </div>
 
 
@@ -477,7 +450,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86621.jpg" />
 </div>
 
 
@@ -505,7 +478,7 @@ Warp [Ru] (RePack) 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86605.jpg" />
 </div>
 
 
@@ -531,7 +504,7 @@ Legends of Atlantis: Exodus (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86596.jpg" />
 </div>
 
 
@@ -557,7 +530,7 @@ Shannon Tweeds: Attack of the Groupies (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86532.jpg" />
 </div>
 
 
@@ -583,7 +556,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86450.jpg" />
 </div>
 
 
@@ -613,7 +586,7 @@ Lone Survivor [En] (L) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86446.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ Party Planner (P) [En] 2009
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86298.jpg" />
 </div>
 
 
@@ -667,7 +640,7 @@ Sters (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86130.jpg" />
 </div>
 
 
@@ -678,6 +651,32 @@ Sters - некие существа, обитающие в домах с при�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80286F92F0B8D4DB85244C310000D3665432AD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477739   (86102) от 03.04.2012
+
+School house Shuffle (P) [En] 2008
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86102.jpg" />
+</div>
+
+
+###  Подробнее
+
+После получения "Младшего магистра", Виктория Брайт, начала воплощать давнюю мечту построить школу для талантливых и одаренных. Теперь её задача развивать и просвещать одаренных гениев. Помогите ей в этом.(   Читать дальше...   )Тип издания: ПираткаЖанр: Бизнес-симулятор, АркадаЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C365F4C6A5EE4DD73DB0B5745369273ACB6613
 ```
 
 https://mybot314.ru/tekegram_catalog/

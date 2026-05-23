@@ -1,29 +1,3 @@
-###  Публикация: 1796721   (18534) от 12.05.2025
-
-Rising Star 2 (2020) [Ru/Multi] (2.98.354/dlc) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Rising Star 2 - ролевая игра в сочетании с симулятором рок-группы. У вас есть одна глобальная цель - добиться мирового успеха. Чтобы достичь признания, необходимо много трудиться. Если это вам по силе, тогда начните с создания своей команды. После последует череда репетиций, игра по местным клубам, налаживание первых связей и т.д. Вы можете присоединиться уже к сформированному (   Читать дальше...   )Тип издания: RepackРазработчик: GilligamesЖанр: Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A351E5FA5A79BC506151217945FDA3D161BCBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796934   (18490) от 13.05.2025
 
 Empyreal (2025) [Ru/Multi] (1.0.1.29392) Repack Let'sРlay
@@ -32,7 +6,7 @@ Empyreal (2025) [Ru/Multi] (1.0.1.29392) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18490.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 18404146) Repack Let'sРlay [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18487.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56442/dlc) Repack Decepticon [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18479.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dakar Desert Rally (2022) [Ru/Multi] (2.3.0/dlc) Repack Let'sРlay [Digital Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18457.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Shredders (2022) [Ru/Multi] (13234/dlc) Repack Let'sРlay [540INDY Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18423.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Wildermyth (2021) [Ru/Multi] (1.16plus559/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18370.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18366.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18363.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18361.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack Let'sРlay [Remas
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18359.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Crystal Project (2023) [En] (1.6.6.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18352.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Crow Country (2024) [Multi] (Build 18435138) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18345.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Crimson Diamond (2024) [En] (1.10u3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18328.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Death Squared (2017) [En] (1.8.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18310.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18282.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.3.0/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18272.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Battle Shapers (2024) [Ru/Multi] (1.1.2.10449) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18270.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Magicraft (2024) [Ru/Multi] (1.1.16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18269.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18258.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack FitGirl [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18247.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18246.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18239.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18229.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18227.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18214.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23060434B21BFAEC82613F8107AA542BE2BB6F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797152   (18208) от 15.05.2025
+
+Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let'sРlay [Ultimate Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс Колфилд, временная преподавательница фотографии в престижном Каледонском университете. Обнаружив в снегу тело своей подруги Сафи, Макс Колфилд прорывается сквозь ткань реальности в параллельный мир. Полагаясь на свою новую способность переходить из одного мира в другой, сможет ли Макс найти убийцу и предотвратить гибель подруги?Тип издания: RepackРазработчик: Deck Nine GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26334E1BB250CFAD29037F9C566B7010F580AC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

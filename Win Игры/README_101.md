@@ -1,29 +1,3 @@
-###  Публикация: 998700   (867787) от 20.03.2016
-
-Dead Reckoning 4: Broadbeach Cove / Точный расчет. Бухта Бродбич (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Добро пожаловать в Бродбич, один из наших самых знаменитых, национальных курортов. Не стесняйтесь, чтобы осмотреться и насладиться потрясающими пейзажами". Такова реклама курорта. В Бродбиче благополучно, до сих пор, побывало множество знаменитостей, но не в этом сезоне. На своей яхте, в роскошных апартаментах найден убитым известный своей экстравагантностью (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F441450187D0FD12F8966CBB19F4F5431C4C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496976   (867746) от 20.09.2021
 
 Zombotron (2019) [Ru/Multi] (1.2.1) License GOG
@@ -32,7 +6,7 @@ Zombotron (2019) [Ru/Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867746.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Call of Cthulhu (2018) [Ru/Multi] (4.15.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867724.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Razenroth (2015) [Ru/Multi] (1.6) Repack ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867597.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NecroVision (2009) [Ru] (1.2) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867219.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Ethereal Legends (2017) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867214.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Mystery Tales 12: Art and Souls / Загадочные истории 12: Душ
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866944.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ New Yankee 8: Journey of Odysseus / Янки 8: Путешествие Одис�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866857.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Portal Knights (2017) [Ru/En] (1.7.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866790.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Delivery from the Pain (2019) [Ru/Multi] (1.0.9194/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866786.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ XCOM 2 (2016) [Ru/Multi] (374751/dlc) License GOG [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866782.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866214.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Don't Forget Me (2021) [Ru/Multi] (1.1.3) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866069.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865937.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.00/dlc) Repack Other s [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865913.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Candlelight (2016) [En] (1.0) Rip R I T U E L
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865822.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Don't Starve (2013) [Ru/En] (1.168028/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865720.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Dogfight 1942 (2012) [Ru/Multi] (1.0/dlc) Repack =nemos= [Limited Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865712.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ DreadOut (2014) [Ru/Multi] (2.2.11/dlc) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865538.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Age Of Gladiators (2016) [En] (1.006.2) Repack ALiAS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865525.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ NecroVision (2009) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865475.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Riddles of Fate 2: Into Oblivion / Всадники Судьбы 2: В забв�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865320.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Barrow Hill: Curse of the Ancient Circle (2006) [Multi] (bh1-gog2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865303.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Lost Lands: Dark Overlord / Потерянные земли. Темный Пов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865226.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Barrow Hill: The Dark Path (2016) [Multi] (bh2-gog1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865168.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Panzer Corps (2010) [Ru/Multi] (1.30/dlc) License GOG [Gold]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865151.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Panzer Corps (2010) [Ru/Multi] (1.30/dlc) License GOG [Gold]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB827C8A8BFF3423CAD248DFCE2B5DBAD1B1BE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375558   (865147) от 14.04.2020
+
+Xeno Crisis (2019) [Multi] (1.0.2) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xeno Crisis — это шутер на арене, где один или два игрока контролируют закаленных в боях морских пехотинцев, начинающих смертельную миссию — победить пришельцев и вернуться домой целыми и невредимыми! Бегите и пробивайтесь сквозь тысячи противников, исследуйте разрушенный исследовательский пункт, ищите выживших и в конце концов узнайте, по какой причине этот исследовательский (   Читать дальше...   )Тип издания: LicenseРазработчик: Bitmap BureauЖанр: Шутер, Экшн, ФантастикаЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2905BE298DDD47068E0F974D42B13F740A328133
 ```
 
 https://mybot314.ru/tekegram_catalog/

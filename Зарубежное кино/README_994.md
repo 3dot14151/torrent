@@ -1,55 +1,3 @@
-###  Публикация: 811475   (579223) от 09.08.2014
-
-Операция «Мертвый снег» 2 / Dod Sno 2 (2014) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После встречи в горах с нацистами-зомби лишь Мартину удалось добраться до цивилизации, в то время как все его приятели погибли. Однако парень забыл о маленьком подарке, который он получил от своей возлюбленной Ханны, — золотой монете, которую та нашла в старом доме. Эта монета — часть клада, который подчиненные штандартенфюрера Герцога собирали для своего фюрера. (   Читать дальше...   )Производство: Норвегия, ИсландияЖанр: Ужасы, Боевик, КомедияРежиссер: Томми ВирколаАктеры: Амрита Ачария, Жослин Де, Лофи Эльясдоттир, Кристиан Фидженшоу, Шарлотта Фрогнер, Орхан Гамст, Ингар Хельге Гимле, Томас Торхаллур ГудмундсонПеревод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (full)Продолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592AAFC6C4704CB5D42FE7D3795A417C766A073F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811476   (579219) от 09.08.2014
-
-Операция «Мертвый снег» 2 / Dod Sno 2 (2014) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После встречи в горах с нацистами-зомби лишь Мартину удалось добраться до цивилизации, в то время как все его приятели погибли. Однако парень забыл о маленьком подарке, который он получил от своей возлюбленной Ханны, — золотой монете, которую та нашла в старом доме. Эта монета — часть клада, который подчиненные штандартенфюрера Герцога собирали для своего фюрера. (   Читать дальше...   )Производство: Норвегия, ИсландияЖанр: Ужасы, Боевик, КомедияРежиссер: Томми ВирколаАктеры: Амрита Ачария, Жослин Де, Лофи Эльясдоттир, Кристиан Фидженшоу, Шарлотта Фрогнер, Орхан Гамст, Ингар Хельге Гимле, Томас Торхаллур ГудмундсонПеревод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (full)Продолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C59D6C93663A5F761347AB86BE1DE5A2553514D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938561   (579200) от 17.05.2019
 
 Бон вояж! / Bon voyage (2003) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579200.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579194.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579165.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579163.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579143.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579139.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579119.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579073.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579072.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579069.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579065.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579058.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579052.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579042.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579041.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579015.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578954.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578941.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578915.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578890.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578881.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578879.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578855.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578790.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA8E600AC77E4B98F46F74CA221FE8EDE1594242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920553   (578787) от 23.07.2015
+
+Туннель / Der Tunnel / The Tunnel (2001) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1961 году огромная каменная стена разделила послевоенный Берлин, в угоду политикам разлучив отцов и детей, влюбленных и неразлучных друзей. Но не все смирились с гнетом тоталитарного режима. Среди тех, кто бросил вызов системе, был Гарри Мельхиор, чемпион ГДР по плаванию. Сбежав в Западный Берлин, Гарри и его друзья поклялись обмануть жестокую судьбу и подарить (   Читать дальше...   )Производство: ГерманияЖанр: ДрамаРежиссер: Роланд Зузо Рихтер / Roland Suso RichterАктеры: Хайно Ферх, Николетт Кребиц, Себастьян Кох, Александра Мария Лара, Клаудия Михельсен, Феликс Эйтнер, Мехмет Куртулус, Генрих Шмайдер, Уве Кокиш, Карин БаальПеревод: Многоголосый закадровыйПродолжительность: 02:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8968274EF0CB1C0D0A124AF814DB3AB607242B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920548   (578785) от 23.07.2015
+
+Национальная Народная Армия / NVA (2005) DVDRip [De / De, Ru Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия, рассказывающая о жизни армии ГДР в конце существования республики. Режиссёр Л. Хаусман и сценарист Т. Брусиг (автор книг "Солнечная аллея" и "Герои вроде нас") представили в фильме собственные ощущения Бруссига во время службы в армии. Главную роль исполняет бывший солист группы "Эхт" Ким Франк, играющий чувственного солдата (   Читать дальше...   )Производство: Германия, Seven Pictures FilmЖанр: КомедияРежиссер: Леандер ХаусманАктеры: Ким Франк, Оливер Брёкер, Детлев Бук, Жасмин Швиерс, Анника Куль, Игнац Кирхнер.Перевод: ОтсутствуетЯзык озвучки: НемецкийЯзык субтитров: Русский, немецкийПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD3E4DFCF5A0CE16354FA943A3C83F5BFC60662
 ```
 
 https://mybot314.ru/tekegram_catalog/

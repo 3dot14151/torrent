@@ -6,7 +6,7 @@ Data Flow Accelerator 3.4.2.27 Beta [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102183.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ DAEMON Tools Lite 4.45.4.0315 Rus/Eng Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102135.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102105.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Update SIEMENS NX 8.0.1.5 x86/x64 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102103.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ SolveigMM Video Splitter 3.0.1203.14 Final Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102097.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lenovo B550 Win7 Drivers v1.0 (32bit & 64bit) v1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102095.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Tiger Files renamer 2.4 Portable [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102085.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Photo DVD Maker Pro 8.35 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102017.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Zentimo xStorage Manager 1.6.2.1218 + RePack by KpoJIuK [Мульти, есть 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102012.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Abelssoft PC Fresh v2012.1 Portable  [Многоязычный+Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102008.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ FotoMix 8.8 Portable [Многоязычный + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102004.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Bigasoft Total Video Converter 3.6.18.4499 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101994.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ RonyaSoft Poster Designer 2.01.36 Portable x32/x64 [Русский/Англий�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101987.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101943.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Dropbox 1.4.1 Stable [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101753.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Techsmith Snagit Portable 11.0.0 Build 323 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101708.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ WinX DVD Ripper Platinum 6.8.5 Build 20120419 Portable [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101674.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Text Editor Pro 31.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101507.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ EF Commander 25.00 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101360.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Balabolka 2.15.0.884 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101311.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Waldorf - Blofeld 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101164.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ QOwnNotes 24.12.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100670.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Text Editor Pro 31.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100629.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Wise Registry Cleaner 7.16 Build 454 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100478.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Genuine Registry Doctor 2.5.4.2 + Portable [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100422.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Dropbox 1.3.41 Special Monday build [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100407.jpg" />
 </div>
 
 

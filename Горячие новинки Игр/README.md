@@ -7,7 +7,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (360.259/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070239.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Outbound (2026) [Ru/Multi] (1.0.2-797/dlc) Repack FitGirl [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070028.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Causal Loop (2026) [Ru/Multi] (0.9-2026-04-22) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069989.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hotel Architect (2026) [Ru/Multi] (1.0.0.7) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069987.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Whirlight - No Time To Trip (2026) [Ru/Multi] (Build 23175749) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069957.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069710.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PRAGMATA (2026) [Ru/Multi] (build 22357085/dlc) Repack SE7EN [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069619.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Hotel Architect (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069616.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (354.221/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069580.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (354.221/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069579.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rogue Command (2026) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069525.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Caribou Trail (2026) [Ru/Multi] (1.0.334) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069522.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Black Jacket (2026) [Ru/Multi] (0.1.0.217_CL298670/dlc) Repack Let'sРlay [Suppo
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069491.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Blades of Fire (2025) [Ru/Multi] (2.0/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069470.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Iridio (2025) [Ru/Multi] (Build 2.000/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069423.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (354.221/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069416.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WILL: Follow The Light (2026) [Ru/Multi] (Build 23186195) Repack Other s [Suppor
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069413.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PRAGMATA (2026) [Ru/Multi] (build 22357085) Repack HardwareMining [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069412.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (354.221/dlc) Repack SE7EN [Premium Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069403.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Underling Uprising (2026) [Ru/Multi] (1.0.0.404) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069386.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Repack Let'sРlay [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069351.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Scene voices38 [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069350.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Iridio (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069338.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Don't Play This (2026) [Ru/Multi] (1.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069181.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Repack Let'sРlay [Digital
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069025.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Scene Rune [Digital Deluxe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069019.jpg" />
 </div>
 
 

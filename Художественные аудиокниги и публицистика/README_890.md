@@ -1,84 +1,3 @@
-###  Публикация: 1685005   (127287) от 18.12.2023
-
-Дмитрий Лифановский | Проект "Ковчег" (Книга 1) (2023) [MP3, Ольга Русина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Первая книга их серии - Проект "Ковчег"
-
-С войны на войну. С Земли, сгоревшей в ядерном огне, в огонь Великой Отечественной. Было? Да! Банально? Конечно! А если ты шестнадцатилетний мальчишка, совсем один и в бункере с огромным количеством ништяков? Тоже банально? Ну и ладно! Значит будут и песни под гитару и чай со Сталиным и даже Лаврентий Павлович Берия (   Читать дальше...   )Жанр: Историческая фантастика, Попаданцы, ПостапокалипсисИздательство: Аудиокнига своими рукамиПродолжительность: 09:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB084D613FDC18C1C87451A5F6BD6E4DAD731C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685406   (127273) от 18.12.2023
-
-Роман Харлым | Красная Опера (2023) [MP3, Дмитрий Хазанович]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Два года после… После чего? Никто толком и не знает. Даже командование и подчиненные подразделения, укрытые под землей в засекреченных объектах. Где руководство страны? Почему все эти два года молчит радиоэфир?
-Куда пропала разведгруппа одного из объектов, отправленная на поверхность две недели назад? Разобраться во всём и докопаться до истины предстоит группе сил (   Читать дальше...   )Жанр: Постапокалипсис, ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 20:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B5B788F77B13222A0CA908DEF63D1826414EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685260   (127272) от 18.12.2023
-
-Никита Киров | Молот империи (Книга 3). Часть 3 (2023) [MP3, Дмитрий Поляков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Меня называли Молот Империи. Я был генералом, который спас страну, а потом стал угрозой. Теперь я узник, обречённый на вечное заточение. Но появилась другая угроза, против которой бесполезны армия и боевые шагающие машины. Тогда вспомнили обо мне. Если помогу, получу свободу и верну давно утерянное. И даже не сомневаюсь, что в этом договоре есть подвох.Жанр: Боевая фантастика, Боевое фэнтезиИздательство: ЛитРес: чтец, АвторПродолжительность: 08:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25CFAE16ECF48AA675E48532AC484BC6C32E43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685363   (127263) от 18.12.2023
 
 Владимир Ящерицын | Рассвет тьмы (книга 2). Конфронтация (2023) [MP3, Вячеслав Манылов]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127263.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127259.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127257.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127253.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127245.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127243.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127238.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127237.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127232.jpg" />
 </div>
 
 
@@ -327,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127217.jpg" />
 </div>
 
 
@@ -353,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127216.jpg" />
 </div>
 
 
@@ -381,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127214.jpg" />
 </div>
 
 
@@ -407,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127178.jpg" />
 </div>
 
 
@@ -436,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127158.jpg" />
 </div>
 
 
@@ -462,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127150.jpg" />
 </div>
 
 
@@ -489,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127149.jpg" />
 </div>
 
 
@@ -517,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127139.jpg" />
 </div>
 
 
@@ -545,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127133.jpg" />
 </div>
 
 
@@ -573,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127118.jpg" />
 </div>
 
 
@@ -602,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127086.jpg" />
 </div>
 
 
@@ -631,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127084.jpg" />
 </div>
 
 
@@ -658,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127061.jpg" />
 </div>
 
 
@@ -684,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127052.jpg" />
 </div>
 
 
@@ -697,6 +616,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB7465AA60815E6A4A4EC7F30F59DC0056EF17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685664   (127050) от 19.12.2023
+
+Вальтер Скотт | Айвенго (2006) [MP3, Владимир Рыбальченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из популярнейших романов Вальтера Скотта (1771–1832)  «Айвенго» (1819) повествует об увлекательных и героических событиях из жизни средневековой Англии. Писатель обращается к важному историческому моменту, когда король Ричард Львиное Сердце возвращается в Англию после Крестовых походов и пребывания в плену. Страна раздираема конфликтами между саксами и норманнами, (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: БиблиофоникаПродолжительность: 19:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26AD6D3292471F08593952C153FB47847CBE3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685453   (127049) от 19.12.2023
+
+Надежда Дурова | Записки кавалерист-девицы. Происшествие в России (2007) [MP3, Татьяна Горчакова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+В начале XIX столетия в рядах русских войск, сражавшихся в Пруссии, появилась загадочная личность – кавалерист-девица, русская амазонка, выступавшая под мужским именем Соколов, затем, с высочайшего позволения – Александров. Необычайность этого «происшествия в России» долгое время волновала не только армию, но и все слои общества. Однако (   Читать дальше...   )Жанр: Историческая литература, приключения, мемуарыИздательство: ИД «Равновесие»Продолжительность: 12:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB952D74B99334DE3012ECC30A9894455CF335D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685672   (127048) от 19.12.2023
+
+Вальтер Скотт | Талисман, или Ричард Львиное Сердце в Палестине (2012) [MP3, Вадим Максимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+«Талисман, или Ричард Львиное Сердце в Палестине» – исторический роман Вальтера Скотта, посвященный событиям Третьего крестового похода. Сложные взаимоотношения короля Англии Ричарда Львиное Сердце и предводителя арабов султана Саладина, любовь бедного шотландского рыцаря Кеннета и дамы его сердца леди Эдит и таинственный талисман (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: Студия «АРДИС»Продолжительность: 15:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC86CDC2DF78EB6639C095EFAAD15CD8BA50705
 ```
 
 https://mybot314.ru/tekegram_catalog/

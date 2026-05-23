@@ -1,32 +1,3 @@
-###  Публикация: 1248286   (444671) от 19.09.2018
-
-VA - Progressive House: September Mix (2018) [MP3|320 Kbps] <Progressive House, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Eelke Kleijn - 8 Bit Era Nick Warren
-002. Lexy & K-Paul - Peilschnarte
-003. Nice Therapy - Emotional Machines
-004. Danson - Price(   Читать дальше...   )Жанр: Progressive House, Club, ElectroПродолжительность: 11:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606FE93C30CF420A9A3DD40B343FCADD08B25B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248343   (444670) от 19.09.2018
 
 VA - Tech House For Winged (2018) [MP3|320 Kbps] <Tech House, Techno, Dance>
@@ -35,7 +6,7 @@ VA - Tech House For Winged (2018) [MP3|320 Kbps] <Tech House, Techno, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444670.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Pure Reggaeton Urbano (2016) [MP3|320 Kbps] <Reggaeton, Latin, Kizomba>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444620.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Favourite Top 40 Party Songs (2016) [MP3|320 Kbps] <House, Nu Disco, Tropic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444619.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444615.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444611.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Хит атака 9 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444449.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - The Story Of Lovers (2016) [MP3|320 Kbps] <Pop, Rock Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444444.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - This Is Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444349.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ VA - Chill Piano (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444257.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ VA - Только хиты Хит FM. Часть 10 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444253.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ VA - Клубный Танцпол осень (2012) [MP3|320 кб/с]<Dance, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444157.jpg" />
 </div>
 
 
@@ -366,7 +337,7 @@ VA - Vocal Passion Vol.42 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444151.jpg" />
 </div>
 
 
@@ -401,7 +372,7 @@ VA - Super Dance Party Autumn (2012) [MP3|320 кб/с]<Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444150.jpg" />
 </div>
 
 
@@ -436,7 +407,7 @@ VA - Best Of Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443990.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ VA - Лабиринты любви (2017) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443931.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ VA - Therapy Of The Soul: New Age Current Version (2017) [MP3|320 Kbps] <New Age
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443776.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ VA - L.O.V.E. Vol.11: Chillout Music Collection (2012) [MP3|320 кб/с]<Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443738.jpg" />
 </div>
 
 
@@ -564,7 +535,7 @@ VA - Инструментальная музыка (2012) vol. № 86[MP3|320 к
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443605.jpg" />
 </div>
 
 
@@ -599,7 +570,7 @@ VA - Инструментальная музыка (2012) vol. № 85 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443603.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443598.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443534.jpg" />
 </div>
 
 
@@ -704,7 +675,7 @@ VA - Tight Drum And Bass: Bassline Positive Session (2020) [MP3|320 Kbps] <Drum 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443271.jpg" />
 </div>
 
 
@@ -733,7 +704,7 @@ VA - Panopticum: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Rock Punk>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443266.jpg" />
 </div>
 
 
@@ -762,7 +733,7 @@ VA - Music News vol.38 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443145.jpg" />
 </div>
 
 
@@ -791,7 +762,7 @@ VA - Night Fusion: Pure Deep House (2020) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443143.jpg" />
 </div>
 
 
@@ -805,6 +776,35 @@ VA - Night Fusion: Pure Deep House (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB3B40E119261B3D5BABEAEEA3927B756CDE9487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409581   (443139) от 18.09.2020
+
+VA - Club Vivid: Electro Dance Music (2020) [MP3|320 Kbps] <Dance, House, Techno, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443139.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tosch - No Bassline Needed
+002. Weston Boucher - Youniverse
+003. Roberto Cavicchioni - Lakota
+004. Boza - Dizzy(   Читать дальше...   )Жанр: Dance, House, Techno, TranceПродолжительность: 12:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E33A4AF7F6604FF0B0BE11707866B137FE7B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

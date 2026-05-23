@@ -6,7 +6,7 @@ LibreOffice 7.5.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198973.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Slimjet 39.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198969.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual Studio 2022 Enterprise 17.5.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198961.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft  Visual C++ Runtimes AIO v0.72.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198953.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 6.12.10459 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198948.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nox App Player 7.0.5.7000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198947.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Total Commander 11.00 beta1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_198945.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WhatsApp 2.2318.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198943.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32531.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_198941.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Total Commander Ultima Prime 8.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198938.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Fast Video Cutter Joiner 2.6.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198937.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ TweakNow WinSecret Plus! 4.6.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198930.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Psiphon 3 build 179 (02.05.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198927.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Windows 10 Manager 3.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198924.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7106 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198921.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.7 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198918.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198912.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Total Commander 10.52 (03.05.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198897.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ CyberLink PowerDirector Ultimate 21.4.2827.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198890.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ IObit Driver Booster Pro 10.4.0.128 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198884.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.2.3  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198883.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ uTorrent Pro 3.6.0 Build 46802 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198878.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Blackmagic Design DaVinci Resolve Studio 18.5b Build 20 Public Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198874.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ CCleaner 6.12.10459 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198868.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AIDA64 Extreme Edition 6.88.6413 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198860.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ GOYO 0.9.3 Beta VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198858.jpg" />
 </div>
 
 

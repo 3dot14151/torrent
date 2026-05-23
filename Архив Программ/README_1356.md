@@ -6,7 +6,7 @@ Adobe Audition CC 2019 12.0.0.241 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349400.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CPUID HWMonitor Pro 1.36.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349389.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Illustrator CC 2019 (23.0.0.530) Portable by XpucT [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349388.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FinePrint 8.38 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349380.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Icecream Screen Recorder PRO 2.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349306.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Skype 7.30.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349239.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 Manager 2.0.1 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349231.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Digital Clock 4.5.1 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349229.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ IObit Driver Booster Pro 4.1.0.389 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349227.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Soft Organizer 5.0 Portable By KloneB@DGuY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349154.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ oCam Screen Recorder 157.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349152.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mozilla Firefox 42.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349150.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ LDPlayer 3.103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349120.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SUMo Pro 5.11.5.464 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349114.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Visual Studio 2019 Professional 16.7.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349110.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft Visual Studio 2019 Community 16.7.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349092.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ RogueKiller Anti-Malware 14.7.4.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349090.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ USB Portable-Soft x64 13.11.2016 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349080.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Anvir Task Manager 9.1.2 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349067.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Chromium 64.0.3254.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349056.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VidCoder 2.59 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349054.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Wise Care 365 Pro 3.91.349 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348999.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Telegram Desktop 2.4.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348964.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Arachnophilia 5.5 Build 2944 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348957.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft Visual Studio 2019 Enterprise 16.7.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348951.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ LDPlayer 4.0.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348947.jpg" />
 </div>
 
 

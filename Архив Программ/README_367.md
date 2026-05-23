@@ -6,7 +6,7 @@ Windows 8.1 40in1 (x86/x64) +/- Office 2019 by Eagle123 (04.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861529.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FPS Monitor 5230 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861459.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861457.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kaspersky Total Security 2020 20.0.14.1085 (h) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861451.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Advanced SystemCare Ultimate с Антивирусом 13.2.0.131 (акция CO
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861450.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Windows 7 SP1 6.1 (Build 7601.24552) (13in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861449.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MobaXterm 20.2 build 4296 + Portable[En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861444.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Uninstall Tool 3.5.10 Build 5670 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861439.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861438.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Opera 79.0.4143.56 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861252.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Firefox Browser 92.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861244.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ GPU-Z 2.42.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861187.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Calibre 5.28.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861186.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Telegram Desktop 3.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861184.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Google Chrome 94.0.4606.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861174.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ ASUS GPU Tweak II 2.3.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861173.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861103.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ FanControl V93 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861094.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Microsoft Office 2007 MSDN (English) [01/04/2010]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861057.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Acronis Backup / Backup Advanced 11.5.43909 BootCD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860812.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ BurnAware Professional 9.0 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860809.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ TagScanner 6.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860807.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ oCam Screen Recorder 254.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860805.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Instagiffer 1.64 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860800.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PDF-XChange Viewer Pro 2.5 Build 317.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860799.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ CoolUtils Total Image Converter 5.1.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860798.jpg" />
 </div>
 
 

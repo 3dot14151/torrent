@@ -1,29 +1,3 @@
-###  Публикация: 1697537   (118866) от 07.02.2024
-
-Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бату, мучимый повторяющимися кошмарами о неизвестной деревне, обнаруживает, что его жизнь переворачивается с ног на голову из-за загадочного письма, оставленного у его двери однажды. В письме содержится мрачное сообщение: "Хотите освободиться от ваших кошмаров? Мы ждем вас...".Тип издания: RepackРазработчик: Batuhan Gündüz, Latif GüngörЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: ТурецкийЯзык субтитров: Русский, Турецкий, Английский, Французский и другиеЯзык интерфейса: Русский, Турецкий, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA96A79603881B54FBA0500E1D7266EB81D0910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696761   (118863) от 07.02.2024
 
 Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
@@ -32,7 +6,7 @@ Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118863.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Great Rebellion (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118837.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Steel Echoes (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118817.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118706.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Splice (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118681.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0.16a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118673.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Don't Pee (2024) [En] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118668.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118667.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118645.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118528.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118514.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118506.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Axiom of Maria (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118501.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cursed Fables 4: Before the Clock Strikes / Проклятые предания 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118497.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118483.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Legendary Tales 3: Stories (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118442.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.3/dlc) Scene Tenoke [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118385.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118383.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118381.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Heretic HD PBR (2023) [Ru/Multi] (1.2) Repack/Mod Other s
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118380.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118377.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Slot Shots Pinball (2024) [En] (1.0) Scene Skidrow [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118364.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ocean's Heart (2021) [Ru/Multi] (1.0.3(5)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118335.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Pixel Noir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118334.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118314.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C742AB8A9A73CB338DEA7A22E4D250CCAB4ABE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698694   (118296) от 10.02.2024
+
+Maze of Realities 4: Symphony of Invension (2024) [Multi] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр Maze Of Realities. Вы открыли дверь в новые миры, и теперь перед вами целая вселенная возможностей! Ваш друг, доктор Чарльз Майклсон, недавно получил приглашение из мира Инноватрикс для обмена знаниями и встречи с самым передовым ИИ во вселенной – Омнирой. Чарльз пригласил вас присоединиться к нему и лично убедиться в его превосходном (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921E5BFE35C29D1ED2DAAA4277FEF54D03499386
 ```
 
 https://mybot314.ru/tekegram_catalog/

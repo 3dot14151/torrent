@@ -1,83 +1,3 @@
-###  Публикация: 1706272   (63168) от 12.03.2024
-
-Джон Гришэм | Парни из Билокси (2024) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Когда-то в очаровательный курортный городок Билокси приехали двое молодых иммигрантов из Европы – нищих, но полных надежд на счастливую жизнь. И они добились успеха, пусть каждый по-своему: одному суждено было возглавить преступный мир Билокси, другому – стать окружным прокурором, полным решимости очистить Побережье от криминала.
-Так было положено начало войне между (   Читать дальше...   )Жанр: детектив, триллерИздательство: Аудиокнига (АСТ)Продолжительность: 17:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B16F4D9A3CC1EA6A5434CCD941FD7F95E4E3ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706664   (63106) от 13.03.2024
-
-Валерий Гуров, Рафаэль Дамиров | Физрук (Книга 1). Назад в СССР (2024) [MP3, Григорий Андрианов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я был успешным предпринимателем, но погиб от рук конкурентов. Судьба подкинула подлянку – я не отправился «на покой», а попал в прошлое. Душа вселилась в выпускника пединститута. На дворе 1980 год, а я простой физрук в советской школе, который должен отработать целых три года по распределению.
-Биологичка положила на меня глаз, завуч решила сжить со свету, а директор-фронтовик (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3CF1DD0C1CD93E0F6804DFCEA7F84BE6591623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706461   (63104) от 13.03.2024
-
-Алекс Гор | Контуженный (Книга 5). Интеграция (2024) [MP3, Александр Мозгунов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Беглым преступникам нелегко было выжить, но они смогли это сделать. Теперь им предстоит вновь влиться в общество. Выбор сделан, и «Пламя Дагора» держит свой путь во фронтир, в место, где найдется кусочек пространства для каждого. Для каждого, кто докажет на это свое право.Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 09:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66521CF3FC9AFDF2F2000D4851ED5EDE701A38A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706555   (63092) от 13.03.2024
 
 Рафаэль Дамиров | Курсант (Книга 6). Назад в СССР (2024) [MP3, Один]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63092.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63065.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62992.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62981.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62976.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62967.jpg" />
 </div>
 
 
@@ -245,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62950.jpg" />
 </div>
 
 
@@ -271,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62945.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62911.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62906.jpg" />
 </div>
 
 
@@ -352,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62892.jpg" />
 </div>
 
 
@@ -381,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62877.jpg" />
 </div>
 
 
@@ -409,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62876.jpg" />
 </div>
 
 
@@ -437,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62869.jpg" />
 </div>
 
 
@@ -463,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62857.jpg" />
 </div>
 
 
@@ -489,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62850.jpg" />
 </div>
 
 
@@ -515,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62822.jpg" />
 </div>
 
 
@@ -542,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62796.jpg" />
 </div>
 
 
@@ -569,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62793.jpg" />
 </div>
 
 
@@ -595,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62792.jpg" />
 </div>
 
 
@@ -622,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62776.jpg" />
 </div>
 
 
@@ -649,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62676.jpg" />
 </div>
 
 
@@ -677,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62668.jpg" />
 </div>
 
 
@@ -690,6 +610,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27EAA692FFA03A994C01493A11613B503A7B2065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707669   (62666) от 17.03.2024
+
+Виталий Останин | СССР-2023 (Книга 1) Товарищ Халков (2024) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что должен совершить классический попаданец в СССР? Правильно – попасть к Сталину, изобрести промежуточный патрон и прикрутить к Т-34 командирскую башенку. Но на дворе 2023 год. Всё, что нужно уже давно изобрели. И Сталину помощь не нужна – ему 145 лет, но чувствует он себя максимум на 40.
+
+А еще тут по небу летают люди со сверхспособностями, бандиты толкают из-под (   Читать дальше...   )Жанр: Альтернативная история Боевая фантастикаИздательство: ЛитРесПродолжительность: 07:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A95C35BCDD7EFAE2C5D8361F54A5F8E8F0B11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488557   (62665) от 17.03.2024
+
+Юрий Бондарев | Горячий снег (2020) [MP3, Александр Дунин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ю. В. Бондарев (1924) – известный русский писатель, воевавший в годы войны под Сталинградом, в Польше и на границе с Чехословакией.
+
+В романе «Горячий снег» автор повествует о сталинградских событиях, одном из решающих моментов Великой Отечественной войны, оттого жизнь и смерть героев романа обретают особую весомость и значительность, а смерть понимается как нарушение (   Читать дальше...   )Жанр: Книги о войнеИздательство: ЭксмоПродолжительность: 17:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E62740B932C39A6C5864923FD5EA16AF7B96CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707597   (62662) от 17.03.2024
+
+Вадим Панов | (Бесчело)вечность (Книга 3). Пре(восход)ство (2024) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62662.jpg" />
+</div>
+
+
+###  Подробнее
+
+К середине XXI века люди построили очень комфортный мир, в котором цифровые сервисы так плотно сплетены с реальностью, что пользователи начинают их путать, начинают воспринимать выдуманное – подлинным, а подлинное – ненастоящим. Мир обрёл множество Метавселенных и стал невероятно большим. И одновременно – очень маленьким, не выходящим за рамки цифровых иллюзий, в (   Читать дальше...   )Жанр: Фантастика, киберпанкИздательство: ЛитРес: чтецПродолжительность: 02:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30AC4F544C74D3A12B013452400A32DF57310BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

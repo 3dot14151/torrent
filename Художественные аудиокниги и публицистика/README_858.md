@@ -1,82 +1,3 @@
-###  Публикация: 355856   (151855) от 16.11.2023
-
-Этель Лилиан Войнич | Овод (2005) [MP3, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Роман английской писательницы Этель Лилиан Войнич (1864–1960) «Овод» (1897), Рисующий образ пламенного революционера, борца за освобождение Италии от австрийского господства, был встречен очень по-разному: пуританская Англия отнеслась к нему сдержанно, в Америке он вызвал бурю возмущения своим антирелигиозным характером, в России его восторженно приветствовали. В (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 10:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4D11199188D95A38669CA78CB1C0C7D2185F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347415   (151823) от 23.12.2019
-
-Андрей Константинов | Бандитский Петербург. По счетам (2019) [MP3, Алексей Данков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История вора по прозвищу Юрка Барон.
-Всем, кто смотрел легендарный телесериал «Бандитский Петербург», небезынтересно будет узнать, что один из ключевых персонажей фильма – старый вор по прозвищу Юрка Барон, блестяще сыгранный Кириллом Лавровым,– в молодости прошел через невероятнейшие жизненные испытания, которые в итоге и предопределили его трагический конец. А (   Читать дальше...   )Жанр: БоевикПродолжительность: 09:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C29D95F1118E34B2F398104674080048314EDF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825762   (151777) от 17.10.2025
-
-Дмитрий Билик | Рубежники. Бедовый (Книга 4). Путешественник по Изнанке (2025) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бывают люди, которые находят проблему за проблемой там, где это кажется почти невозможным. Именно им выпадает один шанс из ста, чтобы попасть в неприятности. Обычно таких людей зовут неудачниками. Или, деликатнее выражаясь, невезучими. Бабушка Матвея, героя книги, называла внука иначе – Бедовый. Однажды Матвей получил курьерский заказ на доставку еды и зашёл в странную (   Читать дальше...   )Жанр: Фэнтези, приключения, юморИздательство: 1С-ПаблишингПродолжительность: 09:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD566A266A37D04A0160B5F5F8C345F0B22D0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825765   (151771) от 17.10.2025
 
 Дмитрий Коровников | Курсант Империи (Книга 2) (2025) [MP3, Михаил Обухов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151771.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151760.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151702.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151575.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151552.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151492.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151487.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151457.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151439.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151437.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151431.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151416.jpg" />
 </div>
 
 
@@ -398,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151414.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151410.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151400.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151356.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151252.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151236.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151216.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151180.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151156.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151133.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151051.jpg" />
 </div>
 
 
@@ -676,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F87D1D7B7C1896114852175B6200C61B3C9AACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677402   (150944) от 17.11.2023
+
+Артуро Перес-Реверте | Итальянец (2022) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150944.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я мечтал написать эту немыслимую и совершенно подлинную историю с тех самых пор, как мне в детстве рассказал ее отец», – говорит Артуро Перес-Реверте о романе «Итальянец», который на родине автора разошелся тиражом в несколько сотен тысяч экземпляров. Реальная история итальянских боевых пловцов, потопивших четырнадцать британских кораблей, – история торжества отдельных (   Читать дальше...   )Жанр: Морские приключенияИздательство: Нигде не КупишьПродолжительность: 11:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C460312A4CBDDA78BA40C57DF81E115E3E141E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677387   (150924) от 17.11.2023
+
+Иар Эльтеррус | Канатоходец (Книга 2). Затерянный замок (2023) [MP3, Алексей Алексеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесконечно многогранен мир Дэлоуэ, по которому идут чародей Кейсав со своей ученицей Сейлой. Мир давно потерял знания Древних, люди деградировали, но ведь кому, как не чародеям, искать потерянные знания? Поиск долог и труден, но в конце его ждет награда - затерянный тысячелетия назад, давно всеми позабытый замок Наэрта, хранящий множество секретов и тайн. Какие из (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E02CD46116617138378C4996C8078B98702B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677262   (150915) от 17.11.2023
+
+Цезарий Збешховский | Рамма (Книга 1). Искажение (2023) [MP3, Никита Петров (Петроник)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150915.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора книги «Всесожжение», лауреата премии SFinks (Польский роман года).
+
+Миротворческий контингент государства Рамма поддерживает порядок в Ремарке, пустынной стране, еще недавно охваченной войной. Поначалу люди, живущие тут, принимали рамманцев как освободителей, но сейчас считают главными врагами. В такой ситуации капрал Маркус Трент выживает на рутинной современной (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастика, Социальная фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 15:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC4C60DFEA9FBB8E591A024D208F6AF0FA9D41C
 ```
 
 https://mybot314.ru/tekegram_catalog/

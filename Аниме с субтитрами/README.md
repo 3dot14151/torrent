@@ -7,7 +7,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069906.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mahou no Shimai Lulutto Lily / Magical Sisters Lulutto Lilly / Волшебны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069533.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai Returns | Изобрази отв�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069103.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kowloon Generic Romance | Обычный роман в Цзюлуне [2025, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068640.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068530.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Babylon | Вавилон [2019, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068481.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Nemure Omoigo, Sora no Shitone ni | Сладко спи, моё дитя, в н�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068426.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Hateshi Naki Scarlet | Scarlet | Скарлет [2025, Movie] WebRip 1080p raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068366.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Class no Daikirai na Joshi to Kekkon suru Koto ni Natta | Я женился на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068233.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Marika-chan no Koukando wa Bukkowarete Iru | Симпатия Марики [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068133.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Boku no Hero Academia: More | My Hero Academia: More | Моя геройская
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067689.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Arve Rezzle: Kikaijikake no Yousei-tachi | Арве Реззл: Механиче
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067395.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Snowball Earth | Земля-снежок [2026, TV, 3 из 13 эп.] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067329.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana | Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066903.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Ichijouma Mankitsu Gurashi! / Жизнь в манга-кафе [2026, TV, 2 и�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066589.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Akane-banashi / Сказание об Аканэ [2026, TV, 3 из ?] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066587.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Yowayowa Sensei | Yowayowa Teacher | Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066210.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Yowayowa Sensei / Yowayowa Teacher / Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066077.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (※Muri ja Nakatta!?) | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065677.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Yozakura-san Chi no Daisakusen (2026) | Операция: Семейка Ёдз�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065558.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Mahou Shoujo Magical Destroyers | Девочки-волшебницы: Волш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065425.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Hokuto no Ken: Fist of the North Star | Кулак Северной звезды
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065414.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Aishiteru Game o Owarasetai / I Want to End This Love Game / Я хочу зак�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065299.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Kami no Shizuku | Drops of God | Слёзы Бога [2026, TV, 1 из 12] HDTVR
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065116.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kill Ao | Kill Blue | Убивая юность [2026, TV, 1 из 12] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065080.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Tsue to Tsurugi no Wistoria 2 / Wistoria: Wand and Sword 2 / Меч и жезл 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064979.jpg" />
 </div>
 
 

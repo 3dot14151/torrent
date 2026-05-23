@@ -1,29 +1,3 @@
-###  Публикация: 1820032   (853) от 26.09.2025
-
-Hades II (2) (2024) [Ru/Multi] (1.131346) Repack seleZen
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Создатели первого сиквела в истории Supergiant Games взяли только лучшее из оригинальной игры в жанре rogue-like, чтобы представить вам совершенно новое динамичное приключение, которое можно проходить снова и снова. Окажитесь в подземном мире из греческих мифов и узнайте, как зародилось колдовство.Тип издания: RepackРазработчик: Supergiant GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE01B52DFDA79C3B8C1956392096A9570C712F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820183   (849) от 26.09.2025
 
 Metal: Hellsinger (2022) [Ru/Multi] (1.8.0-71665-194/dlc) Repack Wanterlude
@@ -32,7 +6,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.8.0-71665-194/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_849.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_831.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_809.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Chimeras 14: The Lost Film (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_791.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_737.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ara: History Untold (2024) [Ru/Multi] (2.0.0.523/dlc) Repack Let'sРlay [Anniver
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_734.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_730.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_727.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Severed Steel (2021) [Ru/Multi] (5.62) License GOG [Digital Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_724.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Revenge of the Savage Planet (2025) [Multi] (025-9-9-106947/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_716.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.250900) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_714.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Undead West (2024) [Ru/Multi] (1.0.4.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_706.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.2/dlc) Repack Let'sРlay [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_700.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ TurretGirls (2025) [Multi] (1.0.2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_696.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_683.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.173s) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_682.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250807/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_680.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (Hotfix #80) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_676.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (19.1.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_673.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_672.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.5.3/dlc) License GOG [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_668.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) License GOG [Definitiv
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_658.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Repack seleZen [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_657.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) License GOG [20 Year Cel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_649.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Meganoid (2017) [En] (2.2.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_648.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Meganoid - это сложный платформер, генерирующий 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:596A84632344ACFD8EF7A9239AD32E63212B659A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820425   (631) от 27.09.2025
+
+Platypus Reclayed (2025) [Ru/Multi] (1.0.20) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_631.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 года спустя после своего первого появления культовый инди-шутер Platypus возвращается - ещё лучше, чем когда-либо! Под руководством оригинального создателя Энтони Флэка вместе с талантливой командой Claymatic мы отправляемся в путешествие, чтобы перенести полюбившуюся классику в настоящее. Platypus Reclayed - это не просто обычный ремастер: это полная переработка.Тип издания: RepackРазработчик: Claymatic GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126AA1AE7F2949B34FC7AAC013C0513178E5278C
 ```
 
 https://mybot314.ru/tekegram_catalog/

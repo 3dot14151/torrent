@@ -6,7 +6,7 @@ Nova 11.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171218.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VueScan Pro 9.8.19 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171216.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Money Pro - Personal Finance 2.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171215.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ JetBrains DataSpell for Mac 2023.2.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171214.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Capture One 23 Enterprise 16.3.0.76 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171199.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Alfred PowerPack 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171194.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ DxO PureRAW 3 for Mac v.3.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171187.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Capture One 23 Pro 16.3.0.76 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171159.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Cookie 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171097.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Integrity Pro 12.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171096.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Author 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171093.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Airtool 2 v.2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171087.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ MetaRename for Mac 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171082.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ CheckBook Pro 2.7.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171079.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ myTracks 4.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171077.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ OmniGraffle Pro 7.22.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171062.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Dynamic Wallpaper Engine 16.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171053.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Keyboard Maestro 11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171047.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Transmit 5.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171046.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Disk Space Analyzer Pro 4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171037.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Duplicate File Finder Pro for Mac 7 v.7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171029.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Native Instruments Guitar Rig 6 Pro for Mac 6.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171022.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ableton Live Suite 11 v.11.3.13 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170908.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Wondershare Filmora Х v10.1.5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170758.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ macOS 14 Sonoma 14.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170718.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Cheetah3D 7 v7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170680.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1420550   (332049) от 01.11.2020
-
-Яндекс Go v4.0.1 [Ru/En] — Такси, Доставка, Драйв, Продукты, Еда (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Яндекс Go - приложение для заказа такси, еды, продуктов, доставки посылок, аренды машин и просмотра расписания транспорта. Это единое приложение, которое помогает людям решать повседневные задачи в городе — быстро и точно в срок. Поехать, отправить, забрать, заказать — раньше на каждое действие нужно было открывать разные сервисы, а теперь вы сможете делать всё это (   Читать дальше...   )Тип издания: Пиратка (Mod: удалена лишняя аналитика. Работает быстрее)Релиз состоялся: 15.08.2020Разработчик: Yandex AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610EA904330B94D16C2A3F68CE2073B4BF6E587A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886339   (331799) от 12.11.2015
-
-Orbot 15.0.1 RC-3 [Ru/Multi]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Защита конфиденциальных данных в сети Интернет.
-Tor – это кросс-платформенное ПО с открытым исходным кодом, задачей которого является защита от «прослушивания» и обеспечение конфиденциальности персональных и деловых данных, передаваемых в глобальной сети. Продукт обеспечивает полную анонимность клиентов при посещении веб-сайтов, публикации материалов, отправке сообщений (   Читать дальше...   )Тип издания: лицензияРелиз состоялся: 2014Разработчик: The Tor ProjectПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский, английский, итальянский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7F635B95318B07B02A488C2DEF6381CB03A5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944994   (330104) от 14.11.2015
 
 tTorrent Pro 1.5.4.1 [Ru/Multi]
@@ -59,7 +6,7 @@ tTorrent Pro 1.5.4.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330104.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ SwiftKey Keyboard 6.0.0.161  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330043.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ KMPlayer Pro 1.1.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330036.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ GreenNet: Hotspot VPN Proxy v1.5.45 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329681.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ Unique VPN | Fast VPN Proxy 1.3.33 b43 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329676.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ XP VPN (Xtra Power) 3.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329632.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ AirRadio Pro v5.0.0 [Ru/Multi] - Радиосканер переговоров �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329117.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ Solo Launcher 2.4.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329026.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ Kiwi VPN Proxy: Safer & Faster 42.30.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328800.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ HAWA VPN Super VPN Proxy Maste 1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328798.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326952.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ Tangle / Клубок v72.20.4.22 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324395.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ Planimeter - GPS area measure v 4.5.4 [Ru/Multi] - инструмент для �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323515.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ Agenda 2018 Pro v5.16 [Ru/Multi] - Простой ежедневник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322864.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ Instant Heart Rate Pro 2.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322855.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ Image Colorizer Pro v2.0.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321900.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320430.jpg" />
 </div>
 
 
@@ -510,7 +457,7 @@ En32 2018.728.1914.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318235.jpg" />
 </div>
 
 
@@ -539,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317809.jpg" />
 </div>
 
 
@@ -565,7 +512,7 @@ MacroDroid - Device Automation PRO v4.9.2 [Ru/En] - Автоматизация �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315599.jpg" />
 </div>
 
 
@@ -591,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315455.jpg" />
 </div>
 
 
@@ -620,7 +567,7 @@ Mandala ColoringBook v1.2 [Ru/Multi] - раскраска
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313500.jpg" />
 </div>
 
 
@@ -646,7 +593,7 @@ RocketENG v1.5.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313044.jpg" />
 </div>
 
 
@@ -672,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312893.jpg" />
 </div>
 
 
@@ -683,6 +630,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88545DB8D499EE89D7F44A14503E18E67C747F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960045   (311935) от 26.11.2015
+
+Мудры v1.5 Full [Ru/En] - справочник по мудрам, йоге и йоге пальцев
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная версия справочника по мудрам, йоге и йоге пальцев. Мудры - символические положение пальцев, глаз или тела - образно представляют определенные состояния сознания или процессы сознания. И эти же положения могут вести к состояниям сознания, которые они символизируют.
+Мудры обращаются к определенным областям нашего мозга (или нашей души), и оказывают соответствующее (   Читать дальше...   )Тип издания: Full с МаркетаРелиз состоялся: 14.08.2013Разработчик: Alex DПоддерживаемая ОС: Android 1.6+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026F221385B86D4F3FDC6A256622281B2F4EDC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422349   (310606) от 08.11.2020
+
+SignalCheck Pro v4.63 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просмотр сигнала соединения сотовой сети и wi-fi
+SignalCheck Pro - Приложение расписывает всё в мельчайших подробностях по всем сигналам, что исходят и принимаются мобильным гаджетом, демонстрирует изменения, уведомляет о нахождении максимальных значениях и многое другое.Тип издания: ПираткаРелиз состоялся: 2 ноября 2020 г.Разработчик: Blue Line ComputingПоддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41162B4D46E4B679BED3A860EF5F7F32A307D0A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

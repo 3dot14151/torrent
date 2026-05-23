@@ -1,55 +1,3 @@
-###  Публикация: 1432519   (162528) от 18.12.2020
-
-Самый счастливый сезон / Happiest Season (2020) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Эбби планирует сделать предложение своей девушке во время празднования Рождества в доме её семьи. Но выясняется, что её возлюбленная всё ещё не рассказала своим консервативным родителям, что она - лесбиянка.Производство: США, Канада / Aurum Producciones S.A., Hulu Originals, Temple Hill Entertainment, TriStar PicturesЖанр: драма, мелодрама, комедияРежиссер: Клеа ДюВаллАктеры: Кристен Стюарт, Маккензи Дэвис, Мэри Стинберген, Виктор Гарбер, Элисон Бри, Мэри Холлэнд, Дэн Леви, Берл Моусли, Обри Плаза, Сарайю БлюПеревод: Многоголосый профессиональный (Студия «Кириллица»)Субтитры: АнглийскиеПродолжительность: 01:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAD9F55308DEF86989AC84F6FC0B367B5C9608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517332   (162525) от 15.12.2021
-
-Множественные святые Ньюарка / The Many Saints of Newark (2021) BDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1967 год, Ньюарк в штате Нью-Джерси. Маленький Тони Сопрано восхищается деловым партнёром отца — Ричардом Молтисанти по прозвищу Дики. Тот ответственно ведёт доверенную ему отцом, местным криминальным авторитетом, часть бизнеса и, в отличие от остальных мафиози, не гнушается иметь дело с чернокожими. Когда в городе вспыхивают беспорядки, спровоцированные жестоким (   Читать дальше...   )Производство: США / Chase Films, HBO Films, Home Box Office (HBO), New Line Cinema, Warner Bros.Жанр: Криминал, драмаРежиссер: Алан ТейлорАктеры: Алессандро Нивола, Майкл Гандольфини, Лесли Одом мл., Вера Фармига, Джон Бернтал, Кори Столл, Рэй Лиотта, Микела Де Росси, Билли Магнуссен, Джон МагароПеревод: Многоголосый профессиональный (Jaskier)Субтитры: Русские (full) - отдельноПродолжительность: 02:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E473CD51E7B2873EF310AB4535F9FD1E66BD4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598521   (162523) от 19.12.2022
 
 Кровавое лето Сэма / Summer of Sam (1999) BDRip [H.264/720p] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162523.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162521.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162494.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162485.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162433.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162374.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162308.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162277.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162270.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162262.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162222.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162218.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162214.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162155.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162139.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162134.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162123.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162087.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162078.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162075.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162070.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162019.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162012.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161992.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:176C30D0F985F05A922B6855660AF601803E6E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517661   (161985) от 16.12.2021
+
+Король Ричард / King Richard (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комптон, 1988 год. Отец пяти дочерей Ричард Уильямс уже давно составил подробный план на будущее своих девочек и упорно ему следует, а из восьмилетней Винус и семилетней Серены он намеревается сделать звёзд тенниса. Хотя Ричард с женой Брэнди мало что понимают в подготовке профессиональных теннисистов, они сами тренировали дочек и как могли ставили им технику. Всемирно (   Читать дальше...   )Производство: США / Overbrook Entertainment, Star Thrower Entertainment, Warner Bros.PicturesЖанр: Биография, спорт, драмаРежиссер: Рейнальдо Маркус ГринАктеры: Уилл Смит, Онжаню Эллис, Санийя Сидни, Деми Синглтон, Джон Бернтал, Тони Голдуин, Микайла Лашэй Бартоломью, Даниэль Лоусон, Лайла Кроуфорд, Эрика РингорПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced hardsub, full) отдельно, Анлийские (full, SDH) отдельноПродолжительность: 02:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4329FA9A5D5DCE6A3E4BC04FB14B689F6E4B0B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674257   (161982) от 04.11.2023
+
+Грани любви / Les enfants des autres / Other People's Children (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161982.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Рашель в жизни все хорошо: она любит своих учеников, друзей, уроки гитары и даже своего бывшего. Однажды она влюбляется в Али и очень привязывается к его 4-летней дочери Лейле. Рашель относится к ней, как к собственной дочери. Правда, своих детей у нее пока нет, а для Лейлы на первом месте всегда будет родная мама. Рашель уже сорок, и с каждым днем она все явственнее (   Читать дальше...   )Производство: Франция / Canal+Жанр: Драма, мелодрама, комедияРежиссер: Ребекка ЗлотовскиАктеры: Виржини Эфира, Рошди Зем, Кьяра Мастроянни, Калли Феррейра-Гонсалвес, Яме Кутюр, Анри-Ноэль Табари, Виктор Лефевр, Себастьен Пудеру, Мишель Злотовски, Мирей ПеррьеПеревод: Дублированный (Футурум)Язык озвучки: Русский, ФранцузскийСубтитры: Французские (Full), Английские (Full)Продолжительность: 01:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBB347742BEE20B069A7986CE5309B444B1B8FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322558.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321859.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319990.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Tamayomi | Тамаёми [2020, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319170.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317008.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315767.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315593.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Pokemon: Advanced Battle (8 Season) / Покемон: Новое Сражени�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315323.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Mnemosyne: Mnemosyne no Musume-tachi / Rin: Daughters of Mnemosyne / Дочер�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314603.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311571.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Meitantei Conan | Detective Conan | Детектив Конан. Фильмы и
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311266.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Triage X / Искусственный отбор [2015, TV, 10 ep] BDRip Hi10p 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308995.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tears to Tiara / Слёзы Тиары / Расколотая Тиара [2009, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307407.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Fune o Amu | Fune wo Amu | Мы создаём корабль | Великое �
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305711.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dragon Ball Super | Драгон Болл Супер [2015, TV, 46 из 131 эп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304570.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304417.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298239.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298237.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298235.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298233.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298231.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ninja Senshi Tobikage / Ninja Warrior Tobikage / Ниндзя-воин Тоби�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291112.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт девочек-волшебни
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290697.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Sunohara-sou no Kanrinin-san / Госпожа заведующая общежи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289610.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Xenosaga: The Animation | Ксеносага [2005, TV, 12 эп.] DVDRip 480p ra
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288898.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288189.jpg" />
 </div>
 
 

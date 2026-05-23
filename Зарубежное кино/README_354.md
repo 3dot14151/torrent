@@ -1,55 +1,3 @@
-###  Публикация: 1490550   (916721) от 21.08.2021
-
-Лиля навсегда / Lilja 4-ever (2002) WEBRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Лиля живет в маленьком бедном городке. Ее мать уехала в Америку с новым любовником, и Лиля ждет, когда ей пришлют приглашение. Не дождавшись от матери ни писем, ни денег, Лиля понимает, что ее бросили. У нее остается единственный друг – 11-летний Володя, с которым они мечтают о лучшей жизни. И однажды у Лили появляется надежда. Она влюбляется во взрослого (   Читать дальше...   )Производство: Швеция, Дания | Det Danske Filminstitut, Film i Väst, Memfis FilmЖанр: Драма, криминалРежиссер: Лукас МудиссонАктеры: Оксана Акиньшина, Артем Богучарский, Любовь Агапова, Лилия Шинкарева, Элина Бененсон, Павел Пономарев, Томас Нойман, Анастасия Бедрединова, Тыну Карк, Николай БенцлерПеревод: Не требуется (русский)Субтитры: Русские (отдельно), английские, французскиеПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B26FE02D74E367CC09117403343495DA4D2E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490487   (916714) от 21.08.2021
-
-Пороховой коктейль / Gunpowder Milkshake (2021) UHD WEBRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Быть киллером — весело и просто. Особенно для Сэм, которая от матери унаследовала талант к заказным убийствам. Но когда девушке приходится пойти наперекор собственному боссу, она становится мишенью целой армии головорезов. К счастью, мама и её бывшие напарницы готовы помочь угостить недоброжелателей своим фирменным «пороховым коктейлем».Производство: Франция, Германия, США / StudioCanal, The Picture Company, Studio BabelsbergЖанр: БоевикРежиссер: Навот ПапушадоАктеры: Карен Гиллан, Лина Хиди, Карла Гуджино, Мишель Йео, Анджела Бассетт, Пол Джаматти, Джо Бобин, Фрейя Аллан, Эд Бирч, Ралф АйнесонПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 01:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC1E44F2499930314019C2A6A7F3384EC2E6F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097028   (916712) от 25.01.2017
 
 Расплата / The Accountant (2016) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916712.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916691.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916663.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916648.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916628.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916593.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916577.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916549.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916520.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_916506.jpg" />
 </div>
 
 
@@ -327,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916484.jpg" />
 </div>
 
 
@@ -353,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916473.jpg" />
 </div>
 
 
@@ -379,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916467.jpg" />
 </div>
 
 
@@ -405,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916437.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916429.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916425.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916423.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916412.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916353.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916345.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916344.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916327.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916277.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916253.jpg" />
 </div>
 
 
@@ -681,6 +629,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18FB5AE40C209735CB61B0FDDFA41D52A5E4D071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633393   (916240) от 22.03.2013
+
+Кукольный дом / Dollhouse (2012) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания хулиганов ночью вламывается в особняк в богатом пригороде Дублина. Вторжение быстро перерастает в безумный шабаш, в процессе которого происходят самые неожиданные открытия, выявляются самые странные и запретные тайны. Эта ночь запомнится всем участникам навечно, оставит несмываемый след в каждом из них, приведет к эмоциональному потрясению, результат которого (   Читать дальше...   )Жанр: ТриллерРежиссер: Кёрстен ШериданАктеры: Шана Керслэйк, Джонни Уорд, Бреннан Кейт, Шэйн Керри, Киаран МакКейб, Джек Рейнор, Дирдри О’Кейн, Питер Гауэн, Конор НириПеревод: Многоголосый закадровыйПродолжительность: 01:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B544402247C9B1F59C877F7A7E8BE0FA402B2AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633577   (916173) от 22.03.2013
+
+Опасный квартал / The Son of No One (2011) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — молодой полицейский, приписанный к участку в районе, где в основном проживает рабочий класс. Герой вырос в этом районе, и теперь, когда он вернулся сюда стражем закона, на поверхности оказался некий секрет, который может уничтожить как семью копа, так и его самого.Жанр: Триллер, Драма, КриминалРежиссер: Дито МонтиельАктеры: Ченнинг Татум, Трэйси Морган, Кэти Холмс, Рэй Лиотта, Жюльет Бинош, Аль Пачино, Джеймс Рэнсон, Урсула Паркер, Брайан Гилберт, Джэйк ЧерриПеревод: Дубляж + Профессиональный (многоголосый закадровый) -Язык субтитров: Русские, Английские (srt)Продолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81067937547C9531C92FB3420052A7B3B09CA69F
 ```
 
 https://mybot314.ru/tekegram_catalog/

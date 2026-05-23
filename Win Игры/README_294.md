@@ -1,29 +1,3 @@
-###  Публикация: 1083933   (271912) от 17.12.2016
-
-Elena (2016) [En/Ge] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Elena - атмосферная игра от первого лица, в которой игрок должен узнать историю одной молодой пары и выяснить, что же случилось с мужем Елены - Леннардом.  В шкафах и ящиках, она будет находить предметы и документы, которые помогут пролить свет на происходящееТип издания: LicenseРазработчик: Catch A CatЖанр: Adventure, 3D, 1rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A566C6D45385FD04E1388DED8E2755B582C4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178962   (271883) от 04.12.2017
 
 RUINER (2017) [Ru/Multi] (1.05b) Repack R.G. Catalyst
@@ -32,7 +6,7 @@ RUINER (2017) [Ru/Multi] (1.05b) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271883.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271684.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ SYNTHETIK: Legion Rising (2018) [Ru/Multi] (21.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271681.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Secret City 3: The Human Threat / Тайный город 3: Неотврати�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271438.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Closers (2019) [Ru] (release-52) License Russian OBT
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271181.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271175.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Jekyll and Hyde / Джекил и Хайд [Ru] (RePack) 2010 | Martin
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271152.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271109.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271020.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Nioh (2017) [Ru/Multi] (1.21.04/u4) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270993.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Spirit Legends: The Forest Wraith (2018) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270960.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Black Mirror (2017) [Ru/Multi] (1.0.0.1005) Repack OneTwo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270951.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ This War of Mine (2014) [Ru/Multi] (4.0.0/dlc) Repack R.G. Revenants [Anniversar
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270936.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270710.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Royal Detective 6: The Last Charm (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270448.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Labyrinths of the World 10: Fool's Gold / Лабиринты Мира 10: Зол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270444.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Rise of Industry (2019) [Ru/Multi] (2.1.0.1211a/dlc) Repack R.G. Механик�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270286.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270205.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ SUNLESS SKIES (2019) [En] (1.3.4) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270202.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270197.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270051.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Sally Face (2016) [Ru/Multi] (1.4.13/dlc) License PLAZA [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269843.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Super Lucky's Tale (2018) [Ru/Multi] (2827966/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269837.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Domina (2018) [En] (1.2.11) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269755.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Hermes 2: War of the Gods / Гермес 2: Война богов (2019) [Ru] (1
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269482.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Hermes 2: War of the Gods / Гермес 2: Война богов (2019) [Ru] (1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0300855151109CD3A97FFB5988F43F44E430EF26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338513   (269386) от 15.11.2019
+
+Some Distant Memory (2019) [Ru/Multi] (1.0.4) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя 300 лет после конца света надежда людей вновь обрести свое прошлое почти угасла. Ваша задача - найти пропавший город Хьюстон с помощью АРОРЫ, мощного ИИ, способного восстанавливать воспоминания людей, анализируя оставленные ими предметы. Вы играете за женщину-профессора, которая ведет поиски провалившегося под землю города Хьюстон. Для нескольких колоний, (   Читать дальше...   )Тип издания: RepackРазработчик: Galvanic GamesЖанр: Adventure, Action, 2DЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F194687CE1ABC86B8D06659C2DF79A72C8BD18F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

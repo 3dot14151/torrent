@@ -6,7 +6,7 @@ Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528399.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526296.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525109.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524748.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524692.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523041.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NASCAR Racing 3 (1999) [En] (1.2.1.7/dlc) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521551.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521020.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520860.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519858.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Syberia / Сибирь [Русификатор] (2002) [ui/dub] License 1С (Л�
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519259.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Original Strife: Veteran Edition (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518955.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518206.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BioShock (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516758.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515814.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514801.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513366.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513226.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ State of War / Военное положение [Ru/En] (RePack) 2001 | RG Game
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513193.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512117.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511155.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ eXtinction / Тотальное истребление [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509064.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508618.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507777.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505892.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505797.jpg" />
 </div>
 
 

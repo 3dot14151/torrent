@@ -1,81 +1,3 @@
-###  Публикация: 1134897   (684859) от 17.05.2017
-
-Сергей Шаргунов | 1993 (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сергей Шаргунов (р. 1980) – прозаик, главный редактор сайта “Свободная пресса”, радиоведущий. Первый роман “Малыш наказан” (премия “Дебют”) был издан, когда автору исполнилось 20 лет, затем появились “Ура!”, “Птичий грипп”, “Книга без фотографий” (шорт-лист премии “Национальный бестселлер”). Шаргунова называют “социальным писателем”. Его новый роман “1993” – семейная (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9E30817C185C34BBEA8DD16D18DA17126EFF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134892   (684848) от 17.05.2017
-
-Валерий Прокофьев | Начальник внешней разведки. Спецоперации генерала Сахаровского (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается документальная повесть о начальнике советской внешней разведки Александре Михайловиче Сахаровском, написанная на основании воспоминаний о нем его современников и коллег по работе и охватывающая события не столь давней истории: довоенный период, годы военного лихолетья и холодной войны. Внешняя разведка, которую на протяжении 16 лет (   Читать дальше...   )Жанр: Биографии. МемуарыПродолжительность: 12:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7767D7465CC19B40AFF6B83D51B0537C39346333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222398   (684825) от 29.04.2018
-
-Наталья Жильцова | Наследница мага смерти (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В руки Инги, археолога-лаборанта, попадает необычная находка: старинное кольцо, которое не числится ни в одном музейном справочнике. Вот только уникальный исторический артефакт к тому же оказывается артефактом магическим. И радость от его активации мгновенно тает, когда Ингу буквально вышвыривает из привычного мира в другой: полный нечисти, опасных тварей и темных (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 09:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B093B64CB93017AE7A287A2C7B105C5CEEFC22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134744   (684702) от 17.05.2017
 
 Владимир Санин | Случай на станции Восток (2017) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684702.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684633.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684588.jpg" />
 </div>
 
 
@@ -168,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684423.jpg" />
 </div>
 
 
@@ -194,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684412.jpg" />
 </div>
 
 
@@ -220,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684316.jpg" />
 </div>
 
 
@@ -248,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684264.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684263.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684165.jpg" />
 </div>
 
 
@@ -328,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684100.jpg" />
 </div>
 
 
@@ -355,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684014.jpg" />
 </div>
 
 
@@ -382,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683870.jpg" />
 </div>
 
 
@@ -408,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683867.jpg" />
 </div>
 
 
@@ -434,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683646.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_683302.jpg" />
 </div>
 
 
@@ -487,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683168.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683049.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683035.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683031.jpg" />
 </div>
 
 
@@ -594,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682913.jpg" />
 </div>
 
 
@@ -620,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682912.jpg" />
 </div>
 
 
@@ -646,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682899.jpg" />
 </div>
 
 
@@ -672,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682870.jpg" />
 </div>
 
 
@@ -683,6 +605,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9E6747D8D7DED55DC05D87D309414AD19D56FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029040   (682747) от 26.06.2016
+
+Вишну Кхандекар Сакарама | Король Яяти (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682747.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу романа классика маратхской литературы Вишну Сахарама (1898-1976) "Император Яяти" положен миф, веками волновавший воображение индийских художников драматизмом ситуации. Кхандекар использует древний миф о силе желаний и непреложности долга для раздумий над проблемами современности.Жанр: РоманПродолжительность: 10:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CA17901EC577A5B5E13EAD23E92170FE68A524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135104   (682661) от 18.05.2017
+
+Терри Пратчетт | Цвет волшебства (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682661.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Цвет волшебства» – первый роман цикла о Плоском мире, подарит нам встречу с туристом Двацветок, его спутником Сундуком и волшебником-неудачником Ринсвиндом. Незадачливой троице предстоит пережить страшный пожар, попасть в храм злого божества Бэл-Шамгарота и побывать в гостях у народа, летающего на воображаемых драконах.Жанр: ФэнтезиПродолжительность: 08:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071E5337934EA83955F367BD7595139E3FCC4D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535863   (682595) от 08.03.2022
+
+Галина Осень | Шестая компаньонка для наследницы (2022) [MP3, Лина Ветлицкая]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вероника потеряла работу и любимого мужчину, но зато неведомым образом оказалась в другом мире. Правда, только душой. И теперь вместе с графиней, в тело которой попала, попробует себя в роли артефактора, компаньонки шустрой дочери герцога, а потом и жены этого самого герцога. Просто надо надеется на лучшее, а худшее нас само найдёт.Жанр: ФэнтезиПродолжительность: 09:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D7B7B4302E000FE7BE268F7DA9A1BDEB92B013
 ```
 
 https://mybot314.ru/tekegram_catalog/

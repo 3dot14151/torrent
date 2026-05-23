@@ -1,84 +1,3 @@
-###  Публикация: 1811241   (16405) от 08.08.2025
-
-Ascold Flow | Релокант в другой мир (Книга 3). #RealRPG. Релокант 3. По следам Ушедшего (2024) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Наш Чел1856397434 (Дмитрий) решил, что большая часть проблем позади и наконец-то можно сделать следующий шаг вперёд. Кто же знал, что этот шаг будет сродни шагу в пропасть?Жанр: Боевое фэнтези, РеалРПГ , ПопаданцыИздательство: ЛитРесПродолжительность: 08:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290BAB634A3287B97E34E97F8563C3446BDD4D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811242   (16404) от 08.08.2025
-
-Ascold Flow | Релокант в другой мир (Книга 4). #RealRPG. Релокант 4. Дорога к вершине (2024) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Турнир сильнейших в самом разгаре и наш Чел становится частью сокрытой от него игры. Послушно исполнить приказ или сохранить верность собственным принципам? Какие последствия будут у его решений? Взойдёт ли он к самой вершине или падёт в адскую бездну?Жанр: Боевое фэнтези, РеалРПГ , ПопаданцыИздательство: ЛитРесПродолжительность: 07:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2662F2126756C35E84BC2F074C66B6775213CECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811243   (16403) от 08.08.2025
-
-Ascold Flow | Релокант в другой мир (Книга 5). #RealRPG. Релокант 5. Основы могущества (2024) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-- Клякса, выдай текст аннотации!
-- Сию секунду!
-*Звук подкатывающего к горлу кома*
-- Всё-всё, бездарь... Не надо. Сам сделаю... Зачищу воооон тот гекс, и сделаю.Жанр: Боевое фэнтези, РеалРПГ , ПопаданцыИздательство: ЛитРесПродолжительность: 08:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55878A70177E13B0FC4774D94E5CAD0D861790A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811244   (16382) от 08.08.2025
 
 Ascold Flow | Релокант в другой мир (Книга 6). #RealRPG. Релокант 6. Я Аид (2024) [MP3, Юрий Мироненко]
@@ -87,7 +6,7 @@ Ascold Flow | Релокант в другой мир (Книга 6). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16382.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ Ascold Flow | Релокант в другой мир (Книга 7). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16381.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ Ascold Flow | Релокант в другой мир (Книга 8). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16380.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ Ascold Flow | Релокант в другой мир (Книга 9). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16379.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ Ascold Flow | Релокант в другой мир (Книга 10). #RealRPG.
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16378.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16377.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16350.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16302.jpg" />
 </div>
 
 
@@ -295,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16301.jpg" />
 </div>
 
 
@@ -321,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16300.jpg" />
 </div>
 
 
@@ -349,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16299.jpg" />
 </div>
 
 
@@ -375,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16298.jpg" />
 </div>
 
 
@@ -401,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16297.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16296.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16295.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16294.jpg" />
 </div>
 
 
@@ -512,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16293.jpg" />
 </div>
 
 
@@ -541,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16292.jpg" />
 </div>
 
 
@@ -570,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16291.jpg" />
 </div>
 
 
@@ -599,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16279.jpg" />
 </div>
 
 
@@ -627,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16270.jpg" />
 </div>
 
 
@@ -656,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16269.jpg" />
 </div>
 
 
@@ -682,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16268.jpg" />
 </div>
 
 
@@ -693,6 +612,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26CA48251159BF0EC222BA837E0DD8E623728796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811291   (16267) от 09.08.2025
+
+Оро Призывающий | Некромант города Москва (Книга 5). Апокалипсис (2024) [MP3, Роман Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Халатность Департамента привела к жутким последствиям - "паутинная чума", созданная Марктолусом, не была уничтожена, а скорость, с которой распространяется магическая зараза, слишком велика, чтобы пресечь её. Казалось бы, Олег имеет все ресурсы и силы, чтобы спасти город... Вот только позволят ли ему сделать это?Жанр: фантастика, боевикИздательство: ЛитРесПродолжительность: 12:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2CB2933501C5998D2B8863EB9E080ACEAF4BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811292   (16266) от 09.08.2025
+
+Оро Призывающий | Некромант города Москва (Книга 6). Революция (2024) [MP3, Роман Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как только исчезает одна проблема - появляются две новые. Казалось бы, всё просто: несколько кланов и одна террористическая организация захотели в суматохе отвоевать свой "кусок пирога". Однако, даже в это время кто-то умудряется вести двойную игру, и чьи-то настоящие планы остаются скрытыми до конца - даже от сильных мира сего.Жанр: фантастика, боевикИздательство: ЛитРесПродолжительность: 11:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE409670570E15AD22115F8B4D67785B31520C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811293   (16265) от 09.08.2025
+
+Оро Призывающий | Некромант города Москва (Книга 7). Власть (2024) [MP3, Роман Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выиграв битву, не обязательно выигрываешь войну. Решив старые проблемы, Некромант получает новые, и всё идёт совсем не так, как хочется Олегу. Москву по-прежнему нельзя назвать мирным местом, и, к тому же, Арлин Майер совсем не намерена терпеть Владыку на "своей" планете. Выход из всего этого, конечно, есть... вот только какой?Жанр: фантастика, боевикИздательство: ЛитРесПродолжительность: 11:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B2D39F98DA89122534D56EA0C5704E30387D7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

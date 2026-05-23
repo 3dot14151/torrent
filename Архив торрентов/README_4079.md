@@ -6,7 +6,7 @@ Children Of The Sun - Roots (2022) [FLAC|Lossless|WEB-DL|tracks] <Retro Hard Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176811.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Calibre 6.28.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176803.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PrivaZer 4.0.59 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176802.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Principle 6 v.6.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176792.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Affinity Photo 1.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176787.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Alt SwitchER 20.1 BETA Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176778.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ JRiver Media Center 31.0.68 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176757.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Registry Finder 2.58 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176742.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Affinity Photo 2 v.2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176740.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Barcode 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176730.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ R-Wipe & Clean 20.0.2424 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176724.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ K-Lite Codec Pack Update 15.9.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176715.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Affinity Publisher 2 v.2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176712.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ PrivaZer (Donors) 4.0.59 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176691.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ PrivaZer 4.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176684.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Luminar Neo 1.5.1 Intl [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176669.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ QOwnNotes 22.12.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176663.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Lacey Free Music & Video Downloader 2.90 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176662.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Imagine 1.3.1 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176660.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Auslogics Disk Defrag Pro 10.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176656.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ FreeFileSync 11.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176648.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Aiseesoft Video Converter Ultimate 10.7.28 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176639.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Google Chrome 108.0.5359.95 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176635.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ACDSee Photo Studio 9 v.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176628.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ MediaHuman YouTube Downloader 3.9.9.50 (0512) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176622.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VueScan Pro 9.7.96 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176619.jpg" />
 </div>
 
 

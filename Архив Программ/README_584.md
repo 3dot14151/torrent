@@ -6,7 +6,7 @@ Wondershare Data Recovery 4.8.0.4 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756912.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Remote Desktop Manager Enterprise 10.5.4.0 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756908.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MusicBee 3.3.7491 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756856.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ K-Lite Codec Pack 15.6.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756854.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NVIDIA GeForce Desktop 451.67 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756850.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ GoodSync Enterprise 10.9.23.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756839.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Icecream PDF Converter Pro 2.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756838.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Autorun Organizer 3.06 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756830.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ashampoo Snap 10.0.8 RePack&(Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756825.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Skype 7.3.60.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756802.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Advanced SystemCare Pro 8.2.0.795 DC 13.04.2015 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756792.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Windows 10 TP Language Pack build 10056 (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756791.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756698.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MAGIX Movie Edit Pro 2019 Premium 18.0.2.235 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756587.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Skype 8.38.0.138 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756583.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ WSUS Offline Update 11.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756582.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Nvidia DriverPack v.418.81 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756575.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ HiBit Uninstaller 2.7.35 + Portable (DC 07.01.2022) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756523.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MediaInfo 18.03.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756486.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ qBittorrent 4.4.0 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756475.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Foxit PhantomPDF Business 9.4.1.16828 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756433.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VSDC Video Editor Pro 6.3.1.939 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756428.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AAct 3.9.9.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756412.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Zoner Photo Studio X 19.1803.2.60 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756352.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ AMD Radeon Software Adrenalin Edition 18.3.4 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756347.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Waterfox 56.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756346.jpg" />
 </div>
 
 

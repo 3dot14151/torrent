@@ -7,7 +7,7 @@ Dasu - LMAO (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068418.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Audio Testing Guide Test Machine No. 1 (2008) K2HD mastering [WAV|Lossless|
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067060.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ PinocchioP - Best Album 2009-2020 Kotobuki (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018570.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Yoshio Kimura - Romantic Tunes Collection (2012) 2CD [FLAC|Lossless]<Guitar, Ins
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860913.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Maki Goto - 4 albums + 3 Eps (2003-2011) [FLAC|Lossless]<JPop,dance,hello projec
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_832102.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Yuki Murata - Piano Fantasia (2018) Ricco Label [FLAC|Lossless|tracks + .cue] <M
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798690.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Yuki Murata - Home (2006) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Clas
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787581.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Akisai - Colors (2014) [FLAC|Lossless|tracks] <Electronic, Ambient, Instrumental
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775998.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ai Aso - The Faintest Hint (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Fol
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763682.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yuki Murata - Gift (2014) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Clas
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749824.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Moder
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748058.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Tadaaki Otaka - Takemitsu: How Slow the Wind (2001) [FLAC|Lossless|image + .cue]
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727115.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Akisai - Images (2015) [FLAC|Lossless|tracks] <Electronic, Instrumental, Ambient
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713675.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Vocalohistory (2017) [FLAC|Lossless|image+.cue] <J-Pop, Vocaloid>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682530.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Night Tempo - Showa Idol's Groove (2019) [FLAC|Lossless|WEB-DL|tracks] <Vaporwav
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676024.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Night Tempo - Pure Present (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Cit
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670352.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Mari Natsuki - 13 Chansons (1998) [FLAC|Lossless|tracks + .cue] <Bossa Nova, Con
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634041.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Susheela Raman - Ghost Gamelan (2018) [FLAC|Lossless|WEB-DL|tracks] <Ethnic, Fol
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631817.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Logic System (Hideki Matsutake) - Orient Express (1982) CD, Album, 1983, Express
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602233.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Mitch Murder - Selection 5 (2018) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583137.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ MACROSS 82-99 - Idol, Sakura (2017) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Nu
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583084.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Anokthus — 3 альбома (2013-2017) [FLAC|Lossless|tracks] <Industrial, Te
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553485.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Remember - Route back home (2015) [FLAC|Lossless|WEB-DL]<Ambient, Cyberpunk, Dre
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521465.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossl
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444608.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - NieR: Automata Original Soundtrack (2017) [FLAC 2.0 24/48|Lossless|tracks] 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352850.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|t
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346467.jpg" />
 </div>
 
 

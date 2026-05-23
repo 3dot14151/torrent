@@ -1,55 +1,3 @@
-###  Публикация: 1041750   (581339) от 10.08.2016
-
-Кровь и кость / Blood and Bone (2009) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После выхода на волю, бывший заключённый Исай Бон (Майкл Джей Уайт) по кличке "Кость" снимает себе комнату и начинает участвовать в уличных драках, в глухих переулках Лос-Анджелеса, чтобы выполнить обещание данное другу, убитому в тюрьме. Он быстро становится чемпионом в нелегальных боях и бросает вызов местному гангстеру Джеймсу, который намерен использовать (   Читать дальше...   )Производство: США / Remarkable FilmsЖанр: Боевик, ДрамаРежиссер: Бен РэмсиАктеры: Майкл Джей Уайт, Джулиан Сэндс, Имонн Уолкер, Данте Баско, Нона Гэй, Мишель Белергин, Боб Сапп, Дик Энтони Уильямс, Фрэнсис Капра, Рон Йуан, Кевин «Кимбо Слайс» Фергюсон, Джина Карано, Морис Смит, Эрнест Миллер, Кевин ФиллипсПеревод: Двухголосый закадровый, любительскийЯзык субтитров: АнглийскийПродолжительность: 01:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11A6BDCE948331B5EF6B4E52E196ACD303442F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810819   (581327) от 07.08.2014
-
-Восемь баскских фамилий / Ocho apellidos vascos (2014) BDRemux [1080p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Картина рассказывает о странствиях Рафа, андалузца чистой виноградной лозы, который никогда не покидал своей родной и любимой Севильи, так как она давала ему все, что нужно для жизни — хорошее вино, гель для волос и женщин. В один прекрасный день жизнь Рафа меняется, после того, как он встречает первую женщину, устоявшую перед его обаянием — басконку Амайю. Чтобы (   Читать дальше...   )Производство: Испания / Kowalski Films, Telecinco CinemaЖанр: КомедияРежиссер: Эмилио Мартинес Ласаро / Emilio Martínez LázaroАктеры: Клара Лаго, Дэни Ровира, Кармен Мачи, Карра Элехальде, Альберто Лопес, Альфонсо Санчес, Айтор Масо, Абель Мора, Мириам КабесаПеревод: Одноголосый закадровый (авторский)Озвучка / Автор перевода: А. АлексеевСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанскийПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2722D41FD4DF3B300B0AEF5B58E82B021765E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041786   (581287) от 10.08.2016
 
 План Мэгги / Maggie's Plan (2015) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581287.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581286.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581275.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581233.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581232.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581190.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581189.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581185.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581007.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580938.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580858.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580848.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580793.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580781.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580767.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_580754.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580748.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580746.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580703.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580697.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580693.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580692.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580675.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580600.jpg" />
 </div>
 
 
@@ -673,6 +621,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360305   (580555) от 07.07.2011
+
+Меняющие реальность / The Adjustment Bureau (2011) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580555.jpg" />
+</div>
+
+
+###  Подробнее
+
+По рассказу Филипа К. Дика «Команда корректировки».
+Волею случая конгрессмен Дэвид Норрис узнает, что мир движется по заранее написанному плану, за исполнением которого следят работающие в неком Бюро Корректировки люди в шляпах, обладающие сверхъестественными способностями. Как назло, план не предусматривает дальнейших пересечений с балериной Элизой, в которую политик (   Читать дальше...   )Производство: США, Universal Pictures, Media Rights Capital (MRC), Gambit PicturesЖанр: Фантастика, Триллер, МелодрамаРежиссер: Джордж НолфиАктеры: Мэтт Дэймон, Эмили Блант, Энтони Маки, Джон Слэттери, Теренс Стэмп, Майкл Келли, Энтони Руйвивар, Дэвид Бишинс, Джонни Чикко, Брайан Хейли, Донни Кешаварц, Флоренс Кастринер, Филис Макбрид, Лори ДоунПеревод: ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:45:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042096   (580378) от 11.08.2016
+
+Dом Zомби / Wicked Little Things (2006) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карен и ее дочерям Саре и Эмме досталось в наследство небольшое поместье в окрестностях маленького шахтерского городка в Пенсильвании. Дом оказался просторным и милым, но Карен и девочек не оставляет чувство необъяснимой тревоги. В первую же ночь Карен просыпается в холодном поту: ей приснились умершие дети, будто бы не из нашего времени... В подвале дома женщина (   Читать дальше...   )Производство: США / Millennium Films, Nu Image Films, Sandstorm FilmsЖанр: Ужасы, Фэнтези, ДрамаРежиссер: Дж.С. КардонеАктеры: Лори Хёринг, Скаут Тэйлор-Комптон, Хлоя Грейс Морец, Джеффри Льюис, Бен Кросс, Крэйг Вай, Крис Джамба, Джули Роджерс, Мартин МакДугалл, Майкл МакКой, Велизар Бинев, Helia GrekovaПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA4EFEDE4D8D44797F804CB57B9320A3826F6C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

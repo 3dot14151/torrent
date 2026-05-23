@@ -6,7 +6,7 @@ Allavsoft Video Downloader Converter 3.16.9.6974 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753476.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Comodo Dragon 72.0.3626.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753475.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinSnap 5.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753474.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Techsmith Snagit 12.3.2 Build 2909 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753462.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Malicious Software Removal Tool 5.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753457.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Java SE Runtime Environment 8.0 Update 45 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753455.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mp3tag 3.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753452.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ LosslessCut 3.23.8 Portable (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753450.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753449.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinNc 7.5.0.0 RePack by HakerStars [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753424.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Artlantis Studio 6.0.2.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753418.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ HyperDock 1.8.0.9-dev [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753412.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TG Pro (Temperature Gauge Pro) 2.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753411.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ RegCool 1.305 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753407.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ IP Scanner Pro 4.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753403.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ HDCleaner 2.012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753399.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ HitPaw Screen Recorder 1.3.2.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753395.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Cockos REAPER for Mac v6.45 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753384.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ApowerREC 1.5.4.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753375.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Acretongue - Discography 5 Releases (2004-2019) [MP3|320 Kbps] <Industrial, Synt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753369.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Google Chrome 72.0.3626.96 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753365.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Path Finder 8.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753361.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Loaris Trojan Remover 3.0.77.212 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753359.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Google Chrome 72.0.3626.96 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753357.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VueScan Pro 9.6.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753356.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Soft Organizer Pro 7.43 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753355.jpg" />
 </div>
 
 

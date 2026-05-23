@@ -6,7 +6,7 @@ Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223969.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223101.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ One Punch Man: Road to Hero / Ванпанчмен: Путь к становле
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221622.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221295.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tiger & Bunny 2 | Тигр и Кролик 2 [2022, Web, 25 эп.] WEBRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221232.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Hajimari no Boukensha-tachi: Legend of Crystania | Legend of Crystania: The Moti
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221217.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Levius | Левиус [2019, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221143.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. + OVA] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220902.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_220782.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219616.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Как я стала мальчиком-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218656.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ninja Collection / Коллекция ниндзя [2020, TV, 13] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217899.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Bungou Stray Dogs (2016) | Великий из бродячих псов [ТВ-2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217339.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Bloodivores | Кровопийцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217332.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ The Big O | Большой О [1999, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216566.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Yuukai Anna | Anna (Kidnapper) | Анна-похитительница [2018, Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216198.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Mirai Nikki (2011) | The Future Diary | Дневник будущего [ТВ] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215508.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Angel Densetsu | Angel Legend | Легенда об Ангеле [1996, OVA, 2 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215482.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Dragon Ball GT / Dragonball GT / Драгонболл ГТ [1996, TV, 64 + sp] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215152.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Dragon Ball / Dragonball / Драгонболл [1986, TV, 153] DVDRip 540p Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215059.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dragon Ball Z / Dragonball Z / Драгонболл Зет [1989, TV, 291 + 2 SP
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214907.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Gundam-san | Гандам-сан [2014, TV, 13 из 13] HDTV 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214903.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213882.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213867.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213863.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213797.jpg" />
 </div>
 
 

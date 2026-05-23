@@ -1,56 +1,3 @@
-###  Публикация: 1325064   (220461) от 04.12.2019
-
-Terraria 1.3.0.7.7 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-КОПАЙТЕ! СРАЖАЙТЕСЬ! ИССЛЕДУЙТЕ! СТРОЙТЕ! Присоединяйтесь к сообществу из миллионов террариан!
-ТЕРРАРИЯ ДЛЯ МОБИЛЬНЫХ УСТРОЙСТВ ПЕРЕДЕЛАНА С НУЛЯ — НОВАЯ И УЛУЧШЕННАЯ, ТЕПЕРЬ С КОНТЕНТОМ ИЗ ЛЕГЕНДАРНОГО ОБНОВЛЕНИЯ 1.3! «Это полная версия Terraria, но полностью переделанная... Если вам нравилась эта игра на ПК или консоли, вы полюбите и эту мобильную версию», — Slide (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 12.09.2019Разработчик: 505 GamesПоддерживаемая ОС: AndroidЖанр: Квесты, приключения, РПГЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24615A1B1822D463C84C71243C407C25AFEAFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425657   (220280) от 21.11.2020
-
-Rally Fury  v1.71 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Rally Fury - Extreme Racing – отличный симулятор ралли, который подарит вам незабываемые эмоции и несколько часов игрового процесса.Тип издания: ПираткаРелиз состоялся: 21 ноября 2020 г.Разработчик: Refuel Games Pty LtdПоддерживаемая ОС: Android 4.1 и вышеЖанр: Racing (Гонка), Simulation (Симулятор)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8941F6C4C052AEDEA9D72D7504B8A8E6257833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058581   (219832) от 18.12.2016
 
 Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
@@ -59,7 +6,7 @@ Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219832.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ Fitness Point Pro v2.8.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219515.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218772.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218559.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ Sygic navigation GPS offline 20.9.4 Premium (Ru/Multi)
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218200.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ Swamp Attack 2 v1.0.0.125 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216030.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ Don't Starve: Shipwrecked v1.28 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215850.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215397.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ GymRun 10.0.1 Premium Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215018.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214739.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ Luminous - Poweramp Skin 8.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214637.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ Photomath Plus 8.27.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214355.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214253.jpg" />
 </div>
 
 
@@ -405,7 +352,7 @@ Dolby ATMOS For Android (D4A) - Большой сборник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213569.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ Computer Launcher Win 10 Prime v4.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213411.jpg" />
 </div>
 
 
@@ -457,7 +404,7 @@ TapScanner v2.7.47 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213401.jpg" />
 </div>
 
 
@@ -486,7 +433,7 @@ F-Secure FREEDOME VPN v2.7.4.9292 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213395.jpg" />
 </div>
 
 
@@ -513,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213361.jpg" />
 </div>
 
 
@@ -541,7 +488,7 @@ Voice Translator. Translate v1.5.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213358.jpg" />
 </div>
 
 
@@ -567,7 +514,7 @@ Lockscreen Widgets 1.18.1 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213040.jpg" />
 </div>
 
 
@@ -593,7 +540,7 @@ NashStore 0.0.6 + Lite-Mod by Алексей МОДНЫЙ + ATV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213033.jpg" />
 </div>
 
 
@@ -622,7 +569,7 @@ IP Webcam Pro 1.15.0r.768 Mod by Android+ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212966.jpg" />
 </div>
 
 
@@ -648,7 +595,7 @@ Quasar IN-8: Виджет часов v1.5.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212914.jpg" />
 </div>
 
 
@@ -675,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212892.jpg" />
 </div>
 
 
@@ -686,6 +633,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2824E90BABF4144B6D1058D9E14996BFE78894D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561391   (212857) от 04.07.2022
+
+Nova Launcher Prime 7.0.57 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nova Launcher - это мощная, настраиваемая и универсальная замена вашего рабочего стола на Android устройстве. Если вы хотите гибкий рабочий стол с множеством возможностей или ищете более чистый и быстрый лаунчер, Nova - это решение. Nova предлагает расширенные функции рабочего стола, но по-прежнему остается отличным и удобным выбором для всех.Тип издания: ProРелиз состоялся: 16.12.2021Разработчик: TeslaCoil SoftwareПоддерживаемая ОС: Android 8.0+ / 11.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F878B6AB9A2608F25F6D7371D84D04B1778C363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562780   (212717) от 10.07.2022
+
+2Do - Reminders & Task Planner 2.15 Mod by Scream [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: Pro (Unlocked)Релиз состоялся: 08.04.2020Разработчик: Beehive InnovationsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1778FDB9EE5AEEF209E27C2EBE26A45B67110A
 ```
 
 https://mybot314.ru/tekegram_catalog/

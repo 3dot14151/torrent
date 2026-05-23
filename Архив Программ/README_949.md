@@ -6,7 +6,7 @@ Vivaldi 1.0.233.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569860.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SuperEasy Registry Cleaner 1.0.65.1949 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569844.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Care 365 Pro 3.75.335 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569838.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SuperEasy Video Converter 3.0.5173 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569819.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Coolmuster PDF Creator Pro 2.1.11 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569796.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SuperEasy 1-Click Backup 1.15 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569790.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SuperEasy Live Defrag 1.0.5.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569777.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SuperEasy Photo Booster 1.1.3056 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569770.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ProgDVB 7.10.2 Professional Edition + Channels [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569756.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ashampoo Photo Commander 12.0.13 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569748.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.30.3500 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569739.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Google Chrome 44.0.2403.125 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569736.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.30.3500 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569726.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Coolmuster PDF Creator Pro 2.1.11 Portable by Sn!pEr [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569702.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.30.3500 Final Portable [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569674.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Subtitle Edit 3.4.7 build 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569672.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MakeMKV 1.9.5 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569670.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Anti Porn 23.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569620.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ashampoo Anti-Virus 2015 1.2.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569619.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Windows Repair (All In One) 3.3.0 Pro + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569611.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ IP-TV Player 0.28.1.8838 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569608.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Hex Editor Neo Ultimate Edition 6.11.00.5363 Portable by PortableWares [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569559.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ PROMT for Microsoft Office 10 Build 9.0.526 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569553.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BlueStacks App Player 0.9.34.4500 (KitKat 4.4.2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569541.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ ESET Smart Security 8.0.319.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569538.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Any Video Converter Professional 3.4.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569487.jpg" />
 </div>
 
 

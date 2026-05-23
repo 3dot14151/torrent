@@ -6,7 +6,7 @@ Meru Hevun / Mar Heaven: Marchen Awakens Romance / Небеса МАР [2005, TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545562.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai / Ao-chan Can't Study! / Похотли�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545067.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mudazumo Naki Kaikaku: The Legend of Koizumi | Легенда о Коидзум�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544716.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aokana | Four Rhythm Across the Blue | Ao no Kanata no Four Rhythm | Четыр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544544.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gakuen Tokusou Hikaruon / Campus Special Investigator Hikaruon / Хикаруо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543799.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mushishi Zoku Shou: Suzu no Shizuku / Мастер Муси: Капли коло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542547.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dragon Crisis! / Драконий кризис! [2011, TV, 12] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540702.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Bakuman. 2 / Бакуман [ТВ-2] [2011, TV, 25 из 25] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540236.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Vampire Wars / Войны вампиров [1990, OVA] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540048.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Cleopatra DC / Клеопатра Ди-Си [1989, OVA, 3 ep.] Remastered DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540043.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Namu Amida Butsu! Utena | Да здравствует Амитабха [2019, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539625.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539488.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 OVA / Konosuba OVA 2 / Этот зам�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538693.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Reikenzan: Eichi e no Shikaku / Гора Священного меча: Банк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538481.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538461.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538350.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Sin: Nanatsu no Taizai / Прегрешение: Семь смертных гр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538325.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Grimms Notes The Animation | Заметки Гримм [2019, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538113.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Dog Days | Жаркие деньки | Собачья жизнь [ТВ-1] [2011,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538024.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Genmu Senki Leda | Fantastic Adventure Of Yohko: Leda | Леда: Фантаст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538019.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537680.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. Heart | Наука влюбле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537056.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Natsufuku no Shoujo-tachi / Girls in Summer Clothes / Девочки в летн
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536561.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kill Me Baby | Убей меня, детка [ТВ] [2012, TV, 13 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536320.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dog Days' | Жаркие деньки | Собачья Жизнь [ТВ-2] [2012
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536309.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Dance Dance Danseur | Танцуй, танцуй, танцор [2022, TV, 11 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535352.jpg" />
 </div>
 
 

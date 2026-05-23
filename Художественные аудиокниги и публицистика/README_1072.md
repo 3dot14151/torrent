@@ -1,81 +1,3 @@
-###  Публикация: 1810491   (17262) от 04.08.2025
-
-Юрий Никитин | Контролер (Книга 6). Порвали парус (2023) [MP3, Александра Арефьева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-И все-таки Комитет по спасению Человечества нужно было создать раньше. Не успели многое. Страшное оружие, перед которым ядерное смотрится детской игрушкой, сработало. Команды спасателей отчаянно ищут варианты спасения уцелевших. Промедление смерти подобно, планета стремительно погружается в хаос. Доктор наук Лавронов, со скальпелем в одной руке и пистолетом в другой, (   Читать дальше...   )Жанр: фантастикаИздательство: ЛитРесПродолжительность: 09:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE80FE1062E7313C555ED6500D611ACD5313A6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810493   (17261) от 04.08.2025
-
-Ивар Рави | Реквием: Инициация. (Книга 1) (2025) [MP3, Артем Чугуев (CHUGA)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-И все-таки это случилось: ядерная война, гибель величайших достижений, крушение вековых устоев и катастрофический регресс. Посреди этого хаоса группа единомышленников ищет спасения вдали от крупных городов, превратившихся в радиоактивные кладбища. Но сама война не самое страшное - страшнее то, что она делает с людьми, выворачивая наизнанку все низменные пороки и (   Читать дальше...   )Жанр: фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 08:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A81ED9A895B8133A6BB6C037645EFE85746489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810513   (17235) от 03.10.2025
-
-Виктор Молотов, Алексей Аржанов | Токийский лекарь. Спасите меня, Кацураги-сан! (Книги 1-10) (2024-2025) [MP3, Сергей Кальницкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Кацураги Тендо работает стажёром в больнице самого бедного района Осаки. Он весь в долгах, а наставник не подпускает к пациентам. Но всё меняется, когда в его тело попадает целитель! Это необычный путь к вершине, где главный герой думает в первую очередь своей головой! И Кацураги Тендо придётся доказать чего он стоит. Но как это сделать, когда на новом месте работы (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 80:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB01D8F3129F6ECCA933DE19AFB95F787746B192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810516   (17214) от 05.08.2025
 
 Виктор Молотов, Игорь Алмазов | Жизнь Лекаря с нуля. Мечников. (Том 2). Клятва лекаря (2025) [MP3, Радион Нечаев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17214.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17213.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17212.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17211.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17210.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17209.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17208.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17207.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17206.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17205.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17204.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17203.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17202.jpg" />
 </div>
 
 
@@ -423,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17201.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17200.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17199.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17178.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17177.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17176.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17173.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17172.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17171.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17150.jpg" />
 </div>
 
 
@@ -668,6 +590,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A874B617B33A405EC1575B75C6DC8A22FD159BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810573   (17149) от 05.08.2025
+
+Эрли Моури | Ваше Сиятельство. (Книга 7) (2024) [MP3, Борис Павлюков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17149.jpg" />
+</div>
+
+
+###  Подробнее
+
+О чем, вы уже знаете, да?) Из аннотации к первой книге: «Он рождался и умирал много раз, впрочем, как все мы. Но есть разница: он помнит все прошлые жизни, их бесценный опыт. С этим опытом и огромными возможностями он уже больше, чем человек....»Саше пытается разрушить планы князя Козельского. Одновременно Элизабет ищет способ вырваться из Британии. Все в ожидании (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 09:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE7F4EAAC9418B8D0DB52CF996FAD64A6DD7620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810574   (17148) от 05.08.2025
+
+Эрли Моури | Ваше Сиятельство. (Книга 8) (2024) [MP3, Борис Павлюков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмая книга из цикла «Ваше Сиятельство» Из аннотации к первой книге: «Он рождался и умирал много раз, впрочем, как все мы. Но есть разница: он помнит все прошлые жизни, их бесценный опыт. С этим опытом и огромными возможностями он уже больше, чем человек. Вот пришло время: теперь новая смерть и новая жизнь, предстоит выбрать привлекательное тело для нового воплощения. (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 08:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DE77F195CF7801E163BF94CB5FFA3B03A97776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810575   (17147) от 05.08.2025
+
+Эрли Моури | Ваше Сиятельство. (Книга 9) (2024) [MP3, Борис Павлюков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17147.jpg" />
+</div>
+
+
+###  Подробнее
+
+О чем, вы уже знаете, да?) Из аннотации к первой книге: «Он рождался и умирал много раз, впрочем, как все мы. Но есть разница: он помнит все прошлые жизни, их бесценный опыт. С этим опытом и огромными возможностями он уже больше, чем человек....»Продолжение горячей истории графа Елецкого.Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 09:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FAB325E16A7FC5923EB1AC214930D99D964779
 ```
 
 https://mybot314.ru/tekegram_catalog/

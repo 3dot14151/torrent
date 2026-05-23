@@ -7,7 +7,7 @@ Yichang Shengwu Jianwenlu | Journal of the Mysterious Creatures | Дневник
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047279.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Yao Jing Zhong Zhi Shou Ce | Planting Manual | Руководство по се�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046927.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wan Jie Xian Zong | Страна десяти тысяч чудес [2020, TV, 4
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029447.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Pumpkin Scissors / Тыквенные ножницы (2006, TV, 24 эп.) DVDRip
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026171.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wu Shang Shen Di | Supreme God Emperor | Непревзойдённый царь
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020534.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Chang Jian Feng Yun | Zhang Jian Feng Yun | Chang Jian Fengyun | Длинный 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019031.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Shan He Jian Xin | Thousand Autumns | Душа меча Гор и Рек | Ме�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016028.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Da Shen Xian | Wo Shi Da Shenxian | I Am A Great God | I'm immortal! | Я вел
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011384.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Yi Nian Yong Heng | A Will Eternal | Вечная воля [2020-2021, TV, 52 и
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005850.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ling Jian Zun | Spirit Sword Sovereign | Владыка духовного ме�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001618.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Krokodil Gena / Крокодил Гена [1969,OVA]
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941475.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887505.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Wu Shen Zhu Zai | Wushen Zhuzai | Боевой мастер | Повелител
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885310.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mutsu Enmei Ryuu Gaiden: Shura no Toki / Shura no Toki - Age of Chaos / Врем
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882421.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Wanmei Shijie | Wan Mei Shi Jie | Perfect World | Идеальный мир | Б
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855708.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Yuan Long | First Dragon | Юань Лун | Эпоха Дракона [2020-202
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843900.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Mibao zhi guo | The Country Of Rare Treasure | Страна таинственн
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802488.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Can Ci Pin: Fangzhu Xingkong | The Defective | Дефектные: Доступ 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793524.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Space Fantasia 2001 Yoru Monogatari / Space Fantasia 2001 Nights / Космич�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761943.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Princess Army: Wedding Combat / Принцесса Арми: Свадебный 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698575.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644446.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Hinako Note / Дневник Хинако [2017, TV, 12] WEB-DL 720p HS
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623165.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Sekai no Yami Zukan / The World Yamizukan / Тёмная книга мира [20
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614139.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534030.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Tanin no Kankei / Homeroom Affairs / Классный роман [1994, OVA, 2 e
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482480.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Wang Gu Shenhua Zhi Tian Xuan Zhe | Metaman | Метачеловек: избра
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429076.jpg" />
 </div>
 
 

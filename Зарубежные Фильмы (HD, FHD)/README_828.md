@@ -1,55 +1,3 @@
-###  Публикация: 685468   (212515) от 15.07.2022
-
-Мой любимый марсианин / My Favorite Martian (1999) WEB-DL [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Веселые приключения начались в тот день, когда честолюбивый репортер Тим О`Хара наткнулся на марсианина, который только что совершил вынужденную посадку на землю. Поняв, что в его руки попал самый сенсационный материал за всю историю человечества, Тим замышляет разоблачить марсианина, принявшего человеческий облик под именем «дяди Мартина». Однако невероятные проделки (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: фантастика, комедия, семейныйРежиссер: Дональд ПитриАктеры: Кристофер Ллойд, Джефф Дэниелс, Элизабет Хёрли, Дэрил Ханна, Уоллес Шоун, Кристин Эберсоул, Майкл Лернер, Рей Уолстон, Шелли Мэлил, Джереми ХотцПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced)Продолжительность: 01:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EBAD404F43B8C8F9C61C1F514E12E4BF998C8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563993   (212500) от 16.07.2022
-
-Заложник-изгой / Rogue Hostage (2021) BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Кайл Сноуден, отец-одиночка и бывший морской пехотинец, привыкает к мирной жизни и борется с постравматическим расстройством, когда вместе с дочерью оказывается среди заложников в местном магазине, принадлежащем Сэму Нельсону — конгрессмену и отчиму Кайла. Чтобы спасти свою семью и других заложников, Кайлу предстоит вступить в схватку с террористами и собственными (   Читать дальше...   )Производство: США / Yale Productions, BondIt Media Capital, Buffalo 8 ProductionsЖанр: боевик, триллерРежиссер: Джон КейесАктеры: Тайриз Гибсон, Кристофер Бакус, Джон Малкович, Майкл Джей Уайт, Брэнди Браво, Луна Лорен Велес, Холли Тейлор, Зани Джонс Мбаис, Carlos S. Sanchez, Fedna JacquetПеревод: Многоголосый профессиональный (Телеканал НТК)Субтитры: АнглийскиеПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E9716B24CD52E915B4C50ED9E979F457FB6F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320202   (212466) от 17.07.2022
 
 Семья / Family (2018) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212466.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212460.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212448.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212442.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212422.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212414.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212407.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212405.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212402.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212395.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212383.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212367.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212357.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212347.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212341.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212340.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212339.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212334.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212326.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212323.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212322.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212315.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212313.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212310.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74452BFF1A740EB27F9A2CA8256A586303418569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485608   (212299) от 22.07.2022
+
+Банда Келли / Ned Kelly (2003) HDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выходец из бедной семьи ирландских эмигрантов, сосланных в Австралию, Келли испытал на своей шкуре несправедливость колониальных властей и жесткость полицейских. Сколотив банду, куда вошли его родной брат Дэн и двое друзей - Джо и Стив, Келли принялся грабить банки в штате и быстро стал героем народных масс. Однажды они три дня держали в страхе целый городок. За (   Читать дальше...   )Производство: Австралия, Великобритания, США, Франция, Australian Film Finance Corporation (AFFC), Endymion Films, StudioCanalЖанр: боевик, мелодрама, криминал, приключения, вестерн, биография, историяРежиссер: Грегор ДжорданАктеры: Хит Леджер, Орландо Блум, Джеффри Раш, Наоми Уоттс, Джоэл Эдгертон, Лоуренс Кинлан, Фил Барантини, Керри Кондон, Крис МакКвейд, Эмили БраунингПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 01:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE502E6D9E6D15056025C867888F6236C748563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565174   (212294) от 22.07.2022
+
+В ловушке / Запертые / Locked In (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать-одиночка изо всех сил пытается свести концы с концами, проживая со своей дочерью-подростком в захудалом мотеле. Однажды на складе, где работает Мэгги, они случайным образом оказываются свидетелями подозрительной сделки между боссом и двумя преступниками. Женщине предстоит защитить себя и свою дочь от коварных убийц, которые ни перед чем не остановятся, пока (   Читать дальше...   )Производство: США / Premiere Entertainment Group, No Parachute Films, BondIt Media CapitalЖанр: Триллер, драма, криминалРежиссер: Карлос В. ГутьерресАктеры: Мена Сувари, Джаспер Полиш, Джефф Фэйи, Мэнни Перес, Костас Мэндилор, Бруно Бичир, Натали Смит, Джеймс Бибери, Джоэнн Ламштейн, Стефани УиверПеревод: Дублированный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full)Продолжительность: 01:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D74F0C97BBD4A4C20D6B5177DFB1CA69219200
 ```
 
 https://mybot314.ru/tekegram_catalog/

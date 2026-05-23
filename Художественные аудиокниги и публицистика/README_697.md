@@ -1,81 +1,3 @@
-###  Публикация: 1605806   (237625) от 19.01.2023
-
-Галина Гончарова | Средневековая история (Книга 7). По праву короля (2022) [MP3, Татьяна Черничкина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В Уэльстере вспыхивает мятеж – и свою цену, цену крови и жизни платит его величество Гардвейг. Мчится, не успевая из ссылки его друг и брат, Альтрес Лорт, но спасать – поздно. Остается только мстить. Хаос мятежа разлучает графа и графиню Иртон. Лилиан бежит вместе с королевой Милией, пытаясь спасти и ее, и принцев. Тем временем граф выбирается из охваченного мятежом (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 12:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFBD0F6C71BA7219C50A414C4A5C4F2339E3CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626561   (237605) от 15.04.2023
-
-Татьяна Степанова | Детектив-триллер (Книга 8). Флердоранж - аромат траура (2023) [MP3, Анна Чинцова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Почему на этом огромном поле, где мирно колосится рожь, людей охватывает первобытный ужас? Почему именно на нем нашли расчлененные тело бизнесмена а год спустя напали на молодоженов и зверски убили счастливого мужа? Что заставляет приходить сюда модного живописца, участкового милиционера, бывшего солдата-наемника? Загадка этого поля, о котором ходят столько мрачных (   Читать дальше...   )Жанр: ДетективПродолжительность: 04:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D051B0074304F99D3153E3D7F305E6D610CF676A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629909   (237595) от 28.04.2023
-
-Юрий Тарарев, Александр Тарарев | Последний вздох (Книга 5). Безумие апокалипсиса (2023) [MP3, Александр Иванов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Противостояние Кибдиго и Джао выходит на новый уровень. Джао уже не считаются ни с какими потерями, а Кибдиго внезапно обретают нового, сильного союзника. Борьба продолжается и грозит быть разрушительной для обеих сторон.Жанр: ФантастикаПродолжительность: 06:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9EDD636B18D24F37C7C621F21D043429CF1D954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630344   (237594) от 30.04.2023
 
 Бром | Крампус, Повелитель Йоля (2023) [MP3, Mortem Populo]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237594.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237581.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237565.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237549.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237544.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237524.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237520.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237516.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237506.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237504.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237491.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237482.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237452.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237444.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237397.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237354.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237349.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237328.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237310.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237270.jpg" />
 </div>
 
 
@@ -616,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237244.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237225.jpg" />
 </div>
 
 
@@ -672,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237118.jpg" />
 </div>
 
 
@@ -685,6 +607,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0041637FC36544F7CA18FA867BACAA4C576B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639531   (237079) от 13.06.2023
+
+Лия Арден | Невеста Ноября (2022) [MP3, Ксения Бржезовская]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама нарекла меня Ярой, в честь яркого солнца, которое отражается от снежного покрова. Но откуда ей было знать, как выглядит снег, если зимы нет уже сотни лет?
+Единственное место, где ещё сохранились холода, – это проклятый лес. Там живёт последний декабрьский колдун, из-за которого зима может однажды вернуться. Люди всеми силами пытаются этому помешать, принося (   Читать дальше...   )Жанр: Любовное фэнтези, русское фэнтезиПродолжительность: 12:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7D35972ABB8491BA0F6BAFF4493775D8083252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452068   (237058) от 05.03.2021
+
+Андреас Штайнхёфель | В центре Вселенной (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Близнецы Фил и Диана и их мать Глэсс приехали из-за океана и поселились в доставшееся им по наследству поместье Визибл. Они – предмет обсуждения и осуждения всей округи. Причин – море: сейчас Глэсс всего тридцать четыре, а её детям – по семнадцать; Фил долгое время дружил со странным мальчишкой со взглядом серийного убийцы; Диана однажды ранила в руку местного хулигана (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 14:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308348C09A6C714772F617E4D4CDBD14B9498F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639408   (237048) от 13.06.2023
+
+Карен Линч | Воины света (Книга 1). Неумолимая (2023) [MP3, Наталья Коршун]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Сары изменилась десять лет назад, когда ее отца жестоко убили. Семнадцатилетнюю девушку все еще преследуют воспоминания о том дне, а желание узнать правду не покидает ни на секунду. Сара верит в существование сверхъестественного и обладает загадочной способностью исцелять магических существ. Когда в Портленде, городе, населенном оборотнями, вампирами и демонами, (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 12:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1CC147EEDBCC7193B315599B101518E513EEDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

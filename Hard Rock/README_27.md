@@ -6,7 +6,7 @@ Barbe-Q-Barbies - All Over You (2010) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277061.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Niva - Atmospherical (2016) Japanese Edition [MP3|320 Kbps] <Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275919.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Snakes in Paradise - 6 альбомов (1994-2002) [MP3|320 кб/с]<Melodic Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275786.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Amish - Amish (1972) 2007, Second Harvest [MP3|320 Kbps] <Hard Rock, Prog Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274750.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Zepparella - Live At 19 Broadway (2006) Tribute to Led Zeppelin [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274696.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dante Fox - Breathless (2016) [MP3|320 Kbps] <Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273712.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bon Jovi - This House Is Not For Sale (Live From The London Palladium) (2016) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273561.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Zodiac - Grain Of Soul (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273475.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lordi - Babez for Breakfast (2010) [MP3|320 kbps]<Hard Rock/Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271815.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - The Many Faces Of KISS: A Journey Through The Inner World Of KISS (2017) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269105.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ozzy Osbourne - Under The Graveyard (2019) Single [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268065.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Stripwired - Another Shot (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266109.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sunroad - Wing Seven (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265974.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Privilege - Privilege (1973) Reissue, 1999, Lizard Records [MP3|320 Kbps] <Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265802.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Domain - Our Kingdom (1988) Reissue, 2000, Humbucker Music [MP3|320 Kbps] <Melod
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265798.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Magic Dance - New Eyes (2018) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265729.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Midnite City - Bite The Bullet (2025) [MP3|320 Kbps] <Melodic Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257913.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ King Solomon - Heights (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255471.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Texas Hippie Coalition - The Name Lives On (2023) [MP3|320 Kbps] <Heavy Rock, So
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255016.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Kiss In A Dragon Night - Kiss In A Dragon Night (2023) [MP3|320 Kbps] <Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249740.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Phil Vincent - No Respect (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249605.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Motorbiscuit - Into The Fray (2014) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244945.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Adrenalin - Dedicated (1995) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244673.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ the Poor - High Price Deed (2023) [MP3|320 Kbps] <Hard Rock , AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244474.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Trippelganger - Trip to Hell (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, D
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244174.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Lords Of Dust - Kickin Dust Up (2023) EP [MP3|320 Kbps] <Heavy Rock, Stoner, 70'
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244042.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1186730   (273842) от 28.11.2018
-
-Ускользающая красота / Stealing Beauty (1996) WEBRip [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Прекрасная юная американка после самоубийства матери, известной поэтессы и топ-модели, отправляется в Италию. Ей предстоит провести лето на вилле давних друзей семьи, найти своего отца и потерять девственность… Но есть еще один, быть может, главный мотив этой поездки: стремление найти разгадку непонятной записи в оставленном матерью дневнике.Производство: Италия, Франция, ВеликобританияЖанр: Драма, МелодрамаРежиссер: Бернардо БертолуччиАктеры: Лив Тайлер, Джозеф Файнс, Джереми Айронс, Шинед Кьюсак, Донал МакКанн, Карло Чекки, Рэйчел Вайс, Джейсон Флемин,г Анна-Мария Герарди, Жан МареПеревод: Многоголосый закадровый, авторский одноголосый закадровыйСубтитры: Русские, английские, итальянскиеПродолжительность: 01:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB5FBF498E5CA2F047E20801DE89A916AF3646E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 425915   (273825) от 22.12.2011
-
-Добро пожаловать в Зомбилэнд / Zombieland (2009) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После того, как США были разорены в результате нашествия зомби, от населения остаётся небольшая группа выживших, которая скитается по стране от побережья к побережью, сражаясь с живыми мертвецами. Однажды они останавливаются в парке развлечений, надеясь на то, что там они будут в безопасности.Жанр: Боевик, Комедия, УжасыРежиссер: Рубен Фляйшер / Ruben FleischerАктеры: уди Харрельсон, Джесси Айзенберг, Эмма Стоун, Эбигейл Бреслин, Эмбер Хёрд, Билл Мюррэй, Дерек Граф, Майк Уайт, Джейкоб Дж. Экинс, Хантер ЭлдриджПеревод: Дублированный, Авторский М. Чадов (по переводу Дмитрия "Гоблина" Пучкова), Авторский, Ю.Сербин, Авторский С.Ловаситов (ненормативная лексика), Авторский Дмитрий "Гоблин" Пучков (VoiceRipHQ)Язык субтитров: Русские (4 вида) , Английские (2 вида)Продолжительность: 01:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4591C35B714CCC632E917B376BE43117900E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337309   (273452) от 11.11.2019
 
 Стражи Галактики. Часть 2 / Guardians of the Galaxy Vol. 2 (2017) WEBRip [H.264/1080p-LQ] [Open Matte] [Локализованная версия]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273452.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273448.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273396.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273380.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273369.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273364.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273270.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273184.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273183.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273179.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273130.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273129.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273097.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273079.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273072.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273016.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273008.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273007.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273002.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272944.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272937.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272878.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272876.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272830.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:523A6E5EFD98F7CE48AD4624465D5A61ED996E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763319   (272815) от 29.11.2018
+
+Август / August: Osage County (2013) BDRemux [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272815.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе Талса, штат Оклахома, в отчий дом съезжаются члены большой семьи Уэстонов. Случилось несчастье и три дочери Барбара, Карен и Иви, их мать Виолетта, тетя Метти Фей, а также их мужья, дети и ухажеры собираются под одной крышей, пьют виски и выясняют отношения, обвиняя друг друга в предательствах, подавленных чувствах и изломанных судьбах. У каждого есть свой (   Читать дальше...   )Производство: США / Jean Doumanian ProductionsЖанр: ДрамаРежиссер: Джон Уэллс / John WellsАктеры: Мэрил Стрип, Джулия Робертс, Юэн МакГрегор, Эбигейл Бреслин, Крис Купер, Марго Мартиндейл, Джулианна Николсон, Бенедикт Камбербэтч, Дермот Малруни, Джульетт ЛьюисПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 02:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7F974398375D6AE0BE17FDD489BF838B183B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265521   (272804) от 29.11.2018
+
+Дальше по коридору / Down a Dark Hall (2018) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудный подросток Кит Горди никак не может смириться со смертью отца, которая произошла несколько лет назад. Девушка бунтует и своим поведением добивается того, что ее отправляют в школу-интернат Блэквуд. Кроме нее туда прибывают еще четыре проблемные ученицы, в каждой из которых директриса мадам Дюрэ намерена увидеть скрытый талант и вытащить его наружу. Девушки (   Читать дальше...   )Производство: Испания, США / Fickle Fish Films,Nostromo Pictures,Temple Hill EntertainmentЖанр: Мистика, фэнтези, триллер, драмаРежиссер: Родриго КортесАктеры: Анна-София Робб, Ума Турман, Изабель Фурман, Виктория Моролес, Ной Сильвер, Тейлор Расселл, Рози Дэй, Ребекка Фронт, Джоди Мэй, Пип ТорренсПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: Русские (full), английские (full, SDH)Продолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4112F35F9B8F22604E29E6C89EFFB44196C016B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

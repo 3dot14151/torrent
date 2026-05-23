@@ -1,29 +1,3 @@
-###  Публикация: 581203   (339500) от 26.11.2012
-
-The Lost Chronicles of Zerzura [En] (L) 2012 | SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В роли молодого изобретателя Феодора геймеры решают разнообразные загадки и головоломки с помощью творческого мышления, при этом они путешествуют по разным странам и набираются опыта, изучая разные культуры. Все начинается с того, что Феодор и его брат Рамон строят самолет в своем рабочем цехе, в Барселоне. Но незадолго до завершения работ Рамона похищает инквизиция…Тип издания: ЛицензияЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD842E1C7DCCF1F2DB6F84655402CC0604A4273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581040   (339488) от 26.11.2012
 
 Iron Sky: Invasion [En/Multi6] (RePack) 2012 | z10yded
@@ -32,7 +6,7 @@ Iron Sky: Invasion [En/Multi6] (RePack) 2012 | z10yded
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339488.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Black Mirror Anthology | Антология. Чёрное зеркало [Ru/En]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339483.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Magic Academy 2 / Академия Магии 2 (2009) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339454.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339290.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ Infliction (2018) [Ru/Multi] (3.0) Repack Other s [Extended Cut]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339200.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ International Snooker 2012 (2013) [En] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339111.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Nation Red / Зомбилэнд (2009) [Ru/En] (1.00.1000) Lossless Repack R.G. 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339101.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Wave of Darkness (2015) [En/Fr] (1.50s) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338934.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Halloween Stories 3: Horror Movie (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338845.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Viktor Kalvachev's - Blue Estate: The Game (2015) [En/Multi] (1.0) Lossless Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338834.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Surviving Mars (2018) [Ru/Multi] (20191010/dlc) Repack xatab [Digital Deluxe Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338341.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Circle Empires (2018) [Ru/Multi] (1.2.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338113.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337600.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Tyranny (2016) [Ru/Multi] (1.0.1.0010) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337470.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337328.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Phenomenon 2: Meteorite / Феномен 2: Метеорит (2013) [Ru] (1.0) U
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337250.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Laura Jones and the Secret Legacy of Nikola Tesla / Лара Джонс и та�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337245.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Enchanted Kingdom 2: A Stranger's Venom / Зачарованное Короле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337189.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Living Legends 6: Uninvited Guests / Живые легенды 6: Незваны
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337180.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Tropico 4 - Steam Special Edition [En/Multi5] (Steam-Rip/1.0.6.345/6 DLC) 2011 |
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337121.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Transient (2020) [Ru/Multi] (0.119) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336924.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336915.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ Lost Lands 5: Ice Spell / Затерянные земли 5: Ледяное за
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336891.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336767.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Salt (2015) [En] (1.6) Repack Hazestalker [Early Acsess]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336548.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ Salt - это приключенческая survival-песочница про 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF540DE96EB98D572D5C18DCA83A5F75B50FE953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992258   (335257) от 20.11.2016
+
+Among the Sleep (2014) [Ru/Multi] (2.0.1/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аmong the Sleep – хоррор от первого лица, в котором вы выступаете в роли двухлетнего ребенка. Оставшись ночью в своей кроватке, малыш начинает замечать странные вещи, происходящие в доме. Оказавшись на грани между вымышленным и реальностью, ему предстоит пережить мистические события и столкнуться с сюрреалистичными созданиями.Тип издания: RepackРазработчик: Krillbite StudioЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01F913AD09FE46B8A4AB3617FD3F82D1EFB8C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

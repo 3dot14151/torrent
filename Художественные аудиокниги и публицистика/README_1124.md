@@ -1,84 +1,3 @@
-###  Публикация: 1815516   (5129) от 30.08.2025
-
-Александр Герда | Черный Маг Императора (Книга 9) (2025) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я Максим Темников. Мне четырнадцать лет и во мне живет дух некроманта.
-Я учусь в магической школе, где все старше меня как минимум на пару лет, и регулярно попадаю в кабинет директора за всякую ерунду.
-А еще я обладаю Темным даром и могу… Стоп! Об этом потом. По-моему, я опять нашел какое-то приключение…
-(   Читать дальше...   )Жанр: фантастика, фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 08:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB0B9868AE1D65BC7C2AFCB6F17F06222C6BB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815504   (5128) от 30.08.2025
-
-Рик Риордан | Перси Джексон и Олимпийцы (Книга 4). Перси Джексон и Лабиринт Смерти (2022) [MP3, Дмитрий Стрелков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лука, сын Гермеса и злейший враг Перси, задумал свергнуть богов с Олимпа и воскресить Кроноса, когда-то сброшенного в Тартар. Для этого он собирается использовать лабиринт — детище Дедала, величайшего в мире изобретателя. Этот лабиринт обладает чудесным свойством почти мгновенно переносить человека в любую точку планеты. Но он также является и вместилищем страшных (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: ЭксмоПродолжительность: 10:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69FEFED92695D29A7723DAED93F148E14563A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815499   (5126) от 30.08.2025
-
-Рик Риордан | Перси Джексон и Олимпийцы (Книга 1). Перси Джексон и Похититель Молний (2024) [MP3, Андрей Тор4]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-А всё началось с того, что на Перси напала учительница математики, обернувшаяся странным фантастическим существом! Потом обыкновенная ручка в его руках превратилась в старинный меч, а его друг Гроувер оказался сатиром! Перси столкнулся с удивительным миром древнегреческих существ и богов, которые, как выяснилось, все это время были живы. Теперь Перси предстоит отправиться (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Аудиокнига своими рукамиПродолжительность: 10:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE3C1EB7F89903378071E499BC8F19E05F3997B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815461   (5122) от 30.08.2025
 
 Сергей Ким | S.T.A.L.K.E.R. Сентябрь (2025) [MP3, CHUGA]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5122.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5121.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5119.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5118.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5115.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5114.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5037.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5022.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4993.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4988.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4979.jpg" />
 </div>
 
 
@@ -379,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4951.jpg" />
 </div>
 
 
@@ -406,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4948.jpg" />
 </div>
 
 
@@ -432,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4946.jpg" />
 </div>
 
 
@@ -458,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4945.jpg" />
 </div>
 
 
@@ -484,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4943.jpg" />
 </div>
 
 
@@ -510,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4940.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4933.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4932.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4926.jpg" />
 </div>
 
 
@@ -616,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4923.jpg" />
 </div>
 
 
@@ -644,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4922.jpg" />
 </div>
 
 
@@ -670,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4921.jpg" />
 </div>
 
 
@@ -682,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78344CA49DA31DF7943507B4DCECE022665A2E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815727   (4917) от 31.08.2025
+
+Олег Кинчин | S.T.A.L.K.E.R. Чертог Красного Бога (2025) [MP3, CHUGA]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чернобыльская зона отчуждения стремительно меняется после второго взрыва, именуемого выбросом. Главный герой после неудачи в бизнесе принимает спонтанное предложение от давнего друга попробовать набирающий популярность в узких кругах способ получения прибыли - отправиться в зону отчуждения за диковинными порождениями. В обозначенном месте Никита находит пустую палатку. (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 09:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05007D569043EFF7B6355A0C21ABA51901FA8966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815652   (4916) от 31.08.2025
+
+Виталий Хонихоев | Сяо Тай (Книга 1). Сяо Тай, специалист по переговорам (2024) [MP3, Милисента]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир Жемчужин Ци и Лепестков Лотоса, крадущихся тигров и затаившихся драконов, могущественных кланов и тайных сект, интриг и заговоров. Бедная девушка, да еще и бывшая преступница не защищена ничем и уязвима перед этим миром. Сможет ли она выжить? Выжить и преуспеть, вскарабкаться на сияющую вершину власти и силы?Жанр: Фэнтези, юморИздательство: Аудиокнига своими рукамиПродолжительность: 10:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA44476C7E0D7A915A510A7E6A257034F62EE9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815657   (4913) от 31.08.2025
+
+Виталий Хонихоев | Сяо Тай (Книга 3). Сяо Тай и клан Фениксов (2024) [MP3, Милисента]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательного цикла про молодую девушку Сяо Тай. Перед Сяо Тай открываются новые возможности, она знакомится с новыми людьми и продолжает жить, стремясь покорить новые вершины и наконец стать полноправной хозяйкой своей собственной судьбы.Жанр: Фэнтези, юморИздательство: Аудиокнига своими рукамиПродолжительность: 10:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D667E2971A80A7DCDAEE248715F2ED86FE82BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

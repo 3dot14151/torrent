@@ -1,29 +1,3 @@
-###  Публикация: 1740064   (48339) от 31.07.2024
-
-Ruzar - The Dark Stones (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ruzar - The Dark Stones расширяет основы подземелий, заложенные ее предшественницей. Сиквел выходит за пределы знакомой территории и погружается в царство, окутанное тенью. Кастомизация персонажей очень глубока, и игроки получают полный контроль над своими героями. Соберите партию из четырех человек, каждый из которых - уникальный инструмент в вашем арсенале. Связующие (   Читать дальше...   )Тип издания: SceneРазработчик: Hammer Glass Studio Inc.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4B24ACD47D98A99C384FCC14927ACEB7B41E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740034   (48337) от 31.07.2024
 
 Director Simulator (2024) [Multi] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ Director Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48337.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Bo: Path of the Teal Lotus (2024) [Ru/Multi] (1.0.6) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48307.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dystobel (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48293.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48248.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48242.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48233.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48230.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Barrhell (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48213.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Hannah’s Day (2024) [Ru/En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48209.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ogu and the Secret Forest / Огу и Таинственный Лес (2024) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48207.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Space Prison (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48201.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Tales from the Borderlands (2014) [Ru/En] (1.0.1) Repack FitGirl [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48199.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Spirit Island (2020) [En] (1.0/dlc) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48184.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cursed Fables 5: A Gilded Rose (2024) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48156.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48151.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack FitGirl [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48149.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48145.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48143.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48141.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Dread Delusion (2024) [En] (1.1.0.13) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48123.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48120.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ EARTH DEFENSE FORCE 6 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48118.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dead Space 2 (2011) [Ru/En] (1.1/dlc) Repack FitGirl [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48117.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ ELDEN RING (2022) [Ru/Multi] (1.13/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48116.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48107.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E580E81A95464ACEC34F8D5014C0990B399F4F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740444   (48099) от 02.08.2024
+
+Gym Simulator 24 (2023) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gym Simulator 24 - виртуальный тренажерный зал, который позволяет создать собственную империю тренировок и привлечь клиентов со всего мира. Начав со скромного и грязного зала, вам необходимо постепенно совершенствовать свое заведение, внедряя новое оборудование, удобства и услуги. Вы будете избалованы выбором тренажеров: беговых дорожек, велотренажеров, гребных тренажеров (   Читать дальше...   )Тип издания: RepackРазработчик: QuatechЖанр: Казуальные игры, Симуляторы, Спортивные игрыЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A15C76712C3B57FC56A025CB8CE8DC1B1D9536
 ```
 
 https://mybot314.ru/tekegram_catalog/

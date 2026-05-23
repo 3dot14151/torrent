@@ -1,29 +1,3 @@
-###  Публикация: 1417483   (357551) от 20.10.2020
-
-NG: Подъем "Коста Конкордии" / The Raising the Costa Concordia (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это эксклюзивная история о том, как проводились работы по подъёму и эвакуации круизного лайнера "Коста Конкордия", потерпевшего кораблекрушение около итальянского острова Джильо 13 января 2012 года.Производство: Великобритания / Windfall FilmsЖанр: ДокументальныйРежиссер: Colin CampbellПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F0DB8EDE3E731C4B5035E89846F3B838B0EEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417336   (357547) от 20.10.2020
 
 NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari. Snake Killers (2001) DVDRemux
@@ -32,7 +6,7 @@ NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357547.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG: Секретное оружие Японии / Japan's Secret Weapon (2009) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356296.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Atari: конец игры / Atari: Game Over (2014) BDRip [H.264/1080p]
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356289.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356142.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356141.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356129.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Discovery: Разрушители легенд. Опасное вождение 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355358.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NG. Потерянные мумии Новой Гвинеи / Mystery Mummies of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354264.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NG. Титаник: Роковой пожар / Titanic's: Fatal Fire (Titanic: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354142.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354063.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ BBC: Мари Тюссо. Восковая легенда / Madame Tussaud: A Le
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353700.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ BBC:Атлантика: Самый необузданный океан на Зе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352889.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Discovery. Трамп: беспрецедентно / Unprecedented (2022) WEBRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352047.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ NGW: Остров муссонов. Озерные охотники / Island of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351888.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ NGW: Загадка гигантского пещерного паука / Myste
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350810.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350659.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349889.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ NG. Мумии, застывшие во времени / Mummies. Frozen in Time
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349750.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Thi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349706.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349700.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348538.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347430.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347212.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Discovery. Юпитер: близкий контакт / Jupiter: Close Encounte
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347154.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346588.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38CBA7D7449604BD0D54B10601914B3F8E9CA048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418842   (346446) от 25.10.2020
+
+NG: Затерянный храм империи инков / Lost Temple of The Inca (2019) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный археолог Иоганн Рейнхард посвятил свою карьеру поискам затерянных храмов империи инков, обнаружив их все, кроме одного - Аусангате, названного в честь одной из самых почитаемых гор в Перу. Теперь, когда Рейнхарду за семьдесят, он передал эстафету ученому-экологу Престону Соуэллу, раскопавшему древнее сооружение на берегу горного озера возле горы Аусангате, (   Читать дальше...   )Производство: США, Bedrock Film Works, Off the Fence, National GeographicЖанр: Документальный, история, исследованияРежиссер: Джим АйкманПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1821DF20F0A1417BB7A7624BE15FA8668740466B
 ```
 
 https://mybot314.ru/tekegram_catalog/

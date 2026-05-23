@@ -6,7 +6,7 @@ Lingon X 4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272651.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LaunchBar 6.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272647.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Exposure X5 v5.0.2.95 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272638.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Mosaic Pro - Professional-level window management 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272635.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Debookee 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272594.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Business Templates for Pages 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272584.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272545.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ sdspeed 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272451.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Find Any File (FAF) 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272438.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ SSDReporter 1.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272399.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ TurboCollage 6 v6.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272389.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Yoink 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272326.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Downie 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272300.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Window Focus 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272143.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Sublime Text 3 (3156) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272085.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ File Juicer 4.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272068.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ CrossOver 16.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272001.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Cisdem DVDBurner 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271702.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WebToLayers 1.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271697.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ MP3 Gain 4 v4.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271676.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Do Your Data Recovery Professional 7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271661.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Path Finder 9.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271660.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Zoc Terminal 7.24.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271659.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Wondershare Filmora 9 v9.2.10.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271657.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Waltr 2 v2.6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271634.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ iMazing 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271633.jpg" />
 </div>
 
 

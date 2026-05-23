@@ -6,7 +6,7 @@ NVIDIA GeForce Desktop Game Ready 551.86 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62344.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Java SE Development Kit 22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62341.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Google Chrome 123.0.6312.59 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62340.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0314) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62338.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ YT Downloader 9.6.17 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62337.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Windows 11 Manager 1.4.3 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62333.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Fitify: Фитнес тренировки дома 1.68.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62332.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ K-Lite Codec Pack Update 18.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62328.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Google Chrome 123.0.6312.59 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62327.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wondershare PDFelement 10.3.2.2684 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62326.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blender 3.6.10 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62324.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Free Download Manager 6.21.0.5639 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62322.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Total Commander 11.03 final VIM 48 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62315.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.6 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62312.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ OpenVPN 2.6.10 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62297.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Clip Studio Paint EX 3.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62295.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe Photoshop 2024 25.6.0.433 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62292.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Adobe Acrobat Pro 24.001.20615 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62288.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Windows 10 Manager 3.9.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62278.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Adobe Acrobat Reader 2024.001.20615.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62275.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Windows 11 Manager 1.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62274.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ BlueStacks App Player 5.21.103.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62270.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ uTorrent Pro 3.6.0 Build 47028 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62264.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Acrobat Pro 24.001.20615 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62263.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ PIDKey Lite 1.64.4 b40 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62256.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Perfectly Clear WorkBench 4.6.0.2645 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62255.jpg" />
 </div>
 
 

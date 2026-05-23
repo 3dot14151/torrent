@@ -6,7 +6,7 @@ SoftPerfect NetWorx 6.1.1.18022 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793696.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Balabolka 2.11.0.644 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793691.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MetaProducts Offline Explorer Enterprise 7.5.4610 RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793687.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793685.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Vocal Trance Top 40 (2016) [MP3|320 кб/с] <Trance, Vocal Trance, Uplifti
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793683.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Ventoy 1.0.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793680.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Easily Embarrassed - EE4A (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793677.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Piezo 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793668.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Algoriddim djay Pro 1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793664.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Carbon Copy Cloner 5 v5.1.18 (build 6004) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793655.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Notability 4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793650.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Movist Pro 2.2.18 CR2 (build 145) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793633.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ A Better Finder Rename 10.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793625.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Dannic - Live @ DJ Mag Poolside Sessions (2017) [MP3|320 Kbps] <House, Electro H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793624.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Syntouch & Angel Falls - Alone (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793621.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Upaya No Kensho - Western Mountain Aqueduct (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793616.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Money 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793613.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Trance Aesthetics (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793606.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Daum PotPlayer 1.7.7150 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793600.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793589.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793582.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Tumult Whisk 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793570.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Registry Life 3.27 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793567.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Freddie Gibbs & The Alchemist - Alfredo (2020) [FLAC|Lossless|WEB-DL|tracks] <Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793562.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793555.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ EZ CD Audio Converter 4.0.2.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793547.jpg" />
 </div>
 
 

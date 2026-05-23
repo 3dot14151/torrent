@@ -1,55 +1,3 @@
-###  Публикация: 1414479   (382684) от 09.10.2020
-
-Королева сердец / Dronningen (2019) BDRip  [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Анна – успешный юрист, идеальная жена, заботливая мать. Однажды в дом приезжает Густав - сын мужа от первого брака. Между Анной и Густавом вспыхивает запретная страсть. Искушение становится наваждением. Ничто уже не будет прежним.Производство: Дания, Швеция / Nordisk Film Production, Det Danske Filminstitut, Svenska FilminstitutetЖанр: Триллер, мелодрамаРежиссер: Май эль-ТукиАктеры: Трине Дюрхольм, Густав Линд, Магнус Креппер, Лив Эсмор Даннеманн, Силья Эсмор Даннеманн, Стине Гюльденкерне, Пребен Кристенсен, Фредерикке Даль Хансен, Элла Солгор, Карла Филип РодерПеревод: Многоголосый профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CF7CDFA0D4E7648DC792DAC7418595EFD46679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409920   (382680) от 09.10.2020
-
-Мистер и миссис Смит / Mr. & Mrs. Smith (2005) WEB-DL [H.264/1080p] [Theatrical Cut] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Джон и Джейн женаты не так давно, но уже устали от брака. Им кажется, что они знают друг о друге всё. Но есть кое-что, что каждый предпочитает держать при себе: оба они – наёмные убийцы, которые тайно путешествуют по миру, выполняя опасные миссии. Эти отдельные тайные приключения становятся их общей судьбой в тот момент, когда Джейн получает заказ на Джона, а Джон (   Читать дальше...   )Производство: США / Regency Enterprises, New Regency Pictures, Summit EntertainmentЖанр: боевик, комедия, триллер, криминалРежиссер: Даг ЛайманАктеры: Брэд Питт, Анджелина Джоли, Винс Вон, Адам Броди, Керри Вашингтон, Кейт Дэвид, Крис Вейц, Рэйчел Хантли, Мишель Монахэн, Стефани МарчПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: русские, английскиеПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A971AB55121DDC96827C5F72694E72A7E41E54B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326770   (382640) от 21.09.2019
 
 Проклятие Аннабель 3 / Annabelle Comes Home (2019) BDRip [H.264/720p] [PR]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382640.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382622.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382583.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382530.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382509.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382492.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382452.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382436.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382371.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382370.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382308.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382306.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382175.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381959.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381944.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381822.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381816.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381808.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381726.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381389.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381380.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381361.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381333.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381306.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:965744E48686EFBA39A4A5570E38B311E40B965D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253622   (381251) от 10.10.2018
+
+Невероятные приключения Факира / The Extraordinary Journey of the Fakir (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если любовь не стучится в дверь, самое время поискать её на другом конце света. Когда нашел — не потерять. А если потерял — вернуть любой ценой. Пускай для этого придется путешествовать в шкафу, на лодке, на воздушном шаре или даже в чемодане. Мумбаи-Париж-Лондон-Рим — если у чувств нет границ, то и бизнес-класс им не нужен.Производство: Франция, США, Бельгия, Сингапур, Индия / Brio Films, Scope PicturesЖанр: Комедия, ПриключенияРежиссер: Кен СкоттАктеры: Дхануш, Беренис Бежо, Эрин Мориарти, Баркхад Абди, Жерар Жюньо, Бен Миллер, Абель Жафри, Сара-Джинн Лабросс, Кай Грейданус, Амрута СентПеревод: ДублированныйСубтитры: Английские, ИтальянскиеПродолжительность: 01:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BF4B0D66EE39AA0DED87F7BE7DDD20A013AD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253603   (381140) от 10.10.2018
+
+Не волнуйся, он далеко не уйдёт / Don't Worry, He Won't Get Far on Foot (2018) BDRip [H.264/1080p] [MVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон не умел вовремя останавливаться, когда дело касалось быстрой езды, красивых женщин и опасных шуток. Прихватив случайного приятеля на вечеринке, он садится в машину и чудом остаётся в живых. С этого момента начинается горькая и вдохновляющая, правдивая и трогательная история человека, который потерял все, и вынужден двигаться дальше, чтобы обрести себя как одного (   Читать дальше...   )Производство: США, Франция / Amazon Studios, Anonymous Content, Big Indie PicturesЖанр: Драма, комедия, биографияРежиссер: Гас Ван СентАктеры: Хоакин Феникс, Джона Хилл, Руни Мара, Джек Блэк, Тони Гринхэнд, Бет Дитто, Марк Веббер, Ronnie Adrian, Ким Гордон, Удо Кир ...Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Английские (Full, SDH)Продолжительность: 01:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E54C7750A5F795C6A505F66493B7FD3E6D5CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

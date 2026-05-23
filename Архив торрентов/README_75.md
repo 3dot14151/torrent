@@ -6,7 +6,7 @@ Icecream Video Converter 1.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DUMo (Drivers Update Monitor) Pro 2.23.2.112 + Portable (акция Comss) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034820.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ TechSmith SnagIt 2021.2.0 Build 7921 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034817.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Spectrasonics Omnisphere Software 2.8.5e (x64) Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034810.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Emurasoft EmEditor Professional 22.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034807.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Topaz Video AI 3.1.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034805.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Icecream Image Resizer Pro 2.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034804.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ K-Lite Codec Pack Update 17.4.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034802.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ QOwnNotes 23.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034799.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Icecream Slideshow Maker PRO 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034798.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VueScan Pro 9.7.99 (08.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034794.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Toolkit 2.7.1 Stable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034749.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Strawberry 1.0.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034742.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Duplicate File Detective 7.2.69.0 (x64) Professional / Enterprise / Server Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034740.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ PDF-XChange Editor Plus 9.5.367.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034735.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034733.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ BusyCal 3 v3.12.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034710.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Boxy SVG 3  v3.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034706.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Outline 3.2101.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034705.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ One Switch 1.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034701.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ PDF Squeezer 4 v4.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034700.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ TunesKit AceMovi Video Editor 2.1.0.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034699.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Serial Box 02.2021 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034695.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ iPulse 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034694.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Living Earth - Weather & Clock 1.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034689.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.3.49 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034682.jpg" />
 </div>
 
 

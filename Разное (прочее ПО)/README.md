@@ -7,7 +7,7 @@ FontViewOK 9.33 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069508.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EarthView 7.16.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068996.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ EarthView 7.16.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068261.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FontViewOK 9.31 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066592.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Exportizer Enterprise 10.3.2.479 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065071.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ORTMANN Cross Stitch Designer 7.8.4.777 [En/De]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065063.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FontViewOK 9.23 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064132.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ EarthView 7.15.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063368.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Lively Wallpaper 2.2.1.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062550.jpg" />
 </div>
 
 
@@ -234,32 +234,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861433   (1062485) от 25.03.2026
-
-AI Text To Image Generator Pro 1.2.2 RePack [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Раскройте свой творческий потенциал с помощью AI Text to Image Generator — лучшего приложения для ПК, которое превращает ваши слова в потрясающие высококачественные изображения. Независимо от того, являетесь ли вы цифровым художником, дизайнером или просто увлекаетесь творчеством, наш мощный генератор изображений на базе ИИ предоставляет вам прямой доступ к передовым (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AC6377B8F101640F447307566970E2F4B4DBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860742   (1062003) от 22.03.2026
 
 EarthView 7.15.1 RePack (& Portable) by elchupacabra [Ru/En]
@@ -268,7 +242,7 @@ EarthView 7.15.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062003.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ EarthView 7.15.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060250.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ EarthView 7.14.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058169.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ ADB AppControl 1.8.6 Extended + portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055656.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ FontViewOK 9.21 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053855.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ FontViewOK 9.19 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047738.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ VanDyke SecureCRT 9.3.1 build 2929 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046380.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Visual C++ Runtimes AIO 2023 v1.0 x86-x64 RePack by ivandubskoj [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040240.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Game WideScreener 2.0.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014618.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Active PKiller 1.6 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010097.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Advanced Find and Replace 7.8.1 [Multi/Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997350.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ PlayMemories Home 2.0 [Русский / Английский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996553.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ DesktopEarth 3.2.42 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982804.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ ArtMoney SE 7.40.4 [Мульти / Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980458.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Brocade FabricOS (версии с v5.1.0 по v8.2.1a)[En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977447.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ Uloader 8.0.0.0 [ENG]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953350.jpg" />
 </div>
 
 
@@ -684,6 +658,32 @@ Uloader-простой,удобный и практичный активатор
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917948   (949374) от 02.02.2016
+
+Sim Aquarium 3.8 Build 63 Platinum RePack by Trovel [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sim Aquarium - реалистическая 3D экранная заставка, которая воссоздает красоту среды кораллового рифа. В составе экранной заставки 5 различных аквариумов с кораллами, с большими фонами и большим разнообразием среды и кораллов. Вы можете заполнить ваш аквариум до 100 особей из 30 высоко детализированных видов рыб со сложным поведением и искусственным интеллектом. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8970A593B0FA668EA18737B35CB7A5C0A80E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

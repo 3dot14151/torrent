@@ -1,82 +1,3 @@
-###  Публикация: 1340077   (264280) от 22.11.2019
-
-Виктор Бердинских | Русские у себя в доме (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Писатель, историк и этнограф Виктор Бердинских сделал попытку показать русского крестьянина таким, какой он был и есть в собственном доме, в естественной обстановке, наедине с собой. В его книге внимание уделено прежде всего быту, нравственным устоям, обычаям, традициям, устному народному творчеству, разговорной речи - и даже приведены словарь народного говора образца (   Читать дальше...   )Жанр: Антропология. ЭтнографияПродолжительность: 13:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BF77F9E2127508C15B9DDFF7F7BDD22FC64B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340166   (264275) от 22.11.2019
-
-Андрей Молчанов | Экспедиция в один конец (2018) [MP3, Юрий Леханов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Беглый каторжник и журналист-неудачник, бывшие кагэбэшник и офицер-подводник — они все очень разные, и у каждого своя цель. Под флагом «Гринпис» на борту научно-исследовательского судна они плывут в составе команды к затонувшим в Атлантике российским ядерным подводным лодкам. Корабль начинен взрывчаткой. Основная часть команды — террористы. От экспедиции веет смертью. (   Читать дальше...   )Жанр: БоевикПродолжительность: 14:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4FFB95C286938BDB6B545416D912F1D018438E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340132   (264213) от 22.11.2019
-
-Михаил Ланцов | Красный Император. «Когда нас в бой пошлет товарищ Царь…» (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Взойдя на трон Российской Империи, «попаданец» из будущего поднимает над Евразией победное Красное знамя!
-Даешь Стамбул, которому давно уже пора вновь стать Царьградом! Даешь Париж! Даешь Индию, где разгорается восстание против британских колонизаторов, а русских встречают как освободителей! Государь Император пришел дать вам волю! Когда нас в бой пошлет товарищ (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыПродолжительность: 11:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE689DFB79F5748B4A4BA4D04DA1467D166BECF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340107   (264207) от 22.11.2019
 
 Терри Пратчетт | Шмяк! (2019) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264207.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264121.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264113.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264019.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264017.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264009.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263994.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263990.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263969.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263961.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263950.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263938.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263844.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263809.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263806.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263734.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263718.jpg" />
 </div>
 
 
@@ -529,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263716.jpg" />
 </div>
 
 
@@ -555,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263594.jpg" />
 </div>
 
 
@@ -581,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263588.jpg" />
 </div>
 
 
@@ -607,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263568.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263540.jpg" />
 </div>
 
 
@@ -661,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263504.jpg" />
 </div>
 
 
@@ -672,6 +593,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92FCE42AEA2E0AFC40594DEB4EE6A3F8DBCE47FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192086   (263491) от 16.12.2017
+
+Борис Шишаев | Последний побег. Сердечная боль (2006) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представлены две повести писателя Бориса Михайловича Шишаева.
+Один из ведущих рязанских, российских писателей, член Союза писателей России Борис Михайлович Шишаев – автор семитомного собрания сочинений, полюбившихся читателям романов «Горечь осины», «Цепь», «Последний побег», «Сердечная боль», «Доля наследства», «Время любить», а также многих повестей, (   Читать дальше...   )Жанр: ПовестиПродолжительность: 18:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B877012EB2B487517B6F3E64D07CA294058C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192062   (263454) от 16.12.2017
+
+Антон Леонтьев | Тринадцатая Ева (2017) [MP3, Андрей Леонов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она очнулась в каком-то непонятном месте. Странно, но она совершенно не помнила, как тут оказалась. И почему у нее в руках большой нож с широким лезвием, покрытый чем-то красным… Заметив на полу капли крови, она пошла по этим следам и в соседнем помещении обнаружила тело женщины со множеством ножевых ран. Неужели она убила ее? Но почему она тогда ничего не помнит? (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 10:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1217F22D2F7C94D746C70C0DB6A839360A27A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192194   (263406) от 16.12.2017
+
+Вероника Иванова | На полпути к себе (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минуты покоя имеют гнусное обыкновение заканчиваться. Снежный ком событий, выросший из крохотной несуразности, сминает и засасывает в себя все, что попадется на пути. Остаться в стороне? Как можно?! Ведь сама Судьба приглашает на танец… Вы слышите эту музыку? Что вы говорите? Больше похоже на шум битвы? Не волнуйтесь, почтенные: обнажать клинки не придется. За вас (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 13:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A755D919AA8AEF4DC08BB1EACA02A22E57C49C
 ```
 
 https://mybot314.ru/tekegram_catalog/

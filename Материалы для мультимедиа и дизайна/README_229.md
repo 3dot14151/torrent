@@ -1,36 +1,3 @@
-###  Публикация: 554210   (436136) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)Название: Digital Juice Motion Design Elements 013: Line Items 2
-Официальный сайт: Digital Juice
-Homepage: (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 013: Line Items - это второй сборник из библиотеки анимированных элементов Line Items, такой же полезный и гибкий как его предшественник - Volume 7. Содержит 60 линейно-ориентированного элементов с альфа-каналом. Будь это рябь из красной ленты или прозрачные стеклянные трубки, скручивание золотого металлического стержня или строки из акробатики блестящих кубиков, содержание этого сборника поможет вам замечательно акцентировать логотипы или подчеркнуть важность текста или графики. Простые, инновационные и визуально разнообразные элементы библиотеки Line Items делают работу над современными видео-проектами проще, чем когда-либо.
------------------------
-Motion Design Elements (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8583814B2598FC1C52F7E2E0DF699E46B806181A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553598   (436127) от 01.10.2012
 
 Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)
@@ -39,7 +6,7 @@ Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436127.jpg" />
 </div>
 
 
@@ -72,7 +39,7 @@ Digital Juice - Motion Design Elements Standart 14: Revealers 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436035.jpg" />
 </div>
 
 
@@ -105,7 +72,7 @@ Digital Juice - Motion Design Elements Standart 20: Revealers 3 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436027.jpg" />
 </div>
 
 
@@ -138,7 +105,7 @@ Digital Juice - Motion Design Elements Standart 16: Global Intentions 1 (Full IS
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436022.jpg" />
 </div>
 
 
@@ -169,7 +136,7 @@ Digital Juice - Motion Design Elements Standart 12: Motion Plaques (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435875.jpg" />
 </div>
 
 
@@ -200,7 +167,7 @@ Digital Juice - Canvases Collection 08: Open Spaces (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435856.jpg" />
 </div>
 
 
@@ -226,7 +193,7 @@ Digital Juice - ToxicTraxx Volume 02: High Impact (.djmusic)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435841.jpg" />
 </div>
 
 
@@ -254,7 +221,7 @@ Impact Soundworks - Ventus Ethnic Winds Duduk [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435630.jpg" />
 </div>
 
 
@@ -280,7 +247,7 @@ Creative Market - Seasonal Scene Creator Volume 1 - 986355 [PNG, PSD, JPG]
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435469.jpg" />
 </div>
 
 
@@ -307,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435311.jpg" />
 </div>
 
 
@@ -333,7 +300,7 @@ Hum3D - Fiat Ducato Panel Van L2H2 with HQ interior 2014 [Scanline|Mental Ray|V-
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435283.jpg" />
 </div>
 
 
@@ -359,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435145.jpg" />
 </div>
 
 
@@ -386,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435143.jpg" />
 </div>
 
 
@@ -412,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435134.jpg" />
 </div>
 
 
@@ -438,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435132.jpg" />
 </div>
 
 
@@ -464,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435074.jpg" />
 </div>
 
 
@@ -490,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434803.jpg" />
 </div>
 
 
@@ -516,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434473.jpg" />
 </div>
 
 
@@ -543,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434461.jpg" />
 </div>
 
 
@@ -569,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434457.jpg" />
 </div>
 
 
@@ -598,7 +565,7 @@ Spіtfіre Audіo - Symphonіc Strіngs [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433681.jpg" />
 </div>
 
 
@@ -624,7 +591,7 @@ Concept Samples - Interface Vol.2 [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433679.jpg" />
 </div>
 
 
@@ -650,7 +617,7 @@ Spitfire Audio - BML Mural Symphonic Strings Vol. 1&2 RePack Андрей650071 
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433560.jpg" />
 </div>
 
 
@@ -676,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433430.jpg" />
 </div>
 
 
@@ -703,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433427.jpg" />
 </div>
 
 
@@ -715,6 +682,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E6A74361A316F956877F5343CB9BB55478205CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945638   (433106) от 10.10.2015
+
+Векторный клипарт - Mafia [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мафия - Векторный клипарт.
+5 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2442552E0A624289F1B794C2E371B4D51C34436
 ```
 
 https://mybot314.ru/tekegram_catalog/

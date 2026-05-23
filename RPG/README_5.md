@@ -6,7 +6,7 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (2.3.0.5(a)) License GOG [Digital 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033815.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sunrider 4: The Captain's Return (2023) [En] (1.2.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033808.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vampire: The Masquerade - Coteries of New York (2019) [Ru/Multi] (1.0.12) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033804.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Empire of Sin (2020) [Ru/Multi] (1.03/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032605.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032194.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windbound (2020) [Ru/Multi] (1.3.40746.183/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030299.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030166.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WILD HEARTS (2023) [Multi] (1.1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029955.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029633.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Immortals: Fenyx Rising (2020) [Ru/Multi] (1.1.1) License EMPRESS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029435.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Disco Elysium (2019) [Ru/Multi] (8487d973) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029421.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029211.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (60323/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029204.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028577.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dead Age 2 (2021) [Ru/Multi] (1.0.0) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026469.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Vampire: The Masquerade - Coteries of New York (2019) [Ru/Multi] (1.0.9) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026299.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Atelier Ryza: Ever Darkness & the Secret Hideout (2019) [Multi] (1.08/dlc) Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026293.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Nioh 2 (2021) [Ru/Multi] (1.26.00/dlc) Repack xatab [The Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026278.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dungeon Defenders: Awakened (2020) [Ru/Multi] (1.3.0.23136) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025697.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Loop Hero (2021) [Ru/Multi] (1.012) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024817.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kingdom Hearts III (3) and Re Mind (2021) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023356.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (1.2) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023046.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Loop Hero (2021) [Ru/Multi] (1.0.12) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022030.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.16-20.12.11/dlc) License GOG [Slayer E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021652.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Demon Skin (2021) [Ru/Multi] (0.9031) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021062.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Elder Scrolls IV: Oblivion (2007) [En] (1.2.0416 CS/dlc) License GOG [Game o
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020184.jpg" />
 </div>
 
 

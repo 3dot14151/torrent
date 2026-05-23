@@ -1,55 +1,3 @@
-###  Публикация: 1526694   (737960) от 25.01.2022
-
-Шоу андроидов / Override / R.I.A. (2021) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Риа снова и снова переживает один и тот же день: по утрам она просыпается рядом со своим мужем Джеком, но каждый раз это другой мужчина. Ведь она — андроид. Она живет идеальной жизнью домохозяйки, пока однажды ей всё не надоедает. Риа решает сбежать из дома, взяв очередного Джека в заложники.Производство: Великобритания / Amarich Productions, Red Rock Entertainment, The Secret Film Production CompanyЖанр: Фантастика, триллер, криминалРежиссер: Ричард КолтонАктеры: Люк Госс, Дин Кэйн, Амар Адатиа, Джесс Импиацци, Стефан Боэм, Кимберли Уайатт, Чарли Клэпэм, Тони Дисциплин, Мартин Колтон, Леон ОкенденПеревод: Профессиональный многоголосый (КиноПоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E27828A0CEA6E2820A32BF964C9D3B6DDFBA205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947922   (737957) от 25.01.2022
-
-Опасное погружение / Pressure (2015) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Маленькая капсула с четырьмя водолазами застряла на дне восточноафриканских вод на глубине пяти километров. Кислорода с каждым вдохом становится все меньше, а надежда на чудесное спасение тает с каждой минутой. Брошенным на произвол судьбы, им ничего не остается, кроме как попытаться спастись своими силами, полагаясь лишь на собственную храбрость и отчаянное желание (   Читать дальше...   )Производство: Великобритания, Bigscope FilmsЖанр: триллер, драмаРежиссер: Рон СкальпеллоАктеры: Дэнни Хьюстон, Мэттью Гуд, Джо Коул, Алан МакКенна, Иэн Пири, Дэйзи Лоу, Гемита СамарраПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: ИтальянскиеПродолжительность: 01:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC2B3AB7F04336F8B2857796C70DE1DBDA3CEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526500   (737955) от 25.01.2022
 
 7 заключенных / 7 Prisioneiros (2021) WEB-DLRip [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737955.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737874.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737804.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737789.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737788.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737764.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737759.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737758.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737755.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737753.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737751.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737750.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737726.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737718.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737689.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737688.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737687.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737684.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737683.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737678.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737613.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737536.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737532.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737507.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F75AD2F244413D36C9B138CB11FD667368CE99E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397501   (737477) от 22.07.2020
+
+Чумовая семейка: Зомби на продажу / Gimyohan gajok / The Odd Family: Zombie On Sale (2019) BDRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737477.jpg" />
+</div>
+
+
+###  Подробнее
+
+В корейской глубинке обычная семья живёт на когда-то работавшей заправке, и у каждого её члена свои жизненные приоритеты и отличное от других мнение, как надо вести бизнес, а пожилой глава семейства и вовсе хочет бросить всё и уехать на Гавайи. Однажды в деревню забредает зомби и кусает дедулю. Немного полежав в горячечном поту, дед приходит в себя сильно помолодевшим. (   Читать дальше...   )Производство: Корея Южная / Cinezoo, Megabox Plus MЖанр: комедия, ужасы, фантастикаРежиссер: Ли Мин-джэАктеры: Чон Джэ-ён, Ким Нам-гиль, Ом Джи-вон, Ли Су-гён, Чон Га-рам, Пак Ин-хван, Ким Ги-чхон, Чон Бэ-су, Ку Бон-ун, Щин Джон-гын, О И-щик, Ю Сун-чхоль, Чхве Джон-нюль, Ли Ён-сок, Ли Сон-у, Чан Сэ-а, Чан Джи-гонПеревод: Двуголосый любительский (STEPonee)Субтитры: Английские, китайскиеПродолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14196E75CD47897C52EBEA7B9A11B160019830A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393217   (737447) от 22.07.2020
+
+Кто Вы, Мистер Брукс? / Mr. Brooks (2007) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемый бизнесмен и отец семейства, мистер Брукс скрывает тайну. За фасадом заботливого мужа и нежного отца скрывается жестокий убийца. На протяжении долгого времени эти две личности безуспешно борются между собой, и ни одна из них не может одержать верх. В результате убийства продолжаются, и, кажется, ничто не может оборвать эту кровавую цепь преступлений.Производство: США / Metro-Goldwyn-Mayer (MGM), Eden Rock Media, Element FilmsЖанр: триллер, драма, криминалРежиссер: Брюс А. ЭвансАктеры: Кевин Костнер, Деми Мур, Дэйн Кук, Уильям Херт, Марж Хелгенбергер, Рубен Сантьяго-Хадсон, Даниэль Панабэйкер, Аиша Хайндс, Линдсэй Круз, Джейсон ЛьюисПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 02:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C927A708D96875B3B7A4C4675B4932A842312E18
 ```
 
 https://mybot314.ru/tekegram_catalog/

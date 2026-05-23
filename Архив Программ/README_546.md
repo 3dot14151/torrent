@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774142.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 58.0.3135.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774140.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CleanMyPC 1.9.0.1280 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774136.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Magic Uneraser 4.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774132.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Reg Organizer 8.05 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774120.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SoftMaker Office Professional 2018 rev 928.0313 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774118.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Internet Download Manager 6.25 Build 17 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774114.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Anvir Task Manager 8.0.5 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774109.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Anvir Task Manager 8.1.0 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774107.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Opera 58.0.3135.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774096.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Any Video Converter Professional 6.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774089.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ MKVToolNix 30.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774085.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Just Color Picker 5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774081.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ System Ninja 3.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774078.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Punto Switcher 4.4.2 Build 334 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774073.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ uTorrent 3.5.3 Build 44358 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774072.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Adobe Dreamweaver CC 2018 18.1.0.10155 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774059.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Razer Cortex 7.2.16.12597 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774053.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ R-Studio 8.0 Build 164541 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774041.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Wondershare Filmora 9.0.5.1 (x64) Repack by elchupacabra (22.01.2019) + Effect P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774025.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Foxit Reader 9.4.1.16828 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774019.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ TeamViewer 13.1.1548 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774013.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ CCleaner 5.41.6446 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774009.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ R-Studio 8.0 Build 164541 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773989.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Revo Uninstaller Pro 3.1.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773988.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ AdFender 2.25 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773986.jpg" />
 </div>
 
 

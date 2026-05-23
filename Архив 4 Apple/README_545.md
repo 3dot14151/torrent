@@ -6,7 +6,7 @@ SyncBird Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227960.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Scrivener 3 v3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227950.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Keka 1.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227901.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ON1 Effects 2021 v15.0.1.9783 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227891.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ WiFi Explorer 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227881.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Cinemagraph Pro 2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227872.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ GarageSale 8 v8.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227699.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Translate Tab 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227682.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Audirvana 3.5.27 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227670.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ ColorSnapper 2 v1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227664.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Movavi Screen Recorder 21.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227663.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tipard Blu-ray Converter for Mac 9.2.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227649.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fix My iPhone 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227645.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cookie 6.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227635.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ ON1 Portrait AI 2021 v15.0.1.9783 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227587.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Adguard 2.2.3 679 nightly (CL - 1.5.141) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227471.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ PDF Converter OCR 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227320.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Photo Mechanic 5.0 (16960) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227306.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Meta 1.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227293.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Audirvana 3.5.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227285.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ NetSpot PRO Wi-Fi Reporter 2.13.1009  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227244.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Luminar 4  v4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227208.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ DVDFab All-In-one 11.0.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227165.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ iStat Menus 6 v6.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227042.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Surviving Mars - Gagarin Patch v3 (25505) (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227017.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Codepoint for Mac 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226949.jpg" />
 </div>
 
 

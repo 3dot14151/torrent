@@ -6,7 +6,7 @@ Nation Red / Зомбилэнд (2009) [Ru/En] (1.00.1000) Lossless Repack R.G. 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339101.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Forge Quest (2015) [En] (1.56.5) Repack Hazestalker
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336546.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ICEY (2016) [Muti] (1.0) License SKiDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335252.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GONNER2 (2020) [Rui/Multi] (1.1.8.2) License GOG [The Full Ikk Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325409.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shovel Knight (2014) [En/Multi] (2.01) Repack Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324426.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cyber Hook (2020) [Ru/Multi] (1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324205.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ A Hat in Time (2017) [Ru/Multi] (59270/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322543.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ de Blob (2017) [Multi] (0.28b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320600.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Way of the Red (2016) [En] (1.0.0.0/24.11.2016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315331.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rampage Knights (2015) [En] (1.5) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311545.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cyber Chicken (2016) [En] (1.0.3) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310531.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308826.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sneaky Sneaky  (2014) [En] (1.0.293) Repack  Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303752.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Iggy's Egg Adventure (2015) [En] License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302922.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Rogue Wizards (2016) [En] (1.0.311) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299446.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Junk Jack (2016) [En] (3.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291385.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ King Lucas (2016) [En/Es] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291211.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ CRAZY CHICKEN Strikes Back (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291203.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283625.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278111.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Filthy Lucre (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278071.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276748.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Rad Rodgers: World One (2016) [En] (1.1.4480) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273050.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ MinecraftEdu (2011) [Ru/Multi] (1.7.10 Build 22) License [Minecraft Classroom Ed
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264322.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Wonder Boy: The Dragon's Trap (2017) [Multi] (1.02.22) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262646.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Boom Library - ReCenter 1.0.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686340.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AoA Audio Extractor Platinum v2.2.9 [Английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_667143.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cakewalk SONAR Platinum 23.5.0 Build 29 (2017.05) [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665028.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Text to Speech Converter 1.26.05 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657349.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Futurephonic - Rhythmizer 2.1.1 VST [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653967.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Black Salt Audio All Plug-Ins 03.2022 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653966.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Arturia - Prophet V v2.0 Incl Keygen by AiR[английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_650958.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Hotone - VStomp Amp 1.2.1 Standalone, VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650579.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Aimersoft Music Recorder 1.0.1 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649155.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Martinic - AX73 1.1.0 VSTi (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648650.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ PSPaudioware - PSP BussPressor v.1.0 x86 x64 [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647265.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Native Instruments - Replika XT 1.2.2 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645030.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Native Instruments - Transient Master 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645027.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ XLN Audio - XO Complete 1.4.5.9 STANDALONE, VSTi, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644778.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ XLN Audio - Addictive Keys Complete 1.5.4.2 STANDALONE, VSTi, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644638.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Arturia - Spark Creative Drum Machine v.1.4.1 x86 x64 by ASSiGN [английс�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_644559.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Adrosoft Dual Audio Recorder 1.4 RePack by Vl@d [Rus/Eng]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_642875.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Native Instruments - Driver 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642849.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Native Instruments - Solid Mix Series 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642730.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Native Instruments - Reverb Classics 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642620.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ XLN Audio - Addictive Trigger Complete 1.2.5.3 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642608.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ TBProAudio - DSEQ3 3.6.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640955.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Toontrack EZkeys Electronic Pop 1.0.0 STANDALONE, VSTi, AAX (x86/x64)
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638835.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Acon Digital Collection 04.2022 Standalone, VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638748.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Initial Audio - AR1 Reverb 1.2.0 VST, VST3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635319.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Initial Audio - Dynamic Delay 1.0.5 VST, VST3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635178.jpg" />
 </div>
 
 

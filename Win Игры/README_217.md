@@ -1,29 +1,3 @@
-###  Публикация: 1306790   (554543) от 11.06.2019
-
-RIDE 3 (2018) [Multi] (1.0upd10/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ощутите прилив адреналина от максимально реалистичных гонок в RIDE 3! Погрузитесь в игровой мир с передовой 3D-графикой, где вы будете состязаться с сильнейшими соперниками на своем мотоцикле, настроив его технические характеристики и придумав свой уникальный дизайн в новом редакторе раскрасок. Воплотите в жизнь ваши самые безумные мечты — и не забудьте подобрать (   Читать дальше...   )Тип издания: RepackРазработчик: Milestone S.r.l.Жанр: Гонки, Симуляторы, Спортивные игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7C7384854F49376EA5457270B042C3E54C8B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307756   (554542) от 11.06.2019
 
 ZED (2019) [En] (1.0) License CODEX
@@ -32,7 +6,7 @@ ZED (2019) [En] (1.0) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554542.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Day: 40 (2019) [Multi] (1.0/upd6) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554538.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ ZOMBI (2015) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554363.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Age of Fear: The Undead King (2016) [En] (5.9.5) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554311.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Botanicula (2012) [Ru/Multi] (1.2.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554073.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Mugsters (2018) [Ru/Multi] (1.0.313) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553994.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Myth Seekers 2: The Sunken City / Искатели мифов 2: Затон�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553887.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Toki (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553865.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Overcooked 2 (2018) [Multi] (4.576282/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553856.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Figment (2017) [Ru/Multi] (1.1.5/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553800.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Mary Skelter: Nightmares (2018) [En/Jp] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553761.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Endless Fables 3: Dark Moor / Сказки без конца 3: Мрачные �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553569.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Reigns: Her Majesty (2017) [Ru/Multi] (20180719) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553558.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Figment (2017) [Ru/Multi] (1.1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553555.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Ultra Street Fighter IV (2014) [Ru/En] (1.05/dlc) Repack Mizantrop1337 [Arcade E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553395.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Inside (2016) [Ru/Multi] (5.0.4.29787) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553394.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Storm Guard: Darkness is Coming (2016) [En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553391.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553150.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Andersen Accounts: Chapter One / Досье Андерсена: Дело №
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553147.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Chimeras 9: Wailing Waters / Химеры 9: Плачущие воды (2019) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552763.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Hive (2016) [En] (1.01) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552586.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Murder, She Wrote 2: Return to Cabot Cove / Она написала убийст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552292.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Overlord II / Overlord 2 (2009) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552098.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Warparty (2019) [Ru/Multi] (1.0.9) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551766.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Might & Magic Heroes VI / Меч и Магия: Герои VI (2011) [Ru] (1.0 -
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551712.jpg" />
 </div>
 
 
@@ -667,6 +641,33 @@ Might & Magic Heroes VI / Меч и Магия: Герои VI (2011) [Ru] (1.0 -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:145778CF094EC3F3EE8FBE6E2A05242A70F57D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136519   (551702) от 18.06.2019
+
+Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на новый Дикий Запад.
+Этот шутер переносит беззаконие Дикого Запада в наши дни. Вы отправляетесь в кровавое путешествие из Лос-Анджелеса в Хуарес — Мексику окутает запутанный сюжет с интересными персонажами и самыми разнообразными вариантами игрового процесса. Почувствуйте беззаконие современного Дикого Запада, выслеживая картель Мендозы в мире, (   Читать дальше...   )Тип издания: RipРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B5D17F2AF0188ECD301BF68591B7B43F530720
 ```
 
 https://mybot314.ru/tekegram_catalog/

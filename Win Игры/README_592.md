@@ -1,29 +1,3 @@
-###  Публикация: 1815035   (5519) от 28.08.2025
-
-Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Инди-платформер - Rage in Peace - это увлекательное путешествие в мир приключений одного существа - Тимми Малину, который обзавелся странной мечтой. Весь мир вокруг вас - это параноидальный хаос, внутри которого не сойти с ума - большая удача. Тимми хочет умереть спящим в собственной пижаме в своей постели, чтобы его никто не окружал. Драмы он тоже не хочет.Тип издания: LicenseРазработчик: Rolling Glory JamЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Французский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FCA8302AF50220B972352C85F6FBC512DF3048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815176   (5518) от 28.08.2025
 
 Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/Multi] (20250715) Repack seleZen
@@ -32,7 +6,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5518.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5474.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5473.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5470.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Enshrouded (2024) [Ru/Multi] (Build 19651931) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5468.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5462.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Primal Planet (2025) [Ru/Multi] (Avgust 25th 2025 v1) Repack Let'sРlay [Dino Su
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5458.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.9.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5455.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Rogue Loops (2025) [Ru/Multi] (1.3.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5454.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5451.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.6.a) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5444.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5443.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5434.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [D
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5431.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.69/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5428.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5427.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5403.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Countryballs: Power Protocol (2025) [Ru/Multi] (build 19413235) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5381.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5365.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Fly Corp (2021) [Ru/Multi] (1.8.6/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5364.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5358.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Mystery Trackers 21: The Shrouded Village (2025) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5352.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The RPG (2025) [Ru/Multi] (1.021) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5315.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Telepath Tactics Liberated (2022) [En] (1.0.60l) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5313.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dragon Is Dead (2024) [Multi] (1.0783) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5311.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dragon is Dead - хардкорный 2D экшен-платформер с эл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D704D3BDDCB604B1848F2EB301622ABD9436B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754410   (5310) от 30.08.2025
+
+ELDEN RING (2022) [Ru/Multi] (1.16.1/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FBD093AAEFDE70BAED10DB773C583C2D41AF37
 ```
 
 https://mybot314.ru/tekegram_catalog/

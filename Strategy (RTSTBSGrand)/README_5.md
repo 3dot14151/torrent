@@ -6,7 +6,7 @@ Endless Legend (2014) [Ru/Multi] (1.8.2/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753181.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ostalgie: The Berlin Wall (2018) [Ru/En] (1.0.6.c) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745765.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742018.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Star Trek: Armada (2000) [En] (1.2_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742007.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Star Trek: Armada II (2001) [En] (1.1_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742006.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dawn of Andromeda (2017) [Ru/En/Ge] (1.096/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740531.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Feud: Wild West Tactics (2020) [En] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735503.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Meridian: New World (2014) [Ru/Multi] (1.04) License PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732389.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ War for the Overworld (2015) [Ru/Multi] (1.4.0f4/dlc) Repack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731266.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Meridian: New World (2014) [Ru/Multi] (1.04) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730268.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Total War: Rome Remastered (2021) [Ru/Multi] (2.0.5) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728316.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sudden Strike 4 (2017) [Ru/Multi] (1.15/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727175.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Settlers: History Collection (2018) [Ru/Multi] UplayRip R.G. Origins
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720381.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.2.1/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718970.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [En] (3.5/dlc) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712491.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Total War: Rome Remastered (2021) [Ru/Multi] (2.0.5/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712235.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Europa Universalis IV / Europa Universalis 4 (2013) [Ru/Multi] (1.30.3/dlc) Repa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706831.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Endless Legend (2014) [Ru/Multi] (1.7.4/dlc) License PLAZA [Classic Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702844.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.5.3/dlc) License CODEX [Field Marshal Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702016.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Crusader Kings II (2016) [Multi] (3.0.1.1/dlc) License CODEX [Imperial Collectio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689683.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sorcerer king (2015) [En] (1.50) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687958.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683602.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679828.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Antihero (2017) [Multi] (1.0.24/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677780.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/Multi] (1.94/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675744.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673713.jpg" />
 </div>
 
 

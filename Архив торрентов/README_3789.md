@@ -6,7 +6,7 @@ QQ Browser 10.3.1.2843 Portable by Cento8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226204.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Comedy Woman  (2015.12.04) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226197.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Macrium Reflect v7.2.3906 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226193.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226190.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ SiSoftware Sandra Lite 2013.01.19.19 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226189.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Soulver 2.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226184.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Elmedia Player Pro v7.0 (1618) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226181.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ mirethMusic 4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226178.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ GlueMotion 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226175.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ MacPilot 12.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226169.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Find Any File (FAF) 2.3.2 b10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226167.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Stellarium 0.14.65.0 Test [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226166.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Valentina Studio Pro 9.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226165.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ GarageSale 9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226155.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ eMail Address Extractor 3.5.8 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226152.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ HomeBank 5.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226141.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ uTorrent Pro 3.5.5 Build 46542 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226133.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ RAW Power 3.4.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226132.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ GarageSale 8 v8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226127.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Sankarea / Санка Рэа [2012, TV, 12 + 2 OVA] BDrip 1080p raw + rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226126.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Dr. Folder 2.8.6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226125.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ DoubleTake 2.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226118.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Airtool 2 v2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226117.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ WiFiSpoof 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226116.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Iridient Developer 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226112.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ MediaInfo 0.7.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226109.jpg" />
 </div>
 
 

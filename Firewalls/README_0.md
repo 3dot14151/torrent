@@ -6,7 +6,7 @@ Malwarebytes Windows Firewall Control 6.20.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136756.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Minimal Firewall 2.5.0 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126089.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fort Firewall 3.19.9 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124458.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Minimal Firewall 2.4.3 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104456.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Minimal Firewall 2.4.2 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100988.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Re: Minimal Firewall 2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98595.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows Firewall Control 6.11.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56308.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Malwarebytes Windows Firewall Control 6.19.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52056.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ simplewall 3.8.6.1 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16271.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Minimal Firewall 2.2.6 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8544.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Fort Firewall 3.19.6 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3329.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Minimal Firewall 2.2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_325.jpg" />
 </div>
 
 

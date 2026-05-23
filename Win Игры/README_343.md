@@ -1,29 +1,3 @@
-###  Публикация: 1651792   (194059) от 19.08.2023
-
-The Master's Pupil (2023) [En] (1.1.4) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-The Master's Pupil - видеоигра с ручной раскраской, предлагающая геймерам исследовать глаз знаменитого французского художника Клода Моне. Проект представляет собой головоломку, в которой юзерам предстоит помочь герою завершить работу над некоторыми из его величайших шедевров, преодолевая при этом трудности его жизни и катаракту. Тайтл состоит из 12 уровней, каждый (   Читать дальше...   )Тип издания: SceneРазработчик: Pat NaoumЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94475EED4DF2EA86602122709098D90DCF2E39E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654161   (194032) от 19.08.2023
 
 M.E.R.C. Genesis (2023) [En] (1.0.0.00) Repack Other s
@@ -32,7 +6,7 @@ M.E.R.C. Genesis (2023) [En] (1.0.0.00) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194032.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194029.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193988.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Lynn, The Girl Drawn On Puzzles (2020) [Ru/Multi] (1.0.01) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193981.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193979.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 11965072) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193944.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193928.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.13418/dlc) Scene Rune [Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193871.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193865.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Cantata (2023) [En] (1.01/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193857.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193854.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lost Lands 8: Sand Captivity / Затерянные земли 8: Песчаны
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193823.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.3.23.08:181/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193803.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193777.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193767.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Lynked Banner of the Spark (2025) [Ru/Multi] (Build 87707/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193756.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193748.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Shining Resonance Refrain (2018) [Multi] (1.00.1618) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193742.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ WildTrax Racing (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193726.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193702.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Blasphemous 2 (2023) [Ru/Multi] (1.0.5-cs43681) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193671.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Slap Fight (2023) [En] (5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193628.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Hellfire (2023) [En] (5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193617.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Fire Shark (2023) [En] (7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193601.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193583.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Plants vs. Zombies: Replanted - это ремастер оригинальной
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7CCDECC0B1AA93895C90E8C8DBBC57ABD6ADC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828305   (193563) от 24.10.2025
+
+Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193563.jpg" />
+</div>
+
+
+###  Подробнее
+
+По Лос-Анджелесу разносится смертоносный вирус, превращающий носителей в зомби. Укус, заражение и больше чем просто иммунитет: узнайте правду об эпидемии и выясните, кем - или чем - вы стали. Выживание и эволюция - таков путь истребителя зомби!Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDA3369800275F9440988ED928081B992AEDA07
 ```
 
 https://mybot314.ru/tekegram_catalog/

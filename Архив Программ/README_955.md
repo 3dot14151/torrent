@@ -6,7 +6,7 @@ R-Studio 7.7 Build 159222 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566379.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BulkZip File Compressor 7.2.719.2361 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566377.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TeamViewer Free | Premium 10.0.45471 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566367.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LibreOffice 4.4.5 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566363.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Q-Dir 6.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566355.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wise Registry Cleaner 8.65.555 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566322.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LibreOffice 4.4.5 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566321.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ TeamViewer Server Enterprise 10.0.45471 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566320.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ GPU-Z 0.8.5 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566318.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AVG AntiVirus 2015 15.0.6122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566312.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ DesktopOK 4.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566311.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bitdefender Internet Security 2015 19.1.0.114 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566260.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Windows Firewall Control 4.5.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566258.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AVG Internet Security 2015 15.0.6122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566254.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Pale Moon 25.6.0 + Portable + tools [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566250.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skype 7.7.0.103 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566247.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VMware Workstation Technology Preview 2012 8.1.790308 [Английский + Р
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566228.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Advanced SystemCare Pro 5.4.0.257 Final DC 31.07.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566225.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ TeamViewer 10.0.45471 Free | Corporate | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566195.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566193.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ UltraUXThemePatcher 3.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566191.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Slimjet 4.0.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566187.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Prominy V-Metal 1.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566168.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Kaspersky Anti-Virus 2013 13.0.0.3370 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566163.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Gilisoft Audio Recorder Pro 6.5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566135.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Re-Loader 1.3 RC 10.0.10241 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566118.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1631992   (198668) от 08.05.2023
-
-Заклятье. Первое пробуждение / La Nina de la Comunion / The Communion Girl (2022) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Новенькая Сара пытается вписаться в компанию подростков. Однажды вечером она идет с ними в ночной клуб, а по дороге домой друзья встречают маленькую девочку с куклой в руках, одетую в старомодное платье для первого причастия. Сара еще не знает леденящую городскую легенду о девочке-призраке, готовой отомстить любому, кому не посчастливится пересечь ее путь.Производство: Испания / Atresmedia Cine, Ikiru Films, La Terraza FilmsЖанр: ужасыРежиссер: Виктор ГарсияАктеры: Карла Кампра, Айна Квиньонес, Марк Солер, Карлос Овьедо, Олимпия Рош, Мария Молинс, Ксави Лите, Анна Аларкон, Виктор Соле, Сара РошПеревод: Дублированный (Велес)Язык озвучки: русский, испанскийСубтитры: русскиеПродолжительность: 01:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021262C1754A3087F22900F8E496C59467DA8DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632209   (198662) от 09.05.2023
-
-Детектив Найт: Мерзавец / Detective Knight: Rogue (2022) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Опытный детектив Джеймс Найт из Лос-Анджелеса преследует банду вооруженных грабителей, серьезно ранивших его напарника в канун Хэллоуина.Производство: США / BondIt Media Capital, Buffalo 8 Productions, LionsgateЖанр: боевик, триллерРежиссер: Эдвард ДрейкАктеры: Брюс Уиллис, Локлин Манро, Кори Лардж, Бо Мирчофф, Майкл Эклунд, Коуди Кирсли, Кия Кинг, Джимми Жан-Луи, Тревор Гретцки, Брайден ДалмаззонПеревод: Многоголосый профессиональный (SDI Media)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A9F791CEA9981E98301DABD1B080641FC7AD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632146   (198657) от 09.05.2023
 
 По правилам и без / L'innocent / The Innocent (2022) BDRemux [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198657.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198650.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198649.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198639.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198622.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198609.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198608.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198594.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198557.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198552.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198534.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198532.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198527.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198510.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198508.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198493.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198478.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198477.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198472.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198463.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198457.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198439.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198420.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198404.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7C9C76C13630A98745AE50EF8E67CD69877A9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633361   (198396) от 14.05.2023
+
+Крик 6 / Scream VI (2023) UHD WEB-DLRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо выживших после резни в Вудсборо — сёстры Карпентер и близнецы Чад и Минди — переехали в Нью-Йорк, где пытаются начать жизнь заново. Сэм посещает психотерапевта и к неудовольствию Тары трясётся над каждым её шагом, но, как вскоре выясняется, не зря. Маньяк в маске Призрачного лица снова начинает убивать, и, как предполагает Минди, из числа подозреваемых не (   Читать дальше...   )Производство: США, Канада / Paramount Pictures, Spyglass Media GroupЖанр: ужасы, триллер, детективРежиссер: Мэттью Беттинелли, Тайлер ДжиллеттАктеры: Мелисса Баррера, Дженна Ортега, Мэйсон Гудинг, Джасмин Савой Браун, Кортни Кокс, Скит Ульрих, Роджер Л. Джексон, Дермот Малруни, Джек Чемпион, Джош СегарраПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: 02:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926AFEF150E0B069ECB9FFF6C90C657F7FFF366C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633440   (198395) от 15.05.2023
+
+Астерикс и Обеликс: Поднебесная / Asterix & Obelix: L'Empire du Milieu (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198395.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 год до нашей эры. В Китае происходит переворот, из-за чего принцесса Сюан-ди, единственная дочь императора, бежит в Галлию, где просит Астерикса и Обеликса помочь освободить её страну. Они отправляются в Китай, не подозревая, что туда же движется Юлий Цезарь.Производство: Франция / Artemis Productions, Auvergne Rhone-Alpes Cinema, Canal+ frЖанр: комедия, приключения, семейныйРежиссер: Гийом КанеАктеры: Гийом Кане, Жиль Леллуш, Венсан Кассель, Джонатан Коэн, Марион Котийяр, Julie Chen, Leanna Chea, Хосе Гарсия, Златан Ибрагимович, Рамзи БедиаПеревод: ДублированныйЯзык озвучки: Русский, ФранцузскийСубтитры: АнглийскиеПродолжительность: 01:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB19143855FD8CFF8F0A9477F80AA713399A89D
 ```
 
 https://mybot314.ru/tekegram_catalog/

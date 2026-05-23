@@ -6,7 +6,7 @@ Akira Miyazawa, Masahiko Sato (Satoh), Masahiko Togashi, Yasuo Arakawa - Four Un
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975619.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hank Crawford - Memphis, Ray And A Touch of Moody 1960 - 1965 (1997) 2CD, 32 Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975618.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gregory Fine (Григорий Файн) Trio - The Road To Mississauga (1997) �
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975546.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazz Ballads With A Blue Feeling (2003) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975148.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ The J.J. Johnson Sextet - J.J. Inc. (1960) Remaster, 2014, Sony Music[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974597.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Jimmy McGriff & Richard "Groove" Holmes - Giants of the Organ Come Together (197
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974590.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Al Di Meola - Consequence Of Chaos (2006) SACD [FLAC|Lossless|tracks + .cue] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974521.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Hiromi - Spiral (2005) SACD, 2006 Telarc [FLAC|Lossless|tracks + .cue] <Post Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974464.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Johnny Griffin & Dexter Gordon - Jazz Undulation (1968) Remaster, 2014,Studio So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974403.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Manny Albam - Four Classic Albums 1955 - 1957 (2015) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974392.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Roscoe Mitchell and the Sound Ensemble - Snurdy McGurdy and her Dancin' Shoes (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973436.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Art Farmer Quintet - At Boomers (1976) Remaster, 2015, Universal[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973435.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Bill Evans - Evans In England 1969 (2019) 2CD, Resonance Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973240.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Ray Brown, John Clayton, Christian McBride - SuperBass 2 (2001) SACD [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973212.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Hiromi Kanda - Seven Elegant Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973166.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Reuben Wilson - Blue Mode (1969) Remaster, 2014, Universal[FLAC|tracks+.cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972256.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Bob Gordon - Quintet / Sextet with Herbie Harper and Jack Montrose: Complete Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972254.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Roland Kirk with Jack McDuff - Kirk's Work (1961) 2000, OJC[FLAC|tracks+.cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972192.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Thelonious Monk - Genius Of Modern Music, Vol. 1, 1947 (2001) Blue Note [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971991.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Louis Armstrong - The Very Best Of Louis Armstrong 1950-e - 1960-e (2000) Univer
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971909.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Sonny Fortune - Infinity Is (1978) Remaster, 2014, Warner[FLAC|tracks+.cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971000.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ The Pete Jolly Trio - When Lights Are Low (1956) Remaster, 2004, BMG Fullhouse[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970998.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Joe Gilman Trio with Joe Henderson - Treasure Chest (1991) Remaster, 2015, Timel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970997.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Bob James - Rhodes Scholar: Jazz-Funk Classics (1974-1982) 2CD Compilation, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970931.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Thelonious Monk - Genius Of Modern Music, Vol. 2, 1952 (2001) Blue Note [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970742.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Arturo Sandoval - Live At The Blue Note (2004) Half Note[FLAC|tracks+.cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969843.jpg" />
 </div>
 
 

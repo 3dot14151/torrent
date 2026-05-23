@@ -6,7 +6,7 @@ VA - По волне моей памяти 2: Том39 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268658.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - По волне моей памяти  70', 80', 90' (2019) [MP3|254-320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268589.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Official UK Top 40 Singles Chart 15.11.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268213.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - не Громкие новинки недели 43 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268195.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - ЕвроХит Топ 40 Europa Plus 15.11.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268188.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Зарубежка 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268058.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Зайцев.нет Лучшие новинки Ноября (2019) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268055.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Beatspot Winter '18 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267897.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Radio DFM: Top D-Chart (15.11) (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267680.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - По волне моей памяти 2: Том40 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267660.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - The Official UK Top 40 Singles Chart 08.12.2017 [MP3|320 Kbps] <Alternative
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267104.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Billboard Hot 100 Singles Chart 08.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266665.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Top 100 Зайцев.Нет Ноябрь 2018 [MP3|320 Kbps] <Pop, Dance, O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266564.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Зима танцевальная 2017-18 [MP3|320 Kbps] <Pop, Dance, House
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266522.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Kiss FM: Top 40 (02.12.2018) (2018) [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266287.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Громкие новинки Ноября Vol 2 (2019) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266018.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - 150 Popular Eurodance Megahit (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265920.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Качай и слушай Vol 4 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265902.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Hedkandi December Dance Mix (2018) [MP3|320 Kbps] <Dance, Pop, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265805.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - ЕвроХит Топ 40 Europa Plus 07.12.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265014.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Громкие новинки месяца Vol.18 (2018) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264956.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Сегодня на радио хиты FM (2018) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264805.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Partybreaks and Remixes - All In One October 001 (2018) [MP3|320 Kbps] <Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264764.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - EDM: Electro House Movement (2017) [MP3|320 Kbps] <Electro House, Dance, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264146.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Need For Speed Vol.11 (2017) [MP3|320 Kbps] <Hands Up, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264108.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - The Official UK Top 40 Singles Chart 22.11.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264013.jpg" />
 </div>
 
 

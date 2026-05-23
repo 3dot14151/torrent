@@ -1,29 +1,3 @@
-###  Публикация: 1276581   (787947) от 16.01.2019
-
-Gray Dawn (2018) [Ru/Multi] (1.0) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в ужасное приключение в роли священника, обвиняемого в ритуальном убийстве мальчика. Gray Dawn - психологический триллер, наполненный религиозными элементами и сочетающий сюжетные квесты с художественным опытом.Тип издания: RepackРазработчик: Interactive StoneЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EAD1775A77C436FC3FE6C27707D6D933C8E3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203422   (787554) от 03.02.2018
 
 Sally Face (2016) [Ru/Multi] (1.2.18) Repack Z0l0t0y [Episode 1&2]
@@ -32,7 +6,7 @@ Sally Face (2016) [Ru/Multi] (1.2.18) Repack Z0l0t0y [Episode 1&2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787554.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Awesome Adventures of Captain Spirit / Life Is Strange 2 (2018) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787451.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Henry's Day PLAZA (2021) [En] (7617791) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787319.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Kholat (2015) [Ru/Multi] (1.03) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786776.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ KHOLAT (2015) [Ru/Multi] (1.03/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786495.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.1.0) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786247.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Lion's Song (2016) [Ru/Multi] (1.0) License TiNYiSO [Episode 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785874.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Silent Descent (2018) [En] (1.03) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784265.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Light Remake (2020) [Ru/En] (1.01) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783843.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Deck of Ashes (2020) [Ru/Multi] (1.4.55057) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783826.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Beyond Blue (2020) [Ru/Multi] (1.3.15659) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783822.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lost God (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783743.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783731.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781768.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Samorost 2 / Саморост 2: Звезданутое Приключение [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780622.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ MonteCrypto: The Bitcoin Enigma (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780029.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Sherlock Holmes: Crimes and Punishments / Шерлок Холмс - Престу
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779844.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ Far Out (2018) [Ru/En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779841.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Award Room of fear (2018) [Ru/En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778425.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Sylvio Remastered (2016) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_778215.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) License GOG [Deluxe E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778173.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ The Walking Dead: Michonne - Episode 1-3 (2016) [Ru/Multi] (1.0.0.0) Repack R.G.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778136.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ The Raven: Legacy of a Master Thief (2013) [En/Ge] (3.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778055.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Sylvio Remastered (2016) [En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777807.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Life is Strange: Before the Storm (2017) [Multi] (1.0/dlc) License CODEX [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777691.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ Life is Strange: Before the Storm (2017) [Multi] (1.0/dlc) License CODEX [Episod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40E938BD62C35AFABD0E8D81330001BA95CE9646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211358   (777378) от 07.03.2018
+
+Distortions (2018) [En/Br] (1.0) Repack MAXSEM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Distortions (Искажения) – сюжетная музыкальная психологическая драма, героиня которой путешествует через неизвестную бескрайнюю и сюрреалистическую долину, созданную из искаженных воспоминаний ее жизни и прошлых отношений. Как далеко вы сможете пойти, что бы вернуть потерянную память? Искажения - это музыкальное путешествие по неизвестному, воображаемому миру. Войдите (   Читать дальше...   )Тип издания: RePackРазработчик: Among GiantsЖанр: Adventure, Surrealism, Musical, Psychodrams, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Бразильский (португальский)Язык интерфейса: Английский, Бразильский (португальский)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36A5366C72E716DD1E3600265B5CD009922F694
 ```
 
 https://mybot314.ru/tekegram_catalog/

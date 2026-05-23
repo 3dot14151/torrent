@@ -6,7 +6,7 @@ VA - Coastal Selections 006 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764063.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - XXX Club Bouncer (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763036.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Winter 2019: Best Of Inception (2019) [MP3|320 Kbps] <Progressive House, De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762222.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - 50 Top Hits Remixed Vol.1 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762202.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Deep House Hits (Armada) (2019) [MP3|320 Kbps] <House, Deep House, Vocal Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762123.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Infrasonic Miami (2018) [MP3|320 Kbps] <Progressive House, Progressive Tran
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761811.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Dance Party - Ready For The Summer (2016) [MP3|320 кб/с] <House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761235.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761224.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761115.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760515.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758103.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Tran
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756600.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rick Pier O'Neil - Mysterious (2016) [MP3|320 кб/с] <Progressive House, Techn
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756119.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hard EDM Workout - Running 70s 80s 90s Hits: 150 bpm (2020) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755172.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Spring Break Is Coming (Tech House Fever Is All Over) (2018) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754859.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Black Hole House Music 05-16 (2016) [MP3|320 кб/с] <House, Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754147.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Tribal House Sensations Vol. 3 (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754100.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754090.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Michael Rade - Dadala (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752422.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Sirup Deep Anthems Ibiza 2016 (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752341.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Garten Lounge Musik (2016) [MP3|320 кб/с] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750270.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, F
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748514.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - We Love House (2019) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748512.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Dancefloor Hits (2019) [MP3|320 Kbps] <House,  Progressive House, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748506.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Poolside Miami 2018 (Mixed by Kraak & Smaak) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747855.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Fitness Beats 2018 - 24 Workout & Fitness Gym Music Hits [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747840.jpg" />
 </div>
 
 

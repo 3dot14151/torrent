@@ -1,55 +1,3 @@
-###  Публикация: 1169066   (402006) от 28.09.2017
-
-Нерв / Nerve (2016) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Через Интернет вас контролируют не только спецслужбы, но и создатели видеоигр. Они буквально берут вашу жизнь под контроль. По крайней мере, так случилось с Ви – обычной студенткой, которая решила поискать приключений и ввязалась в модную игру, основанную на принципе дополненной реальности. Начиналось все безобидно, а вылилось в итоге в сущий кошмар и безумие.Производство: США | Lionsgate, Allison Shearmur Productions, Keep Your HeadЖанр: Триллер, криминал, детектив, приключенияРежиссер: Генри Джуст, Эриель ШульманАктеры: Эмма Робертс, Дэйв Франко, Эмили Мид, Майлс Хейзер, Кимико Гленн, Марк Джон Джеффрис, Машин Ган Келли, Брайан «Сене» Марк, Эд Сквайр, Райтор Дойл, Джульетт ЛьюисПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506546ECCB6E0EA87207AD7E9856CF4337353F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169555   (402005) от 28.09.2017
-
-Человек-паук: Возвращение домой / Spider-Man: Homecoming (2017) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После исторической встречи с командой Мстителей Питер Паркер возвращается домой, стараясь зажить обычной жизнью под опекой своей тёти Мэй. Но теперь за Питером приглядывает ещё кое-что… Тони Старк видел Человека-Паука в деле и должен стать его наставником. Когда новый злодей Стервятник угрожает уничтожить всё, что дорого Питеру, приходит время доказать всем, что (   Читать дальше...   )Производство: США, Columbia Pictures, Marvel Studios Inc., Pascal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд, Роберт Дауни-мл., Майкл Китон, Мариса Томей, Джон Фавро, Дональд Гловер, Логан Маршалл-Грин, Зендая, Тони Револори, Мартин Старр, Стэн Ли, Буким Вудбайн, Майкл Чернус, Абрахам Аттах, Танд Эйдебимп, Марта КеллиПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные)Продолжительность: 02:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219376D6CE920571A49F3DC45B1C17C3252E42DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169502   (402001) от 28.09.2017
 
 Нерв / Nerve (2016) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402001.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_401975.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401974.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401969.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401913.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401894.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401876.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401693.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401565.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401533.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401458.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401449.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401417.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401410.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401402.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401312.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401296.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401208.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401194.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401186.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401129.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401104.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401085.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401077.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:399D4CDF97FC32A26E2D923972FE2B1C65FDB83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565104   (401006) от 25.10.2012
+
+Глаз шторма / The Eye of the Storm (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элизабет Хантер - женщина с большой буквы; именно так, властно и эффектно, она прожила жизнь, теперь подходящую к концу. Элизабет прикована к постели, дни её сочтены, взрослые дети — трагикомичный дуэт невротичной неудачницы и жеманного ловеласа, готового закрутить интрижку с сиделкой — приезжают прощаться. Но Хантер легко не сдаётся…Жанр: ДрамаРежиссер: Фред СкеписиАктеры: Джеффри Раш, Шарлотта Рэмплинг, Джуди Дэвис, Александра Чеписи, Мария Теодоракис, Джэйми Тимони, Хелен Морс, Робин НевинПеревод: Профессиональный (многоголосый)Продолжительность: 01:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E32686F2EF089E313781975C964D31EC131EFAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565208   (400971) от 25.10.2012
+
+История вечной любви / Ever After: A Cinderella Story (1998) [720p]  BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не банальная история Золушки, которая знакома всем с детства. Для своего шестнадцатого века Даниэлла — явление уникальное. Она не только привлекательна, но и по — мальчишески ловка и энергична. Обладая острым умом и чувством независимости, Даниэлла не ждет, когда принц ее выручит. Напротив, она сама приходит к нему на помощь и даже в нужный момент спасает ему жизнь, перенеся на своей спине в безопасное место. И уж если ей приходится прибегнуть к чьей — то помощи, то помогает ей не добрая фея, а самый настоящий Леонардо да Винчи. Однако хрустальные туфельки Даниэлла действительно надевает…Жанр: Драма, Мелодрама, КомедияРежиссер: Энди ТеннантАктеры: Дрю Бэрримор, Анжелика Хьюстон, Дугрей Скотт, Патрик Годфри, Меган Доддс, Мелани Лински, Тимоти Уэст, Джуди Парфитт, Йерун Краббе, Ли Инглби, Кейт Лэнсбери, Мэтилок Гиббс, Уолтер Спэрроу, Жанна Моро, Анна Магвайр, Ричард О’Брайэн, Питер Ганн, Джорг Стэдлер, Эндрю Хендерсон, Тоби Джонс, Вирджиния Гарсия, Аль Эштон, Марк Льюис, Рикардо Круз, Джон Уолтерс, Элизабет Эрл, Алекс Пули, Джанет Хенфри, Урсула Джонс, Аманда Уокер, Рапам Максвелл, Тони Дойл, Кристиан Марк, Эльвира СтивенсонПеревод: Многоголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

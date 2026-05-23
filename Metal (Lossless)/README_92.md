@@ -6,7 +6,7 @@ Metal Allegiance - Volume II: Power Drunk Majesty (2018) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762133.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Metallica - ...And Justice For All (1988/2018) 11CD, Disc Box Set Blackened Reco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761728.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Megatherium - GOD (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760613.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hounskull - Perceptual Present (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760441.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Inhibidor - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760362.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Myriad Lights - Mark Of Vengeance (2012) [WavPack|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758794.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Shok Paris - Concrete Killers (1989) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758793.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758792.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Restless - We Rock The Nation (1985) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758791.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Skew Siskin - Electric Chair Music & Voices From The War (1996) 2CD [APE|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758790.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Destruction - Live Attack (2021) 2xCD [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758782.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Crossfire - See You In Hell (1983) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758660.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Evildead - Annihilation Of Civilization (1989) [APE|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758526.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Thorium - Ocean Of Blasphemy (1999) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758218.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Metal For The Masses: The Ninth Gate (2011) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757564.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mekong Delta - Tales of a Future Past (2020) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757200.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Red - Declaration (2020) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757108.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Sabbathian - Latum Alterum (2019) [FLAC|Lossless|Web-DL|tracks] <Doom Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757088.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Leave The Dead - The Cicada King (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756885.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Peter "Peavy" Wagner (Avenger, Rage, LMO, Refuge) - 39 Albums, 1 Box Set (1985-2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756773.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Soulreaper - Life Erazer (2003) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756740.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Destruction - Under Attack (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755735.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Members Of God - Ten Talking Words (2011) [APE|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755163.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Natron - Necrospective (2002) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754862.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Paradise Lost - Symphony For The Lost (2015) 2CD, Special Edition, Live [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753812.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Pantheist - Closer To God (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753620.jpg" />
 </div>
 
 

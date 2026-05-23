@@ -6,7 +6,7 @@ NirLauncher Package 1.30.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193864.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Photo AI 1.5.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193860.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ZW3D 2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193856.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WifiInfoView 2.91 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193852.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vov Sticky Notes 8.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193849.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wise Disk Cleaner 11.0.4.818 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193842.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 11 Manager 1.3.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193838.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ByClick Downloader Premium 2.3.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193834.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TreeSize Professional 9.0.3.1852 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193829.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AIDA64 Extreme Edition 6.90.6517 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193826.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Visual Studio Code 1.81.1 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193804.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Media Encoder 2023 23.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193801.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Alfa eBooks Manager 8.6.14.1 Pro & Web  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193753.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ LosslessCut 3.56.0 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193746.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Adobe Premiere Pro 2023 v.23.5 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193718.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows 11 Manager 1.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193715.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Defender Remover Portable 12.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193707.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Macrorit Disk Scanner 6.6.8 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193690.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Adobe After Effects 2023 23.5.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193677.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ ExtraDisks 23.8.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193676.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ DxO PhotoLab Elite 6.9.0 build 267 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193623.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ R-Studio Network 9.3 Build 191230 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193622.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ AIMP 5.11 Build 2435 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193599.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ qBittorrent 4.5.5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193581.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ WSCC (Windows System Control Center) 7.0.7.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193578.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Transmission 4.04 (24077e3511) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193575.jpg" />
 </div>
 
 

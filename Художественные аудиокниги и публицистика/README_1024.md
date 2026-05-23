@@ -1,84 +1,3 @@
-###  Публикация: 1741567   (47524) от 07.08.2024
-
-Рафаэль Дамиров | Курсант (Книга 12). Назад в СССР (2024). [MP3, Один]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Попаданец в СССР Андрей Петров продолжает бороться с неуловимым Литератором, убивающим по мотивам книг известного писателя детективов Светлицкого.
-Погружаясь в расследование, Курсант вскрывает неприглядные секреты Литейска. Оказалось, что город не так прост, а местные власть предержащие рьяно хранят его темные тайны.Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FA5F7FAD71400A63207E3FF4DECAD067406506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432537   (47495) от 08.08.2024
-
-Генрик Ибсен | Пер Гюнт (2013) [MP3, Илья Прудовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Генрик (Хенрик) Ибсен (1828–1906) – норвежский драматург, основатель европейской «новой драмы». Занимался также поэзией и публицистикой. Писал на датском языке (в его норвежском варианте), который в его время был литературным языком Норвегии.
-Драматическая поэма «Пер Гюнт» – одна из вершин творчества Генриха Ибсена. Существование, не наполненное смыслом, лишенное (   Читать дальше...   )Жанр: Зарубежная литература, классика, драма, поэмаПеревод: Анна и Пётр ГанзенИздательство: Нигде не купишьПродолжительность: 07:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EDC5204A2A51A8C3B3C36AD584364BDA56CD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741865   (47441) от 08.08.2024
-
-Генрик Ибсен | Кукольный дом (2014) (Радиоспектакль) [MP3, Марианна Мокшина, Александр Лыков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Генрик (Хенрик) Ибсен (1828–1906) – норвежский драматург, основатель европейской «новой драмы».
-«Кукольный дом» – пьеса норвежского драматурга Генрика Ибсена, написанная в 1879 году. Центральная тема пьесы – положение женщины в обществе; современники восприняли драму как манифест феминизма. Однако проблематика «Кукольного дома» не исчерпывается «женским вопросом»: (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A59566FC4C0E7A5DBE9D3849ECA3859694BAB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742058   (47351) от 09.08.2024
 
 Пэт Мэрфи | Стратегия регенерации в условиях мегаполиса (2024) [MP3, Puffin Сafe]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47351.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47346.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47294.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47261.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47244.jpg" />
 </div>
 
 
@@ -222,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47233.jpg" />
 </div>
 
 
@@ -248,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47228.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47218.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47155.jpg" />
 </div>
 
 
@@ -328,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47121.jpg" />
 </div>
 
 
@@ -354,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47084.jpg" />
 </div>
 
 
@@ -382,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47081.jpg" />
 </div>
 
 
@@ -410,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47080.jpg" />
 </div>
 
 
@@ -437,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47074.jpg" />
 </div>
 
 
@@ -466,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47069.jpg" />
 </div>
 
 
@@ -493,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47063.jpg" />
 </div>
 
 
@@ -520,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47056.jpg" />
 </div>
 
 
@@ -547,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47053.jpg" />
 </div>
 
 
@@ -574,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47050.jpg" />
 </div>
 
 
@@ -602,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47049.jpg" />
 </div>
 
 
@@ -630,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47046.jpg" />
 </div>
 
 
@@ -657,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46975.jpg" />
 </div>
 
 
@@ -684,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46973.jpg" />
 </div>
 
 
@@ -696,6 +615,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BE494F92105421169B31645A03000DFEC6CC0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 413476   (46969) от 13.08.2024
+
+Вадим Бурлак | Копьё судьбы (2006) [MP3, Виктор Зозулин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Романтика приключений и путешествий.
+Доктора философских наук Международной академии наук Сан-Марино, руководителя исследовательской программы «Тайны времен и народов», писателя и путешественника Вадима Бурлака всегда манило неизведанное, малоизученное. Названия его удивительных книг говорят сами за себя: «Рыцари мадам Авантюры», «Хранители древних тайн», (   Читать дальше...   )Жанр: Русская историческая литература, повестьИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 07:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE52AE2A0D2EBEA9619E1E109FD409B8DF8483C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 413469   (46966) от 13.08.2024
+
+Вадим Бурлак | Хранители древних тайн (2005) [MP3, Вадим Бурлак]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Романтика приключений и путешествий.
+Более 130 экспедиций совершил по всему миру писатель путешественник Вадим Николаевич Бурлак. Поэтому кому, как не ему, подарить нам, оседлым жителям мегаполисов, свои впечатления от необыкновенных путешествий. Писатель слой за слоем снимает для нас пласты веков, не утверждая и не навязывая свое мнение, но предлагая (   Читать дальше...   )Жанр: Русская историческая литература, новеллаИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 05:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5F09C3C2973766C0AB22ED748FE0DBF61ECA4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 413466   (46943) от 13.08.2024
+
+Вадим Бурлак | Роковые маски (2007) [MP3, Евгений Маслак]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Тайны. Приключения. Путешествия.
+Более 130 экспедиций совершил по всему миру писатель и путешественник Вадим Николаевич Бурлак. Поэтому кому, как не ему, рассказать нам, оседлым жителям мегаполисов, о самом волнующем, о том, что потрясло бы наше воображение. В своих новеллах – одновременно и исторических, и фантастических – он вновь и вновь приоткрывает (   Читать дальше...   )Жанр: Русская историческая литература, новеллаИздательство: Говорящая книга, ООО «Авто-Книга»Продолжительность: 05:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10261443E6B602A773CD79A511056046EA1158D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,81 +1,3 @@
-###  Публикация: 669950   (717001) от 18.06.2013
-
-Олдос Хаксли | Двери восприятия [2010] [MP3, Андрей Вильколек]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Двери восприятия (англ. The Doors of Perception) — эссе английского писателя и философа Олдоса Хаксли (1954), описывающего свой опыт употребления мескалина. Эссе послужило толчком к массовому изучению «расширения границ восприятия» под действием наркотиков, оказав таким образом значительное влияние на социальные и культурные процессы второй половины XX века.Жанр: Зарубежная проза, Философия, ЭзотерикаИздательство: АСT
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400573   (716986) от 06.08.2020
-
-Владимир Мясоедов | Избранный путь (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Оставаться в состоянии покоя могут позволить себе лишь те, кому уже нечего терять. А несколько землян, из-за ошибки одного архимага воскресших в чужом мире эльфами, такого позволить себе уж точно не могут. Хотя бы просто потому, что их благодетель требует вернуть долг и золотом от него не откупиться. Все счета будут погашены, лишь если появятся новые сородичи, способные (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 11:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D60CB5203321C9B898AEA4A62AA1B8A1BEC7F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285907   (716941) от 28.02.2019
-
-Александр Кулик | На виниле (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман «На Виниле» — своего рода смешение жанров фантастических историй и детектива. Образованного, интеллигентного читателя несомненно привлечёт и сюжет книги, и его подача, наполненная ссылками к ставшим уже классическим музыкальным произведениям двадцатого века, века джаза и рок-н-ролла. Удивительные переплетения разных историй вымышленных персонажей на время перенесут (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 07:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C5770BA066307B4E976829584C4E1A75E51C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 40760   (716897) от 12.04.2018
 
 Айзек Азимов | Основание [Трилогия] [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716897.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716870.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716862.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716856.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716794.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716725.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716716.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716674.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716666.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716656.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716628.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716627.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716604.jpg" />
 </div>
 
 
@@ -435,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716572.jpg" />
 </div>
 
 
@@ -462,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716569.jpg" />
 </div>
 
 
@@ -488,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716541.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716540.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716525.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716512.jpg" />
 </div>
 
 
@@ -593,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716510.jpg" />
 </div>
 
 
@@ -619,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716506.jpg" />
 </div>
 
 
@@ -645,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716504.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716501.jpg" />
 </div>
 
 
@@ -685,6 +607,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14857F2A586480BDC6ABD5C49975013C1A9FF06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532130   (716172) от 18.02.2022
+
+Антон Текшин | Непутёвый Демон (Книга 1) (2022) [MP3, Игорь Ященко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будь осторожен, заключая договор с незнакомцем. Особенно, после смерти. Ведь можно вляпаться в такие проблемы, что и воскрешению не обрадуешься. Пусть новый мир выглядит, как ожившая сказка, но попасть обратно на тот свет здесь проще простого. Даже будучи одним из наследников уважаемого клана. К ним отношение особое, так что придётся выкручиваться и впахивать, как (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, Социальная фантастикаПродолжительность: 09:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D6E4A69C8397A082C79BC02E7ADB0D42506BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024385   (716130) от 09.06.2016
+
+Нина Берберова | Александр Блок и его время. Биография (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пушкин был русским Возрождением, Блок - русским романтизмом. Он был другой, чем на фотографиях. Какая - то печаль, которую я увидела тогда в его облике, никогда больше не была мной увидена и никогда не была забыта` Н. Берберова.Жанр: Биографии и МемуарыПродолжительность: 06:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF0B763B2CFE74E19205D51ACE3EFF7A12DF5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129938   (716049) от 01.05.2017
+
+Алексей Пинчук | Стая (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716049.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ковчег 5.0» — прекрасный новый мир… Мир, в который перенесется сознание людей, если на Земле случится конец света. Нет, разумеется, не всех людей, а только тех, кто своевременно оплатил свой «билет в рай». Но что-то пошло не так, и вместо комфортной жизни переселенцы вынуждены выживать во враждебном диком мире, где главный закон — закон силы. Хочешь жить, стань (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 10:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3840D570C9FEC8595B33BB310C40BFA0912B2694
 ```
 
 https://mybot314.ru/tekegram_catalog/

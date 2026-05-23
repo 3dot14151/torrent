@@ -1,83 +1,3 @@
-###  Публикация: 339829   (36916) от 18.11.2024
-
-Кретьен де Труа | Персеваль (2007) [MP3, Светлана Репина]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Антология мудрости.
-Старинная европейская литература. Из глубины веков нами унаследовано уважение к рыцарскому кодексу чести и преклонение перед духом истинного рыцарства. Традиционным воплощением этих добродетелей служит благородный король Артур, окруженный рыцарями Круглого стола, образцовыми в отношении нравственности, религиозности, благородства, (   Читать дальше...   )Жанр: Зарубежная литература, классика, рыцарский романПеревод: Дмитрий ВишневскийИздательство: Нигде не купишьПродолжительность: 06:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F4CEDAE0B362FE5014FCA9C187293842A22677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761099   (36908) от 18.11.2024
-
-Владимир Поселягин | Мародёр (Книга 1). Попаданец в Содружество (2024) [MP3, Евгений Бочкарев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бывший землянин, бывший принц магического мира, всё бывшее, но в настоящем, освобождённый раб в мире высоких космических технологий. Теперь нужно освоиться в новом мире. Что ж, какой-никакой опыт перерождений и выживания есть, будет выбираться из той ямы, где оказался. Ах да, меня зовут Стас, и вы ещё услышите моё имя.Жанр: Космическая фантастика, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 12:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EA24DB859403768C2399F52571C68DA89D9EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340005   (36895) от 18.11.2024
-
-Альфред де Виньи | Сен Мар, или заговор в царствование Людовика XIII (2011) [MP3, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Альфред де Виньи (1797–1863) – французский писатель, граф,  крупнейший представитель французского аристократического, консервативного романтизма.
-«Сен Мар» Альфреда де Виньи – книга из первого ряда не только французской, но и мировой литературы. Безупречная по стилю, она принадлежит еще и к редчайшим, поистине романтическим произведениям. Нашему современнику – очевидцу (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: МедиаКнигаПродолжительность: 22:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16AB7088DB56837E102DC66DADA930BF20A95CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761154   (36886) от 18.11.2024
 
 Дан Лебэл | Хроники сфер (Книга 4). Сумерки (2023) [MP3, Илья Дементьев]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36886.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36884.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36852.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36846.jpg" />
 </div>
 
 
@@ -195,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36842.jpg" />
 </div>
 
 
@@ -223,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36781.jpg" />
 </div>
 
 
@@ -250,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36751.jpg" />
 </div>
 
 
@@ -276,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36697.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36688.jpg" />
 </div>
 
 
@@ -330,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36679.jpg" />
 </div>
 
 
@@ -357,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36675.jpg" />
 </div>
 
 
@@ -383,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36674.jpg" />
 </div>
 
 
@@ -409,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36667.jpg" />
 </div>
 
 
@@ -435,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36666.jpg" />
 </div>
 
 
@@ -461,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36582.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36526.jpg" />
 </div>
 
 
@@ -514,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36505.jpg" />
 </div>
 
 
@@ -540,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36503.jpg" />
 </div>
 
 
@@ -566,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36378.jpg" />
 </div>
 
 
@@ -592,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36372.jpg" />
 </div>
 
 
@@ -619,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36365.jpg" />
 </div>
 
 
@@ -645,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36355.jpg" />
 </div>
 
 
@@ -671,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36354.jpg" />
 </div>
 
 
@@ -682,6 +602,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E0F90F4300F95922C7FEF7DCD3E80D2BF52242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761987   (36347) от 23.11.2024
+
+Дмитрий Шелег | Кровь и лёд (Книга 1). Курсант поневоле (2024) [MP3, Амир Шакиров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий Шелег – популярный молодой писатель, автор произведений в жанре фэнтези. Представляем в аудиоформате первую книгу его авторского цикла «Кровь и лёд». Действие романа происходит в том же мире, что и в полюбившейся читателям серии «Живой лёд».
+
+Герой книги – наставник Ивана Морозова Феофан. Он гибнет в бою, но в награду за преданность роду Морозовых перерождается (   Читать дальше...   )Жанр: Боевая магия, Боевая фантастика, БоевикиИздательство: 1С-ПаблишингПродолжительность: 07:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1711DEFABD94E879F08A5760C955A464F34CD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319662   (36320) от 24.11.2024
+
+Сергей Платонов | Петр Первый (2005) [MP3, Галина Самойлова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская историческая библиотека.
+Сергей Фёдорович Платонов (1860–1933) русский историк.
+Роман «Петр Первый» – одна из монументальных работ С.Ф. Платонова, основывающаяся на цикле его знаменитых лекций по истории России.Жанр: Русская историческая литература, монографияПродолжительность: 03:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414606AA2C3DE96C7A83F60C69BE1DCC95A94045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319660   (36319) от 24.11.2024
+
+Сергей Платонов | Борис Годунов. Царь Алексей Михайлович (2005) [MP3, Галина Самойлова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская историческая библиотека.
+В книге «Борис Годунов» Сергей Фёдорович Платонов (1860–1933) продолжает исследовать историю России допетровского периода. Теперь в центре внимания историка оказывается время после смерти Ивана Грозного и история краткого и драматичного правления Бориса Годунова. Кто он был? Хладнокровный интриган, жаждавший власти, или (   Читать дальше...   )Жанр: Русская литература, исторический очерк, монографияИздательство: Вира-М (аудио)Продолжительность: 07:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B35A0C0F8C867FFF9E8E56BE9F131B03FFE7DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

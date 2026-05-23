@@ -1,29 +1,3 @@
-###  Публикация: 1303859   (568848) от 23.05.2019
-
-Fatal Evidence: Cursed Island (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Старый наставник вашей сестры был убит, и вас вызвали на его отдаленный остров, чтобы расследовать! Вы с сестрой приехали как раз к оглашению завещания. Но этот обычный ужин быстро принимает опасный оборот...Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8CE05687D7523A0761A0EFF2D2D4681904C85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152114   (568729) от 21.07.2017
 
 Hidden Expedition 11: Midgard's End / Секретная экспедиция 11: Конец Мидгарда (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Hidden Expedition 11: Midgard's End / Секретная экспедиция 11
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568729.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ascendant (2014) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568677.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Pathologic 2 (2019) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568462.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Grim Fandango Remastered (2015) [Ru/En] (1.4.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568422.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ American Fugitive (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568403.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Onechanbara Z2: Chaos (2016) [En/Jp] (1.07/dlc) Repack АRMENIAC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568385.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Blood Feed (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568338.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568334.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Anima: Gate of Memories (2014) [Ru/Multi] (1.0) Repack Valdeni
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568320.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Fight'N Rage (2017) [En/Spa] (190516) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568315.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Xuan-Yuan Sword EX: The Gate of Firmament (2016) [En/Multi] (1.0) Repack АRMENI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568312.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.689hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568305.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ LEGO: Marvel's Avengers (2016) [Ru/En] (1.1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568293.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Silent Nights: The Pianist Collector's Edition / Тихие ночи: Пиани
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568276.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Prototype 2 (Crack) [En/Ru] 2012 | SKIDROW
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568178.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Legend of Kay Anniversary (2015) [Multi] License RELODEAD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567903.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Kyn (2015) [En/De] License FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567801.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Faces of Illusion: The Twin Phantoms / Иллюзия Облика: Тайна �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567146.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Nevertales 5: Hidden Doorway / Несказки 5: Тайный Портал (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567114.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ The Secret Order 5: The Buried Kingdom / Тайный орден 5: Затеря
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567101.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Observation (2019) [Ru/Multi] (1.04) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566719.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (1.35/dlc) Repack R.G. Catalyst
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566716.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0.5.1) License GOG [Digital Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566715.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Euro Fishing: Foundry Dock (2015) [Ru/Multi] (1.0) Repack Covfefe
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566669.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Life Goes On: Done to Death (2016) [Ru/Multi] (2.02) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566574.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Life Goes On: Done to Death – трагикомический платформ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B7C24E98E97A0546ACC5742201EA2DED01B615A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066029   (566573) от 24.05.2019
+
+War For The Overworld (2015) [Ru/Multi] (2.0.7/dlc) Repack R.G. Catalyst [Underlord Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устали захватывать чужие подземелья? Вы до смерти устали вспарывать животы сотням плохих парней, лишь бы заработать чуток золота да найти ботинки получше? Вы начинаете думать, что жизнь героя - это не для вас? Добро пожаловать в War for the Overworld! War for the Overworld берет лучшее из двух жанров - стратегии в реальном времени и симулятора бога - и позволяет (   Читать дальше...   )Тип издания: RepackРазработчик: Subterranean GamesЖанр: Strategy (God Sim, Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09371733EFA0049ABBEF378190DC488F8EFBDCAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

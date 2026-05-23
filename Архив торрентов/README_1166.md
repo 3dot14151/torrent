@@ -6,7 +6,7 @@ PrintMyFonts 19.1.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787184.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Comedy Баттл (2019.01.18) WEB-DLRip (сезон 9, выпуск 1)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787183.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ashampoo UnInstaller 8.00.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787180.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Download Master 6.17.2.1613 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787177.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner Professional (5.52.6967) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787175.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NVIDIA GeForce Desktop 417.71 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787172.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787156.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ A Better Finder Rename 10 v10.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787153.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CCleaner 5.52.6967 Free_Professional_ Business_Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787152.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ DxO PhotoLab 2 ELITE Edition 2.1.2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787151.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe Photoshop CC 2019 (20.0.2) x64 Portable by punsh (with Plugins) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787150.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787149.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787138.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ iToolab SIMUnlocker 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787131.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Sketch 80.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787120.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ RegCool 1.201 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787096.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FinePrint Software (FinePrint 11.05 / pdfFactory Pro 8.05) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787079.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ FinePrint 11.05 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787073.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Emurasoft EmEditor Professional 21.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787071.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Wise Care 365 Pro 6.1.3.600 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787065.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Futuremark PCMark 10 Professional Edition 2.1.2532 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787047.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ ZW3D 2022 SP [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787046.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SoftPerfect RAM Disk 4.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787044.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ WinToHDD 5.4 Release 1 Free / Pro / Enterprise / Technician RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787037.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Spectral Voice - Necrotic Doom (2015) [FLAC|Lossless|image + .cue] <Death, Doom 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787035.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Realmac 8 8.1 RapidWeaver Final Candidate 7 (build 20573b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787025.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Chromium UNGOOGLED 101.0.4951.54 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592030.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Unlocker 1.2.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592018.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SQL Dynamite 1.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591955.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bandicam 2.2.3.803 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591953.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591939.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ priPrinter Professional  6.3.0.2369 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591899.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Glary Utilities Pro 5.29.0.49 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591862.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ mIRC 7.41 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591861.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Advanced Installer 12.2.1 Build 64247 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591852.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Glary Utilities Pro 5.29.0.49 Final + PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591842.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mozilla Firefox 39.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591841.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AkelPad 4.9.4 + Plugins (х86 & х64) RePack + Portable by San_dr (12.06.15) [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591832.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mailbird Pro 2.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591798.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591797.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ ESET Mail Security для Microsoft Exchange Server 4.5.10023.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591768.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Topaz B&W Effects 2.1.0 RePack by Stalevar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591766.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ XRecode II 1.0.0.224 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591762.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Auslogics BoostSpeed 8.0.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591754.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ UC Browser 5.2.1369.1414 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591752.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Mozilla Firefox SM 39.0 (32-bit & 64-bit) by Browsers-SM [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591750.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Auslogics Disk Defrag Professional 4.6.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591745.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Unity3D Pro 5.1.1f1 [x86, x64] [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591737.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Advanced Driver Updater 2.7.1086.16531 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591718.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Adguard Премиум 5.10.2051.6368 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591703.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ GoldWave 6.63 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591636.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ GeoGebra 6.0.704.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591634.jpg" />
 </div>
 
 

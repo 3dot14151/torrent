@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.0.6.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165920.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Samsung SSD Magician Tool 8.0.0.900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165897.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Macrorit Partition Expert 7.2.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165894.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Advanced SystemCare Pro 17.0.1.108 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165892.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FileMenu Tools 7.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165883.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BELOFF [dp] 2021.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165870.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ EarthView 7.5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165869.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Macrorit Disk Scanner 6.0.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165858.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Bootstrap Studio 5.5.0 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165855.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Topaz Mask AI 1.3.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165854.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Opera 94.0.4606.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165844.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ OBS Studio 26.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165843.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ K-Lite Codec Pack Update 17.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165836.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Textify 1.8.10 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165826.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Macrorit Partition Extender 2.1.0 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165821.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Privacy Eraser Free 4.57.2 Build 3324 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165791.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Antivirus Removal Tool 2022.12 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165742.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ COMSOL Multiphysics 5.6.0.280 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165741.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ PotPlayer 221215 (1.7.21859) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165739.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Topaz Video AI 3.0.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165731.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kaspersky Small Office Security 21.15.8.493 (Web Installer) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165717.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hetman Partition Recovery 4.5 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165715.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165692.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.22 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165691.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PotPlayer 221215 (1.7.21859) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165683.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Nvidia DriverPack v.460.89 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165672.jpg" />
 </div>
 
 

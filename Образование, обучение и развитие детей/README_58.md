@@ -1,57 +1,3 @@
-###  Публикация: 950706   (368037) от 27.10.2015
-
-Валентина Шацкая, Станислав Шацкий | Сохраним то, что есть в детях (2011) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-С.Т. Шацкий и В.Н. Шацкая – выдающиеся русские педагоги, которые жили и работали в условиях революции, Гражданской войны и сталинского режима. В книге представлены фрагменты педагогических трудов этих двух замечательных людей, которые были преданы детям и хотели, чтобы они были всесторонне развитыми личностями.
-Все идеи о воспитании построены на научной основе и (   Читать дальше...   )Жанр: ПедагогикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DAD81C3EE862B060CFF68D3A54676D8612E01D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950716   (368036) от 27.10.2015
-
-Григорий Корнетов (сост.) | Дайте жить детям (сборник) (2010) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В настоящий сборник включены статьи зарубежных авторов второй половины XIX–XX вв., посвященные педагогическим проблемам, актуальным сегодня как для семейного воспитания, так и для школьного обучения.
-Речь идет о праве ребенка быть тем, кем он есть; о необходимости естественного развития его личности, свободы самовыражения и отказе от давления на него; о травмирующих (   Читать дальше...   )Жанр: ПедагогикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DC0C938FBBE8D3FA977848277A96E8B24C1C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950710   (368031) от 27.10.2015
 
 Леонид Венгер, Александр Венгер | Вот и вышел человечек… (сборник) (2010) [FB2]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368031.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368022.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367745.jpg" />
 </div>
 
 
@@ -141,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367490.jpg" />
 </div>
 
 
@@ -169,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366961.jpg" />
 </div>
 
 
@@ -197,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366242.jpg" />
 </div>
 
 
@@ -224,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365257.jpg" />
 </div>
 
 
@@ -252,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365253.jpg" />
 </div>
 
 
@@ -280,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365200.jpg" />
 </div>
 
 
@@ -307,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363153.jpg" />
 </div>
 
 
@@ -335,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363013.jpg" />
 </div>
 
 
@@ -363,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363008.jpg" />
 </div>
 
 
@@ -391,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362740.jpg" />
 </div>
 
 
@@ -419,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362725.jpg" />
 </div>
 
 
@@ -445,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362592.jpg" />
 </div>
 
 
@@ -471,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361358.jpg" />
 </div>
 
 
@@ -497,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360934.jpg" />
 </div>
 
 
@@ -524,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360541.jpg" />
 </div>
 
 
@@ -550,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360524.jpg" />
 </div>
 
 
@@ -576,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360208.jpg" />
 </div>
 
 
@@ -602,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360106.jpg" />
 </div>
 
 
@@ -628,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359979.jpg" />
 </div>
 
 
@@ -654,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358520.jpg" />
 </div>
 
 
@@ -680,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358313.jpg" />
 </div>
 
 
@@ -691,6 +637,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2107798476859F247233706BF7BBC54922C64180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417518   (358253) от 20.10.2020
+
+Леонид Яхнин | Почемучкины книжки. Который час? (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358253.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Который час?» известный детский писатель Леонид Яхнин расскажет о том, как человек учился определять время, какие приспособления для этого использовал, как часы обрели современный вид и конструкцию. Также читатель познакомится с основными элементами, из которых сделаны современные часы: маятником, шестерёнками, анкером и другими. А ещё сможет сделать собственные (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D41F52396118E58513235885D59CF2A5ED7996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178257   (358123) от 27.10.2017
+
+Я.И. Перельман | Занимательная алгебра [11 издание с дополнениями] (1967) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из предисловия автора к третьему изданию: Не следует на эту книгу смотреть, как на легкопонятный учебник алгебры для начинающих. Подобно прочим моим сочинениям той же серии, «Занимательная алгебра» — прежде всего не учебное руководство, а книга для вольного чтения. Читатель, которого она имеет в виду, должен уже обладать некоторыми познаниями в алгебре, хотя бы смутно (   Читать дальше...   )Жанр: Математика, учебное пособие, развивающая литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D138DF62D0356544B1A1F838AFAAFF2D48C6CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

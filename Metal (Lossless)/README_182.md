@@ -6,7 +6,7 @@ Art of Attrition - The Void Eternal (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341221.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Become the Watcher - Trauma (2022) [FLAC|Lossless|WEB-DL|tracks] <Slamming Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341220.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Blackbraid - Blackbraid I (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341216.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Megadeth - Th1rt3en (2011) Official Russian Edition [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341213.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Limbonic Art - Spectre Abysm (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341208.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Destruction - Thrash Anthems II (2017) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340143.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Summoning - Lugburz (1995) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340128.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Summoning - Dol Guldur (1997) [FLAC|Lossless|tracks + .cue] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340127.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Summoning - Let Mortal Heroes Sing Your Fame (2001) [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340116.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Unleashed - Hell's Unleashed (2002) [FLAC|Lossless]<Death Metal, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340114.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Summoning - Minas Morgul (1995) Reissue, 2002, IROND [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340113.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Collapse 7 - In Deep Silence (2004) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340106.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Unleashed - Warrior (1997) [FLAC|image +.cue]<Death Metal, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340096.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Summoning - Stronghold (1999) [FLAC|Lossless|tracks + .cue] <Black Metal, Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339986.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Summoning - Oath Bound (2006) [FLAC|Lossless|tracks + .cue] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339863.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Metallica - Hardwired...To Self-Destruct (2016) Deluxe [FLAC|Lossless|tracks] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339799.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lacuna Coil - Black Anima (Deluxe Edition) (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338984.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Seven Thorns - Symphony Of Shadows (2018) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338686.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Molotov Solution - Insurrection (2011) [FLAC|Lossless]<Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_338047.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Unleashed - Sworn Allegiance (2004) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337630.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ektomorf - Aggressor (2015) [FLAC|image+.cue]<Groove / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337488.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Brainless - Ruler Of Everthing (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336620.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Carnal Ruin - Soulless I Remain (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336618.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Bridg3s - Aria; Asunder (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern, Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336617.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Atrophia Red Sun - Fears (1997) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336614.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Brainless - Brainless World (1992) Remastered, 2017, Battle Cry Records [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336613.jpg" />
 </div>
 
 

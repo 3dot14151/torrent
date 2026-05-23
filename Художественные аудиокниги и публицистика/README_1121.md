@@ -1,83 +1,3 @@
-###  Публикация: 1814615   (5825) от 26.08.2025
-
-Алексей Гравицкий | S.T.A.L.K.E.R., Угрюмый (Книга 1). Зона тумана (2024) [MP3, Роман Волков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Переиздание культового романа!
-Захватывающая постапокалиптическая фантастика о людях, адаптировавшихся к постоянной жизни в Зоне отчуждения, и о тайне Четвертого энергоблока – того самого, который взорвался в 1986 году во время катастрофы на Чернобыльской атомной электростанции.
-Must read для всех, кто зачитывался историями о сталкерах братьев Стругацких, романами (   Читать дальше...   )Жанр: ФантастикаИздательство: АСТПродолжительность: 13:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350E4E50E5DCD4BB2E602676802B39EA757B267B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814792   (5807) от 26.08.2025
-
-Лестер Дель Рей | Доброта (2025) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Около тысячи лет назад произошла война между Homo Sapiens и новым видом Homo Intelligens. Дэнни последний представитель старого вида, выросший вместе с супер-людьми, но понимающий, что для них он если и представляет какой-то интерес, то исключительно как объект сочувствия и научного интереса. Единственное о чем мечтает последний „Сап“, это о побеге с Земли.» ©Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEE6829EE749E201C779FBB8BF974E2D909491D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814123   (5806) от 26.08.2025
-
-Джон Голд | Цикл «Сонный лекарь» (Книги 1-3). (2025) [MP3, Егор Партин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Родившись в семье следователей-геомантов, я всегда считал, что неодарённость – это моё личное проклятье.Жанр: Фантастика, фэнтези, юморИздательство: МедиаКнигаПродолжительность: 24:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5393DE0FDF87F68819D79635B9E4C2605F83EB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814019   (5804) от 26.08.2025
 
 Джон Коннолли | Чарли Паркер (Книга 3). Порода убийц (2025) [MP3, Олег Булдаков]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5804.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5803.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5799.jpg" />
 </div>
 
 
@@ -169,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5798.jpg" />
 </div>
 
 
@@ -198,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5795.jpg" />
 </div>
 
 
@@ -227,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5789.jpg" />
 </div>
 
 
@@ -253,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5784.jpg" />
 </div>
 
 
@@ -279,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5783.jpg" />
 </div>
 
 
@@ -305,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5698.jpg" />
 </div>
 
 
@@ -331,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5695.jpg" />
 </div>
 
 
@@ -360,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5694.jpg" />
 </div>
 
 
@@ -387,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5682.jpg" />
 </div>
 
 
@@ -413,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5679.jpg" />
 </div>
 
 
@@ -439,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5677.jpg" />
 </div>
 
 
@@ -468,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5676.jpg" />
 </div>
 
 
@@ -496,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5674.jpg" />
 </div>
 
 
@@ -522,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5671.jpg" />
 </div>
 
 
@@ -550,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5667.jpg" />
 </div>
 
 
@@ -577,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5664.jpg" />
 </div>
 
 
@@ -603,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5663.jpg" />
 </div>
 
 
@@ -629,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5662.jpg" />
 </div>
 
 
@@ -655,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5661.jpg" />
 </div>
 
 
@@ -681,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5659.jpg" />
 </div>
 
 
@@ -694,6 +614,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6E8C345899133583591C5EB2F40630EE190F672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814929   (5657) от 27.08.2025
+
+Виктор Молотов, Сергей Харченко | Тайная жизнь Хандзо (Книга 2). Что вы скрываете, Хандзо-сан?! Том 2 (2024) [MP3, Константин Загацкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Младший научный сотрудник Хандзо Кано находился на смене в лаборатории, когда произошла страшная авария. Выжил лишь он, ценой поглощения секретного мутагена.
+Теперь Кано скрывается от спецслужб и якудза, начав новую жизнь и устроившись стажёром в японскую корпорацию.
+Но как не выделяться, когда возможности мутировавшего мозга позволяют решать самые сложные задачи (   Читать дальше...   )Жанр: фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 08:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514429ACDA72A4AF60AF9B1E159D6094D90371E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814942   (5656) от 27.08.2025
+
+Росс Макдональд | Лью Арчер. Омут (2025) [MP3, Александр Степной]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арчеру поручено найти отправителя письма, изобличающего измену его клиентки. Однако расследование зайдет в другую сторону, когда совершится убийство.Жанр: ДетективИздательство: Аудиокнига своими руками / неофициальное издание профессионального актёраПродолжительность: 07:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521C7235ED5FE010462B79E27708BB64939BE003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814991   (5654) от 27.08.2025
+
+Виктор Молотов, Сергей Харченко | Тайная жизнь Хандзо (Книга 5). Что вы скрываете, Хандзо-сан?! Том 5 (2024) [MP3, Константин Загацкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Младший научный сотрудник Хандзо Кано находился на смене в лаборатории, когда произошла страшная авария. Выжил лишь он, ценой поглощения секретного мутагена.
+Теперь Кано скрывается от спецслужб и якудза, начав новую жизнь и устроившись стажёром в японскую корпорацию.
+Но как не выделяться, когда возможности мутировавшего мозга позволяют решать самые сложные задачи (   Читать дальше...   )Жанр: фантастикаИздательство: ЛитРесПродолжительность: 09:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836120B12954C2DE60C6CA33288AB507C7932DCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

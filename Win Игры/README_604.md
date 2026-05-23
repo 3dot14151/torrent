@@ -1,29 +1,3 @@
-###  Публикация: 1738069   (2269) от 18.09.2025
-
-TerraScape (2024) [Ru/Multi] (1.2.0.8) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-TerraScape позволяет игрокам осуществить свою мечту - построить собственный город! Благодаря широкому выбору колод, предлагающих уникальные здания и возможности расширения, вы можете стратегически разместить свои карты на игровом поле, чтобы заработать очки и открыть новые награды. Вам нужно будет тщательно продумать влияние каждого здания на ваш город, включая его (   Читать дальше...   )Тип издания: LicenseРазработчик: Bitfall StudiosЖанр: Казуальные игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E21C6459A2C7C126CF4DF82F0C1410A76818CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807061   (2268) от 18.09.2025
 
 Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРlay
@@ -32,7 +6,7 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2268.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2263.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2262.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Precursors / Предтечи (2009) [Ru] (2.2) Repack Foxx [ReBuild]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2261.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Rising Lords (2020) [Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2259.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Shape of Dreams (2025) [Ru/Multi] (r.1.0.6.2_s) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2250.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ S.T.A.L.K.E.R.: Clear Sky (2008) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2248.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NODE: The Last Favor of the Antarii (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2246.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Formula Legends (2025) [Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2243.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Daemon X Machina (2020) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Complete]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2238.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ El Paso, Elsewhere (2024) [En] (2025.p1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2235.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2125.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Operation: Polygon Storm (2024) [Multi] (1.5.2.7/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2123.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Darkest Dungeon II (2) (2023) [Ru/Multi] (2.03.79909/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2120.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2119.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2118.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2117.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Parkitect (2018) [Ru/Multi] (1.11f3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2114.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2107.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2104.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2102.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ House Builder (2021) [Ru/Multi] (Build 15-09-2025/dlc) Repack FitGirl [Pack and 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2100.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack FitGirl [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2099.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2097.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2093.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69A2B769C277E9BC3DA9620B07AC7E45A8AC63C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818960   (2087) от 19.09.2025
+
+CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть – это только начало. Поднимитесь. Дайте отпор. Выползите из могилы и приготовьтесь пробиться сквозь ряды загадочного и извращенного культа. Их жалкие разумы извращены волей невидимой сущности, и вы обнаружите, что от них летит столько же свинца, сколько и от вас. Поэтому вам придётся бежать, скользить, уклоняться и использовать окружение, чтобы выжить в этом (   Читать дальше...   )Тип издания: RepackРазработчик: Jasozz GamesЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C4274E304A30215A7C38C7D21C7E6A946F721B
 ```
 
 https://mybot314.ru/tekegram_catalog/

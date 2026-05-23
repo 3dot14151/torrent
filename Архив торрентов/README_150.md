@@ -6,7 +6,7 @@ Affinity Photo 1.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021098.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Transmit 5.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021091.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Reverso Translate and Learn v9.9.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021086.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Microsoft Office Standard 2019 for Mac v16.48 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021085.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ WinRAR 6.01 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021061.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ BusyCal 3 v3.12.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021051.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ BusyContacts 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021050.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Swift Publisher 5 v5.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021049.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ KCNcrew Pack 04-15-21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021048.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Alfred 4 Powerpack 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021044.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Money Pro - Personal Finance 2.7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021043.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Bootstrap Studio 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021042.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Microsoft Edge 89.0.774.77 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021039.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Download Shuttle Pro for Mac 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021037.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ ForkLift 3.5.1 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021036.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ SeaMonkey 2.53.7.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021020.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Brave Browser 1.22.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021016.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Internet Download Manager 6.38 Build 19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021013.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ CPU-Z 1.96.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021010.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ WizTree 3.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021005.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Rarevision VHS Camcorder - Retro 80s Cam v1.6.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020994.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ SIV (System Information Viewer) 5.57 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020987.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Google Chrome 90.0.4430.72 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020981.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Google Chrome 90.0.4430.72 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020975.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Kaspersky Update Utility 3.2.0.153 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020965.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Microsoft Visual C++ 2015-2019 Redistributable 14.28.29914.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020946.jpg" />
 </div>
 
 

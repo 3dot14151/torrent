@@ -1,82 +1,3 @@
-###  Публикация: 486016   (89809) от 21.04.2012
-
-Кристофер Сташеф | Профессор Гарольд и попечители (Дипломированный чародей - 6) [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-После того, как коллеги Гарольда Ши остались в разных мирах, попечительский совет Гарейденского института обеспокоился отсутствием специалистов-психологов на своих рабочих местах. Теперь Гарольду, решившему остаться в мире Огайо 20 века, с одной стороны придется защищать коллег перед "толстыми кошельками" попечительского совета, а с другой стороны разыскивать их по этим самым мирам, чтобы заручиться поддержкой коллег в борьбе с попечительским советом за свои идеалы счастливой жизни.Жанр: Юмористическое фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CC1D09C46107AA8ED8EA39C1D6BA95586E369D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484827   (89448) от 19.04.2012
-
-Александр Лазаревич | "Червь" Дилогия [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Червь. 1992 год: "Князь Тьмы""
- Рассказ, созданный в 1991 году, недавно отметил свое 20-летие. Основная оригинальная идея рассказа - искусственный интеллект не будет создан искусственно, а появится в ходе естественного отбора компьютерных программ по принципу дарвиновской эволюции. Несмотря на то, что эта идея была впоследствии (2003 г.) украдена Голливудом и использована в фильме "Терминатор-3" (т.н. "Скайнет"), я все же надеюсь, что аудиокнигу (а точнее "аудиофильм" - фонограмму к так и не снятому кинофильму), будет интересно послушать и новому поколению читателей (слушателей).2012Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5894FFB01797F1153446542BF48BA43B0A7DF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484429   (89281) от 18.04.2012
-
-Роман Злотников, Олег Маркелов | Крыло ангела [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Алексей родился в Советском Союзе, отслужил в армии и вернулся в совсем другую страну - в Россию. Занялся бизнесом, поймал удачу за хвост, и со временем ему уже многие завидовали. А что, вроде бы у парня все есть: свое дело, иномарка, квартира, любимая девушка. Но что-то не дает Алексею покоя - иногда возникают тени воспоминаний о том, чего не было, и появляется странное ощущение, что где-то далеко его ждет другой мир. Проверить это ощущение оказалось легко, всего-то и нужно было остановиться лунной ночью на МКАД, выйти из тонированной "ауди" на обочину и шагнуть в портал... Однако память о давнем прошлом просыпается не так скоро, а сражаться за свою жизнь и за новых - или старых? - друзей нужно уже сейчас...2012Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2AE7754772B3682D4238736D632B427C032BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484371   (89211) от 18.04.2012
 
 Елена Михалкова | Алмазный эндшпиль [2012] [MP3, Елена Калабина]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89211.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89034.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88890.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88654.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88644.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88448.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88073.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87840.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87640.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87613.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87207.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87152.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87143.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86953.jpg" />
 </div>
 
 
@@ -453,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86421.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86380.jpg" />
 </div>
 
 
@@ -511,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86343.jpg" />
 </div>
 
 
@@ -539,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86305.jpg" />
 </div>
 
 
@@ -565,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86303.jpg" />
 </div>
 
 
@@ -591,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86190.jpg" />
 </div>
 
 
@@ -617,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86128.jpg" />
 </div>
 
 
@@ -644,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86103.jpg" />
 </div>
 
 
@@ -671,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86007.jpg" />
 </div>
 
 
@@ -682,6 +603,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C20273C13AA691D46800D36E700DD193B9D0927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477082   (86000) от 02.04.2012
+
+Лев Прозоров | Евпатий Коловрат [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1237 год от Рождества Христова. Погибельная зима Батыева нашествия. Рязанский воевода Евпатий, ездивший за подмогой, возвращается на руины родного города. На руины собственной жизни". Если твой дом превратился в пепелище, если мертв государь, которому ты служил, и все, кто был тебе дорог, если сам Бог, в которого ты верил, отвернулся от тебя и твоей земли - где искать помощи? И не пора ли вспомнить, ЧТО носишь совсем не христианское, а древнее языческое прозвище?
+Летописи сообщают об отряде Евпатия Коловрата невероятные вещи: оказывается, татары считали, что против них поднялись мертвые - неужели обычная партизанщина могла так напугать прошедших полмира головорезов? И почему, чтобы одолеть русских .храбров,), завоевателям пришлось бросить против малой дружины Коловрата тысячи своих лучших воинов - сотня против одного? В кого превратился последний воевода мертвого города, если враги смогли убить его лишь с помощью стенобитных машин? Кто откликнулся на его зов и пришел к нему на помощь? И что на самом деле (   Читать дальше...   )2012Жанр: Черное Славянское Фентези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB670425B576DFCC825DC1206D1970464BF6060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477043   (85938) от 02.04.2012
+
+Плутарх | Сравнительные жизнеописания. Том 2 [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наряду с трагедиями Эсхила и Еврипида, «Историей» Геродота и диалогами Платона, «Сравнительные жизнеописания» Плутарха Херонейского (I-II вв. н.э.) – величайший литературный памятник античной Греции.
+Настоящее аудиоиздание подготовлено на основе наиболее полного перевода «Сравнительных жизнеописаний», принадлежащего перу С. Ю. Дестуниса.Жанр: Биографии
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C2C1DA886BD89B7105C87B74C4FF875D42A858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475342   (85670) от 01.04.2012
+
+Нора Робертс | Северное сияние [2007] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:Жанр: Женский детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A2135F3D4C724843E7B5020BE205E560758D61
 ```
 
 https://mybot314.ru/tekegram_catalog/

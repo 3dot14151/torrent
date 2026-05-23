@@ -1,29 +1,3 @@
-###  Публикация: 1211358   (777378) от 07.03.2018
-
-Distortions (2018) [En/Br] (1.0) Repack MAXSEM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Distortions (Искажения) – сюжетная музыкальная психологическая драма, героиня которой путешествует через неизвестную бескрайнюю и сюрреалистическую долину, созданную из искаженных воспоминаний ее жизни и прошлых отношений. Как далеко вы сможете пойти, что бы вернуть потерянную память? Искажения - это музыкальное путешествие по неизвестному, воображаемому миру. Войдите (   Читать дальше...   )Тип издания: RePackРазработчик: Among GiantsЖанр: Adventure, Surrealism, Musical, Psychodrams, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Бразильский (португальский)Язык интерфейса: Английский, Бразильский (португальский)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36A5366C72E716DD1E3600265B5CD009922F694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211903   (776625) от 09.03.2018
 
 I’m Lost (2018) [Ru/Multi] (1.0) License PLAZA
@@ -32,7 +6,7 @@ I’m Lost (2018) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776625.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Kathy Rain (2016) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776355.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Lost Horizon 2 (2015) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776238.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776038.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Soul Axiom (2016) [En] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775958.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fragments of Him (2016) [En] (1.20) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775906.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ A Golden Wake (2014) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775521.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Lucius III (2018) [Ru/Multi] (1.190118112744.a) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775501.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/En] (1.03) Repack R.G. 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775417.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Life is Strange: Before the Storm (2017) [Ru] (1.3.0.2/dlc) Repack xatab [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774893.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/Multi] (1.03) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774695.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Kathy Rain (2016) [En/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774692.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ CHAOS;CHILD (2019) [En/Jp] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774079.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774058.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Q U B E  2 / Q.U.B.E.2 (2018) [Ru/Multi] (1.0.0.7) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774015.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773943.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772900.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Ad Exitum (2016) [En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770045.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Désiré (2016) [Ru/Multi] (1.0.1) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769435.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769013.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768874.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Beyond: Two Souls / За гранью: Две души (2019) [Ru/Multi] (511792
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768829.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ SONG OF HORROR (2019) [Multi] (1.22/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768828.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768786.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768237.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B341660C92984B91FECB288124B48EBD6E63F175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387825   (768235) от 29.06.2020
+
+Someday You'll Return (2020) [Multi] (1.3) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не первый раз, когда она убежала. Но тебе не по себе ... на этот раз ты чувствуешь себя по-другому. Ваш герой - Даниэль (Daniel), отец Стелы (Stela), которого события заставили вернуться туда, куда он давным-давно  поклялся никогда не возвращаться... Но очередной побег дочери снова оттащил вас назад в прошлое. Ваш поиск ведет глубоко в древние моравские леса и (   Читать дальше...   )Тип издания: RepackРазработчик: CBE softwareЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, ЧешскийЯзык интерфейса: Английский, Чешский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965978A85C5008F4473CE1247C1CC5B304FB871F
 ```
 
 https://mybot314.ru/tekegram_catalog/

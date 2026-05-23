@@ -6,7 +6,7 @@ TeamViewer Corporate 10.0.45862 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533200.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 31.0.1889.131 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533197.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinToUSB Free 2.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533193.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ X-Mouse Button Control 2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533191.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIDA64 Extreme / Engineer Edition 5.30.3513 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533187.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Zoner Photo Studio X 19.1806.2.74 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533163.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NetSetMan 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533159.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Flip PDF Professional 2.4.9.23 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533156.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ JetBrains ReSharper Ultimate 2018.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533154.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Google Chrome 60.0.3112.90 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533143.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Cumulative Update KB4032188 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533140.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ESET Endpoint Antivirus 5.0.2248.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533123.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mozilla Firefox 40.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533113.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NetLimiter 4.0.13.0 Enterprise Edition [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533106.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ LibreOffice 6.1.0.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533080.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AMD Radeon Software Adrenalin Edition 18.8.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533073.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533066.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Google Chrome 68.0.3440.106 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533065.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Autodesk AutoCAD MEP 2018.1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533041.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Total Commander 8.52 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533024.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ESET Endpoint Antivirus 5.0.2248.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533015.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ StartIsBack++ 1.0.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533014.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ IObit Driver Booster 3.0.2.94 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533010.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ ESET Endpoint Security 5.0.2248.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533009.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VLC Media Player 2.1.0-git-20120810 (x32/x64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532988.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ SolidWorks Premium Edition 2017 SP 4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532886.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1438966   (1040219) от 11.01.2021
-
-Воображаемая реальность (Долина богов) / Valley of the Gods (2019) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Биограф Джон Экас, пишущий историю самого богатого человека на земле Веса Тауроса, обладает способностью менять реальность силой воображения. Он переплетает их судьбы с древней легендой индейцев Навахо, исследуя, как видения сверхъестественного сталкиваются с настоящими событиями жизни.Производство: Польша, Люксембург, США / Royal Road Entertainment, Angelus Silesius, Domino FilmЖанр: Фантастика, триллер, драма, приключенияРежиссер: Лех МаевскиАктеры: Джош Хартнетт, Джон Малкович, Беренис Марло, Кир Дуллеа, Джон Рис-Дэвис, Джейми Рэй Ньюман, Джозеф Раннингфокс, Стивен Скайлер, Джон А. Лоренц, Оуи РэйПеревод: Дублированный (IVI)Субтитры: ПольскиеПродолжительность: 02:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA50C15144C6BA5FB5B473F865103CE7BE348F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565965   (1040215) от 11.01.2021
-
-Связанные Дакотой / Dakota Bound (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В будущем из-за тотальных войн и болезней почти все жители Земли были уничтожены. Цивилизации больше нет. Люди разделились на бандитов и их жертв. Несколько юнных учениц одной из частных школ выжили и скрывались в подземном бункере со своей наставницей, думая пережить это безумие. Прошло много лет, но жизнь на Земле стала еще хуже. Умирая наставница Елена поняла, (   Читать дальше...   )Жанр: Фантастика, Боевик, Приключения, ЭротикаРежиссер: Ллойд А. СимандлАктеры: Фани Мондей, Эстер Ханука, Джон Комер, Ева Айхмайерова, Ленка Ялинкова, Катрина Цермак, Ольга Шмитова, Элин Спидлова, Дэвид О’Келли, Даниела КрхутоваПеревод: Любительский (одноголосый)Продолжительность: 01:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2239CAAF884EC384950B54AB6B67AD13F49C35E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430807   (1040213) от 11.01.2021
 
 Выпускной / The Prom (2020) WEB-DL [H.264/1080p-LQ] [PR]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040213.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040206.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040126.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040124.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040087.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040064.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040049.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040035.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040031.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040027.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040021.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040019.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040014.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040009.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040007.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040001.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039996.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039994.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039989.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039986.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039985.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039981.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039975.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039966.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74FCEC207DF5315867CFC2E507597BB07DE27934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439488   (1039826) от 13.01.2021
+
+Однажды я пытался умереть / Ichido shinde mita / Not Quite Dead Yet (2020) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нанасэ Нобата учится в университете и живет с отцом Кэем, директором фармацевтической компании. Однажды, чтобы узнать, кто ворует у его фирмы, Кэй выпивает лекарство, которое должно заставить его умереть и вернуться к жизни через два дня. Однако что-то идет не так: мужчина становится призраком. Нанасэ пытается вернуть отца к жизни, а помогает ей в этом Таку Мацуока, (   Читать дальше...   )Производство: Япония, DENTSU Music And Entertainment, Fuji Television Network, LINEЖанр: Комедия, фэнтезиРежиссер: Синдзи ХамасакиАктеры: Судзу Хиросэ, Рё Ёсидзава, Синъити Цуцуми, Дэндэн, Токио Эмото, Рири Фрэнки, Арата Фурута, Хидэко Хара, Эридза Икэда, Рё КатоПеревод: Двуголосый любительский (STEPonee)Субтитры: отсутствуютПродолжительность: 01:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4759D39DC21CD0DA14005C6575A9ECEC90EC4D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612767   (1039790) от 17.02.2023
+
+Убить гонца / Kill the Messenger (2014) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Репортер, собирая материал для статьи, попадает в нестандартную ситуацию: он находит секретные файлы ЦРУ, в которых четко прописано причастие госорганов к транспортировке кокаина в особо крупных размерах в Калифорнию. Несмотря на все неприятности, последующие за разоблачением, публикация выходит в одном из самых известных журналов США. Существование репортера становится (   Читать дальше...   )Производство: США / Sierra / Affinity, Bluegrass Films, The CombineЖанр: Триллер, Криминал, Драма, Детектив, историяРежиссер: Майкл КуэстаАктеры: Джереми Реннер, Мэри Элизабет Уинстэд, Розмари ДеУитт, Барри Пеппер, Рэй Лиотта, Тим Блейк Нельсон, Майкл Кеннет Уильямс, Оливер Платт, Энди Гарсиа, Майкл ШинПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Full, PGS), Английские (PGS)Продолжительность: 01:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907962870B9EE3532DC692B8C0D0323BAA270C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

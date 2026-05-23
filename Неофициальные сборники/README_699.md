@@ -1,32 +1,3 @@
-###  Публикация: 1816881   (3896) от 07.09.2025
-
-VA - Vocal Techno & Progressive 2025 [MP3|320 Kbps] <Vocal Techno & Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. RY XCassian - Lençóis (Love Me) - Cassian Remix (4:14)
-02. Deneubourg - What You Need (5:53)
-03. Luca Pink - Find Love (5:06)
-04. Miss Monique - All I Got (5:04)(   Читать дальше...   )Жанр: Vocal Techno & ProgressiveПродолжительность: 03:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176E0BDB7E770E17D9F03B179FC86F72B58CF7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816210   (3862) от 07.09.2025
 
 Frezee - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Chillout, Female Vocal, Other>
@@ -35,7 +6,7 @@ Frezee - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Chillout, Femal
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3862.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Music News For Forum vol.133 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3744.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Glenn Hughes - Voice Of Rock - Compilation (1970-2025) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3617.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ York Patrick - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3605.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ York Patrick - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Vo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3603.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Xezzo - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3475.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Music News For Forum vol.134 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3471.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Xezzo - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3347.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Summer Pop Show (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3337.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3309.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Night Rider 9 (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3199.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Anna Zueva - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3180.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Xezzo - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3149.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Club Beats (2025) [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2992.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Record Super Chart 13.09.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2785.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2666.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2647.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2646.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2644.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Elvis Presley - Compilation (1956-2003) [MP3|320 Kbps] <Rock & Roll, Rockabilly,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2635.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2630.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Compilation Part 193 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2625.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Alex Christensen - Compilation (2025) [MP3|320 Kbps] <Instrumental, Vocal, Other
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2624.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Musical kaleidoscope part 53 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2622.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Compilation Part 190 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2620.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Compilation Part 190 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:757BC4C9D95684FC5190E9689BCEEDDB4E98C747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818019   (2619) от 15.09.2025
+
+VA - Compilation Part 191 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hamidshax - Magic
+02 - Jumanov - District
+03 - Umideep - Unspoken Love
+04 - Jumanov - Old Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777205E6BA53D0BBAEA9FA519F206B39806C50DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

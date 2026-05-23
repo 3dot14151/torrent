@@ -6,7 +6,7 @@ VA - Weekend Forever Summer Control (2016) [MP3|258-320 Kbps] <Club, Funky, Trop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586316.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Пиратская Станция Exclusive (2011) [MP3|256-320 kbps]<Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585955.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Summer Top House Music (2015) [MP3|320 кб/с]<Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585942.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Русский Хип-Хоп 80-90х (2011) [MP3|224 kbps]<Рэп / Хип-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585903.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - Hot Ibiza Dance (2011) [MP3|256 kbps]<Club / Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585712.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Nu Disco Vol.5 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <Nu Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585473.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - The Blues Has Got Me Vol.10  (2011) [MP3|320 kbps]<Blues / Blues-Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585142.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ VA - 100 Ecstasy Dance Story Hits (2016) [MP3|320 Kbps] <Tropical, Indie Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584470.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Savage - 25 Best Songs (2014) [MP3|~245 кб/с]<Italo Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_584404.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Emotional Feeling: Dance House (2019) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584336.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Lazy Sunday The Best Of Now, Then And Inbetween (2015) [MP3|320 кб/с]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583967.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Car Audio. Басс, Ритм, Вокал (Sound Clinic - Special Edition) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583843.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Summer Top Hits for Running (2016) [MP3|306-320 Kbps] <Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583414.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - My Favourite Hits of 1986 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583400.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Prince Of Persia - Arabian Nights (1999) [MP3|320 кб/с]<Score>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583309.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Warrior's Words (горловое пение) (2022) 2CD [MP3|320 Kbps] <Wo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582877.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Golden Disco Dance RMX (2015) [MP3|240 - 320 кб/с]<Pop, Dance, Eurodance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582742.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Car Audio. Возбуждение. (Sound Clinic - Special Edition) (2015) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582741.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Summer Megamix (2016) [MP3|261-279 Kbps] <Electro, Vocal, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582476.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Легенды Ретро FM Vol.01-17 (Сборник зарубежных
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581914.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ RZ - Админские песни (2009) [MP3|192 Kbps] <Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581817.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Музыка для вашего cабвуфера 100 хитов (2015) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581754.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Summer Dreams Vocal Edit (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581528.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Car Audio. Атмосфера таинственных 80-ых. (Sound Clin
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580914.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580612.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Guitar And Soul (2019) [MP3|320 Kbps] <Lyric, Guitar, Pop, Soul>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580260.jpg" />
 </div>
 
 

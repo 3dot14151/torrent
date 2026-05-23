@@ -6,7 +6,7 @@ Agressor - The Arrival (2021) 2xCD,  Compilation, Remastered, Season Of Mist [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835251.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, Remastered,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835250.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rivers Of Nihil - Where Owls Know My Name (2018) [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835249.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dream Theater - Metropolis Pt. 2: Scenes From A Memory (1999) Reissue, Remastere
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835248.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gus G. - Quantum Leap (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Guitar 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835247.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Dream Theater - Train Of Thought (2003) Reissue, Remastered, 2009, Elektra [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835203.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Dream Theater - Master Of Puppets - Live In Barcelona (2002) Reissue, Remastered
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835196.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Till Lindemann - Ich Hasse Kinder (2021) Single [FLAC|Lossless|image + .cue] <ND
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835123.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Queensryche - Operation Mindcrime (2021) Deluxe Edition, 4CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834954.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Devour The Day - S.O.A.R. (2016) [FLAC|Lossless|tracks + .cue] <Hard-rock, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834578.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Novembre - URSA (2016) [FLAC|Lossless|tracks + .cue] <Progressive-metal, Doom-me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834577.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Black Sites - Untrue (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833756.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Aryem - The Bird's Assembly (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833755.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Reaper's Revenge - Versus (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833753.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Accuser - The Forlorn Divide (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832720.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Artillery - Penalty By Perception (2016) Limited Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832713.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Moonsorrow - Jumalten aika (2016) Limited Edition 2CD [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832637.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Striker - Stand In The Fire (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832470.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Carcass - Torn Arteries (2021) Japanese Edition [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831895.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Doro - Warlock - Triumph and Agony Live (2021) Japanese Edition, Live [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831824.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Beast of Revelation - The Ancient Ritual of Death (2020) [FLAC|Lossless|Web-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831667.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Women of Doom (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831665.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Lord Vigo - Danse De Noir (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831583.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Atrox - Orgasm (2003) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Avant-ga
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831577.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Bad Whispers - Burn Out (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830832.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Sodom - Bombenhagel (2021) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830110.jpg" />
 </div>
 
 

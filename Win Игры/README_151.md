@@ -1,29 +1,3 @@
-###  Публикация: 1216760   (747472) от 01.04.2018
-
-DESPOILER (2018) [En] (1.0) License CODEX
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пилотируйте свой корабль на воздушной подушке через пустынные дикие земли, собирая ценный лом который вам нужен чтобы разблокировать улучшения, обновить свой корабль и победить в этой нелёгкой гонке.Тип издания: LicenseРазработчик: Parallax LabsЖанр: Action, RacingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C762D09D94CBBE6524273C6CF569C2F29A8CE3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216812   (747395) от 01.04.2018
 
 The Signal From Tölva (2017) [En] (1.0.51) License HI2U
@@ -32,7 +6,7 @@ The Signal From Tölva (2017) [En] (1.0.51) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747395.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Evil Cogs (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747388.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mafia II / Мафия 2 (2011)  [Ru/Multi] (1.0.0.1/upd5/dlc) License GOG [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747263.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_747171.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Adam - Lost Memories (2020) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746644.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Bonfire Stories: The Faceless Gravedigger (2017) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746551.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3618/dlc) Repack xatab (обнов
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746540.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746432.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Edge of Reality 8: Lost Secrets of the Forest (2022) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746278.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Biker Garage: Mechanic Simulator (2019) [Ru/Multi] (20211020/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746155.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Victor Vran (2015) [Ru/Multi] (2.07.20190131/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746087.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Kingdom Rush Origins (2018) [Ru/Multi] (1.3.4) Repack Other s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746085.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Jagged Alliance: Rage! (2018) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745965.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Demonheart (2017) [En] (1.41) Repack Other s [Chapter 1-4]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745835.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Crest - an indirect god sim (2018) [En] (1.2/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745833.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745770.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ostalgie: The Berlin Wall (2018) [Ru/En] (1.0.6.c) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745765.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Forgotten Fairytales: The Spectra World (2017) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745327.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Haunted Hotel 14: Personal Nightmare (2017) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745324.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ League of Light 5: Edge of Justice (2017) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745320.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Bridge To Another World 4: Escape From Oz (2017) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745319.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.1.5hf/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745064.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.5.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745063.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Cave Story+ (2011) [Multi] (1.0.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744975.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744882.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B109C011C25FAEC132710CC626F66C9D98524433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020367   (744860) от 26.05.2016
+
+Love Chronicles 5: Beyond the Shadows / История любви 5: По ту сторону теней (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное Издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принцесса Лерио, наследница королевы Алуры, достигла совершеннолетия. Однако радость быстро сменяется страхом и ужасом - темное прошлое матери может стать будущим для принцессы. Наставник Лерио, мудрый волшебник Лусио, передает принцессе артефакт, который можно использовать как во имя добра, так и во зло. Сможет ли принцесса остаться со светлой душой или падет жертвой (   Читать дальше...   )Тип издания: UnofficialРазработчик: Vendel GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334B3B6CC64CD0A6BD60E78195BB1F88F14A1DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Start Menu X 5.46 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641371.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ InstallShield 2012 Premier Edition SP1 19.0.0.185 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641364.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera 30.0.1835.59 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641360.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MetaProducts Offline Explorer Enterprise 6.9.4208 SR4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641354.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe After Effects CC 2015.3 (13.8.0.144) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641328.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mailbird Pro 2.0.21.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641285.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ CyberLink PowerDVD Ultra 15.0.1804.58 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641271.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Clownfish for Skype 3.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641267.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Windows 10 Manager 3.0.5 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641195.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Notepad++ 7.6.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641179.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Pano2VR 4.5.0 Pro (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641134.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Corel PaintShop Pro X7 17.3.0.30 Special Edition RePack by -{A.L.E.X.}- [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641118.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Opera GX 85.0.4341.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641089.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ JetBrains Rider 2018.1.1 Build #RD-181.4952.276 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641076.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ HyperSnap 8.16.06 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641074.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ HyperSnap 8.16.06 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641070.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Cyberfox 52.2.0 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641062.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Acronis True Image 2016 19.0.3039 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641003.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ SamDrivers 15.6.10 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640994.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Dymai Sound - Proclethya 1.0.8 VSTi, VSTi3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640972.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ TagScanner 6.0.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640931.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Infix PDF Editor Pro 7.2.6 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640925.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Icecream Screen Recorder Pro 4.89 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640914.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Cumulative Update KB4022714 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640912.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Vivaldi 1.10.867.38 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640903.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Cyberfox 52.2.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640902.jpg" />
 </div>
 
 

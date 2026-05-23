@@ -6,7 +6,7 @@ Tablacus Explorer 24.8.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47628.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.4 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47582.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.3 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47565.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ StartAllBack 3.8.2 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47562.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Duplicate Cleaner Pro 5.23.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47558.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AOMEI Backupper Technician Plus 7.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47554.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Firefox Browser ESR 115.14.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47543.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ IObit Smart Defrag Pro 10.0.0.399 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47540.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Firefox Browser 129.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47533.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Google Chrome 127.0.6533.100 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47531.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47498.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Everything 1.4.1.1026 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47489.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The KMPlayer 4.2.3.14 repack by cuta (build 4) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47484.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (0806) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47482.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ simplewall 3.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47481.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ JetBrains GoLand 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47478.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ TweakPower 2.058 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47477.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ LosslessCut 3.62.0 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47476.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Mp3tag 3.27 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47454.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Avidemux 2.8.2 Nightly (r240806) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47453.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Topaz Photo AI 3.1.4 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47446.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ XtraTools Professional 24.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47444.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Opera One 112.0.5197.53 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47442.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2998 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47425.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Vivaldi 6.8.3381.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47418.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Wondershare Filmora 13.6.4.8450 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47411.jpg" />
 </div>
 
 

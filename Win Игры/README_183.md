@@ -1,29 +1,3 @@
-###  Публикация: 1291848   (650122) от 27.03.2019
-
-Xenon Racer (2019) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Xenon Racer – футуристическая гоночная аркада, события которой развернутся в 2030 году. Вам предстоит стать участником чемпионата среди традиционных рулевых электромобилей на ксеноне. Берите под свой контроль одно из ультрасовременных авто и промчитесь на умопомрачительной скорости по трассам Токио и Дубая.Тип издания: LicenseРазработчик: 3DClouds.itЖанр: Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C27362258E0CB27BB37E6FFE0BDF1FB8749F20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141598   (650087) от 10.06.2017
 
 Haunted Hotel 14: Personal Nightmare / Проклятый отель 14: Личный кошмар (2017) [Ru] (1.0) Unofficial  [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Haunted Hotel 14: Personal Nightmare / Проклятый отель 14: Лич�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650087.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Total War: Napoleon (2018) [Ru/En] (1.3.0) Repack xatab [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650007.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Total War: Empire (2018) [Ru/En] (1.5.0) Repack xatab [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650003.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mafia II / Мафия 2 (2011) [Ru/En] (1.0.0.1/upd5/dlc) Repack R.G. Origami [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649999.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Streets of Fury EX (2015) [En] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649933.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Ancestors Legacy (2018) [Ru/Multi] (47903) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649893.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Brigador (2016) [En] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649225.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Surface 7: Alone in the Mist (2015) [En] Unofficial [Collector's Edition / Ко�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649171.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Copoka (2016) [En] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649008.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Grim Tales 8: The Final Suspect / Страшные сказки 8: Главны�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648939.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648908.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ We. The Revolution (2019) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648182.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ The Legend of Heroes: Trails in the Sky (2014) [En] (2019.03.24) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648177.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Chronoclasm Chronicles (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647915.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Brigador (2016) [En] (1.0) SteamRip ALiAS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647251.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.1.0) Repack R.G.Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647172.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ RWBY: Grimm Eclipse (2016) [En] (1.0.01rc2) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647163.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Mystery Trackers: Blackrow's Secret / Охотники за тайнами. За
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647130.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Megadimension Neptunia VII (2016) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647091.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Harold (2015) [Ru/Multi] (1.0.0.1.3) Repack xGhost
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646911.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Fierce Tales: The Dog's Heart Collector's Edition / Жестокие истор�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646866.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Grim Tales 16: The Nomad (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646804.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ London 2012: The Official Video Game of the Olympic Games (RePack) [En] 2012 | A
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646742.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#452) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646395.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Reus (2013) [Ru/Multi] (1.6.5) Repack R.G. Механики
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646387.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ Reus (2013) [Ru/Multi] (1.6.5) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61288E15BDE9EFA3068B37792E47A260DA3EE3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227540   (646376) от 26.05.2018
+
+Friday the 13th: The Game / Пятница 13 (2017) [Ru/En] (B11030/dlc) Repack xatab
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Местом действия игры является вымышленный лагерь «Хрустальное Озеро» из серии фильмов «Пятница, 13». События разворачиваются в 1980-е годы.  Многопользовательском режиме в одной сессии могут играть восемь человек. Один из игроков (выбранный случайно) будет управлять ДжейсономТип издания: RepackРазработчик: IllFonicЖанр: Action (Survival horror), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC28FD89703E4BB33419FC3168D935ABB652CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

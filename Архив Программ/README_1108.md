@@ -6,7 +6,7 @@ Process Lasso Pro 9.3.0.30 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482828.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Anvir Task Manager 9.3.1 RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482821.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SamDrivers 16.9 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482812.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.43 (9/20/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482810.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Foxit PhantomPDF Business 5.4.0.0902 Portable by SamDel [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482755.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.5 Build 5433 Stable RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482714.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Topaz Studio 2.0.9 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482708.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482707.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ MKVToolNix 36.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482705.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Skype 8.51.0.72 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482704.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ TechSmith Camtasia 2019 0.5 Build 4959 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482700.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Athentech Perfectly Clear Complete 3.7.0.1636 Repack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482697.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Almeza MultiSet Professional 8.4.3 + Portable by punsh [MULTi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482638.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ SamDrivers 20.8 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482595.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ R.saver 6.21.1  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482580.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ SMP1 1.0.370 (Alpha Version) Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482511.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Splash PRO EX 1.13.0 with Action! RePack by 7sh3 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482416.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Calibre 6.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482347.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ CrystalDiskInfo 8.17.5 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482345.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482341.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Calibre 6.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482330.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Avkeys v.1.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482320.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Dr.Web Anti-Virus 7.0.1.09060 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482315.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VkBot 2.3.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482233.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482224.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Malwarebytes Anti-Malware 1.65.0.1400 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482223.jpg" />
 </div>
 
 

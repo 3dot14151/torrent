@@ -1,29 +1,3 @@
-###  Публикация: 1650949   (207101) от 04.08.2023
-
-Dark City 8: Kyiv (2023) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение детективно-интригующей серии игр Dark City. Расследование предполагаемого спиритического мошенничества оказалось неудачным. Однако при этом раскрывается гораздо более темная и сложная изнанка мистического города Киева. Вы будете играть за известного детектива в городе тайн и паранормальных явлений, пытаясь понять, кому можно доверять среди ваших друзей (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711A375948E07BD8CAF8D21F0B536D8F88E9B85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651496   (207062) от 06.08.2023
 
 Full Moon Rush (2023) [Multi] (1.0.0.1) License GOG
@@ -32,7 +6,7 @@ Full Moon Rush (2023) [Multi] (1.0.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207062.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207052.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ms. Holmes 4: The Case of the Dancing Men / Мисс Холмс 4: Дело о �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207033.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Nobody Saves the World (2022) [Ru/Multi] (31300/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207026.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Starless (2022) [Ru/Multi] (1.051) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207016.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Beacon Pines (2022) [En] (1.0.2) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206997.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Probo Rush (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206963.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mystical Riddles 3: Ship From Beyond / Мистические загадки 3: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206954.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Coffee Talk Episode 2: Hibiscus & Butterfly (2023) [Multi] (1.11) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206848.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Franchise Hockey Manager 9 (2022) [En] (9.4.107) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206819.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Liberte (2023) [En] (1.0.2.b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206769.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Notch - The Innocent LunA: Eclipsed SinnerS (2012) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206669.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Connection of Worlds 2: Star Riddle (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206654.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ False Myth (2022) [Multi] (v3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206629.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Exorcism Ritual (2023) [En] (1.0) Scene DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206601.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Swordship (2022) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206527.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ ViruZ (2021) [Ru/En] (1.01) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206517.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206465.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sudocats (2022) [Ru/Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206458.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206436.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Hidden Folks (2017) [Ru/Multi] (2.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206434.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Nitro Racers (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206400.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206366.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ MythBusters: The Game - Crazy Experiments Simulator (2022) [Multi] (1.0.88) Lice
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206285.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206030.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653684   (206014) от 17.08.2023
+
+It Happened Here 2: Beacon of Truth / Это случилось здесь 2: Свет правды (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективной серии игр It Happened Here. Лауреат премии в области правдивых преступлений Эмили Смит собирается ввязаться в дело века! К ней обращается ее близкая подруга Кэтрин с просьбой расследовать смерть ее мужа десятилетней давности. Эмили берется за дело и вскоре погружается в историю маленького городка и загадочного маяка, о котором ходят недобрые (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7266720CE967C8E2E11256F349CBDF5EE2CDF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

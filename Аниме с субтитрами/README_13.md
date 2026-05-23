@@ -6,7 +6,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Spring Song | Судьба: Ночь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020779.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rokudenashi Blues | Racaille Blues | Рокудэнси блюз [1992, Movie] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020772.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Himouto! Umaru-chan R | Beautiful Little Sister! Umaru-chan R | Двулична
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020480.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020457.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kyoushirou to Towa no Sora | Shattered Angels | Кёсиро под вечным
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020443.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Shadowverse | Шадоуверс | Поэзия теней [2020, TV, 48 эп. +
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020366.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Sanzoku no Musume Ronja | Ronja, the Robber's Daughter | Рони, дочь ра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020349.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020347.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020292.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019898.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Baby Steps 2 / Первые шаги [ТВ-2] [2015, TV, 25 из 25] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019778.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Baby Steps / Первые шаги [2014, TV, 25 из 25] HDTV 720p Raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019775.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Absolute Duo | Абсолютный дуэт [2015, TV, 12 из 12] BDRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019759.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019756.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Taisou Zamurai | The Gymnastics Samurai | Самурай гимнастики [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019309.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Dia no Ace OVA / Ace of Diamond OVA / Путь аса OVA [2014, OVA, 5 эп.] B
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019087.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Planetarian: Snow Globe | Планетарианка: Снежный шар [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018404.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Assault Lily: Bouquet | Букет штурмовых лилий [2020, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018374.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? III / Danmachi III / М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018323.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Schoolgirl Strikers: Animation Channel / Штурмовые школьницы [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018313.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | DanMachi III | М�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018167.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018087.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Radiant | Радиан [ТВ-1] [2018, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018077.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Gekijouban Oushitsu Kyoushi Heine | The Royal Tutor Movie | Королевски
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018052.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Ultraman | Ультрамен [2019, Web, 13 из 13] WEBRip 1080p HEVC 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018044.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Code:Realize Sousei no Himegimi | Code:Realize - Guardian of Rebirth | Код: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018040.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Multitouch 1.24.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024086.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Middle 1.5.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024085.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PictureCode Photo Ninja 1.4.0b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024083.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ LilyView 1.5.1 [Rus/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024062.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MediBang Paint Pro 26.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024052.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bootstrap Studio 5.6.0 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024050.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ YTD Video Downloader PRO 5.9.18.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024037.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Infix PDF Editor Pro 7.6.1 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024035.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Wondershare UniConverter 12.6.0.12 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024029.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024022.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Display Driver Uninstaller 18.0.3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024011.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ GOM Player Plus 2.3.63.5327 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024008.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Spotify 1.1.55.498 Portable by JolyAnderson [En/Ru] (авторская разд
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024000.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PotPlayer 210318 (1.7.21469) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023998.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Nikon NX Studio 1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023961.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ OriginPro 2021 9.8.0 Build 200 (SR0) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023929.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ CorelDRAW Graphics Suite 2021 - Corporate v23.0.0.363 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023903.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Valentina Studio Pro 11.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023883.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Yate 6.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023881.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Find Any File (FAF) 2.3 b12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023879.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ A Better Finder Rename 11 v11.31 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023878.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Middle 1.5.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023876.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ WebScraper 4.15.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023875.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Mp3tag 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023871.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Lyn 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023859.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ SecuritySpy 5 v5.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023856.jpg" />
 </div>
 
 

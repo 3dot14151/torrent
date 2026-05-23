@@ -6,7 +6,7 @@ R-Studio Network 9.2 Build 191144 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200569.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Torrent Merkle Root Reader (TMRR) 1.1.5g [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200566.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AIDA64 Extreme | Engineer | Business 6.88.6400 RePack (&Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200560.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ HandBrake 1.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200539.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Audition 23.3.0.55 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200530.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MobaXterm 23.1 build 5058 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200521.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Luminar Neo 1.7.1.11228 (Repack & Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200505.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Cinema 4D Studio 2023.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200502.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ SiSoftware Sandra Lite 20/21 R20 (версия 31.117) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200494.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Driver Easy Pro 5.8.0.17776 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200490.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Eassos DiskGenius Professional 5.5.0.1488 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200487.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ColorControl 9.0.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200483.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MAGIX Sound Forge Pro Suite 17.0.1 Build 85 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200474.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Double Commander 1.0.11  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200464.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200448.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Total Commander 10.52 (03.04.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200446.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Melon VPN - Прокси-VPN Mod By ModdingUnited 7.7.228 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200445.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32522.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200430.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Screaming Frog SEO Spider 18.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200424.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ TeamViewer 15.39.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200423.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Win10 All Settings 2.0.3.33 (x64) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200419.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Microsoft  Visual C++ Runtimes AIO v0.70.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200417.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ R-Studio Network 9.2 Build 191144 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200412.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Process Explorer 17.04 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200411.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Fort Firewall 3.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200409.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ MacCleaner 3 PRO 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200407.jpg" />
 </div>
 
 

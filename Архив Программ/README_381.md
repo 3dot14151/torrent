@@ -6,7 +6,7 @@ Norton Security 22.9.0.68 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851747.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Opera 68.0.3618.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851744.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Google Chrome 81.0.4044.122 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851743.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Autorun Organizer 4.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851741.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Google Chrome 81.0.4044.122 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851740.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ashampoo Photo Commander 16.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851736.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851726.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Process Hacker 2.39 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851723.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Winstep Nexus Ultimate 16.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851713.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NVIDIA GeForce Desktop 364.72 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851711.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DAEMON Tools Pro 7.1.0.0595 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851709.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Altap Salamander 3.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851660.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Windows and Office ISO Download Tool 4.20 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851657.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Icecream Ebook Reader Pro 4.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851650.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft Windows 10.0.18362.778 Version 1903 (April 2020 Update) - Оригин
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851645.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Cent Browser 4.2.10.169 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851640.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Revo Uninstaller Pro 4.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851633.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ WYSIWYG Web Builder 11.0.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851626.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SpyShelter Free Anti-Keylogger 10.7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851621.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Avira Free Antivirus 15.0.25.154 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851525.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FocusWriter 1.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851510.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Wondershare UniConverter 11.7.5.1 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851504.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Notepad++ 7.8.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851492.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851378.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ AOMEI Backupper Technician Plus 5.7.0 (22.04.2020) RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851275.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Revo Uninstaller Pro 4.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851259.jpg" />
 </div>
 
 

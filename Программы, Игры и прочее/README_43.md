@@ -1,55 +1,3 @@
-###  Публикация: 602339   (898001) от 26.03.2020
-
-Blackmart 2020.1.7 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Как можно понять по названию, Blackmart — это «черный рынок». Визуально программа отличается от оригинального Play Market, однако очень похожа интуитивностью пользования и функционалом. Здесь можно найти огромную базу данных платных программ и игр, официально представленные на оригинальном маркете, но здесь их можно скачать бесплатно — цены перечеркнуты. Поиском (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 26.02.2020Разработчик: BlackmartПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D430A9E06447E1A40BAD34F064233153548D58D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100889   (897167) от 05.02.2017
-
-Ancleaner Pro, Android cleaner 3.30 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Хочешь, чтоб твой мобильный всегда был быстрым, а его содержимое - упорядоченным? С "Ancleaner для Android" это возможно. Очисти свой телефон, освободи его память, переупорядочь файлы в системе, оптимизируй свой гаджет. Всего одним кликом! И спустя всего одно мгновение ты заметишь, как производительнее стала система.Тип издания: ПираткаРелиз состоялся: 05.02.17Разработчик: Serial MMF SoftwareПоддерживаемая ОС: Android. 2.3.3Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E801294E6DA5F2336CB5F090AF75BE784019DDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468848   (897099) от 02.09.2021
 
 CountThings from Photos v3.23.1 [Ru]
@@ -58,7 +6,7 @@ CountThings from Photos v3.23.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897099.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ Garmin: City Navigator Thailand 2016.40 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895700.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ YouTube Детям 2.07.1 [En]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893985.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ PortraitPro v15.0 [En] - редактор портретных фотограф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893117.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ Equalizer FX Pro 1.3.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891663.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ LocalAPK 2.0 Repack by Alex Zaguzin [Ru]
 >>Вспомогательное ПО для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888773.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888733.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ TextGrabber Офлайн Распознавание Текста + Перево�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_887245.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ ESET Mobile Security & Antivirus v6.3.66.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887043.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ Fallout Shelter 1.10 + Mod [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886853.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ Mapcam.info Radar detector v3.83.1107 [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885570.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884263.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884104.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883766.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883577.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883257.jpg" />
 </div>
 
 
@@ -484,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882248.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ Trigonometry. Unit circle / Тригонометрический круг v3.22 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881708.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880745.jpg" />
 </div>
 
 
@@ -564,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880551.jpg" />
 </div>
 
 
@@ -590,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879088.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879079.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878759.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878539.jpg" />
 </div>
 
 
@@ -679,6 +627,58 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:754DFD6682F43B9781ED16B0E8FD832551C4573E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373705   (878428) от 07.04.2020
+
+Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диктофон SnipBack идеально подойдет тем, кто устал прослушивать громоздкие записи, которые занимают много места в памяти устройства. К тому же, их трудно прервать и воспроизвести именно тот момент, который вам нужен. Это приложение поможет избежать подобных проблем, ведь оно имеет небольшой размер файлов, а сохранять вы сможете только тот материал, который вам реально (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 6.04.2020Разработчик: Cosmic Pie DesignПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFAEF93F5A5FFC1087F94AC86A3671639976348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373707   (878421) от 07.04.2020
+
+Password Depot For Android 14.0.2 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Password Depot for Android - Password Manager является безопасным менеджером паролей для Андроид. Если хотите спать спокойно и не переживать за свою безопасность, в таком случае обязательно воспользуйтесь этой программой.Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 6.04.2020Разработчик: AceBITПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DAE66EA8E131A9AFAE5D80975B13EA65AFD74C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

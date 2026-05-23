@@ -6,7 +6,7 @@ VA - Hare Krishna (Life is in your Hands 2CD) (2020) [MP3|320 Kbps] <Pop, Rock, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694026.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Buzzy Bus - You Don't Stop (2018) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693413.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Самые Лучшие Хиты Радио Maximum Часть 1 (2011) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_693313.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Дискотека 2018 Dance Club Vol. 178 от NNNB (2018) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692775.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - 100 Most Uplifting Songs Ever (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692226.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Громкие новинки месяца Vol.27 (2019) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691845.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Moving The Blues (2019) [MP3|320 Kbps] <Blues Rock, Country, Rock And Roll,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691844.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Tropical House Vol.3 (2017) [MP3|320 Kbps] <House , Tech House , Tropical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691552.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Disco Forgotten (2017) [MP3|320 Kbps] <Disco, Pop, Italo Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691480.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - One Love Reggae: Soul Collection (2017) [MP3|250-320 Kbps] <Reggae, Lyric>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691473.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - 100 Euro Dance Mix May (2017) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691414.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Hotline Reggaeton: Master DJ Mix (2017) [MP3|320 Kbps] <Reggaeton, Latino H
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691407.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Disco Dance 90’s (2017) [MP3|320 Kbps] <EuroDance , Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691164.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Дискотека забытых хитов (2017) [MP3|320 Kbps] <Disco, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690762.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Music News vol.170 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690628.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Make Love, not War (2022) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690371.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Magic Moment: Original European Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690227.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690110.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690092.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Elton John - Sorry Seems To Be The Hardest Word (2019) Radio Remix [MP3|320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689697.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689433.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, La
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689371.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Русская Дискотека 80-90-Х Remix DJ (2012) [MP3|256 kbps]<D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689212.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Sunny Surprise: Ibiza Dance Party (2016) [MP3|320 кб/с] <Dance, House, F
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688753.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Maximum зажигательный музон (2012) [MP3|256 кб/с]<Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688329.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ VA - Муть (не для старперов) (2020) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688321.jpg" />
 </div>
 
 

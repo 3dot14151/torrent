@@ -6,7 +6,7 @@ PrivaZer Pro 4.0.77 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203399.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OCCT 12.0.14 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203397.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EZ CD Audio Converter 11.1.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203394.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Commander One PRO Pack 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203392.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DesktopSnowOK 6.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203390.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Feeder 4 v.4.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203380.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ HWiNFO 7.61 Build 5185 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203378.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Firefox Browser ESR 115.2.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203358.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NoMachine 8.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203357.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Firefox Browser 117.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203356.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ AutoHideDesktopIcons 6.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203353.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dynamic Wallpaper Engine 15.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203347.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SyncBird Pro 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203337.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adguard 7.12.0 (7.12.4170.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203332.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AirMail Pro 5 v.5.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203330.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adguard 7.12.0 (7.12.4170.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203328.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Fix My iPhone 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203306.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Vivaldi 6.2.3105.43 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203300.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Kaspersky Tweak Assistant 23.1.30.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203299.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Omni Recover 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203294.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Omni Toolbox 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203292.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ IObit Driver Booster Pro 10.2.0.110 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203289.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Uninstall Tool 3.7.2 Build 5701 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203283.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AIDA64 Extreme Edition  6.85.6329 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203264.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Windows 10 Manager 3.8.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203258.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203257.jpg" />
 </div>
 
 

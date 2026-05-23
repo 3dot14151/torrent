@@ -1,29 +1,3 @@
-###  Публикация: 1511754   (788278) от 22.11.2021
-
-The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Разгадайте мрачную тайну, раскрыть которую под силу лишь медиуму. Исследуйте реальный мир и мир духов одновременно. Используйте свои возможности ясновидения, чтобы решать загадки, связывающие два мира, открывать зловещие тайны и пережить встречи с Пастью – чудовищем, порожденным ужасной трагедией.Тип издания: LicenseРазработчик: Bloober TeamЖанр: Квест (От третьего лица), Хоррор (Психология)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07883FA1C72AA58DF5D84DB99D19BD033134DDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511715   (788266) от 22.11.2021
 
 Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.1.8/dlc) License GOG [Complete Edition]
@@ -32,7 +6,7 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.1.8/dlc) License GOG [Complete
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788266.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Graveyard Keeper (2018) [Ru/Multi] (1.404/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788255.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Donna Brave 2: And the Deathly Tree / Донна Браве 2: Древо Сме
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788087.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.02.00/dlc) Licens
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787989.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gray Dawn (2018) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787947.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sunset Overdrive (2018) [Ru/En] (1.0/u2) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787936.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787931.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787920.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Resident Evil 0 HD Remaster / Biohazard Zero (2016) [Ru/En] (1.0/dlc) Repack xat
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787865.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ King of Seas (2021) [Ru/Multi] (7677098) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787790.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.09.00/dlc) Licens
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787787.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Alpine - The Simulation Game (2021) [Multi] (1.0.0) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787778.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Empire of Sin (2020) [Ru/Multi] (1.06.0.51066/dlc) License CODEX [Premium Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787766.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Winter Warfare: Survival (2021) [En] (1.0b7604797) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787756.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Exo One (2021) [Ru/Multi] (21.11.18.1756) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787752.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787743.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ RTL Winter Sports 2009: The Next Challenge / RTL Зимние игры 2009: Н�
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787595.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Redemption Cemetery 13: The Cursed Mark (2019) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787590.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Paranormal Files 3: Enjoy the Shopping (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787589.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Sally Face (2016) [Ru/Multi] (1.2.18) Repack Z0l0t0y [Episode 1&2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787554.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ RTL Biathlon 2009 / RTL Биатлон 2009 (2008) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787528.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Blue Estate The Game / Viktor Kalvachev's - Blue Estate: The Game (2015) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787484.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ AtmaSphere (2018) [En] (1.0/upd1) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787483.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ The Awesome Adventures of Captain Spirit / Life Is Strange 2 (2018) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787451.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787431.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.1.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B4DE07159C87FA677750CAE6DB09CEC17095AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512217   (787364) от 24.11.2021
+
+Mystery Case Files 23: Incident at Pendle Tower (2021) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистическо-детективной серии игр Mystery Case Files. Один из родственников королевской семьи решил отремонтировать роскошный в прошлом отель, основательно обветшавший за сто лет. Однако работы пришлось прекратить, когда неожиданно было обнаружено скрытое крыло здания. Рабочие стали видеть жуткие образы и слышать пугающие звуки. Сможете ли вы раскрыть (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6AA5198CF7F5125B58E6B2BAE0D45885839AA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

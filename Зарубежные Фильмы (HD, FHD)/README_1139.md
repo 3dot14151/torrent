@@ -1,55 +1,3 @@
-###  Публикация: 1794682   (17710) от 20.05.2025
-
-Я девочка / Yo niña / I Girl (2018) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Армония живёт с родителями в небольшой хижине без водопровода, газа и электричества в окружении рек, озер и лесов Патагонии. Её родители - хиппи, которые ставят под сомнение принципы современного капиталистического общества и стараются жить в гармонии с природой. Но всё не так радужно, как хотелось бы, и им ещё предстоит столкнуться с множеством проблем.Производство: Аргентина, Ajimolido FilmsЖанр: драма, биографияРежиссер: Natural ArpajouАктеры: Эстебан Ламот, Андреа Карбальо, Уэну Пас Паредес, Эмилиано Карраззоне, Бимбо Годой и другие.Перевод: Двухголосый любительский (Синема УС)Язык озвучки: РусскийСубтитры: английские (hardsub)Продолжительность: 01:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0268E493AAF44C4B4D93A6BACE72930671F39D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810204   (17599) от 03.08.2025
-
-Сделай шаг: Лови момент / Make Your Move (2013) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-История о двух танцорах, которые выросли в разных условиях. Но оба они окажутся в Нью-Йорке и будут работать вместе в клубе. Между ними соперничество, но, когда двое влюбляются, история превращается в историю Ромео и Джульетты.Производство: США, Корея Южная / CJ Entertainment, Robert Cort Productions, SM EntertainmentЖанр: мелодрамаРежиссер: Дуан АдлерАктеры: Дерек Хаф, БоА, Уилл Юн Ли, Уэсли Джонатан, Изабелла Мико, Джефферсон Браун, Мики Исикава, Рик Гонсалес, Майкл Мэндо, Дэн ЛорияПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2356E239AED743A415CDE6089815F627129E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798245   (17549) от 21.05.2025
 
 История рыцаря / A Knight's Tale (2001) BDRip [H.264/720p] [Remastered]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17549.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17440.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17430.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17415.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17406.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17401.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17388.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17381.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17367.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17334.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17325.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17283.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17196.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17192.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17168.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17154.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17048.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16940.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16860.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16854.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16850.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16813.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16794.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16785.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91FFBC7BA9B4A09EC51661FBB81130DC56F94DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799404   (16711) от 27.05.2025
+
+Дрожь земли 4: Легенда начинается / Tremors 4: The Legend Begins (2004) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16711.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как жителей отдалённого городка в штате Невада стал безжалостно истреблять невидимый враг, владелец копей Хайрем Гаммер нанимает лучшего стрелка на Диком Западе по кличке Келли Черная Рука, чтобы тот расправился со зловещими существами, оставляющими уважаемого бизнесмена без прибыли!
+Надо заметить, что мистер Гаммер является прапрадедом Берта Гаммера — (   Читать дальше...   )Производство: США / Stampede EntertainmentЖанр: ужасы, фантастика, боевик, триллер, комедия, приключения, вестернРежиссер: С.С. УилсонАктеры: Майкл Гросс, Сара Ботсфорд, Билли Драго, Брент Роам, Аугуст Шелленберг, Дж.Э. Фримен, Ло Минг, Лидия Лук, Сэм Ли, Нил КопитПеревод: дублированный официальный (Zone Vision), профессиональный многоголосый (СТС), авторский (Сергей Визгунов, Андрей Дольский)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA201CBD9F175D8A26F23333D68298D058CBAE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799379   (16696) от 27.05.2025
+
+На прицеле / В укрытие / Take Cover (2024) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наёмники Сэм и Кен — давние напарники и боевые товарищи. Первый работает в качестве снайпера, а второй — наблюдателя. Во время очередной операции по устранению Сэм первым выстрелом случайно убивает не главную цель — мужчину, а девушку, которая находилась рядом. Опытный снайпер уверен, что она увидела его и заслонила своего спутника намеренно. Сэма гложет чувство (   Читать дальше...   )Производство: Великобритания / Signature EntertainmentЖанр: боевикРежиссер: Ник МаккинлессАктеры: Скотт Эдкинс, Джек Парр, Мадалина Беллариу Ион, Альба де Торребруна, Элис Ив, Ренарс Латковскис, Билли Клементс, Питер Колфилд, Ник Голдман, Том ЛиПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: русские (Forced), английские (Full, SDH)Продолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A117A0FF4C7200BCF7D7EA9DE2AD0E03034005
 ```
 
 https://mybot314.ru/tekegram_catalog/

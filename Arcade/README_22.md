@@ -6,7 +6,7 @@ Mind Dead (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570116.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kung Fu Strike: The Warrior's Rise [En/Multi4] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569992.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ascendant (2014) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568677.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568334.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fight'N Rage (2017) [En/Spa] (190516) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568315.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LEGO: Marvel's Avengers (2016) [Ru/En] (1.1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568293.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Legend of Kay Anniversary (2015) [Multi] License RELODEAD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567903.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Death's Gambit: Afterlife (2021) [Ru/Multi] (2.23/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566456.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560163.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Virus Z (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559417.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Grow Up (2016) [Ru/Multi] (1.0/upd1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558973.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mark of the Ninja (2013) [Ru/Multi] (2.1.0.6 GOG) License GOG [Special Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558895.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Inside (2016) [Ru/En] (5.0.4.29787) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558887.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Rayman Origins [Ru/En] (RePack/1.02) 2012 l R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558320.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557878.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557660.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557500.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Delta Squad (2019) [Multi] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556815.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Pressure Overdrive (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556662.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Infectonator 3: Apocalypse (2018) [Multi] (1.3.2.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556170.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mugsters (2018) [Ru/Multi] (1.0.313) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553994.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Overcooked 2 (2018) [Multi] (4.576282/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553856.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Figment (2017) [Ru/Multi] (1.1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553555.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Ultra Street Fighter IV (2014) [Ru/En] (1.05/dlc) Repack Mizantrop1337 [Arcade E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553395.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Inside (2016) [Ru/Multi] (5.0.4.29787) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553394.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Inside (2016) [Ru/En] (5.0.4.29787) Repack YelloSOFT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552580.jpg" />
 </div>
 
 

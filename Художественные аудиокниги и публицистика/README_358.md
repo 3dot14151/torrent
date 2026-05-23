@@ -1,82 +1,3 @@
-###  Публикация: 1022281   (728339) от 02.06.2016
-
-Данил Корецкий | Джекпот для лоха (2016) [MP3, Фёдор]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лихие девяностые, приватизация госсобственности, коммерсанты, похожие на бандитов, бандиты с устремлениями коммерсантов, разборки, перестрелки, а в центре этого круговорота скромный, забитый жизнью инженер Говоров, вынужденный работать дворником и, в силу стечения обстоятельств, оказавшийся важной фигурой в процессе приватизации крупного завода. Сможет ли он преодолеть (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9918CBC09006CEBBB25C9E1B4EA0C36EA54CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022368   (728232) от 02.06.2016
-
-Филип Дик | Убик (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Убик» прост как древнекитайская притча. «Убик» увлекателен как синтез «Матрицы», лучшего из Стивена Кинга, тонкого юмора и необычайной атмосферы, которую ощущаешь почти физически.
-– Бесспорно, «Убик» – это чудовищный гротеск. Своей изобретательностью и силой воображения Дик превосходит коллег по научно-фантастическому жанру. Его распадающийся, выбрасывающий странные (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 06:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A6277939392E7E0A0CB76A3C72818738747835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022345   (728163) от 02.06.2016
-
-Василий Маханенко | Поиск Создателя (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Приключения Шамана продолжаются! Еще недавно Дмитрию Махану, по кличке Шаман, казалось, что он совершил в игровом мире Барлионы шестой шаг, и последний, но жизнь внесла поправку. Корпорация решила возродить Темного Повелителя и всю его армию. Иванов, глава Корпорации, лично нажал кнопку восстановления. Гераника и его Дракон Мрака ожили. А Шаман получил от руководства (   Читать дальше...   )Жанр: Боевое фэнтези. LitRPGПродолжительность: 12:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C27E54DF24801A104E1A2ED29A4A02928A5674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022352   (728013) от 02.06.2016
 
 Вашингтон Ирвинг | Жизнь и путешествия Христофора Колумба (2012) [MP3, Максим Доронин]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728013.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_727973.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727841.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727840.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727834.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727832.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727775.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727746.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727743.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727684.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727653.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727651.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727644.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727638.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727596.jpg" />
 </div>
 
 
@@ -482,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727593.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727587.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727561.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727545.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727485.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727480.jpg" />
 </div>
 
 
@@ -639,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727471.jpg" />
 </div>
 
 
@@ -665,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727440.jpg" />
 </div>
 
 
@@ -676,6 +597,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADAD21DC15EB57F22509178FD7BDBD3D266624A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284455   (727413) от 22.02.2019
+
+Михаил Ланцов | Игра за престол (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш современник проваливается в прошлое, за пару лет до начала Смутного времени. Внешнее сходство с покойным Иваном Грозным играет с ним злую шутку – все принимают его за царевича Дмитрия. Но «чудом спасенный» Дмитрий Иванович не желает вступать в игру за престол. Он готов подружиться с Борисом Годуновым, чтобы совместно отбить польскую интервенцию. Однако судьба (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 08:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BF46742E06A785E5395C742B4FBDA8B1B62A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022603   (727241) от 03.06.2016
+
+Павел  Мельников | В лесах. [Книга 1] (2001) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпопея П.И.Мельникова (Андрея Печерского) "В Лесах" и "На Горах" - его главный литературный труд, которому писатель отдал около двадцати лет жизни. Эти книги открыли читателю целую область русской действительности, до того не освещенную и не исследованную. Мельников рассказал о Заволжье и Нагорье, какими они были в середине XIX века, о старообрядческом (   Читать дальше...   )Жанр: Историческя. ЭпопеяПродолжительность: 22:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A720D7B9726EE1B87F0AFFE42B87E3E82E9D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022660   (727234) от 03.06.2016
+
+Чарльз Уильям Гекерторн | Тайные общества всех веков и всех стран. [В 2-х частях] (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто управляет миром? Что происходит на самом деле? Они всегда были среди нас!
+Книга, которую вы держите в руках, методично и последовательно описывает все тайные общества, ордены и организации, существовавшие на земле с незапамятных времен. Масоны, тамплиеры, каббалисты - многие из них существуют и по сей день. Их члены обязаны скрывать и отрицать свое участие в (   Читать дальше...   )Жанр: научно-популярная литератураПродолжительность: 26:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2977FE6504DEDD5402C00B6D35B7F9EF3D2C5F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

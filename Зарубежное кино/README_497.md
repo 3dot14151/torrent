@@ -1,55 +1,3 @@
-###  Публикация: 1113343   (837951) от 11.03.2017
-
-В долине насилия / In a Valley of Violence (2016) BDRip [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Суровые реалии Дикого Запада не пугают героя вестерна «В долине насилия» — бродяги Пола, который держит путь в Мексику через выжженную солнцем пустынную местность. Вместе со своим конем и преданным псом Пол проделал очень долгий путь. Некоторое время назад бандиты убили его лучшего друга, и он решил им за это отомстить.Производство: СШАЖанр: Вестерн, драма, криминалРежиссер: Тай УэстАктеры: Карен Гиллан, Итэн Хоук, Таисса Фармига, Джон Траволта, Берн Горман, Джеймс Рэнсон, Тоби Хасс, Ларри Фессенден, Харрисон Суини, Джампи ...Перевод: Дублированный (чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6EE3C0EC48729CE57B9235A0F22F9E43D1DA8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113493   (837949) от 11.03.2017
-
-Питомец / Pet (2016) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сэт работает в приюте для животных и ведёт довольно скучную жизнь. Однажды он сталкивается со своей школьной любовью Холли, и становится буквально одержим девушкой. После пары неудачных попыток пригласить Холли на свидание Сэт решает проблему экстремально — забирается к ней домой, вкалывает транквилизатор, привозит девушку в собачий приют и запирает в клетке. Теперь-то (   Читать дальше...   )Производство: Испания, СШАЖанр: Триллер, УжасыРежиссер: Карлес ТорренсАктеры: Доминик Монаган, Ксения Соло, Дженнет МакКарди, Нэйтан Парсонс, Гэри Дж. Танниклифф, Дэвон МакДональд, Ирен Росин, Джанет Сонг, Хармони МакЭллигот ...Перевод: Многоголосый закадровый (@MUZOBOZ@), Одноголосый закадровый (Алексей Толмачев)Субтитры: Английские (full)Продолжительность: 01:33:53Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7AF6AC136934760B1ACB26F914B80C76AE451B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113496   (837943) от 11.03.2017
 
 Питомец / Pet (2016) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837943.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837940.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837934.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837873.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837856.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837842.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837840.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837832.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837828.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837824.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837822.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837819.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837781.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837771.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837754.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837741.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837732.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837731.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837727.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837726.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837723.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837721.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837719.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837716.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F277485CB21A30907B843AA6C7375372B015439C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501058   (837648) от 08.10.2021
+
+Девятый калибр / Calibro 9 (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фернандо Пьяцца — успешный адвокат с безупречной репутацией, в отличие от своего отца, у которого было богатое криминальное прошлое. Когда в результате мошенничества со счетов одного из преступных синдикатов пропадает 100 миллионов евро, подозрение падает на Фернандо. Он становится мишенью сразу для двух соперничающих мафиозных кланов. Фернандо должен любыми способами (   Читать дальше...   )Производство: Италия, Бельгия / Minerva Pictures, Gapbusters, Rai CinemaЖанр: Боевик, триллер, криминалРежиссер: Тони Д АнджелоАктеры: Марко Боччи, Ксения Раппопорт, Алессио Бони, Микеле Плачидо, Барбара Буше, Андреа Арру, Маттиа Бизонни, Nils Bokanowski, Джессика Крисси, Пьетро Делле ПьянеПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32C21571987C9FCB1A2D6FCCDD0A43883809DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501069   (837647) от 08.10.2021
+
+Девятый калибр / Calibro 9 (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фернандо Пьяцца — успешный адвокат с безупречной репутацией, в отличие от своего отца, у которого было богатое криминальное прошлое. Когда в результате мошенничества со счетов одного из преступных синдикатов пропадает 100 миллионов евро, подозрение падает на Фернандо. Он становится мишенью сразу для двух соперничающих мафиозных кланов. Фернандо должен любыми способами (   Читать дальше...   )Производство: Италия, Бельгия / Minerva Pictures, Gapbusters, Rai CinemaЖанр: Боевик, триллер, криминалРежиссер: Тони Д АнджелоАктеры: Марко Боччи, Ксения Раппопорт, Алессио Бони, Микеле Плачидо, Барбара Буше, Андреа Арру, Маттиа Бизонни, Nils Bokanowski, Джессика Крисси, Пьетро Делле ПьянеПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67EBCF74877A7D6FCDF686D5F7E624D4B23E220
 ```
 
 https://mybot314.ru/tekegram_catalog/

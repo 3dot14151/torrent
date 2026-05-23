@@ -1,113 +1,3 @@
-###  Публикация: 1265260   (274061) от 28.11.2018
-
-Alcatrazz - Live In Japan 1984 (2018) DVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления американской хэви-метал-группы Alcatrazz в зале Nakano Sun Plaza (Токио) 28 января 1984г.01. Opening
-02. Too Young To Die, Too Drunk To Live
-03. Hiroshima Mon Amour
-04. Night Games(   Читать дальше...   )Производство: Ward RecordsЖанр: Hard rock, Neoclassical metalРежиссер: Ward RecordsАктеры: AlcatrazzСубтитры: отсутствуютПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320ED10B6BAA930DEEF3186497825ED5F0765673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337631   (273536) от 11.11.2019
-
-Большой юбилейный концерт Александры Пахмутовой (2019) HDTV [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Весь вечер на сцене Большого театра – Александра Пахмутова, поздравить композитора выйдут прославленные спортсмены: Вячеслав Фетисов, Лариса Латынина, Иван Едешко, Елена Чайковская, Владислав Третьяк, Аделина Сотникова, а также артисты самых разных жанров, среди которых Денис Мацуев и Лев Лещенко, Александр Градский и Тамара Гвердцители, Сергей Полунин и Хибла Герзмава, (   Читать дальше...   )Производство: РоссияЖанр: концертСубтитры: отсутствуютПродолжительность: 02:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE42D571DCD61CFD0B21401A30EC36996765BA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083151   (273486) от 16.12.2016
-
-Группа «Лицей» выступление на Авторадио (12.12.2016) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настя Макаревич & группа «Лицей» в гостях у "Шоу Мурзилки LIVE" на АВТОРАДИО с живым концертом. Песни, а так же интервью. Состав группы "Лицей": Анастасия Березовская, Анастасия Макаревич, София Тайх.1. Фотография
-2. Рыжий пёс
-3. След на воде
-4. Осень(   Читать дальше...   )Производство: АвторадиоЖанр: КонцертПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81B4823769C70D0F94807918F80538C8AFD4FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189228   (273465) от 11.11.2019
-
-Фёдор Достоевский - Варвар и Еретик (Игрок) (2005) TVRip (Ленком)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Наравне с землей, водой, воздухом и огнем - деньги суть пятая стихия, с которой человеку чаще всего приходится считаться. В этом одна из многих -возможно, даже главная- причина того, что сегодня, через сто лет после смерти Достоевского, произведения его сохраняют свою актуальность. Сценография монументальна. Александр Абдулов и Инна Чурикова демонстрируют высочайшее (   Читать дальше...   )Производство: Россия, Московский театр Ленинского комсомола, ГТРК "Культура"Жанр: Драма, спектакльРежиссер: Марк ЗахаровАктеры: Александр Абдулов, Александра Захарова, Инна Чурикова, Леонид Броневой, Мария Миронова мл., Юрий Колычев, Данила Соломатин, Полина Воропаева, Виктор Речман, Владимир Володин, Александра Дорохина, Андрей Соколов, Сергей Чонишвили, Людмила Зорина, Сергей АлександровСубтитры: отсутствуютПродолжительность: 02:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A66B775B15FCBD01585EC4C6FCA6EA26B22394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142420   (272349) от 12.11.2019
 
 Вальпургиева ночь (Ленком) (2017) SATRip
@@ -116,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272349.jpg" />
 </div>
 
 
@@ -142,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272327.jpg" />
 </div>
 
 
@@ -168,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272273.jpg" />
 </div>
 
 
@@ -195,7 +85,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271999.jpg" />
 </div>
 
 
@@ -224,7 +114,7 @@ Eric Clapton - Live at Montreux 1986 (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271830.jpg" />
 </div>
 
 
@@ -250,7 +140,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271812.jpg" />
 </div>
 
 
@@ -279,7 +169,7 @@ Adriano Celentano - Adriano Live Il Concerto Arena di Verona - Rock Economy (201
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271645.jpg" />
 </div>
 
 
@@ -305,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271428.jpg" />
 </div>
 
 
@@ -332,7 +222,7 @@ Def Leppard - Visualize, Video Archive (2001) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271125.jpg" />
 </div>
 
 
@@ -361,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270329.jpg" />
 </div>
 
 
@@ -391,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269953.jpg" />
 </div>
 
 
@@ -417,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269940.jpg" />
 </div>
 
 
@@ -444,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269833.jpg" />
 </div>
 
 
@@ -470,7 +360,7 @@ Slayer: The Repentless Killogy (2019) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269570.jpg" />
 </div>
 
 
@@ -497,7 +387,7 @@ Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269093.jpg" />
 </div>
 
 
@@ -526,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269038.jpg" />
 </div>
 
 
@@ -554,7 +444,7 @@ Extreme - Take Us Alive (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268732.jpg" />
 </div>
 
 
@@ -583,7 +473,7 @@ Bad Company - In Concert. Merchants of Cool (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268700.jpg" />
 </div>
 
 
@@ -612,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268541.jpg" />
 </div>
 
 
@@ -641,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268352.jpg" />
 </div>
 
 
@@ -669,7 +559,7 @@ The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268346.jpg" />
 </div>
 
 
@@ -698,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268340.jpg" />
 </div>
 
 
@@ -712,6 +602,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BF8107E9FCA101CE158C207D4DAD3E3E03F3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338911   (268119) от 17.11.2019
+
+Квартирник НТВ у Маргулиса. 85 лет Юрию Визбору (16.11.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск самой атмосферной программы НТВ «Квартирник НТВ у Маргулиса» посвящен юбилею советского поэта, композитора, актера и драматурга Юрия Визбора. В 2019 году одному из главных представителей жанра авторской песни, ставшему символом поколения 60-х, исполнилось бы 85 лет. В честь юбилея знаменитого барда в студии «Квартирника» собрались артисты, чтобы исполнить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53BDE188E6A935A816FBFCA8CE1DC5C66232901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965537   (267786) от 17.11.2019
+
+Квартирник у Маргулиса - Чиж (2015) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - Сергей "Чиж" Чиграков. Дата эфира: 05.12.2015.01. Урал байкер блюз
+02. Глазами и душой
+03. Глупенькая песня (Ассоль)
+04. Два тракториста(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D096B1B9CC3004435628A0994109E35FAC9077AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276317   (267629) от 29.12.2010
+
+Эпидемия - Эльфийская Рукопись: Сага о двух мирах (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип официального сборника "Эльфийская Рукопись: Сага о двух мирах" на трёх DVD с дополнительными материалами.01. Золотые драконы
+02. Час испытания
+03. Рождённый для битвы
+04. Пройди свой путь(   Читать дальше...   )Жанр: Концерт, Power MetalПродолжительность: 03:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E09224DB7262B1BDE62A0A7C6589FBB5784D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 427798   (267605) от 28.12.2011
+
+Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Keep Your Eyes Open
+02. Throughout
+03. Ron Carter
+04. Boubacar(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

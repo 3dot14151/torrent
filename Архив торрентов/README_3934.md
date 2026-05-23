@@ -6,7 +6,7 @@ Transmission 4.04 (24077e3511) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203500.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Windows 10 Manager 3.8.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203499.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Adobe Acrobat Pro 2022.003.20314 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203498.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MediaHuman YouTube Downloader 3.9.9.85 (2708) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203497.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Red Button 5.97 include Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203492.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MemTest86 10.6 Build 2000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203491.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Serif Affinity Photo 2.0.4.1701 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203489.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kodi 20.0 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203485.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kodi 20.0 (Nexus) for Android [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203477.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Total Commander 11.01 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203465.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ PotPlayer 230830 (1.7.21992) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203462.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Optimizer 14.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203456.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Reg Organizer 9.10 (28.01.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203452.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Google Chrome 116.0.5845.141 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203449.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Master PDF Editor 5.9.61 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203445.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AIMP 5.30 Build 2510 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203435.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ QuickMemoryTestOK 4.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203433.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Google Chrome 116.0.5845.141 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203427.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Reader for Mac 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203423.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ OpenVPN 2.6.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203418.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Opera One 102.0.4880.29 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203415.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Find Same Images OK 5.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203412.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ RogueKiller Anti-Malware 15.12.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203407.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Pixelmator Pro 3.3.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203405.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Opera One 102.0.4880.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203403.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Mozilla Thunderbird 115.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203401.jpg" />
 </div>
 
 

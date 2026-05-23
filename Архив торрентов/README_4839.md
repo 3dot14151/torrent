@@ -6,7 +6,7 @@ XRecode 3 1.160 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33675.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KORG - Opsix Native 1.3.0 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33665.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Text Editor Pro 31.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33663.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Subtitle Edit 4.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33653.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kdenlive 24.12.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33648.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Office Installer & Office Installer+ 1.22 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33641.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Photoshop 2025 26.2.0.140 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33635.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Photoshop 2024 25.12.1.994 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33627.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Photoshop 2024 25.12.1.994 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33608.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Photoshop 2025 26.2.0.140 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33606.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Topaz Photo AI 3.4.2 RC (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33598.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Paint.NET 5.1.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33595.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wondershare PDFelement 11.4.3.3273 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33591.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Firefox Browser ESR 115.18.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33583.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Desktop Calendar 3.19.217.6900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33579.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ TweakPower 2.066 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33577.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ DisplayFusion Pro  + Portable + MSI 11.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33568.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ GeoGebra 6.0.871.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33563.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ XYplorer 26.70.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33562.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3014 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33560.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ QOwnNotes 24.12.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33557.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ StaxRip 2.44.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33552.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ OneCommander Pro 3.94.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33549.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ RedNotebook 2.37.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33546.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Calibre 7.23.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33540.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ AAF Family DCH Audio Realtek 10.11.9761.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33519.jpg" />
 </div>
 
 

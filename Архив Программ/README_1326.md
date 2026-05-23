@@ -6,7 +6,7 @@ FanControl V128 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364108.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SolveigMM Video Splitter 6.1.1611.7 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364103.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NIUBI Partition Editor 7.9.2 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364099.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Avast Secure Browser 69.1.852.101 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364091.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VueScan Pro 9.7.92 + OCR Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364047.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Comodo Dragon 104.0.5112.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364040.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NirLauncher Package 1.19.110 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364027.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ R-Drive Image System Recovery Media Creator 7.0 Build 7006 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364022.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BitComet 1.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364019.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VueScan Pro 9.7.92 (DC 15.09.2022) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364016.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Macrorit Partition Expert 6.1.2 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364013.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Animate CC 2017 16.0.0.112 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364012.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Simple Sticky Notes 5.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364010.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Vivaldi 2.0.1309.42 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363984.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Brave Browser 1.43.93 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363874.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Perfectly Clear WorkBench 4.2.0.2336 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363871.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ IObit Smart Defrag Pro 8.1.0.180 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363868.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ R-Drive Image Technician 7.0 Build 7006 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363854.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VirtualBox 7.0.0 BETA2 Build 153583 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363850.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Macrorit Disk Scanner 5.0.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363845.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Q-Dir 7.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363844.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Opera 56.0.3051.52 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363831.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Any Video Converter Ultimate 6.0.4 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363828.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Pepakura Designer 4.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363825.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Aiseesoft Video Converter Ultimate 9.2.56 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363819.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Viber 6.4.1.1 Portable by ThumbApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363812.jpg" />
 </div>
 
 

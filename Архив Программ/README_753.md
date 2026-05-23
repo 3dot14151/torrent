@@ -6,7 +6,7 @@ K-Lite Codec Pack 14.8.8 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668497.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MCS Drivers Disk 19.2.18.1480 (11.03.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668490.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rufus 3.5 (Build 1488) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668483.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668430.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Care 365 Pro 3.63.327 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668327.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FAST Search Server 2010 for SharePoint 14.0.4763.1000 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_668320.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 2000 Beta Pack 5.00.1515.1 Workstation - 5.00.2128.1 Professional [Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_668284.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ jv16 PowerTools X 4.0.0.1492 Final RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668204.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ JetBrains IntelliJ IDEA 10.5 Build #IU-107.105 Ultimate Edition For Win/Mac/Linu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_668134.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wise Disk Cleaner 8.51.602 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668131.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wise Care 365 Pro 3.63.327 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668125.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kinza Browser 4.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668104.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668102.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ KeePass Password Safe 2.39 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668099.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kaspersky Internet Security 2013 13.0.0.3370 Technical Release [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_668081.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Raxco PerfectDisk Professional 13.0 Build 843 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668041.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ TeamViewer 10.0.42849 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668033.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Mozilla Firefox Quantum 60.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668023.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ GPU-Z 2.9.0 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668020.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Mozilla Firefox Quantum ESR 60.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668013.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668012.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ CPU-Z 1.85.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668005.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ qBittorrent 3.2.0 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667985.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Daum PotPlayer 1.6.54266 Stable + Portable (x86/x64) by SamLab [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667984.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Daum PotPlayer 1.6.54266 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667981.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Novicorp WinToFlash Professional 0.9.0010 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667904.jpg" />
 </div>
 
 

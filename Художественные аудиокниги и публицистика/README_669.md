@@ -1,81 +1,3 @@
-###  Публикация: 1341447   (262316) от 28.11.2019
-
-Анжела Марсонс | Инспектор полиции Ким Стоун (Книга 2). Злые игры (2018) [MP3, Вячеслав Задворных]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Расследуя дело об убийстве бывшего насильника, совершенного его жертвой, Ким вдруг обнаруживает себя втянутой в страшную схватку не только с изощренным преступником и социопатом, но и собственными пороками, слабостями и болевыми точками. И каждое ее движение, которое она предпринимает, чтобы поймать убийцу, вот-вот станет смертельно опасным и для нее. Увязнув в этой (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655AAC5A2DE1FA3E1B60A9E8FC2126B3BFFF4CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341442   (262310) от 28.11.2019
-
-Агата Кристи | Второй удар гонга [Сборник рассказов]  (2019) [MP3, Егор Серов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В эту книгу вошло восемь рассказов Агаты Кристи. В некоторых из них читатель встретится с любимыми сыщиками королевы детектива – Паркером Пайном, Харли Кином, Эркюлем Пуаро. Некоторые – совершенно самостоятельны и наглядно демонстрируют, как сложный детективный сюжет можно развить в столь небольшом объеме текста.Жанр: ДетективПродолжительность: 05:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979632A6572DF3019A3358DBC07D7A4D24215BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341425   (262290) от 28.11.2019
-
-Сергей Недоруб | Светлая тень (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В Москве, прямо у ворот Дневного Дозора, совершено нападение на пражских инквизиторов. У них украден уникальный эликсир, серьезно расширяющий боевые возможности любых Иных, даже низших. Расследовать атаку берется Сергей Воробьев – Темный первого уровня. Для него это вопрос чести – организатором атаки считается его старый знакомый, оборотень Клумси. Но Сергею куда (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиПродолжительность: 11:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF22B8079438362C69789038FB8DF3FA7632682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193259   (262242) от 20.12.2017
 
 Алекс Бертран Громов | Нарком Берия. Злодей развития (2017) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262242.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262230.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262228.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262193.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262112.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262103.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262100.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262099.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262044.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261910.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261894.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261893.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261878.jpg" />
 </div>
 
 
@@ -423,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261793.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261767.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261739.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261666.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261665.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261663.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261650.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261646.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261592.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261581.jpg" />
 </div>
 
 
@@ -670,6 +592,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88E1F441EFBBAE1CAB4DC403113D32528F73BAF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838790   (261555) от 24.11.2025
+
+Ирина Дегтярева | Пётр Горюнов. Новобранцы холодной войны (2025) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261555.jpg" />
+</div>
+
+
+###  Подробнее
+
+2022 год. Ирак. Двадцатилетний нелегальный разведчик Мансур Булут второй месяц находился в Иракском Курдистане на базе курдов РПК, где выполнял свое первое задание, полученное от Центра. Мансур родился в Турции от курдянки Дилар и тогда еще очень молодого Петра Горюнова, с которой тот закрутил несанкционированный Москвой роман. После провала Горюнова тринадцатилетнего (   Читать дальше...   )Жанр: ДетективИздательство: СОЮЗПродолжительность: 08:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9747A1DA53FF49BE2F642A119CC1FB672FF0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838814   (261535) от 24.11.2025
+
+Вадим Денисов | Антигеймер (2025) [MP3, Александр Чернов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришельцы задумали масштабную операцию по улучшению человеческого рода, которая могла бы внести изменения в теорию Дарвина. Люди, неспособные работать и вести семейную жизнь, отправлялись на новую планету с неблагозвучным именем Рассадник. Чтобы жизнь на новой планете не была скучной, Кураторы наполнили её различными фэнтези-существами, придуманными за последнее (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: МедиаКнигаПродолжительность: 11:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1667932AA1FB63C575331F0598DE2E8706164A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838779   (261531) от 25.11.2025
+
+Джеймс Фенимор Купер | Кожаный чулок (Книга 3). Следопыт,  или На берегах Онтарио  (2025) [MP3, Александр Бордуков, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец 1750-х годов. На территории Северной Америки продолжается кровавая война за колониальное господство. Британские войска вынуждены отступить под натиском превосходящих сил французов. Группе солдат поручено эвакуировать секретную базу, прежде чем она попадёт в руки французов и их союзников-ирокезов. Под предводительством Натти Бампо на сей раз носящего имя Следопыт (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: СОЮЗПродолжительность: 13:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F32C18512D2B0D33629295C1B076BBA002AD61
 ```
 
 https://mybot314.ru/tekegram_catalog/

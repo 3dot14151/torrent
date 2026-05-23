@@ -6,7 +6,7 @@ Nocturnal Rites - Grand Illusion (2005) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925836.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mandragora Scream - Madhouse (2006) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925649.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Valgrind - Condemnation (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925608.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Axel Rudi Pell - Diamonds Unlocked II (2021) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925500.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Prong - X - No Absolutes (2016) [FLAC|Lossless|tracks + .cue] <Groove, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924599.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Therion - Les Epaves (2016) EP [FLAC|Lossless|image + .cue] <Symphonic, Operatic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924235.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Suicide Silence - Become the Hunter (2020) [FLAC|Lossless|tracks + .cue] <Deathc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924001.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Skirmish - Through the Abacinated Eyes (2011) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922895.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Black Harvest - White Light Came Down (2005) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922873.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Soulline - We Curse, We Trust (2012) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922547.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Soulline - Welcome My Sun (2015) [FLAC|Lossless|image + .cue] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922534.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Prestige - Reveal The Ravage (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922527.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Primal Fear - Devil's Ground (2004) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922451.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Yngwie Malmsteen - War To End All Wars (2000) [FLAC|Lossless|image + .cue] <Neoc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922244.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Malefactor - Death Falls Silent (2002) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921117.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Beyond The Black - Lost in Forever (2016) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920923.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ My Haven - Until (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female V
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920876.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dee Snider - Leave A Scar (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920874.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Phantom Divine - The Cosmic Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920785.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mysticum - Planet Satan (2014) CD Jevel box, 2019 Reissue, licensed from Peacevi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920587.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Body Count - Carnivore (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920581.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Burzum - Thulêan Mysteries (Thulean Mysteries) (2020) [FLAC|Lossless|Web-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920580.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Iconoclast - Hallucination (2016) [FLAC|tracks|WEB-DL]<Progressive Deathcore, Dj
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919264.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Municipal Waste - The Last Rager (2019) EP [FLAC|Lossless|image + .cue] <Crossov
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919116.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Stormwind - Taken By Storm & Warbringer (1984) Reissue, 2020,  Rockport Records 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919115.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Book Of Numbers - Magick (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919110.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1813089   (7119) от 18.08.2025
-
-Inkshade (2025) [En] (1.0.004) Repack AIexandro
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Существо за столом настаивает, чтобы вы сыграли в их деревянную настольную игру. В этой игре вы - капитан, ищущий таинственное царство, известное как Бездна. Чтобы достичь этого места, вам нужно будет завоевать континент, раздобыть дирижабль и отправиться в проклятые небеса. Или, скорее, собрать команду и поручить им сделать это. Потребуется не одна попытка, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Studio VezelleЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C142AF1A5AF0644C867D798F0D23EBF6643E0A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813459   (6990) от 19.08.2025
 
 Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
@@ -32,7 +6,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6990.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6988.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6974.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.10776-250723/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6965.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6964.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6962.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (20250814/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6960.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6944.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6901.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Streets of Rogue (2019) [Ru/Multi] (99i2/dlc) License GOG (обновляема�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6873.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ PEAK (2025) [Ru/Multi] (1.24a) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6861.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1 Build 19586234/dlc) Repack FitGir
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6856.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.05) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6842.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6815.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.28/dlc) Repack FitGirl [Ultimate Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6794.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6726.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Twilight Monk (2025) [Ru/Multi] (1.4.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6719.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Warsim: The Realm of Aslona (2022) [En] (1.3.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6718.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Songs of Silence (2024) [Ru/Multi] (1.4.4-d.8679/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6714.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.0) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6704.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6702.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6700.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.2.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6699.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ inZOI (2025) [Ru/Multi] (20250820.6849.W/dlc) Repack dixen18 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6692.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.42.1-114) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6579.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D01F356EF173C7CB2B6845AC1F7CA8A9773D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787815   (6576) от 22.08.2025
+
+Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistance Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6576.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой дизельпанк-стратегии с элементами roguelite вы возглавите элитный отряд мехов в альтернативной версии Второй мировой войны. Думайте быстро, сражайтесь с силами Оси и освобождайте Европу. Улучшайте мехов и пилотов, чтобы добраться до вражеского штаба!Тип издания: RepackРазработчик: Milky Tea StudiosЖанр: Экшены, Казуальные игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC5C05BC1FCD18D7CA8FC6942EEF363D70CA0697
 ```
 
 https://mybot314.ru/tekegram_catalog/

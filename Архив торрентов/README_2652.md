@@ -6,7 +6,7 @@ Paul Maddox - Live In Moscow (2006) [FLAC|Lossless|image + .cue] <Hard Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464293.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464281.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Bad Karma Stage One (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464279.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ ICQ 8.4 build 7786 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464272.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ R-Studio 7.7 Build 159747 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464270.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Glary Disk Cleaner 5.0.1.220 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464260.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Glary Utilities Pro 5.150.0.176 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464256.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Glary Utilities Pro 5.150.0.176 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464255.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ MediaHuman YouTube Downloader 3.9.9.45 (0609) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464254.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Athentech Perfectly Clear Complete 3.10.0.1828 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464247.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Ciao Italia: The ultimate Italian collection (2012) 4CD[FLAC|Lossless]<Pop,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464211.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Borderlands 2 [En] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464210.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Scorpions - 2 Albums (1984, 2010) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464208.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ HitmanPro 3.7.9 Build 246 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464174.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Pixave 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464164.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ AOMEI Partition Assistant Technician Edition 5.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464153.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464151.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Prelude of the Chambered (2011) [En] (1.0) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464149.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464148.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Novicorp WinToFlash Professional 1.3.0000 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464139.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ ExpanDrive 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464136.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Q-Dir 8.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464132.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PDF24 Creator 9.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464128.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Display Driver Uninstaller 18.0.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464124.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Wise Data Recovery 5.1.6.334 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464123.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ GPU-Z 2.34.0 RePack by -ALEX- [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464119.jpg" />
 </div>
 
 

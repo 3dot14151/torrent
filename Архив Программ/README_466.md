@@ -6,7 +6,7 @@ Foxit PhantomPDF Business 10.0.0.35798 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800738.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FXSound Pro 1.1.11.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800722.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MiniTool Partition Wizard Enterprise 12.0 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800709.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Adobe After Effects 2020 17.1.0.72 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800701.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ GoodbyeDPI.0.1.6. Launcher-3.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800696.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Adobe Acrobat Pro DC 2020.009.20065 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800695.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Adobe Premiere Pro 2022 (22.0.0.169) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800665.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Icecream Screen Recorder PRO 5.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800590.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Macrium Reflect v 7.2.3957 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800579.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AIMP 4.13 Build 1890 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800495.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ GPU Caps Viewer 1.34.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800485.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AIMP 4.13 Build 1890 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800471.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ KLS Backup 2015 Professional 8.4.4.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800464.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AIMP 4.13 Build 1890 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800462.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ EagleGet 2.0.4.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800461.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ pdfFactory Pro 6.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800380.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Ashampoo Burning Studio 18.0.3.6 DC 30.03.2017 RePack (& Portable) by KpoJIuK [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800373.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800369.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Privacy Eraser Free 4.32.5 Build 2481 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800365.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Desktop Ponies 1.61 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800313.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ FinePrint 9.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800308.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Maxthon Browser 5.1.5.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800295.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VideoSolo Video Converter Ultimate 1.0.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800292.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ XnConvert 1.76 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800290.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Glary Utilities Pro 5.142.0.168 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800270.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Slimjet 17.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800227.jpg" />
 </div>
 
 

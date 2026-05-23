@@ -1,29 +1,3 @@
-###  Публикация: 1797138   (17942) от 18.05.2025
-
-EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Теперь, страшные события серии игр "EBOLA" разворачиваются и в СССР. Игра была разработана совместно с короткометражным фильмом EBOLA VILLAGE. Классический хоррор, вдохновленный оригинальными играми на выживание 90-х, EBOLA VILLAGE - это современный взгляд на приключение от первого лица, в котором главная героиня Мария расследует загадочные события, произошедшие (   Читать дальше...   )Тип издания: RepackРазработчик: indie_games_studioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E3BE1C28486D63643AB3F8199CA98F37003537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797808   (17897) от 18.05.2025
 
 Trailmakers (2019) [Ru/Multi] (2.0.3.67463/dlc) Repack Let'sРlay [Ultimate Edition]
@@ -32,7 +6,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.3.67463/dlc) Repack Let'sРlay [Ultimate Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17897.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Omega Crafter (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17893.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Scene Rune [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17889.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Beholder: Conductor (2025) [Ru/Multi] (1.0.4.278) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17849.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ LEGO Bricktales (2022) [Ru/Multi] (2.0 r21673) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17843.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17805.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Toy Shop Simulator (2025) [Ru/Multi] (1.0.0b6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17788.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build #268/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17770.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Ember Knights (2023) [Ru/Multi] (2.2.1.b4712/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17761.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Mini Settlers (2024) [Ru/Multi] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17757.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17746.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Ex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17742.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Train Valley 2 (2019) [Ru/Multi] (1.8.8/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17740.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.518/dlc) Repack Let'sРlay [The Galactic
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17723.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17721.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ S.T.A.L.K.E.R. Legends of the Zone Trilogy: Shadow of Chornobyl, Clear Sky, Call
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17720.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Undying Flower (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17711.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Wilmot Works It Out (2024) [Multi] (1.039) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17701.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.03.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17699.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17654.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.4.1) License GOG [Patc
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17649.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17639.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17622.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17620.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Tales and Tactics / Tales & Tactics (2023) [Ru/Multi] (1.1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17615.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Tales & Tactics – перед вами классический автобат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0871D60435E24B839519C118156A3303FA799E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798183   (17611) от 21.05.2025
+
+RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы - глава компании, которая специализируется на восстановлении районов, пострадавших от стихийных бедствий. Используйте свою технику для перезапуска местной промышленности. Расчищайте территорию, реконструируйте дороги, мосты и другие объекты!Тип издания: RepackРазработчик: Saber InteractiveЖанр: Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017BC23877FDE36ACBF45255A2D63503E114861E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ SIV (System Information Viewer) 5.43 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269586.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bandicam 4.5.2.1602 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269579.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wondershare Recoverit Ultimate 8.2.11.5 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269559.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Advanced SystemCare Pro 13.0.2.171 DC 14.11.2019 RePack (&Portable) by D!akov [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269553.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 63.0.3239.84 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269548.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Elcomsoft Phone Breaker Forensic Edition 9.30.34962 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269507.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CoolUtils Total Audio Converter 5.2.0.161 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269493.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269479.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ UC Browser 7.0.125.1629 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269461.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wise Registry Cleaner Pro 9.5.3.623 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269435.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wise Care 365 Pro 4.7.6.459 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269424.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269411.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ IObit Driver Booster Pro 7.1.0.534 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269396.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Nero Burning ROM 2020 22.0.1006 Final  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269394.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269384.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7237.5000 (2019.11) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269381.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adobe Dreamweaver 2020 (20.0.0.15196) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269378.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Google Chrome 63.0.3239.84 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269341.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ CleanMyPC 1.8.10.1148 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269323.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269305.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269294.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Google Chrome 63.0.3239.84 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269258.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Adobe Bridge CC 2018 (v8.0.0.262) x86-x64 repack by m0nkrus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269253.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BlueStacks 3.52.67.1911 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269219.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Sublime Text 3 Build 3156 Dev (x86-x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269216.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.07 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269214.jpg" />
 </div>
 
 

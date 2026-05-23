@@ -1,58 +1,3 @@
-###  Публикация: 940631   (372107) от 14.10.2018
-
-EveryCircuit v2.19 [En/Rus] - Проектирование и моделирование электронных схем
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Приложение является одним из лучших для экспериментов с электронными схемами. Анимация напряжений и токов позволит легко понять работу схемы.
-Особенности:
-1. Автоматическое соединение элементов
-2. Анимация сигналов(   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 22.08.2017Разработчик: MuseMazeПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904002   (371965) от 25.10.2015
-
-Helium 1.1.4.1 [Ru] - Альтернатива Titanium Backup
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Helium - это уникальное решение для резервного копирования и синхронизации приложений на Android. Helium не требует рут. Каждый пользователь Android может использовать Helium для резервного копирования и синхронизации Android приложений. Helium позволяет создавать резервные копии приложений и их данных на карту памяти или в облачное хранилище. С Helium вы можете (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 7 июля 2015 г.Разработчик: ClockworkModПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3C2D9952DB9EBAEACC4A9190845C03727D4931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069847   (370877) от 05.11.2016
 
 Full Scientific Calculator v1.76 Pro [En] - мощный многофункциональный калькулятор
@@ -61,7 +6,7 @@ Full Scientific Calculator v1.76 Pro [En] - мощный многофункци�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370877.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370874.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ Periodic Table / Таблица Менделеева HD 7.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370035.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ Terrarium TV-Premium v1.9.10 Mod v8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367590.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365625.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ ElLi (free) - Расчет проводки v1.3.35 AdFree [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362904.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ Stellarium Mobile PLUS - Star Map v1.6.0 [Ru/Multi] - Карта звездно�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362469.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ GPS Up v1.7.1 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362468.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ Apex Launcher Pro 3.3.3 [RU]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362281.jpg" />
 </div>
 
 
@@ -295,7 +240,7 @@ ActionDirector Video Editor v6.0.1 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362077.jpg" />
 </div>
 
 
@@ -321,7 +266,7 @@ Android Auto 2.0.642308 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361112.jpg" />
 </div>
 
 
@@ -349,7 +294,7 @@ ABBYY Lingvo Dictionaries 4.6.6 [Ru/Multi] - Оффлайн словарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360682.jpg" />
 </div>
 
 
@@ -375,7 +320,7 @@ Microsoft Word 16.0.7426.1015 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358487.jpg" />
 </div>
 
 
@@ -401,7 +346,7 @@ ADV Screen Recorder v4.3.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357678.jpg" />
 </div>
 
 
@@ -427,7 +372,7 @@ Wink Plus Mobile 1.11.2 v1.1 Mod  [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357332.jpg" />
 </div>
 
 
@@ -456,7 +401,7 @@ VPN Украина: VPN IP в Украине 1.107 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354283.jpg" />
 </div>
 
 
@@ -482,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354251.jpg" />
 </div>
 
 
@@ -509,7 +454,7 @@ Package Disabler Pro 6.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354017.jpg" />
 </div>
 
 
@@ -535,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353878.jpg" />
 </div>
 
 
@@ -563,7 +508,7 @@ Maths Formulas v9.6 Paid [Ru/Multi] - Сборник формул и кальк�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352707.jpg" />
 </div>
 
 
@@ -589,7 +534,7 @@ Rotation - Orientation Manager v25.0.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352306.jpg" />
 </div>
 
 
@@ -615,7 +560,7 @@ Radio Garden v2.1.3 [En] - радиостанции мира на интерак
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349702.jpg" />
 </div>
 
 
@@ -641,7 +586,7 @@ Yokee Караоке по-русски v3.14.016 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349601.jpg" />
 </div>
 
 
@@ -667,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349523.jpg" />
 </div>
 
 
@@ -678,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5EB003A4515EF127EC8864DE8A8236429C389AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072827   (349237) от 14.11.2016
+
+ProgTV Android 2.26.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349237.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProgTV - простое, но удобное и универсальное приложение для просмотра TV и прослушивания радио через Internet или локальную сеть.Тип издания: бесплатноРелиз состоялся: 04.11.2016Разработчик: Andrey Borodin (Prog)Поддерживаемая ОС: Android 4.0.3 и вышеЯзык интерфейса: русский, английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A8228814458C8CF048D2EAED94B3659E804254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314113   (348234) от 24.10.2020
+
+OpenVPN v0.7.21 [En/Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание и использование виртуальных приватных сетей на Android. OpenVPN для Android является клиентом с открытым исходным кодом. Он использует VPNService API из Android 4.0+ и не требует ни Jailbreak, ни прав root в телефоне. OpenVPN является клиентским программным обеспечением для подключения к серверу с установленным и настроенным OpenVPN. Поддерживается только (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 26.09.2020Разработчик: Arne SchwabeПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF448F011B5A0D4DC03028711861EB4138F148B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1725448   (55072) от 29.05.2024
-
-CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-CONSORTIUM Remastered ставит вас на место Консорциума Бишопа Шестого, высокопоставленного миротворца в 2042 году. Убийство на борту футуристического самолета создает основу для захватывающего расследования с уникальным поворотом: вы используете свой собственный голос, чтобы взаимодействовать с экипажем и влиять на ход повествования. В игре реализована разветвленная (   Читать дальше...   )Тип издания: LicenseРазработчик: Interdimensional Games IncЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BA8099D41DD1C67F4279A3B88AD280B69F6AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719127   (55071) от 29.05.2024
 
 Sucker for Love: Date to Die For (2024) [En] (1.30) Scene Tenoke
@@ -32,7 +6,7 @@ Sucker for Love: Date to Die For (2024) [En] (1.30) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55071.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55070.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Vox Machinae (2022) [En] (1.4.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55065.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.9.10756/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55061.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Ozymandias: Bronze Age Empire Sim (2022) [Ru/Multi] (1.6.0.10) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55058.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55056.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ SpellForce 3 Reforced (2017-2021) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55054.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Withering Rooms (2024) [Multi] (1.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55036.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55034.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Reus 2 (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54966.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54952.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ StarCraft II: Антология (2010-2015) [Ru/En] (3.0.5.39117/dlc) Repack Fi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54855.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54852.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54814.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Starstruck Vagabond (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54798.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Creeper World 4 (2020) [En] (2.5.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54796.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54758.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54754.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54737.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54732.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54726.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54688.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54669.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54650.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54647.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B2161C4A59EFD340209D562E299FD40CE9D1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727330   (54646) от 02.06.2024
+
+Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая успешная серия шутеров с видом от первого лица возвращается с эпичным сиквелом к лауреату нескольких званий «Игра года», Call of Duty: Modern Warfare 2. Сможете ли вы сделать то, что от вас требуется в самый темный час для мира? Приготовьтесь к кинематографичному поразительному путешествию, которое доступно только в Call of Duty. Значительная многопользовательская (   Читать дальше...   )Тип издания: RepackРазработчик: Infinity Ward, Raven Software, Sledgehammer GamesЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998E514892E9B383346CB65756E561625B94CF7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

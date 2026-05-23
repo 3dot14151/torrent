@@ -6,7 +6,7 @@ FinePrint 11.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 8.87 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680286.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ScanMyReg 3.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680220.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dr. Folder 2.6.7.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680206.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Soft Organizer Pro 7.44 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680204.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Paint.NET 4.1.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680202.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mozilla Firefox Quantum 66.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680200.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ EssentialPIM Pro Business Edition 8.15 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680198.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FxSound Pro 1.1.15.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680180.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wise Disk Cleaner 9.26.645 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680150.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mp3tag 2.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680141.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Reg Organizer 8.27 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680133.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ SoftPerfect WiFi Guard Portable 2.1.0 repack by Дедушка с веслом [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680114.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5431.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680101.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Adobe After Effects 2022 22.2.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680094.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe Acrobat Pro DC 2022.001.20085 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680084.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680082.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Zoom Player MAX 12.1 Build 1210 Final RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680063.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Whale Browser 1.4.64.6 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680040.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Reg Organizer 8.27 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680035.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Windows Login Unlocker 1.4 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680034.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ RogueKiller Anti-Malware 13.1.8.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680029.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Punto Switcher 4.2.6 Build 1275 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679997.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ ACDSee Pro 9.3 Build 545 (x86) RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679981.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Total Commander 9.22 Extended 19.3 Ful / Lite RePack (& Portable) by BurSoft [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679954.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Windows 10 (v1809) x64 HSL/PRO by KulHanter v19.3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679950.jpg" />
 </div>
 
 

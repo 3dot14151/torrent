@@ -6,7 +6,7 @@ Monster Jam Showdown (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44667.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43723.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sunrise GP (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43698.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FlatOut: Ultimate Carnage (2008) [Ru/Multi] (1.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43489.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Turbo Sliders Unlimited (2022) [En] (1.00/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43478.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ExoCross (2020) [Multi] (2024.8.30.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42994.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kitten Burst (2024) [En] (4.04c) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40319.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Pure Rock Crawling (2018) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38965.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ City Car Driving (2016) [Ru/Multi] (1.5.9.2/dlc) Repack Other s [Home Edition] [
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37822.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37453.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ art of rally (2020) [Ru/Multi] (1.5.7/dlc) License GOG [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37254.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1358352/dlc) Scene Rune [Le
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36434.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CarX Street (2024) [Ru/En] (1.2.1/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36337.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack seleZen [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36272.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Need For Speed: Underground 2 Russia Drift (2012) [Ru] RePack/Mod 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36112.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack Other s [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36079.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35760.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fox Holes
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35578.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Automobilista 2 (2020) [Multi] (1.6.3.0/dlc) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35488.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35067.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Hot Wheels Monster Trucks: Stunt Mayhem (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34108.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33567.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Monster Jam Steel Titans 2 (2021) [Ru/Multi] (1.0e/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33565.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33543.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Super Woden GP 2 (2023) [Ru/Multi] (1.3) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32819.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Repack FitGirl [Mother Trucker
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32755.jpg" />
 </div>
 
 

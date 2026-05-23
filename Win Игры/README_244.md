@@ -1,29 +1,3 @@
-###  Публикация: 1246366   (460756) от 11.09.2018
-
-Flynn & Freckles (2018) [En/Es] (3.0.0.5) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Flynn & Freckles — молодой пират по имени Флинн решил отправиться на поиски самого ценного сокровища: меча капитана Фрекла. Но оружие оказалось одержимо духом старого капитана. Теперь вместе им предстоит столкнуться со всеми опасностями, поджидающими их на пути, и отыскать оставшиеся сокровища. Flynn & Freckles — экшен, в котором вам предстоит много исследовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Rookie Hero GamesЖанр: Adventure, Casual, PuzzleЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAEA2A30F76DD76954D37738878F22FFD64EB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321322   (460511) от 23.08.2019
 
 Silent Hill: Alchemilla (2015) [Ru/En/Es] (1.1) Repack Other s
@@ -32,7 +6,7 @@ Silent Hill: Alchemilla (2015) [Ru/En/Es] (1.1) Repack Other s
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460511.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460501.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460170.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Zombie Pirates - Collector's Edition [Eng] (P) 2010 | THETA
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459904.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Lossless Repack/1.0.u.1) 2012 | R.G. Reve
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459659.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/4dlc) Repack R.G. Reve
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459591.jpg" />
 </div>
 
 
@@ -196,7 +170,7 @@ Necromunda: Underhive Wars (2020) [Ru/Multi] (1.0.4.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459399.jpg" />
 </div>
 
 
@@ -222,7 +196,7 @@ F1 2012 [Ru] (L) 2012 | FairLight
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459264.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ Phantasmat 11: Déjà Vu / Фантазмат 11: Дежавю (2018) [Ru] (1.0)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458974.jpg" />
 </div>
 
 
@@ -276,7 +250,7 @@ Vermillion Watch 6: Parisian Pursuit / Алый Дозор 6: Погоня по 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458940.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ The Keeper of Antiques 3. The Last Will (2017) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458885.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ Unravel Two (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458821.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ The Seven Chambers / Семь Залов (2018) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458814.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ The Secret Order 6: Bloodline / Тайный Орден 6: Кровные узы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458772.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ Unravel Two (2018) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458698.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Darksiders 2 (2015) [Ru/Multi] (2.1.0.4/dlc) Repack xatab [Deathinitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458680.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ NARUTO Ultimate Ninja STORM Dilogy (2017) [En] (1.0/1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458609.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ Death Point (2017) [Ru/En] (1.0) Repack Covfefe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458461.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ Stairs (2015) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457079.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack O
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457046.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ Brave: The Video Game / Храбрая сердцем [Ru/En] (RePack/1.0.0.3) 2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457027.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ Iron Brigade + DLC [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456862.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [En/Ge] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456765.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ Royal Detective 3: Legend of the Golem / Королевский детектив
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456605.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Torchlight (2009) [Ru/En] (1.15(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456406.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ Torchlight (2009) [Ru/En] (1.15(a)) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6911179B6AEA97E049DB289406DC4B5EF61C4D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247015   (456402) от 13.09.2018
+
+Mines of Mars (2018) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас отправили на Марс. Всё, что вам нужно делать – это исследовать эту планету, а именно – её природные ресурсы. Под вашим управлением окажется ученый, на которого одет специальный костюм, позволяющий дышать на Марсе, а также небольшой ранец, который позволит вам кратковременно летать. Вы будете исследовать различные шахты. В них вам придётся добывать ресурсы с помощью (   Читать дальше...   )Тип издания: RepackРазработчик: Wickey WareЖанр: Adventure, Arcade, Action, 2DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12D8B582704DB4CD78E2F453B41AFB6A553FD0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

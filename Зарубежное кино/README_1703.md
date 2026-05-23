@@ -1,55 +1,3 @@
-###  Публикация: 1605824   (203826) от 19.01.2023
-
-Двойная петля / Devotion (2022) UHD WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Во время боевого задания одного из лётчиков подбивают над вражеской территорией. Командование не видит необходимости в спасательной операции. Перед летчиком встает выбор — выполнять приказ или попытаться спасти напарника.Производство: США / Black Label Media, STX Entertainment, Sony Pictures EntertainmentЖанр: боевик, драма, военный, историяРежиссер: Джастин ДиллардАктеры: Джонатан Мэйджерс, Глен Пауэлл, Кристина Джексон, Томас Садоски, Дарен Кагасофф, Джо Джонас, Спенсер Невилл, Ник Харгроув, Бун Платт, Дин ДентонПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20D3ABB96EF34D57E48C84F8FBFA9CEF85C1187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605825   (203824) от 19.01.2023
-
-Двойная петля / Devotion (2022) WEB-DL [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Во время боевого задания одного из лётчиков подбивают над вражеской территорией. Командование не видит необходимости в спасательной операции. Перед летчиком встает выбор — выполнять приказ или попытаться спасти напарника.Производство: США / Black Label Media, STX Entertainment, Sony Pictures EntertainmentЖанр: боевик, драма, военный, историяРежиссер: Джастин ДиллардАктеры: Джонатан Мэйджерс, Глен Пауэлл, Кристина Джексон, Томас Садоски, Дарен Кагасофф, Джо Джонас, Спенсер Невилл, Ник Харгроув, Бун Платт, Дин ДентонПеревод: Дублированный (OKKO), Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333A63123773A6FD7A6425224BA30C3090C68676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605699   (203823) от 19.01.2023
 
 Треугольник печали / Triangle of Sadness (2022) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203823.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203820.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203807.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203792.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203786.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203784.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203776.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203764.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203751.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203749.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203734.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203726.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203718.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203716.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203714.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203710.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203702.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203689.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203688.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203684.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203683.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203677.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203660.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203656.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96877CEB5D5C41CC764A547D64475E563E79C8FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606567   (203648) от 23.01.2023
+
+Мучения на островах / Tourment sur les iles / Pacifiction (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель в творческом кризисе возвращается к себе на родину во Французскую Полинезию. Новых идей для книги у него нет, поэтому мужчина соглашается на работу синхронного переводчика в местное посольство. Там он столкнётся с цинизмом международной политики и узнает о скрытой угрозе новых ядерных испытаний, которые хочет провести французское правительство.Производство: Франция, Испания, Германия, Португалия / Anderground Films, Archipel Productions, ARTE France, arte France CinémaЖанр: триллер, драмаРежиссер: Альберт СерраАктеры: Бенуа Мажимель, Pahoa Mahagafanau, Марк Сузини, Matahi Pambrun, Александр Мелу, Серхи Лопес, Монце Триола, Michael Vautor, Cécile Guilbert, Луис СерратПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, французскийСубтитры: английские, испанскиеПродолжительность: 02:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B453C276B536F28A32E035B3257869E27ACB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606349   (203646) от 23.01.2023
+
+Треугольник печали / Triangle of Sadness (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пара моделей Карл и Яя отправляются в роскошный круиз на яхте в компании богатых пассажиров, где можно встретить и русского бизнесмена, и британских производителей оружия, и гения IT. Капитан судна — марксист, находящийся в перманентном запое. Пока всё идёт своим чередом: гости отдыхают, персонал трудится, жена русского бизнесмена чудит. Но вскоре произойдёт неожиданное (   Читать дальше...   )Производство: Швеция, Франция, Великобритания, Германия, Турция, Греция, США, Дания, Швейцария, Мексика / Imperative Entertainment, Film i Väst, BBC FilmsЖанр: Драма, комедияРежиссер: Рубен ЭстлундАктеры: Харрис Дикинсон, Шарлби Дин, Златко Бурич, Долли де Леон, Хенрик Дорсин, Вики Берлин, Вуди Харрельсон, Тобиас Торвид, Jiannis Moustos, Timoleon GketsosПеревод: Дублированный, Профессиональный многоголосый, АвторскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 02:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC842C843736AE31A8F6F7E94A59179D37F727E
 ```
 
 https://mybot314.ru/tekegram_catalog/

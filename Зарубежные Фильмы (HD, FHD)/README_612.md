@@ -1,57 +1,3 @@
-###  Публикация: 1571515   (431291) от 22.08.2022
-
-От рассвета до заката (Американская резня) / American Carnage (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Правительство отбирает молодых людей для участия в эксперименте на выживание в стенах специального учреждения. Только выполнив странные желания пациентов учреждения, они смогут обрести свободу. Брату и сестре Джей Пи и Лили, и их новым знакомым предстоит узнать, в чем суть эксперимента, и что скрывает руководство. Что на самом деле движет пациентами, и что за чертовщина (   Читать дальше...   )Производство: СШАЖанр: Комедия, ужасы, детективРежиссер: Диего ХалливисАктеры: Хорхе Лендеборг мл., Дженна Ортега, Аллен Мальдонадо, Эрик Дэйн, Бретт Каллен, Хорхе Диас, Белла Ортис, Юмари Моралес, Катрин МакКафферти, Эндрю КэмпферПеревод: Многоголосый профессиональный (GoLTFilm)Язык озвучки: Русский, украинский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9928DB4A228C5FB3E374A65EA47A0BC8BE4173C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319575   (431282) от 22.08.2022
-
-Четыре пера / The Four Feathers (2002) BDRip [H.264/1080p-LQ] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1884 год. Перед самой отправкой британских войск в Судан молодой офицер Гарри Фэвершем подает в отставку. Его близкие и родные воспринимают этот поступок как проявление трусости, и Гарри, чтобы спасти свою честь, принимает решение тайно отправиться на африканский континент…
-
-У Гарри было все: отец — генерал, любимая девушка, лейтенантская должность в непобедимой (   Читать дальше...   )Производство: Великобритания, США / Miramax Films, Paramount PicturesЖанр: драма, мелодрама, приключения, военныйРежиссер: Шекхар КапурАктеры: Хит Леджер, Кейт Хадсон, Уэс Бентли, Джимон Хонсу, Крис Маршалл, Майкл Шин, Руперт Пенри-Джонс, Тим Пиготт-Смит, Даниэль Кальтаджироне, Джеймс КосмоПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66773B44CCFA885729C1C9EA1EC3374FEFEE448E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486702   (431278) от 22.08.2022
 
 Зависнуть в Палм-Спрингс / Palm Springs (2020) BDRip [H.264/1080p-LQ]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431278.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431237.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431234.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431184.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431082.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431003.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430925.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430846.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430835.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430832.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430753.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_430743.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430657.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430653.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430382.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430379.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430375.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430266.jpg" />
 </div>
 
 
@@ -532,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430253.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430155.jpg" />
 </div>
 
 
@@ -585,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430046.jpg" />
 </div>
 
 
@@ -611,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430036.jpg" />
 </div>
 
 
@@ -637,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430035.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429941.jpg" />
 </div>
 
 
@@ -675,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D06F6919FB711AA67EE4CDF0941C6F7A9D162552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063946   (429771) от 18.10.2016
+
+Убьём жену Уорда / Let's Kill Ward's Wife (2014) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все друзья знают, что супруга бедолаги Уорда сущая стерва. Она постоянно к нему придирается, пилит и не отпускает на встречи с приятелями. И вот лучшие друзья Уорда начнинают обсуждать непростой вопрос, как бы хорошо зажил их друг, если бы его супруга погибла. Кто-то даже в шутку скажет, что ее можно убить. В итоге шуточный разговор приведет к безумным последствиям. (   Читать дальше...   )Производство: США, Lost Rhino FilmsЖанр: Комедия, Криминал, ДрамаРежиссер: Скотт ФоулиАктеры: Патрик Уилсон, Скотт Фоули, Дональд Фэйзон, Джеймс Карпинелло, Эми Акер, Марика Доминчик, Дагмара Доминчик, Николлетт Шеридан, Грег Гранберг, Вероника ДоминчикПеревод: Авторский (одноголосый, закадровый) М.Чадов, любительский (одноголосый, закадровый) П. Морозов aka PashaUpСубтитры: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C38BDDCA332EE0ABA892950D6E8C06A8F2AD8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571831   (429654) от 23.08.2022
+
+Понедельник / Monday (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429654.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пятницу между вами может пролететь искра, которая приведет к потрясающим выходным, но что делать, если впереди ждёт неизбежный понедельник?Производство: Великобритания, США, Греция / Protagonist Pictures, Wishmore, Faliro House ProductionsЖанр: МелодрамаРежиссер: Аргирис ПападимитропулосАктеры: Себастиан Стэн, Дениз Гоф, Йоргос Пирпассопулос, Доминик Типпер, Андреас Константину, Элли Трингу, София Коккали, Силлас Цумеркас, Вангелис Мурикис, Хлоя СиренПеревод: Дублированный (Лицензия), Любительский многоголосый (AlphaProject)Субтитры: Русские (Forced, Full), Украинские (Full), Английские (Full, SDH)Продолжительность: 01:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9314BBBC262A5AA6C5798A137478745C634AB4CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

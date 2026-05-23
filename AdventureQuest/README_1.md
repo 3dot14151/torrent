@@ -6,7 +6,7 @@ Disney Villains Cursed Cafe (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057011.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (20251218) Scene Rune [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057001.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Super Drift Blade (2025) [Multi] (1.0.3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055421.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack HardwareMining [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055275.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055232.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Agatha Christie - Death on the Nile (2025) [Multi] (1.3.0_20251017-215031) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055142.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Bye Sweet Carole (2025) [Multi] (1.0.11) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055102.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ DYSTHANASIA (2025) [Multi] (1.0.8.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055012.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Five Nights In Saransk / Пять ночей в Саранске (2025) [Ru/En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054853.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (5738-A) Repack Let'sРlay 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054500.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (Build 18042732/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054108.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Book of Outcasts (2025) [Ru/Multi] (Build 21576001/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054079.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053992.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053991.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Caravan SandWitch (2024) [Ru/Multi] (1.13.72.2/dlc) Repack Other s [Digital Coll
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053745.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Horses (2025) [Multi] (1.0.16497) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053470.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053285.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Emerald Valley (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053188.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053187.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053067.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052659.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052280.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Keeper (2025) [Ru/Multi] (1218000) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052072.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052054.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Not an Aim Trainer (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051989.jpg" />
 </div>
 
 

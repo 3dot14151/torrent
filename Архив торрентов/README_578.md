@@ -6,7 +6,7 @@ Cage - Death Miracles (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925827.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ iThoughtsX 5.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925825.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ AnyMP4 Mac Video Converter Ultimate 8.2.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925824.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PowerISO 6.5 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925823.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Disk Graph 2.1.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925817.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wise Registry Cleaner Pro 9.38.610 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925807.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Baidu Cloud 5.5.2 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925804.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe Acrobat Pro DC 2015.023.20056 RePack by Pilot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925799.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Windows 7 Manager 5.1.9.2 RePack (& portable) by Pilot [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925796.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925764.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ TeamViewer Free 11.0.55321 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925757.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ G-Stomper Studio v5.6.2.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925756.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ GLTools + Chainfire3D v4.02 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925750.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BBEdit 13 v13.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925746.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ $uicideBoy$ - Stop Staring at the Shadows (2020) [FLAC|Lossless|Web-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925740.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ File Explorer 2.1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925736.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ DriverPack Solution Online 17.4.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925735.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Game Booster Plus v1.0.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925733.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ GIPHY - Animated GIFs Search Engine v3.8.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925726.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ iShowU Studio 2 v2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925723.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Timemator 2 v2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925721.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Smart Disk Image Utilities 2.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925720.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Adobe Media Encoder CC 2017.0.2 11.0.2.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925715.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Adobe Acrobat Reader DC 2015.023.20056 RePack by Pilot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925712.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Adobe Acrobat Reader DC 2015.023.20056 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925710.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925703.jpg" />
 </div>
 
 

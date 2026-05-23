@@ -1,30 +1,3 @@
-###  Публикация: 546111   (149753) от 14.12.2012
-
-Mass Effect 3 Digital Deluxe Edition [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 | R.G. Shift
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Не всем суждено выжить. Древняя инопланетная раса, известная как Жнецы, начала глобальное вторжение, оставляя за собой руины цивилизаций. Земля захвачена, галактика стоит на грани полного уничтожения, и только ты можешь исправить положение. Цена ошибки - небытие. Твоя роль - капитан Шепард, персонаж, которого создаешь ты сам. Только ты решаешь, как будут разворачиваться события, какие планеты будут исследованы, и кто станет участником альянса, который ты соберешь, чтобы раз и навсегда ликвидировать угрозу со стороны Жнецов. Ты поведешь эту войну на свое усмотрение: можешь атаковать в лоб, поливая врага огнем или составить хитрый план внезапного нападения. Собери универсальный отряд профессионалов или выбери путь одинокого волка. Атакуй противника с расстояния или сойдись с ним в жестокой рукопашной.
-Mass Effect 3 будет реагировать на каждое принятое тобой решение - эту историю предстоит написать тебе самому. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1847FC9C37436AFA53D3D0DB63069A263398BDF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271245   (149134) от 23.12.2018
 
 City Patrol: Police (2018) [Multi] (1.0) License CPY
@@ -33,7 +6,7 @@ City Patrol: Police (2018) [Multi] (1.0) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149134.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Scarf (2021) [Ru/Multi] (1.0.1) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149106.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149081.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Worms Revolution (2012) [Ru/En] (1.0.140/dlc) Repack Mizantrop1337 [Gold Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149064.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148993.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0.3) Repack West4it
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148915.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Batman: Arkham Knight / Batman: Рыцарь Аркхема (2015) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148914.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ The Far Kingdoms: Awakening Quest / Дальние королевства: Пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148606.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148564.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ League of Light 7: Growing Threat / Лига Света 7: Растущая уг
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148486.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ Chimeras 10: The Price of Greed / Химеры 10. Цена алчности (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148415.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ FlashBack 2 (2023) [Multi] (1.00) Scene FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148400.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Hydrofoil Generation (2023) [En] (1.0.1) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148328.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ Word of the Law: Death Mask (2021) [Ru] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148303.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ Christmas Adventures 2: A Winter Night's Dream / Рождественское п
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148298.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148262.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ Stray Blade (2023) [Ru/Multi] (20231116/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148234.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148024.jpg" />
 </div>
 
 
@@ -501,7 +474,7 @@ Champions of Anteria (2016) [En/Ita] (1.7.499537.X) License CPY
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147686.jpg" />
 </div>
 
 
@@ -527,7 +500,7 @@ Champions of Anteria (2016) [Multi] (1.7.499537.X/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147475.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147470.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ Rock of Ages [Ru/En/Multi7] (Steam-Rip/1.10c) 2011 | R.G. Игроманы
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147440.jpg" />
 </div>
 
 
@@ -605,7 +578,7 @@ Red Faction Anthology (2001-2011) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147400.jpg" />
 </div>
 
 
@@ -631,7 +604,7 @@ Galaxy on Fire 2 Full HD [Ru/En/Multi11] (Steam-Rip/1.0.3) 2012 | R.G. Игро�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147184.jpg" />
 </div>
 
 
@@ -661,7 +634,7 @@ Air Conflicts: Pacific Carriers / Асы Тихого океана [Ru/En/Multi6
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147163.jpg" />
 </div>
 
 
@@ -674,6 +647,32 @@ Air Conflicts: Pacific Carriers / Асы Тихого океана [Ru/En/Multi6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA69C26A660484CA11798A623478B271A85E3997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271971   (147036) от 25.12.2018
+
+The Seven Chambers (2018) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космос меняет судьбу жителей Земли каждый день. Элазэйд не верила в астрологию, но сила планет и созвездий вошла в ее жизнь как и многие предыдущие жизни независимо от того, что она думала. После травмы в результате беспорядков в Лондоне она впадает в кому. В своем подсознании она переживает прошлую жизнь воина Хайленда, где после прочтения отрывка древнего текста (   Читать дальше...   )Тип издания: UnofficialРазработчик: Three Headed Eagle, Cateia Game, Goldfinch StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BD21649DD49A81567630263A463C12F7AC9F04
 ```
 
 https://mybot314.ru/tekegram_catalog/

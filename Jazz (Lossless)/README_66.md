@@ -6,7 +6,7 @@ Sonny Stitt - Stitt Goes Latin (1963) Remaster, 2011, Roost [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806080.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chet Baker - Baby Breeze (1965) 2002, Universal [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806076.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ John Pizzarelli with The George Shearing Quintet - The Rare Delight of You (2002
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806061.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sadao Watanabe - Go Straight Ahead 'n Make A Left (1997) Verve Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804622.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dado Moroni & Tom Harrell - Humanity (2007) Abeat Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804559.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Joe Henderson - Quiet Now: Lovesome Things (1999) Verve [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804516.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Moacir Santos - Carnival of the Spirits (1975) Remaster, 2012, EMI Music[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804392.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jan Lundgren Trio - Svenska landskap (2003) Sittel Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804388.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Miles Davis - Miles in St. Louis 1963 (1981) Soulard Intertainment Co. [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804382.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Pure... Jazz (2010) Box Set, 4 CD [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804339.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Reuben Wilson - Got to Get Your Own (1975) 2008, Dusty Groove America[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804307.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Jazz Crusaders featuring Wayne Henderson - Kick The Jazz (2008) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804298.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Gregory Fine (Григорий Файн) Trio - Happy Bluesday (1999) Boheme Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803657.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Blue Note Blend (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803651.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Julian Cannonball Adderley and Strings (1955) 1988, Emarcy [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802964.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sadao Watanabe - Minha Saudade (2001) Universal [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802963.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Cannonball Adderley - Alto Giant (1969) 1996, Nippon Crown [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802956.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jeremy Steig - Jigsaw (1992) Triloka Records [FLAC|Lossless|image + .cue] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802953.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ John Hicks - Is That So? (1990) Remaster, 2015, Solid Records[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802677.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Art Farmer - In Europe (1970) Remaster, 2006, Enja[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802563.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Art Farmer & Benny Golson - Meet the Jazztet (1960) Remaster, 2002, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802561.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Billy Cobham - Magic (1977) Reissue 2004 [APE|Lossless|image + .cue] <Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802560.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Sidney Bechet - The Fabulous Sidney Bechet (1951, 1953) 1999, Blue Note [APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802128.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Bettye Lavette - Worthy (2015) [FLAC|Lossless|tracks + .cue] <Soul, Blues, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802057.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Charles Fambrough - The Proper Angle (1991) CTI [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801849.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Bennie Moten's Kansas City Orchestra - 1929 - 1930 (1991) Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801844.jpg" />
 </div>
 
 

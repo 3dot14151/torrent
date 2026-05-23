@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789226.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrystalDiskInfo 8.12.13 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789200.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Uranium Backup 9.6.7.7211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789188.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 11 Manager 1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789181.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AnyDesk 7.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789138.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Vivaldi 1.14.1077.41 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789070.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CoolUtils Total PDF Converter 6.1.0.142 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789068.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Vivaldi 1.14.1077.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789065.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ YTD Video Downloader PRO 5.9.3.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789053.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Registry Life 4.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789034.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ IObit Uninstaller Free 8.3.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789005.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Avast Secure Browser 71.0.1037.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788996.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ YouTube Video Downloader PRO 5.9.3 (20180116) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788991.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Avira Phantom VPN Pro 2.12.4.26090 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788990.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ iCare Format Recovery Pro 6.0.6 RePack (&Portable) by Manshet [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788980.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ TreeSize Professional 6.3.7.1236 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788979.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ IObit Smart Defrag Pro 5.8.5.1285 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788972.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ XYplorer 19.50.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788966.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Avira Phantom VPN Free / Pro 2.12.4.26090 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788933.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ TreeSize Professional 6.3.7.1236 RePack by Kopejkin [Ru/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788930.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Adobe Media Encoder CC 2018 12.0.1.64 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788894.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ IObit Driver Booster Pro 5.2.0.688 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788892.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788869.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788868.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788861.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ FPS Monitor 5000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788856.jpg" />
 </div>
 
 

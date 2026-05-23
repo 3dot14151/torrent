@@ -1,55 +1,3 @@
-###  Публикация: 1682571   (131014) от 08.12.2023
-
-Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Самый красивый и мощный монитор на андроид! Включите хранилище и монитор оперативной памяти. Вы можете одновременно контролировать использование памяти и оперативной памяти. Он предоставляет множество видов инструментов. в том числе: виджет оперативной памяти, виджет процессора, виджет батареи, рабочий стол, плавающее окно, строка состояния, плавающее окно. Вы можете (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.12.2023Разработчик: System monitor tools lab - Cpu Ram BatteryПоддерживаемая ОС: Android: 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F424D959A5E3FC19027F3EA0E2EE51E92D6F9139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524954   (130458) от 18.01.2022
-
-UPlayer Pro v2.0.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-UPlayer (Видеоплеер со всеми форматами) - Удобный видео проигрыватель для устройств Android, обладающий поддержкой большинства форматов, а так же позволяющий продолжить воспроизведение с того же места, даже после закрытия плеера. В UPlayer так же вошел пяти полосный эквалайзер и функция блокировки экрана на время воспроизведения видео.Тип издания: PremiumРелиз состоялся: 07.09.2021Разработчик: UPlayerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F453A5739B5AD412B9AA8FF7B19812B6109CB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524955   (130442) от 18.01.2022
 
 UPlayer Pro v2.0.6 [Ru/Multi]
@@ -58,7 +6,7 @@ UPlayer Pro v2.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130442.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Numia: Астрология и Гороскопы v2.0.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130115.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ eWeather HDF погода и барометр v8.5.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129745.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ Tap To Translate Screen v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129723.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ Wheel Size v2.10.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129711.jpg" />
 </div>
 
 
@@ -195,7 +143,7 @@ Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129654.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ Jillian Michaels | Fitness App v4.4.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129651.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ MyFuelLog2 v1.8.12 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129649.jpg" />
 </div>
 
 
@@ -276,7 +224,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129432.jpg" />
 </div>
 
 
@@ -303,7 +251,7 @@ FamilyGo v4.2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129345.jpg" />
 </div>
 
 
@@ -329,7 +277,7 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128953.jpg" />
 </div>
 
 
@@ -355,7 +303,7 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128951.jpg" />
 </div>
 
 
@@ -381,7 +329,7 @@ Words of Wonders: Игра в слова v5.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128949.jpg" />
 </div>
 
 
@@ -407,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128942.jpg" />
 </div>
 
 
@@ -433,7 +381,7 @@ BabyBus Kids: Мир видео и игр v3.1.10.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128938.jpg" />
 </div>
 
 
@@ -459,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128767.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ PaperColor v2.8.7 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128752.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ Adobe Photoshop Express 11.8.194 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128726.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ Smart AudioBook Player 10.3.1 Mod by KirIif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128715.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ MX Player Pro v1.74.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128496.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ Mubert: AI Music Streaming v4.2.2 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128418.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ Melon VPN - Secure Proxy VPN 8.1.234 Mod By AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128347.jpg" />
 </div>
 
 
@@ -645,7 +593,7 @@ Doctronics - electronics DIY v2.5 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127734.jpg" />
 </div>
 
 
@@ -671,7 +619,7 @@ BikeComputer Pro v8.10.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127719.jpg" />
 </div>
 
 
@@ -682,6 +630,58 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:947D17D7B0A786C3556898B7BB8EF925E601256B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658971   (127675) от 16.12.2023
+
+Search By Image v9.0.1 Mod by vadj [En/Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое и понятное приложение для поиска похожих изображений в Google, Yandex, TinEye, Bing. Можно искать, сделав снимок камерой.Тип издания: PremiumРелиз состоялся: 10.12.2023Разработчик: PALM TEAMПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский и русификация
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F00383AA413F3DF1E9043EA3B628B3B70C4C781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684721   (127669) от 16.12.2023
+
+Smart Book / Параллельный перевод книг v3.3 (b1065) Mod by olleeg77 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любой язык лучше всего изучать, читая литературу на этом языке. Но при чтении зарубежной литературы основной проблемой являются встречающиеся незнакомые в тексте слова. В приложении Smart Book вы можете перевести их одним нажатием. Также, переводя книгу, не всегда понятен контекст и то, что хотел сказать тем или иным речевым оборотом автор. Smart Book - это читалка (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.12.2023Разработчик: KursXПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2921299B58FA7090FCC42DBB16B7B65B8C6017FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

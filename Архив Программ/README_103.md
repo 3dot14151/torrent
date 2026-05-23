@@ -6,7 +6,7 @@ BELOFF 2021.04 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020199.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Avast Premium Security 21.3.2459 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020189.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Avast Free Antivirus 21.3.2459 (build 21.3.6164.0) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020186.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser 78.10.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020158.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Slimjet 30.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020153.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ GeoGebra 6.0.637.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020150.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Edge 90.0.818.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020148.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PureSync 6.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020147.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Firefox Browser 88.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020141.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ PeaZip 7.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020140.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WhatsApp 2.2114.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020139.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Opera 75.0.3969.218 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020132.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Skype 8.71.0.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020130.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kdenlive 20.12.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020122.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Spotify 1.1.57.443 Portable by JolyAnderson [En/Ru] (авторская разд
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020120.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Google Chrome 90.0.4430.85 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020118.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ HWiNFO 7.02 Build 4430 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020115.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MuseScore 3.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020114.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ FileOptimizer 14.70.2618 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020112.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ GoldWave 6.55 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020111.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WifiInfoView 2.68 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020105.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VirtualBox 6.1.20 Build 143896 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020096.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ ContaCam 9.9.17 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020094.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ SoftPerfect Cache Relocator 1.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020087.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Mozilla Thunderbird 78.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020085.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Music Collection 3.3.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020084.jpg" />
 </div>
 
 

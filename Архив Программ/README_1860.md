@@ -6,7 +6,7 @@ Imagine 1.3.2 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171696.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Video AI 4.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171694.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Java SE Runtime Environment 8.0.3910.13 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171686.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CCleaner 6.17.10746 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171648.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ O&O DiskImage Professional 18.4 Build 334 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171552.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VueScan Pro 9.8.19 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171550.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wondershare PDFelement 10.1.3.2510 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171546.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ K-Lite Codec Pack Update 17.8.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171537.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Revo Uninstaller Pro 5.2.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171536.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Aiseesoft Video Converter Ultimate 10.7.30 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171532.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Wondershare PDFelement 10.1.3.2510 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171530.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Revo Uninstaller Pro 5.2.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171526.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ JRiver Media Center 31.0.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171524.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Imagine 1.3.3 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171522.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Sumatra PDF 3.5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171519.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MusicBee 3.5.8692 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171518.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Topaz Photo AI 2.0.6 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171516.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Optimizer 16.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171515.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VueScan Pro 9.8.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171513.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Joplin 2.12.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171508.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Revo Uninstaller Pro 5.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171507.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Artweaver Plus 7.0.16.15569 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171505.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ OneCommander Pro 3.57.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171503.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Firefox Browser 119.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171501.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Aiseesoft Video Converter Ultimate 10.7.30 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171499.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ DxO PhotoLab Elite 6.10.1 build 292 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171498.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 483345   (88681) от 15.04.2012
-
-Особое мнение / Minority Report (2002) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-2054 год. Уже шесть лет существует особый предпреступный отдел. На основе психических технологий разработана экспериментальная программа, с помощью которой работники отдела могут узнать о еще не совершенном убийстве и арестовать подозреваемого еще до совершения им преступления.
-Такая система осуждения преступников и предотвращения преступлений получает все большее (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ДетективРежиссер: Стивен СпилбергАктеры: Том Круз, Колин Фаррелл, Макс фон Сюдов, Саманта Мортон, Кэтрин Моррис, Тим Блейк, Нельсон, Петер Стормаре, Лоис Смит, Пэтрик Килпэтрик, Стив ХаррисПеревод: Дублированный, Многоголосый закадровыйСубтитры: Русские - (UTF-8)Язык субтитров: РусскиеПродолжительность: 02:25:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482879   (88666) от 15.04.2012
-
-Опасный метод / A Dangerous Method (2011) [1080p] Blu-Ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет закручен вокруг персон основателей психоанализа Карла Густава Юнга и Зигмунда Фрейда и их сложных взаимоотношений с умной и красивой пациенткой Сабиной Шпильрейн.Жанр: Триллер, ДрамаРежиссер: Дэвид КроненбергАктеры: Кира Найтли, Вигго Мортенсен, Майкл Фассбендер, Венсан Кассель, Сара Гэйдон, Андре Хеннике, Арндт Шверинг-Сонри, Миньон Реме, Мареике Карьер, Франциска АрндтПеревод: ДублированныйПродолжительность: 01:39:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481881   (88522) от 14.04.2012
 
 Неприкасаемые / Les Lyonnais (2011) [H.264/720p-LQ] HDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88522.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88494.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88488.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88477.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88445.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88418.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88227.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88063.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88023.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88018.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87973.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87859.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87855.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87839.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87834.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87824.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87672.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87611.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87610.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87446.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87404.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87392.jpg" />
 </div>
 
 
@@ -640,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87175.jpg" />
 </div>
 
 
@@ -666,13 +613,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87069.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Фильм расскажет об ужасных событиях, развернувшихся на фоне недавнего экономического коллапса.Жанр: Детектив, Драма, КриминалРежиссер: Крис ФишерАктеры: Сэмюэл Л. Джексон, Люк Уилсон, Лесли Бибб, Пейтон Лист, Трейси ТомсПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:32:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479215   (87062) от 07.04.2012
+
+Воины света / Daybreakers (2009) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87062.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 год. Глобальная эпидемия превратила большинство людей в вампиров, поставив человечество на грань вымирания. Безмятежное будущее не светит, впрочем, и кровососам: в условиях дефицита крови они вынуждены холить и лелеять каждую оставшуюся в живых человеческую особь — либо синтезировать заменитель крови. Противостоять концу света пытается группа ученых, ищущая (   Читать дальше...   )Жанр: Ужасы, Триллер, ФантастикаРежиссер: Майкл Спириг, Питер СпиригАктеры: Harriet Minto-Day, Джей Лагая, Damien Garvey, Sahaj Dumpleton, Аллан Тодд, Габриэлла Ди Лабио, Ben Siemer, Питер Велман, Этан Хоук, Каллум МакЛин, Джэррад Пон, Виктория Уильямс, Зои Уайт, Aolani Roy, Тиффани Ламб, Ренай Карузо, Крис Браун, Керстен Камерон, Сэм Нилл, Карл Раш, Пол СонккилаПеревод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5395C4F3457C24CBEA3BF479F6737317EF600A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479262   (87051) от 07.04.2012
+
+Игра на выживание / Gone (2012) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джилл Пэрриш однажды приходит домой и не находит сестру. Джилл уверена, что серийный убийца, который похищал ее пару лет назад, вернулся, чтобы довести начатое до логического завершения. А начнет он с ее сестры. Полиция не воспринимает ее всерьез, говоря, что девушка объявится, когда нагуляется. Единственный выход — вступить в схватку с маньяком и разобраться с этим раз и навсегда.Жанр: Триллер, ДрамаРежиссер: Эйтор ДалияАктеры: Аманда Сайфред, Дэниел Сунджата, Дженнифер Карпентер, Себастиан Стэн, Уэс Бентли, Ник Сирси, Сократис Отто, Эмили Уикершем, Джоэль Мур, Кэтрин МеннигПеревод: ДублированныйПродолжительность: 01:34:43
 
 ## Скачать торент
 ```bash

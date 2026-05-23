@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016354.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016145.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016143.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016139.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Thundercloud - Lightning Queen (2021) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016062.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015771.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Beatles: Я счастлив просто потанцевать с тобо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015757.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015718.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015714.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014812.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014655.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014521.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ New Order – Education Entertainment Recreation (2021) BDRip [EN]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014497.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ New Order – Education Entertainment Recreation (2021) BDRemux [H.264/1080i] [E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014487.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014112.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Mick Fleetwood And Friends - Celebrate The Music Of Peter Green And The Early Ye
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013977.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Swinging Bach - Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013935.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Greatest Irish Artists - Gaelforce (1997) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013832.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ The Beatles: Любовь нельзя купить 2 / Can't Buy Me Love (A Har
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013830.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013806.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Lindemann: Live in Moscow / Lindemann: Live in Moscow (2021) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013800.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013344.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013162.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012993.jpg" />
 </div>
 
 
@@ -637,32 +637,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 531674   (1012947) от 02.06.2021
-
-Цирк дю Солей: Большое путешествие в 3D / Cirque du Soleil: Journey of Man (2000) [H.264/1080p] Blu-ray  3D [EN]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Цирк… Атмосфера чуда и праздника витает в воздухе. Арена притягивает взгляды. И вот гаснет свет, дирижер взмахивает палочкой, оркестр берет первые такты… Представление начинается, и зал замирает в ожидании сказочного действа…Производство: США (Sony Pictures)Жанр: короткометражка, мюзикл, фэнтези, драма, семейныйРежиссер: Кейт МелтонАктеры: Иэн МакКеллен, Никки Дьюхерст, Брайан Дьюхерст, Anait Karagyezyan, Крис Ван Вагенен, Кенни Раскин, Cully Smoller, Михаил Маторин, Ив Декосте, Marie-Laure MesnageПеревод: отсутствуетЯзык озвучки: АнглийскийСубтитры: (PGS): Русские, English, Arabic, Chinese, Czech, Danish, Dutch, Finnish, French, German, Italian, Japanese, Korean, Norwegian, Polish, Portuguese, Русские, Spanish, Swedish, Thai, TurkishПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18F5B61D29DCB31FBC841D181BCB87FDE2EA3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357794   (1012926) от 02.06.2021
 
 Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL [H.264/1080p/2160p-LQ]
@@ -671,7 +645,7 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012926.jpg" />
 </div>
 
 
@@ -685,6 +659,35 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD85FF46AE910724B3851FE0087B45EE865A1C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 44739   (1012307) от 06.06.2021
+
+Владимир Высоцкий в Останкино (Монолог, Последний концерт) (22.01.1980) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта запись была сделана для телепередачи "Кинопанорама" 22 января 1980 года. Но при жизни Владимира Семеновича она так и не вышла в эфир. Позднее запись вышла под названиями "Монолог" (реж. Ксения Маринина) и "Последний концерт" (совершенно неоправданное название, с целью прибыли) как якобы полные версии. Но действительно полная версия, (   Читать дальше...   )01. Попурри из песен: Песня о друге. Здесь вам не равнина. Прощание с горами
+02. Мы вращаем Землю
+03. Почему аборигены съели Кука
+04. Я не люблю(   Читать дальше...   )Жанр: Музыка, Бардовская песняПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C217433C6B7C9C22BB9A789980D657C0336E10
 ```
 
 https://mybot314.ru/tekegram_catalog/

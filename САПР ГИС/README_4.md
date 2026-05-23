@@ -6,7 +6,7 @@ Cabinet Vision 2021.1.0.571 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211397.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Infolytica MagNet 7.4.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209671.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Siemens HyperLynx VX2.10 Build 19246144 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208636.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Avia Systems - Scan2CAD 10.4.16 Repack by F4CG [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207900.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Keysight Genesys 2023 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207219.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mentor Graphics ModelSim 2020.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206264.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mentor Graphics QuestaSim 2021.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206189.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202189.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ CADopia Pro 22 v.21.2.1.3514 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201603.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ LeoCAD 23.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201035.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AWR Design Environment 17.02R Build 17492 Rev2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200711.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Pulsonix 10.5 build 7883 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200707.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Altium CircuitStudio 1.1.0 build 44421 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200672.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ NI Circuit Design Suite 14.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200639.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Micro-Cap 12.2.0.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200496.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ SIMetrix/SIMPLIS 8.40 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200390.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Simulia Abaqus 6.13-1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200380.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ OrCAD Capture PSpice Lite 17.2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200273.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VectorWorks Design Suite 2023 SP4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198385.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ IronCAD 2023 v25.0 Product Update 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195924.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Autodesk DWG TrueView 2024 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195595.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Siemens Simcenter FloEFD 2021.2.1 Build 5446 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195535.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ QuarkXPress 2023 v19.2.1.55827 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195279.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Autodesk ObjectARX for AutoCAD + Wizards 2013-2024 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195209.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ LibreCAD 2.2.0.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195060.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Keysight Advanced Design System 2024 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194371.jpg" />
 </div>
 
 

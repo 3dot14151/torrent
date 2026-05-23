@@ -1,116 +1,3 @@
-###  Публикация: 942906   (451364) от 02.10.2015
-
-VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 02 октября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе использованы официальные видеоролики.01. Justin Bieber - What Do You Mean  (4:58)
-03. R. City - Locked Away ft. Adam Levine  (4:25)
-04. Calvin Harris & Disciples - How Deep Is Your Love  (4:21)
-05. The Weeknd - Can t Feel My Face  (3:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD40758EADD23E0671FFDD593EFFF1ABB53EEA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942985   (451185) от 02.10.2015
-
-Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple объявили о выпуске двух концертных фильмов, снятых на Wacken и в Японии. To The Rising Sun (в Wacken) был снят на девять HD камер и отмечается что в первый раз Deep Purple выпустит 3D-фильм.01. Apres Vous
-02. Into The Fire
-03. Hard Lovin‘ Man
-04. Strange Kind Of Woman(   Читать дальше...   )Жанр: Rock,  Hard RockПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBA7C6DD11DF4FD5CC662251ABFFDD187097003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247640   (451085) от 16.09.2018
-
-Квартирник на НТВ у Маргулиса. L’one (09.15.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В эту субботу в гости к Евгению Маргулису пришел знаменитый рэпер L’one. Он рассказал зрителям историю своего псевдонима и обсудил с ведущим дуэты и записанные совместно с Варварой Визбор песни. Также музыкант признался, что он ни разу до этого не играл на квартирниках. Рэпер поделился историями о жизни в Якутске, где играл в двух командах КВН: «Якутские первооткрыватели», (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F2D341D2F35823AB5ADE3A86443EC25039032F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705572   (449051) от 30.09.2013
-
-Архив русского рока (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Телевизор "Твой Папа — Фашист"
-02. Аквариум "Рыба"
-03. Егор Летов "Всё Идёт По Плану"
-04. Ноль "Я Люблю Буги-Вуги"(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50D93A0F64797AC0977B0A40D67D0DD05F4C230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 389050   (448936) от 21.09.2011
 
 Вячеслав Полунин. Снежное шоу / Slava's Snowshow (2010) SATRip
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448936.jpg" />
 </div>
 
 
@@ -145,7 +32,7 @@ Cinnamon Chasers (2009-2011) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448413.jpg" />
 </div>
 
 
@@ -171,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448358.jpg" />
 </div>
 
 
@@ -197,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448163.jpg" />
 </div>
 
 
@@ -223,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447722.jpg" />
 </div>
 
 
@@ -249,7 +136,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446910.jpg" />
 </div>
 
 
@@ -278,7 +165,7 @@ Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446721.jpg" />
 </div>
 
 
@@ -307,7 +194,7 @@ Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446661.jpg" />
 </div>
 
 
@@ -333,7 +220,7 @@ Barillo - Dust (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446413.jpg" />
 </div>
 
 
@@ -359,7 +246,7 @@ KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446222.jpg" />
 </div>
 
 
@@ -385,7 +272,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446177.jpg" />
 </div>
 
 
@@ -414,7 +301,7 @@ Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446087.jpg" />
 </div>
 
 
@@ -440,7 +327,7 @@ Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445770.jpg" />
 </div>
 
 
@@ -466,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445677.jpg" />
 </div>
 
 
@@ -492,7 +379,7 @@ VA - Осенний марафон № 195 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444752.jpg" />
 </div>
 
 
@@ -521,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444038.jpg" />
 </div>
 
 
@@ -550,7 +437,7 @@ Dr. Dre & Snoop Dogg Full Live @ Coachella 2012 HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443834.jpg" />
 </div>
 
 
@@ -576,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443699.jpg" />
 </div>
 
 
@@ -606,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443628.jpg" />
 </div>
 
 
@@ -635,7 +522,7 @@ Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443354.jpg" />
 </div>
 
 
@@ -661,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442682.jpg" />
 </div>
 
 
@@ -690,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442213.jpg" />
 </div>
 
 
@@ -701,6 +588,117 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6A06285C59352F734AA8AE061AC8C0D2C991FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942916   (439923) от 07.10.2015
+
+Антон Чехов - Дядя Ваня (2010) SATRip (Театр им. Е. Вахтангова)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая пьеса А.П. Чехова в неожиданной постановке художественного руководителя театра им. Вахтангова Римаса Туминаса. Столь хорошо знакомых персонажей здесь узнать не так-то просто, и даже известные чеховские слова, которые, кажется, знаешь чуть ли не наизусть, звучат совершенно непривычно.Производство: Россия, Канал "Культура", Театр им. Е. ВахтанговаЖанр: Телеспектакль, социальная драма, экранизацияРежиссер: Римас ТуминасАктеры: Сергей Маковецкий, Владимир Симонов, Анна Дубровская, Владимир Вдовиченков, Евгения Крегжде, Людмила МаксаковаПродолжительность: 02:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC9B27155F08F87E91A558D1F21EADCBBC7EE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943866   (439728) от 07.10.2015
+
+25/17 - Русский подорожник (Сборник видеоклипов) (2014) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники: Андрей Позднухов (Бледный) и Антон Завьялов (Ант).
+Группа 25/17 была создана Андреем Бледным в 2002 году в Москве и до 2009 года была известна как «Иезекииль 25:17» (библейский стих из книги ветхозаветного пророка Иезекииля, цитируемый персонажем Самуэля Л. Джексона в фильме «Криминальное чтиво»). В 2007 году концертным диджеем группы стал DJ Navvy. С (   Читать дальше...   )01. Подорожник п.у. Дмитрий Ревякин
+02. Под цыганским солнцем
+03. Чернотроп
+04. Поезд(   Читать дальше...   )Жанр: Rap, Rap-Rock, Rock, Punk-rockРежиссер: 25/17Актеры: Андрей Позднухов (Бледный), Антон Завьялов (Ант)Перевод: Не требуетсяПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7332920D070855053C6FCC60C35A0F54A2C28285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554063   (438642) от 30.09.2012
+
+Плутни Скапена (1979) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_438642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: КомедияРежиссер: Евгений Весник, Алина КазьминаАктеры: Валерий Носик, Георгий Оболенский, Сергей Еремеев, Владимир Дубровский, Александр Овчинников, Виктория Лепко, Мария Стерникова, Роман Филиппов, Анна Жарова, Андрей Манке, С. Сбитнев, Лев Лоскутов, О. Дидов, М. ИвановПродолжительность: 1:35:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553824   (438490) от 30.09.2012
+
+Tito & Tarantula - Live in Rockpalast (2008) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление уникальной группы, какой-то особый вкус латинос, а как играют самозабвенно, от души и сердца! На этом видео, живой концерт в концертном зале Rockpalast ... и очень всем наверно заполнился по фильму "От рассвета до Заката"01. In my car
+02. The end of elerything
+03. Motorcycle cirl
+04. Strange fage of love(   Читать дальше...   )Жанр: Концерт, Rock, Garage RockПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394122F728F12655728FB0B6BFB7A628243B50D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

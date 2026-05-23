@@ -6,7 +6,7 @@ AIO Boot NewGen 23.5.9.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198679.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Antivirus Removal Tool 2023.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198675.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Speedtest by Ookla 1.11.165.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198663.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Optimizer 15.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198660.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ WhatsApp (outdated) 2.2319.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198659.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Comodo Dragon 111.0.5563.148 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198656.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ OCCT 11.0.21 Patreon Edition RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198655.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ FastStone Capture 10.0 Final + Portable (DC 10.05.2023) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198654.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ OCCT 11.0.22 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198648.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ DxO PureRAW 3.2.0 build 545 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198646.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Exposure X7 7.1.7.2 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198642.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AOMEI Partition Assistant Technician Edition 10.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198634.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ XviD4PSP 8.1.54 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198632.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ WinToHDD 6.0 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198630.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Total Commander 11.00 beta2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198628.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Start Everywhere 1.4.0.40 (x64) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198626.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Psiphon 3 build 179 (09.05.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198624.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ AOMEI Partition Assistant Standard Edition 10.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198623.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Advanced SystemCare Pro 16.4.0.225 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198620.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Everything 1.4.1.1023 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198613.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ XMind PRO 22.11 (3656) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198603.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198601.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Waves Ultimate 2023.05.02 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198596.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Advanced SystemCare Pro 16.4.0.225 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198595.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Adobe Acrobat Pro 23.001.20174.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198584.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Abelssoft Win10-11 PrivacyFix 2023 5.02.47347 / 2.03.47300 Portable by FC Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198581.jpg" />
 </div>
 
 

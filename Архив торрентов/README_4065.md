@@ -6,7 +6,7 @@ Yoink 3.5.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179378.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft PowerToys 0.74.1 Portable by FC Portables [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179374.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ StartAllBack 3.6.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179370.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Interplay (Selected by Alexander Popov) (Extended Versions) (2022) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179359.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Spotify 1.2.20.1216 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179350.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Glary Disk Cleaner 5.0.1.283 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179330.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ AIMP 5.11 Build 2436 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179329.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Topaz Video AI 3.5.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179323.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ StartAllBack 3.6.13 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179317.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ DEVONthink Pro Office/Server 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179310.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Bat! Professional 10.5.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_179309.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ StartAllBack 3.6.13 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179305.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ HDCleaner 2.039 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179284.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Native Instruments Maschine 2 v2.12.1 STANDALONE, VSTi, AUi [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179271.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.1.3578 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179257.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2811) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179253.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ WinSnap 5.3.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179250.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ K-Lite Codec Pack Update 17.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179243.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.33126.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179240.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Microsoft  Visual C++ Runtimes AIO v0.76.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179235.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ WinSCP 5.21.6 Build 12913 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179233.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ save2pc Ultimate 5.6.2.1609 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179231.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Snappy Driver Installer Origin R758 | Драйверпаки 23.09.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179230.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Glary Utilities Pro 5.198.0.227 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179229.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Auslogics BoostSpeed 13.0.0.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179212.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ W10 Digital Activation v1.4.9 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179210.jpg" />
 </div>
 
 

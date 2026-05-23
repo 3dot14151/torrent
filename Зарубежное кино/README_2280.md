@@ -1,56 +1,3 @@
-###  Публикация: 1455171   (885) от 26.09.2025
-
-Провал во времени / Sengoku Jieitai (1979) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма начинается в конце 70-х годов ХХ века в Японии. Во время учений японской армии, группа военных, ночью, во-время передислокации попадает в аномальную зону, после чего попадает во времена самураев, когда Япония была в состоянии междоусобных войн, шел передел территорий.
-Командир одного из подразделений японской армии, подружившись с одним из правителей, (   Читать дальше...   )Производство: Япония / Kadokawa Haruki JimushoЖанр: Фантастика, боевик, приключенияРежиссер: Мицумаса СаитоАктеры: Сонни Чиба, Дзюн Это, Тоситака Ито, Харуки Кадокава, Хироси Камаяцу, Кэндзо Каварадзаки, Асао Койкэ, Кэнтаро Кудо, Ко Курайси, Масао Кусакари, Ёити МиураПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B64C1F32CA94BC50ED5BB862F043452EED29FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820188   (861) от 26.09.2025
-
-Феникс в ярости / Jija - Deu suay doo / Raging Phoenix (2009) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молодую девушку Дью бросает парень и она с горя напивается. Ее пытаются похитить, но ей на выручку приходит бригада бродяг-алкоголиков: мастер Саним, Ки Му и длинноволосый Ки Ма, позже к ним присоединяется загадочный Ки Квай с прической из дрэдов.. Они берут ее под свою опеку и обучают приемам боевого искусства Мейрайют, состоящего из пьяного тайского бокса и танцевальных (   Читать дальше...   )Производство: Таиланд / Baa-Ram-EweЖанр: боевикРежиссер: Рашан ЛимтракулАктеры: Янин Висмитананда, Патрик Танг, Nui Saendaeng, Sompong Leartvimolkasame, Boonprasert Salangam, Рунгтаван Джиндасинг, Марк Хоанг, Дэвид Буено, Saroch Ruampaothai, Клонгкрит КлайдангПеревод: Двухголосый, одноголосыйЯзык озвучки: Русский, ТайскийСубтитры: Русские, АнглийскиеПродолжительность: 01:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441DA74245C065193E7577BD722AA46CDA2A93C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820157   (855) от 26.09.2025
 
 Милые кости / The Lovely Bones (2009) BDRip [H.265/1080p] [10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_855.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_841.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_834.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_820.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_807.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_805.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_803.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_785.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_750.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_703.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_702.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_686.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_634.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_629.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_618.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_613.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_610.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_608.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_602.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_594.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_592.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_590.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_585.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_569.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257D2FB3A24B51216AC3B84C4A97BD0ABED453C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820225   (566) от 27.09.2025
+
+Специальное задание / The Shepherd (2008) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшие наемники спецподразделения американских войск разрабатывают план по ввозу на территорию США большой партии наркотиков. Воодушевленные быстрой наживой, они пытаются осуществить переправку героина через мексиканскую границу. Единственный, кто встает у них на пути - это патрульный государственной пограничной службы Джек. Бывший полицейский, работающий под прикрытием (   Читать дальше...   )Производство: США / Sony Pictures Home EntertainmentЖанр: боевик, триллер, криминалРежиссер: Айзек ФлорентайнАктеры: Жан-Клод Ван Дамм, Стивен Лорд, Натали Робб, Гари МакДональд, Дэниэль Перрон, Скотт Эдкинс, Андре Бернард, Дэн Дейвис, Майлз Андерсон, Луис АлгарПеревод: МногоголосыйЯзык озвучки: Русский, УзбекскийСубтитры: Английские (SDH)Продолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2C0A8A02D7C06CBD809C7EF5BC186CFB874E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820309   (558) от 27.09.2025
+
+В спальне / In the Bedroom (2001) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий основан на рассказе «Убийства» Андре Дюбюса (1979)... Студент приезжает на каникулы домой и влюбляется в женщину, которая намного старше его. Однако то, что начинается, как обычный летний роман, вскоре перерастает в трагедию... Название фильма отсылает к заднему отсеку ловушки для омаров, известному как «спальня».Производство: США / Good Machine, GreeneStreet Films Inc., Standard Film CompanyЖанр: драма, криминалРежиссер: Тодд ФилдАктеры: Том Уилкинсон, Сисси Спейсек, Ник Стал, Мариса Томей, Уильям Мапотер, Уильям Уайз, Селия Уэстон, Карен Аллен, Фрэнк Т. Уэллс, У. Клэпэм Мюррей, Джастин Эшфорт, Терри А. Бургесс, Камден Мансон, Кевин ЧэпменПеревод: профессиональный многоголосый (Парадиз ВС), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A35A1BDBA6D82A3F7DF42EACDB4220DED51BB41
 ```
 
 https://mybot314.ru/tekegram_catalog/

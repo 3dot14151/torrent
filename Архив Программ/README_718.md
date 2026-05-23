@@ -6,7 +6,7 @@ Reg Organizer 7.12 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687556.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Wipe & Clean 10.7 Build 1975 Corporate RePack by KpoJIuK (11.05.2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687550.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 42.0.2311.152 Enterprise (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687545.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Reader XI 11.0.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687541.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows Repair (All In One) 3.1.5 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687539.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sothink Logo Maker 2.11 build 210 [Eng] [RePack]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687511.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Google Chrome 42.0.2311.152 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687441.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BurnAware Professional 10.3 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687440.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Reader X 10.1.14 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687436.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AdwCleaner 4.204 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687418.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wise Registry Cleaner Pro 9.6.1.627 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687371.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Softany WinCHM Pro 5.23 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687365.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Waterfox 38.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687332.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Reg Organizer 7.12 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687318.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Adobe InCopy CS5.5 (v.7.5.0.142) DVD [RUS / ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_687278.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ RegDoctor 2.26 [Rus] [UnaTTended Install]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687266.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Slimjet 14.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687233.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adobe Reader XI 11.0.11 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687228.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Nero Burning ROM & Nero Express 2015 16.0.24000 Portable by PortableWares [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687224.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Waves Complete v9r27 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687208.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Adobe Acrobat XI Pro 11.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687207.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Bat! Professional 6.8.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687199.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687135.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Image to PDF Converter 1.2 [Eng] [UnaTTended Install]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_687125.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Vivaldi 1.9.818.50 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687098.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ PrivaZer 3.0.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687094.jpg" />
 </div>
 
 

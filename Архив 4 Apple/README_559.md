@@ -6,7 +6,7 @@ Currency Assistant 3.5 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217945.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ghost Buster Pro 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217926.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Artstudio Pro 3.2.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217908.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AI Transcription 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217880.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Path Finder 2159 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217853.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Topaz Video AI for Mac 3.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217846.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Color Wheel 6.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217811.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SQLPro for MSSQL 2021.106 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217796.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Paste Queue (Multi Clipboard) 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217726.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sublime Text 4.0 Build 4154 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217617.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Movavi Video Editor 4 v4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217597.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ CleanMyMac 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217387.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ PullTube 1.8.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217292.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Multitouch 1.27.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217204.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Pastebot 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217190.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Fork 2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217188.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ AnyTrans 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217154.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ File Juicer 4.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217123.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VectorStyler for Mac 1.1.094 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217051.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ PullTube 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217035.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ SQLPro Studio 2020.101 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217031.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Middle 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217019.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ SSH Config Editor Pro 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216987.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ SiteSucker 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216940.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Proxyman for Mac 4.9.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216918.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Sensei 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216890.jpg" />
 </div>
 
 

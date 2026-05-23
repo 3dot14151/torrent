@@ -6,7 +6,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068986.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Repack Let'sРlay [Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068939.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068938.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Outbound (2026) [Ru/Multi] (1.0.5.810/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Meltopia (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068905.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Duriano (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068901.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Gecko Gods (2026) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068876.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dark Dominion (2026) [Ru/Multi] (Build 23191896) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068839.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Vultures - Scavengers of Death (2026) [Ru/Multi] (1.0.1/dlc) Repack Let'sРlay [
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068823.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WILL: Follow The Light (2026) [Ru/Multi] (Build 23125391) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068723.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Coma 3: Bloodlines (2026) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068717.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Eden Crafters (2024) [Ru/Multi] (1.0i) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068690.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ HELLBREAK (2025) [Ru/Multi] (Build 23163584) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068644.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Crimson Oath (2026) [Ru/Multi] (1.4.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068638.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Spell Brigade (2024) [Ru/Multi] (1.0.1.16434/dlc) Repack FitGirl [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068588.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ HELLBREAK (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068559.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mixtape (2026) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068519.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mixtape (2026) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068518.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WILL: Follow The Light (2026) [Ru/Multi] (Build 23125391) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068489.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Stolen Realm Survivors (2026) [Ru/Multi] (0.148/dlc) Repack Let'sРlay [Ultimate
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068487.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Awakener Battle Tendency (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068403.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Outworld Station (2025) [Ru/Multi] (1.0.0.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068396.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Trench Lord: Eastern Front (2026) [Ru/Multi] (1.02.001.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068385.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Bylina / Былина (2026) [Ru/Multi] (Build 23075629/dlc) Repack Other s [Dig
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068372.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ The Coma 3 Bloodlines (2026) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay [Complete 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068177.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Adorable Adventures (2026) [Ru/Multi] (1.0.3.8312) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068175.jpg" />
 </div>
 
 

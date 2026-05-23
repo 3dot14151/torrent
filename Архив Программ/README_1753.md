@@ -6,7 +6,7 @@ Psiphon 3 build 179 (01.06.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197711.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 11 PE x64 by Xemom1 (29.05.23) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197708.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows 11 PE x64 by Xemom1 (01.06.23) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197697.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VSDC Video Editor Pro 8.2.1.470 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197693.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Exposure X7 7.1.7.5 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197687.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Windows 7 (6in1) x86-x64 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197684.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ qBittorrent 4.5.3 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197671.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ WinToHDD 6.0 Release 2 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197669.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ CPU-Z 2.06.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197667.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Edge Blocker Portable 1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197646.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AnyMP4 Video Converter Ultimate 8.5.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197640.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Abelssoft SSD Fresh Plus 2023 12.08.47803 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197638.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ WinRAR 6.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197629.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ EaseUS Data Recovery Wizard Technician 16.0.4.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197616.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ CrystalDiskInfo 9.0.1a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197615.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Windows 11 PE x64 by Xemom1 (02.06.23) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197553.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Corona Renderer 9.3 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197532.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Topaz Photo AI 1.3.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197527.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Auslogics Driver Updater 1.25.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197525.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Reg Organizer 9.20 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197507.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Internet Download Manager 6.41 Build 14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197506.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Megacubo 17.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197495.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Google Chrome 114.0.5735.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197490.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Internet Download Manager 6.41 Build 14 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197478.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ CurrPorts 2.75 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197466.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Revo Uninstaller Pro 5.1.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197450.jpg" />
 </div>
 
 

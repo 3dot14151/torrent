@@ -6,7 +6,7 @@ QLab Pro 4 v4.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914445.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaHuman Youtube Downloader 3.9.9.34 (Build 1603) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914442.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Microsoft Windows 10 Technical Preview Language Pack 9926 (x86, x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914398.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ VidCoder 2.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914390.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Unreqvited - Disquiet (2016) [MP3|320 Kbps] <Atmospheric Black Metal, Post-Black
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914389.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914387.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Chocolat 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914385.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Cyberfox 51.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914383.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Circular Studio 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914382.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ George Raphael - Reiki (1999) [FLAC|Lossless|tracks + .cue] <Meditative, New Age
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914377.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.136 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914374.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ SQLPro for Postgres - PostgreSQL database manager 1.0.101 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914372.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ KCNcrew Pack 03-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914362.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ WebScraper 4.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914360.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Wondershare DVD Creator 6.1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914357.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914303.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914288.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Privacy Eraser Free 4.20.5 Build 2256 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914285.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Apathy - Handshakes With Snakes (2016) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914284.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Soft4Boost Secure Eraser 4.3.5.503 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914283.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Q-Dir 6.49.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914282.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Cyberfox 51.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914280.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Vocal Trance (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914279.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Postbox 5.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914277.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Wise Program Uninstaller 1.98.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914276.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Typinator 8 v8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914271.jpg" />
 </div>
 
 

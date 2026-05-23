@@ -1,29 +1,3 @@
-###  Публикация: 1412872   (413318) от 01.10.2020
-
-Resident Evil 3 (2020) [Ru/Multi] (1.0) License HOODLUM
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil 3 – полностью обновленный ремейк хоррор-экшена Resident Evil 3: Nemesis, в котором вам вновь предстоит выступить в роли Джилл Валентайн и попытаться выбраться из города Раккун-сити, чтобы сбежать от безжалостного Немезиса.Тип издания: LicenseРазработчик: CAPCOM Co.Жанр: Action, Horror, 3rd PersonЯзык озвучки: Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E8FA3AF8BECFB9289F3B11C350E05130BA4E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412903   (413313) от 01.10.2020
 
 Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
@@ -32,7 +6,7 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413313.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Deadly Tower of Monsters (2016) [Ru/Multi] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413304.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Max Payne Трилогия [En/Ru] (RePack) 2001-2012 | Martin (Audioslave)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_413208.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Projection: First Light (2020) [Ru/Multi] (2.0.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413151.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Evoland 2 Русификатор (2015) [Ru] (1.0) Бaton & co
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413003.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Trapped Dead: Lockdown (2015) [En/Multi] (18.10.2015) Repack R.G. Механик
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412922.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Assassin's Creed: Liberation HD (2014) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412918.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Rezrog (2017) [Ru/En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412814.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412098.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411941.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Mystery Trackers 4: The Four Aces [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411873.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Sheltered (2016) [Ru/Multi] (1.9) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411771.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411755.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411596.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Fairy Godmother Stories 3: Little Red Riding Hood (2020) [En] (1.0) Unofficial [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411435.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Hidden Mysteries: Royal Family Secrets / Секреты Королевской �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411431.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ E.P.I.C.: Wishmaster Adventures / Э.П.О.С.: Дороги желаний [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411290.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Mayan Prophecies: Ship of Spirits. Collector's Edition / Проклятие Ма
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411286.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.03/dlc) License HOODLUM [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411185.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ The Purring Quest (2015) [Ru/Multi] (1.8) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411079.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (об�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411012.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ BLOCK'HOOD (2016) [En] (0.80.16) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410914.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Galak-Z: The Dimensional (2015) [Multi] (1.01.04/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410913.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Man O' War: Corsair (2016) [En] (0.6.3) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410902.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410639.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) License RELOADED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:329F58366F4E71DF4BBB964C1A38977E65F4F20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168312   (410428) от 23.09.2017
+
+The Secret Order 4: Beyond Time / Тайный орден 4: Вне времени (2015) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая часть увлекательной серии игр The Secret Order. Борьба Добра и Зла продолжается - Орден Грифона и Клан Дракона снова сражаются. Сара Пеннингтон, член Тайного Ордена Грифона отправилась в Прошлое - в Древнее Царство Aeronheart. Там ей удалось уничтожить магические артефакты: Маску и Скипетр Драконов, иначе Миру грозила опасность и разрушение. Однако, как только (   Читать дальше...   )Тип издания: UnofficialРазработчик: Sunward GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2663625829000CDAB55917BD1558E9424DC2D06F
 ```
 
 https://mybot314.ru/tekegram_catalog/

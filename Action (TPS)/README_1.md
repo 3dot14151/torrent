@@ -6,7 +6,7 @@ Grand Theft Auto IV (2008-2010) [Ru/En] (1.0.7.0/1.1.2.0) Repack R.G. Games [Com
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059124.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hitman: Contracts (2004) [En] (1.74) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059063.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (34885/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059011.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20251021 1503-330668/dlc) Repack Hardwar
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058932.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (1.33/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058864.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.16.004) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058862.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hitman: Blood Money (2006) [En] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058819.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ L.A.Noire (2011) [Ru/Multi] (1.3.2675.1/dlc) Repack dixen18 [The Complete Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058642.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057871.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Total Overdose (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057869.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057863.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057817.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.0.0-1.0.8.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057612.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ The Punisher / Каратель (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057513.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack HardwareMining
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057008.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack seleZen [Digital Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057005.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.7.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056085.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack HardwareMining [Go
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055837.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack Other s [Gold Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055668.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.5.0.0/dlc) Repack FitGirl [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055502.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack seleZen [Gold Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055487.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Wanterlude 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055422.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055231.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Styx: Shards of Darkness (2017) [Ru/Multi] (1.05/dlc) Repack Other s [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055139.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack dixen18 [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054835.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Let'sРlay [Digital Deluxe]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054716.jpg" />
 </div>
 
 

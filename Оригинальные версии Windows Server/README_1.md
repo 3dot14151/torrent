@@ -6,7 +6,7 @@ Microsoft Hyper-V Server 2012 R2 9600.16384 (130821-1623) [Ru/En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578563.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows Server 2012 R2 VL with Update 3 - Оригинальные о�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571192.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows Server 2012 Datacenter x64 VL RTM by W.Z.T [En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558312.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows Server, Version 20H2 (10.0.19042.1766) (Updated June 2022) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527673.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Windows Server 2012 (Volume) + Языковые пакеты (x64) [Ru
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502968.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows Server, Version 20H2 (10.0.19042.1826) (Updated July 2022) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499270.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Hyper-V Server 2012 (RUS/ENG) 9200.16384 [Английский, Рус
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490518.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410578.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410574.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Microsoft Windows Server 2012 Storage Server and Foundation (x64) [Ru/En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394373.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [RUSSIAN]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_386637.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Windows Server, Version 20H2 (10.0.19042.508) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355205.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Windows Server, Version 1909 (10.0.18363.418) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322373.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Windows Server 2022 LTSC [10.0.20348.4405], Version 21H2 (Updated November 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257669.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Windows Server 2025 LTSC [10.0.26100.7171], Version 24H2 (Updated November 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257668.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Windows Server [10.0.25398.1965], version 23H2 (Updated November 2025) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257667.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Windows Server 2003 R2 Standard OEM SP1 (x86) [ENGLISH]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256545.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1726 (Updated May 2023) - О�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252227.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.587 (Updated March 2022) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250039.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.643 (Updated April 2022) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240584.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.707 (Updated May 2022) - Ор
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234619.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.768 (Updated June 2022) - О�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213132.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.825 (Updated July 2022) - О�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212379.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1006 (Updated September 2022)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207617.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.887 (Updated August 2022) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205464.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1129 (Updated October 2022) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205053.jpg" />
 </div>
 
 

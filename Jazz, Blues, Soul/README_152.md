@@ -6,7 +6,7 @@ Freddie King - The Complete King Federal Singles (2012) 2 CD, Compilation [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766327.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Songhoy Blues - Music In Exile (2015) [FLAC|Lossless|tracks + .cue] <Desert Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766321.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Smooth Piano Jazz: Cool Modern Jazz (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766320.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Hard Rockin' Blues (1997) [FLAC|Lossless|tracks + .cue] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766278.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rob Parton's Jazztech Big Band - The Count Is In! (1993) Sea Breeze Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766224.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hank Crawford - Don't You Worry 'Bout A Thing (1974) 2011, Masterworks Jazz ‎ 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766196.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bo Ramsey - Wildwood Calling (2016) [FLAC|Lossless|tracks + .cue] <Chicago Blues
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766187.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ John Coltrane - My Favorite Things (1960) 1987, Atlantic [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766185.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766120.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Van Morrison - The Prophet Speaks (2018) [FLAC|Lossless|tracks + .cue] <Blues, J
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766112.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Noah Haidu - Slowly: Song For Keith Jarrett (2021) Sunnyside [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766087.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Michael Arthur Holloway (Michael A Holloway) - Guilt Noir (2016) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766046.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Frank Minion - The Forward Sound (1958) 2013, Solid Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765811.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Frank Minion - The Soft Land Of Make Believe (1960) 2013, Solid Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765809.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Julia Biel - Julia Biel (2018) [FLAC|Lossless|WEB-DL|tracks] <Soul, Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765763.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Othman Wahabi - Hummingbirds & Vultures (2017) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765542.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jocelyn & Chris Arndt - Edges Album: Strangers In Fairyland EP Bundle (2016) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765527.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ben Webster - Ben Webster's First Concert In Denmark 1965 (2019) Storyville Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765474.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dena DeRose - Another World (1999) Sharp Nine Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765469.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Beegie Adair & Friends - Jazz For The Road (2012) Green Hill Productions [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765460.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Beegie Adair - Love Letters: The Beegie Adair Romance Collection (2011) 2CD, Gre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765453.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - The Art Of The Piano: Trio, Quartet, Quintet and Beyond (Milestones of Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765230.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Harold Mabern Trio - Falling In Love With Love (2002) Venus Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765227.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Harold Mabern Trio - Don't Know Why (2004) Venus Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765221.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bud Freeman - 1928 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Early J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764980.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ferdinand Povel - Beboppin' (1983) 2016, Solid Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764978.jpg" />
 </div>
 
 

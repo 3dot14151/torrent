@@ -1,82 +1,3 @@
-###  Публикация: 1821462   (64041) от 02.10.2025
-
-Росс Макдональд | Лью Арчер (Книга 1). Живая мишень (2025) [MP3, Александр Степной]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Живая мишень» - первый роман Росса Макдональда, где главным действующим лицом становится частный детектив Лью Арчер, интеллектуал с железными кулаками.
-Лью Арчера нанимает красивая женщина, миссис Сэмпсон, чтобы тот отыскал ее пропавшего мужа, нефтяного магната на двадцать лет старше нее. Ральф Сэмпсон прилетел в Лос-Анджелес из Лас-Вегаса вчера днем в своем частном (   Читать дальше...   )Жанр: детективИздательство: Аудиокнига своими рукамиПродолжительность: 05:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D54DD034D65D104497D369A8DB7357FE9D4F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821463   (64040) от 02.10.2025
-
-Росс Макдональд | Лью Арчер (Книга 3). Смерть на выбор (2025) [MP3, Александр Степной]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Смерть на выбор" - известный роман Росса Макдональда о приключениях частного детектива Лу Арчера. Безутешная мать просит разыскать ее пропавшую дочь, по слухам, сбежавшую с гангстером. Вполне рутинное дело - так считает Арчер поначалу. Но поиски девушки приводят его то на роскошный курорт, то в мрачные бандитские кварталы, то в притоны наркоманов. Необычно? (   Читать дальше...   )Жанр: детективИздательство: Аудиокнига своими рукамиПродолжительность: 07:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0B69F03B334C5F001DFDC549428CACB3941B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821467   (64039) от 02.10.2025
-
-Росс Макдональд | Лью Арчер (Книга 4). Ослепительный оскал (2025) [MP3, Александр Степной]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Просьба эксцентричной миллионерши разыскать нечистую на руку горничную и заставить вернуть украденные драгоценности вдруг превращается в дело об убийстве и таинственном исчезновении юного наследника огромного состояния.Жанр: детективИздательство: Аудиокнига своими рукамиПродолжительность: 06:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8992FB0EA78E59F30E1B31EF00727BFE624230D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821474   (64038) от 02.10.2025
 
 Жаклин Голдис | Главная героиня (2025) [MP3, Анастасия Болотина]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64038.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64037.jpg" />
 </div>
 
 
@@ -140,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64035.jpg" />
 </div>
 
 
@@ -167,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64034.jpg" />
 </div>
 
 
@@ -194,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64033.jpg" />
 </div>
 
 
@@ -220,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64032.jpg" />
 </div>
 
 
@@ -246,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64031.jpg" />
 </div>
 
 
@@ -274,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64030.jpg" />
 </div>
 
 
@@ -302,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64029.jpg" />
 </div>
 
 
@@ -330,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64028.jpg" />
 </div>
 
 
@@ -356,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64027.jpg" />
 </div>
 
 
@@ -382,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64026.jpg" />
 </div>
 
 
@@ -408,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64025.jpg" />
 </div>
 
 
@@ -436,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64004.jpg" />
 </div>
 
 
@@ -462,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64000.jpg" />
 </div>
 
 
@@ -488,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63999.jpg" />
 </div>
 
 
@@ -514,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63998.jpg" />
 </div>
 
 
@@ -540,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63997.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63996.jpg" />
 </div>
 
 
@@ -592,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63995.jpg" />
 </div>
 
 
@@ -618,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63994.jpg" />
 </div>
 
 
@@ -644,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63993.jpg" />
 </div>
 
 
@@ -672,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63992.jpg" />
 </div>
 
 
@@ -685,6 +606,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9906FD5CA2CEFC44460A3C03142D9FD64EC04B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821548   (63978) от 02.10.2025
+
+Юлия Лавряшина | Тень Логова (Книга 1). Взгляд со дна (2024) [MP3, Варвара Кошкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63978.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Взгляд со дна» – это увлекательный психологический детектив с проработанными персонажами. Писательница Юлия Лавряшина создает такую атмосферу, в которую легко можно погрузиться с головой. Повороты сюжета непредсказуемы, и читатели могут следовать за Артуром Логовым в поисках жестокого убийцы, который оказывается всегда на шаг впереди. Или почти всегда?..Жанр: детективИздательство: ЭксмоПродолжительность: 08:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975C2CF16D81D69CED3925A877A31BDB3053E5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821551   (63977) от 02.10.2025
+
+Юлия Лавряшина | Тень Логова (Книга 2). Шаги в пустоте (2025) [MP3, Варвара Кошкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63977.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шаги в пустоте» – это увлекательный и динамичный детектив, расследование в котором ведут профи в своем деле Артур Логов и девочка-подросток, недавно потерявшая маму. Казалось бы, этих людей ничего не связывает, но они вытягивают друг друга из тьмы. Писательница Юлия Лавряшина перенесет читателей на живописные улочки Kpымa и предложит им отыскать убийцу Общее горе (   Читать дальше...   )Жанр: детективИздательство: ЭксмоПродолжительность: 09:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DC1E73616C4E888FF02778894C138DE0D2375D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821552   (63976) от 02.10.2025
+
+Юлия Лавряшина | Тень Логова (Книга 3). Сгоревшая жизнь (2025) [MP3, Варвара Кошкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63976.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сгоревшая жизнь» – третья книга в цикле психологических детективов Юлии Лавряшиной. В этой книге Артура и Сашу ждут новые испытания, особенно сложные и болезненные, так как им предстоит иметь дело с пациентами психиатрической больницы. И здесь непредсказуемые «игры разума» будут особенно опасными.Жанр: детективИздательство: ЭксмоПродолжительность: 08:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259EAF3301279B5A65C19559E5224DB642A4C852
 ```
 
 https://mybot314.ru/tekegram_catalog/

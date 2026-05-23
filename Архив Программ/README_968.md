@@ -6,7 +6,7 @@ Ultra Adware Killer 3.3.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558958.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MEGA Sync Client 2.1.1 (2e7f3) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558957.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NetSend2015 Client 1.5.0.14 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558955.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bitdefender AntiVirus Plus 2015 19.2.0.142 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558954.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558950.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Acronis True Image 2017 20.0.5534 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558894.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bitdefender Total Security 2015 19.2.0.142 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558874.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BleachBit 1.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558865.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ReviverSoft Driver Reviver 5.2.0.22 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558864.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ ProgeCAD Professional 2016 7.2 (16.0.8.14) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558861.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ McRip SystemFiles 1.2.9 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558834.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adware Removal Tool 4.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558818.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wondershare Filmora 6.6.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558806.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BlazeDVD Professional v6.1.1.2 Final + Portable [2012,Ml\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558791.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558785.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Unchecky 0.3.9 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558770.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Internet Download Manager 6.12 Beta Build 8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558737.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Paint.NET 4.0.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558701.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Unity3D Pro 5.1.2f1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558688.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Mozilla Thunderbird 52.9.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558670.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Mozilla Thunderbird 52.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558662.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ DriverEasy Professional 4.9.4.6221 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558611.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Navicat Premium 11.1.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558603.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ WinSetupFromUSB 1.6 Beta 2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558533.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ACDSee Pro 8.2 Build 287 Lite RePack by MKN (24.07.2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558529.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ iSpy 6.4.0.0 (x86x64) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558525.jpg" />
 </div>
 
 

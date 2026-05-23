@@ -6,7 +6,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Presage Flower | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663646.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662097.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Shonen Onmyoji / Teenager Onmyouji / Юный мастер Инь-Ян [2006, TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661453.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658809.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658562.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Leadale no Daichi nite | In the Land of Leadale | На просторах Лид
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658127.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Puka Puka Juju / Дюгонь Дюдю [2012, TV-sp] HDTV 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657843.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Planetarian: Chiisana Hoshi no Yume | Planetarian: The Reverie of a Little Plane
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657812.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Buta / Хряк [2012, TV-sp.] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657750.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Planetarian: Hoshi no Hito | Planetarian: Storyteller of The Stars | Плане�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657712.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657343.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Makaryudo / Demon Hunter Makaryuudo / Охотница на демонов [1989
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656818.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Otona Joshi no Anime Time: Kawamo o Suberu Kaze / A Wind Skimming the River's Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656400.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Onee-chan ga Kita | Сестра без приглашения [2014, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656144.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656115.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Hanaukyou Maid Tai: La Verite | Hanaukyo Maid Team: La Verite | Горничны
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656113.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sabiiro no Armor: Reimei | Rusted Armors: Daybreak | Ржавые доспехи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655872.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655861.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655672.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654850.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BAR Kiraware Yasai / Бар "Ненавистные овощи" [2015, TV-сер
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653065.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Mayoiga | The Lost Village [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653058.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Project Scard: Praeter no Kizu | Scar on the Praeter | Проект Скард [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652636.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Appleseed | Яблочное зернышко [2004, Movie] BDRip 1080p HEVC 10-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652428.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652335.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Fantasy Bishoujo Juniku Ojisan to / Life with an Ordinary Guy Who Reincarnated i
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651910.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Flamenco Passion (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633916.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Piano Peace - Melancholy Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumenta
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633610.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Terra nostra (Banda sonora original) (1999) [FLAC|Lossless|tracks + .cue] <
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633564.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633024.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632438.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632031.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ John Denver - The Real... John Denver (2013) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631485.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Oliver Scheffner - Traum vom endlosen Himmel (2017) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631481.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Romantic Guitar (2002) [MP3|320 кб/с]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631131.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Quentin Tarantino's - Inglourious Basterds / Бесславные ублюдки
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631127.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ James Newton Howard - Snow White & The Huntsman / Белоснежка И Охо
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631113.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630865.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630511.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, Wor
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630510.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Prog
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630095.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629992.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Emily Jane White - Alluvion (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629517.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629502.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Karushanti - Celtic New Age  (2017) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629362.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HB
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629290.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629093.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628637.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628613.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628535.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628521.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домаш
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628410.jpg" />
 </div>
 
 

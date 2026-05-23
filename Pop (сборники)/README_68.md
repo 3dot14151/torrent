@@ -6,7 +6,7 @@ VA - Загорелое Лето (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581152.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Взорви танцпол 4 (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581150.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Вечный Рай  (2011) [MP3|256 kbps]<Pop / Dance >
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581148.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Знойный Хит от Dfm (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581096.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Летний прикид! Русский (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581094.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Песня Года Vol.2 (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581090.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Europa Plus: Самые сливки 4 50/50 (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581088.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - 200-ка Master Hit Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581033.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Музыкальная энергия пиратских станций (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580960.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Hits 80's Maxi Versions  (2011) [MP3|320 kbps]<Eurodisco / Eurodance / Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580949.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - 1000% Ballads  (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580893.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - Лучшие Песни Русского Радио 3 (2011) [MP3|128 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580885.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Союз летних хитов на Europa Plus. Часть 6 (2015) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580862.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Records That You Play (2019) [MP3|320 Kbps] <Pop Dance, Electro Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580258.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579914.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Жаркие Хиты Лета (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579874.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579828.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Летняя хитмания №4 Best (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579590.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Billboard Hot 100 Singles Chart 20.08.2016 (2016) [MP3|128-320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579529.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Забавная Штучка (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578964.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - German Top 100 Single Charts 27.05.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578934.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Laura Pausini - Compilation (2022) [MP3|320 Kbps] <Pop, Italo pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578933.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Гламурная летняя дискотека (2015) [MP3|256 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578839.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Летний бум хитов (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578766.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Superchart Радио Record Часть 4 (2011) [MP3|256 kbps]<Pop, Dance,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578749.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ VA - Дискотека ВКонтакте №1 (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578710.jpg" />
 </div>
 
 

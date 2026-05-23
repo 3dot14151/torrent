@@ -6,7 +6,7 @@ Andru Donalds - the voice of the Enigma - Snowin’ Under My Skin (1999) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576019.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Любителям цыганской песни (2014) [MP3|256 кб/с]<F
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575991.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Зайцев.нет Лучшие новинки Мая 2019 [MP3|256 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575655.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Mega Hit Mix (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575451.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Aldo Lesina - Castles & Dungeons (2015) [MP3|320 кб/с]<Electronic, Eurobeat, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575407.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Мне Не Хватает Твоих Глаз  (2011) [MP3|256 kbps]<Pop /
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574980.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - The Hits of Summer (2016) [MP3|320 Kbps] <Vocal, Euro, Synthpop, Inie Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574707.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Italo Disco Hits Vol.13 (2017) [MP3|320 Kbps] <Italo Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574190.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - 100 Hits Dance 2015 (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574002.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Lokee feat Pearl Andersson - Losing My Religion (2018) Remix [MP3|320 Kbps] <Dee
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573960.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Best Of 90s (Revisited) (2016) [MP3|320 Kbps] <EuroDance, Synth-pop, Electr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573860.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Madonna - Hits Box Collection (2015) [MP3|226-294 кб/с]<Pop, R&B, Jazz, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573639.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - My Favourite Hits of 1977 (16CD) (2015) [MP3|320 кб/с]<Easy Listening, C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573487.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Esthetics Lounge Vol. 6 (2012) [MP3|320 кб/с]<Lounge, Easy Listening>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573473.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Сборник медленных хитов Vol.9 (2012) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573192.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Miguel Bose - This Is Miguel Bose (2019) [MP3|320 Kbps] <Pop, Latin>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572899.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - 90s Jams Hits More Talking (2016) [MP3|192-320 Kbps] <Soul, R&B, Pop, Grung
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572828.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Dance Flying Stadium (2018) [MP3|320 Kbps] <Hands Up, Dance, Reggaeton, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572796.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Billboard Hot 100 Singles Chart 07.07.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572617.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Blues And Rock Ballads Vol.2 (2017) [MP3|320 Kbps] <Blues, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572210.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Славянский Меч IV-Славься, Свентовид!. Час�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572169.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Клубная Молодёжная Вечеринка (2016) [MP3|269-320 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571863.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - 100пудовый Зарубежный (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571563.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Going Back In Time Rock Roll  60s (4CD) (1993) [MP3|320 кб/с]<Rock'N'Rol
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571287.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ VA - Pure Summer (2016) [MP3|320 Kbps] <Club, Future House, Progressive>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571178.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ VA - Best In The Heat - Summer 100 Percent (2016) [MP3|232-320 Kbps] <Future Hou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571051.jpg" />
 </div>
 
 

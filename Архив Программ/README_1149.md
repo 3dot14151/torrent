@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461064.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LibreOffice 5.4.1 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Far Manager 3.0 Build 5254 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461042.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Driver Booster Pro 4.5.0.527 Fnal RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460911.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Rufus 3.2 (Build 1397) Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460903.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AOMEI Backupper Technician Plus 5.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460794.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Passcape Reset Windows Password 7.0.5.702 Advanced Edition (bootable CD) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460754.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Any DVD Converter Professional 4.5.3 RePack (& Portable) by KpoJIuK [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460742.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe Dreamweaver 2019 19.2.1.11281 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460677.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ MAGIX VEGAS Pro 15.0 Build 177 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460626.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Uninstall Tool 3.2.1 Build 5279 Final Portable by BarSoft [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460441.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Easy CD-DA Extractor 16.0.9 Final RePack (& portable) by KpoJIuK [Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460434.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AnVir Task Manager 7.0.3 Portable by BurSoft [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460417.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Skype 8.64.0.80 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460225.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ FastStone Capture v7.3 Portable by SeVenSoft [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460152.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ MediaHuman YouTube Downloader 3.9.9.45 (0609) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460103.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Wise Disk Cleaner 10.3.3.785 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460099.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ MediBang Paint Pro 25.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460096.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Wise Care 365 Pro 2.01.146 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460014.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wise Folder Hider Pro 4.3.5.194 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459959.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Topaz A.I. Gigapixel 5.1.6 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459954.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ UnHackMe 11.97 Build 997 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459953.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft Edge 85.0.564.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459947.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AOMEI Backupper Technician Plus 6.0.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459943.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Macrorit Data Wiper 6.1.0 Unlimited Edition RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459928.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ PhotoInstrument 7.4 Build 768 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459892.jpg" />
 </div>
 
 

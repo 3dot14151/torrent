@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 15.9.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178281.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NIUBI Partition Editor 9.8.0 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178272.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Skype 8.105.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178269.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Q-Dir 11.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178265.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Viber 21.1.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178262.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ NIUBI Partition Editor 9.8.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178256.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chromium 117.0.5938.150 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178246.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ LDPlayer 4.0.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178231.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Vivaldi 6.2.3105.58 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178230.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Macrorit Partition Expert 8.0.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178217.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sigil 1.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178212.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ WinCatalog 2024.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178186.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ XYplorer 25.00.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178182.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sandboxie plus 1.11.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178178.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Wondershare PDFelement 10.0.7.2464 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178176.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ChrisPC Win Experience Index 7.22.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178173.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Wise Auto Shutdown 2.0.4.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178166.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ DesktopDigitalClock 5.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178147.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Macrorit Partition Expert 8.0.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178145.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ EssentialPIM Pro 11.7.1 RePack (& portable) by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178142.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Soft Organizer Pro 9.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178137.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Files Inspector Pro 3.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178109.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ashampoo UnInstaller 12.00.12 (DC 18.09.2023) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178107.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Bandicam 7.0.0.2117 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178098.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Auslogics File Recovery 11.0.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178093.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ NIUBI Partition Editor 9.8.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178086.jpg" />
 </div>
 
 

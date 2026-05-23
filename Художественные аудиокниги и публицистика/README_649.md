@@ -1,82 +1,3 @@
-###  Публикация: 1335307   (286997) от 02.11.2019
-
-Серж Винтеркей | Легенда нубятника (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Может ли смертельное ДТП не только убить тело, но и отправить разум в виртуальную реальность? Оказывается, по замыслу высших сил возможно все. Инженер ехал домой к семье, но внезапно погиб в автомобильной аварии, обнаружив себя в качестве участника виртуальной игры. Второй шанс? Да! Но не все так просто, ему поставлены строгие ограничения, невыполнение которых приведет (   Читать дальше...   )Жанр: Попаданцы, Боевое фэнтези, LitRPGПродолжительность: 06:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B178A7BF9BC0D24465E03B6E0A98AA7A3DFA63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963395   (286881) от 08.12.2015
-
-Екатерина Безымянная | Записки prostitutki Ket (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Явился тут ко мне намедни отличный экземпляр. Я даже удивилась – неужто бабы дают мало? У такого должно быть вообще на выбор – и на три рубля десяток. Высокий, видный, интересный. Морда красивая, мужская; щетинка, скулы, нос, глазищи. Под свитерочком бугорочки: фигура, вид – ну все. Ну ладно, думаю, может, просто за разнообразием пришел. Денежку беру, говорю: (   Читать дальше...   )Жанр: Современная проза, юморПродолжительность: 08:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6EEBA5277114DFB9E3FB2378897FC2D5B3109D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079824   (286643) от 08.12.2016
-
-Виктория Балашова | Шекспир (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Имя гениального английского драматурга и поэта Уильяма Шекспира (1564–1616) известно всему миру, а влияние его творчества на развитие европейской культуры вообще и драматургии в частности — несомненно. И все же спустя почти четыре столетия личность Шекспира остается загадкой и для обывателей, и для историков.
-В новом романе молодой писательницы Виктории Балашовой (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 12:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88336A6953FCC73A72888225001300226179DD52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080667   (286640) от 08.12.2016
 
 Платон Беседин | Ребра (2016) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286640.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286628.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286562.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286557.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286555.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286554.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286445.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286443.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286433.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286430.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286322.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286297.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286283.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286281.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286279.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286275.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286272.jpg" />
 </div>
 
 
@@ -529,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286266.jpg" />
 </div>
 
 
@@ -555,7 +476,7 @@ Alex Brain Lee | Семя зла (2016) [MP3]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286260.jpg" />
 </div>
 
 
@@ -581,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286128.jpg" />
 </div>
 
 
@@ -607,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286124.jpg" />
 </div>
 
 
@@ -633,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286108.jpg" />
 </div>
 
 
@@ -659,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286102.jpg" />
 </div>
 
 
@@ -670,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15D8C4C28BEB5A919E4A47A58E8D93EF70D3AC81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079822   (286101) от 08.12.2016
+
+Марик Лернер | Юность воина (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марик Лернер – русскоязычный писатель, родился в СССР в 1966 году. В настоящее время проживает в Израиле. «Юность воина» открывает цикл романов о приключениях Блора, написанных в жанре фэнтези. Смертельная болезнь выкосила семью Блора. Он – единственный выживший. Поначалу мальчик-сиротка попадает в приют при храме. Затем судьба приводит его в ряды наемников – в команду, (   Читать дальше...   )Жанр: Боевое фэнтези, Историческое фэнтезиПродолжительность: 14:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EC7FFCD3057DF9298B54D1676CB753BCD443AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263665   (286100) от 20.11.2018
+
+Татьяна Москвина | Ничего себе Россия (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286100.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ничего себе Россия!» – новая книга широко известного писателя, публициста, театрального и кинокритика Татьяны Москвиной. Здесь собраны статьи, рецензии и эссе, написанные Москвиной в период 2006–2007 годов и публиковавшиеся в газете «Аргументы недели» и журналах «Искусство кино», «Петербургский театральный журнал», «Собака.ru» и «Русская жизнь».Жанр: Публицистика, КритикаПродолжительность: 07:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B696B0C6C69FD0C9D98368D9056B253E0DC1182B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263396   (286089) от 20.11.2018
+
+Татьяна Устинова | Ждите неожиданного (2018) [MP3, Мария Абалкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286089.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ждите неожиданного». Название детективного романа Татьяны Устиновой говорит само за себя: причем неожиданного как в плохом, так и в хорошем смысле. Таше так хотелось провести свой отпуск тихо и спокойно, но не тут-то было. На теплоходе, где она отдыхает, постоянно происходят загадочные и зловещие события: от кражи драгоценностей до жестокого убийства. И разве может (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 08:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BA8634413B50B9DBF6D5AB0E2025603E639B01
 ```
 
 https://mybot314.ru/tekegram_catalog/

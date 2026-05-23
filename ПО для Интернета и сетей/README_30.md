@@ -6,7 +6,7 @@ SoftPerfect NetWorx 6.2.8.20147 DC 25.05.2020 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755048.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SoftPerfect Network Scanner 7.2.8 DC 27.06.2020 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755034.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HttpWatch Professional Edition 9.4.17 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754470.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ SoftPerfect WiFi Guard 2.1.2 DC 15.05.2020  + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753187.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PostBox 6.1.9 Portable by Sitego [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751219.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Torch Browser 69.2.0.1713 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749848.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Serviio 1.6.1 Pro [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745928.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Dot11Expert+portable 1.5.0.12 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743493.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Dicter 3.83 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736569.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ HTTrack Website Copier 3.48.22 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723352.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Perfect Dark 1.22 Portable [En/Ja]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721222.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Bat! Voyager 9.5.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718283.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Superbird 72.0.3626.96 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714721.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Charles Web Debugging Proxy 4.2.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710447.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ WM Recorder 16.8.1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708560.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705895.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Corel Website Creator 15.50.0000.5554 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704259.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Aignes WebSite-Watcher 2015 15.2 Business Edition [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702864.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Orbitum 56.0.2924.89 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694947.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Google Earth Pro 7.3.2.5776 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693627.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ SafeIp 2.0.0.2616 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688210.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Avira Phantom VPN Pro 2.12.8.21350 ( Лицензия ( Без ограниче�
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684447.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Internet Download Accelerator Pro 6.13.1.1557 Final + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680631.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Falkon 3.1.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672116.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Hide My MAC Address 2.0.5583.35229 Portable by Padre Pedro [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668844.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ RetroShare 0.6.0 Build 8273 Beta [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666361.jpg" />
 </div>
 
 

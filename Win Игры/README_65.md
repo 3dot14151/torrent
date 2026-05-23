@@ -6,7 +6,7 @@ Retro Machina (2021) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013442.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20210422/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013436.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.0/dlc) License EMPRESS [Legendary Her
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013417.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fairy Godmother Stories 4: Puss in Boots / Сказки Феи-Крёстной 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013342.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bad Dream: Coma (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013330.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bad Dream: Fever (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013314.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ One Step From Eden (2020) [Ru/Multi] (1.6.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013305.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Room 54 (2021) [Multi] (1.0) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013296.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013283.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ultreïa / Ultreia (2021) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013163.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ghosts 'n Goblins Resurrection (2021) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013110.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012995.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rusty Lake Hotel (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012994.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cube Escape Collection (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012991.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rusty Lake: Roots (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012963.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Griftlands (2021) [Multi] (1.0) License Fairlight
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012938.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sockventure (2021) [Multi] (1.0.0a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012839.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wing of Darkness (2021) [Multi] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012797.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Röki / Roki (2020) [Ru/Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012764.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sludge Life (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012652.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Living Legends 9: Voice of the Sea (2021) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012557.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Last Kids on Earth and the Staff of Doom (2021) [Multi] (1.0) License Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012477.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Tunguska: The Visitation (2021) [En] (1.0) License Fairlight
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012318.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Margrave 4: The Blacksmith's Daughter / Маргрейв 4: Дочь кузне�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012216.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Backbone (2021) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012058.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.68.11808/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012035.jpg" />
 </div>
 
 

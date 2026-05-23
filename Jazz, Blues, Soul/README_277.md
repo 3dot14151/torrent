@@ -6,7 +6,7 @@ Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502635.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jean-Loup Longnon & His New York Orchestra (1988) Atlantic Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502622.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lee Konitz - Chicago'N All That Jazz (1975) 1989, Lester Recording [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502614.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jessi Teich - Twisted Soul (2015) [FLAC|Lossless]<Vocal Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502534.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Claudia Morris - Secret Love (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502533.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pink Turtle - Pop in Swing (2008) [APE|image+.cue]<Jazz Mainstream, Tribute, Par
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502411.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Pink Turtle - A la mode (2012) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502409.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ BBB - Tell Me (2008) [MP3|320 Kbps] <Blues Rock, Blues, Female Vocal>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502388.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Sexy Erotica Jazz (2015) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502245.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eliza Toth - Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501676.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501663.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Paul Brown - The Funky Joint (2012) Woodward Avenue Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501553.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <Wor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501483.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Pink Turtle - Back Again (2010) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501329.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Piano Dreamers, Relaxing Instrumenta  Music - Sex Music 69 (2019) [MP3|320 Kbps]
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501208.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mark Knopfler - Privateering (2012) 2CD Promo [MP3|~245 кб/с ]<Folk / Blues /
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501058.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Brian Setzer (Brian Setzer Orchestra) & Stray Cats - 54 albums (1981-2011) [mp3|
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500788.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bireli Lagrene - Inferno (1987) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500657.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ London, Meader, Pramuk & Ross - The Royal Bopsters Project (2015) [FLAC|tracks|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500633.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500589.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500581.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Witches of Jazz (2015) [MP3|320 кб/с]<Jazz, Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500549.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Art Pepper & The Hollywood All-Stars - Art Standards (1979 - 1982) 2002, Galaxy 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500497.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Jazz Ladies & Stan Kenton (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500436.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Hot Chocolate - Box Selection: Their 8 RAK Albums 1974-1983 (2011, Remastered) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500101.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499750.jpg" />
 </div>
 
 

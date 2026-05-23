@@ -6,7 +6,7 @@ Process Lasso Pro 9.6.0.68 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976671.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YTD Video Downloader PRO 5.9.15.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976670.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics Disk Defrag Pro 9.3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976667.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FolderSizes 8.0.102 Enterprise Edition [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976602.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ O&O DiskImage Professional 15.2 Build 168 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976568.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Driver Booster Pro 7.2.0.601 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976565.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Win7codecs 4.0.0 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976532.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Driver Booster Pro 7.2.0.601 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976482.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Hard Disk Sentinel PRO 5.50.10482 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976466.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Acronis True Image 19.0.6027 / Universal Restore 11.5.40010 / Disk Director 12.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976434.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Norton Internet Security 22.20.1.69 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976303.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BELOFF [dp] 2020 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976289.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Avira Phantom VPN Pro 2.31.3.21251 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976246.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ RusLive v.2020.01.30 by Nikzzzz [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976241.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Revo Uninstaller PRO 3.0.1 Portable by Touchstone [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976189.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ SketchUp Pro 2020 20.0.363 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976187.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976173.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 8 Codecs 1.4.3 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976142.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ AVS Document Converter 2.2.5.218 Portable by SoftLab [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976139.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SystemTools Hyena 9.2e [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976137.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Daum PotPlayer 1.5.35491 Stable [Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976133.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ cFosSpeed 5.01 Build 1604 (x86/x64) + Trial Reset [Multilingual включая �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976038.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ AVG Internet Security 9.0.730 Build 1834 ML / Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975983.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Daum PotPlayer 1.5.35491 Stable Full & Lite by 7sh3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975924.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ WYSIWYG Web Builder 8.5.4 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975904.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Acronis True Image Home 2009 12.0.9809 Rus [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975862.jpg" />
 </div>
 
 

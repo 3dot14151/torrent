@@ -6,7 +6,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [16.09.2022]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361055.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Allavsoft Video Downloader Converter 3.17.9.7210 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361039.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Devious Machines - Duck 1.0.13 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361038.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Vivaldi 2.8.1664.40 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361034.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Zoner Photo Studio X 19.1809.2.83 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361022.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Devious Machines - Pitch Monster 1.0.18 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361018.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ GridinSoft Anti-Malware 4.0.14.234 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361004.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Icecream PDF Converter PRO 1.69 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360960.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Soft Organizer 5.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360941.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Athentech Perfectly Clear WorkBench 3.8.0.1676 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360861.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Serif Affinity Publisher 1.7.3.481 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360858.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Windows 10 Manager 3.1.5.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360852.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Windows 10 Manager 3.1.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360845.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Microsoft Desktop Optimization Pack for Software Assurance 2012 [Английс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360810.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Chromium 64.0.3249.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360768.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Anvir Task Manager 9.1.0 Final RePack (& Portable) by KpoJIuK  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360752.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Paint.NET 4.0.19 Final Portable by flaner [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360739.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Restore Point Creator 3.3 Build 8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360728.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Efficcess Pro 5.10 Build 511 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360704.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ SketchUp Pro 2017 17.0.18899 (x64) Portable by Baltagy [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360700.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Daum PotPlayer 1.6.56815 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360696.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Adobe After Effects CC 2017.0 14.0.0.207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360690.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MAGIX Sound Forge Pro 11.0 Build 345 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360684.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ SketchUp Pro 2017 17.0.18899 (x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360683.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Adobe Illustrator CC 2017 21.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360679.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Serif Affinity Photo 1.7.3.481 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360667.jpg" />
 </div>
 
 

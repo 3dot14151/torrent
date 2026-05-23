@@ -6,7 +6,7 @@ Nik Software Complete Collection 2012 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605220.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Multi Flash Kit v.2.7.23 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605219.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Daum PotPlayer 1.6.54871 Stable Portable by qazwsxe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605209.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PrivaZer 3.0.48 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605166.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics File Recovery 8.0.12.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605160.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Auslogics Registry Cleaner 7.0.12.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605156.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ COMODO Cleaning Essentials 2.5.242177.201 [Rus/Eng] / Рortable by Xroot
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_605147.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Fraps 3.5.5 Build 15172 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_605138.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605118.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Movavi PDF Editor 1.5.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605084.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ YTD Video Downloader PRO 5.9.8.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605079.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605042.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Antiviruses Live CD / USB by q1q1 (Kaspersky, Dr.Web, AVG, F-Secure, Vba32 Rescu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605034.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Native Instruments - Kontakt v.5.0.3 [STANDALONE/VSTi/RTAS][английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605029.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Daum PotPlayer 1.6.54871 Stable + Portable (x86/x64) by SamLab [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605024.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ FabFilter - Total Bundle 2018.02.22 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604954.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ AusLogics BoostSpeed 10.0.12.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604945.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ MaxLim Alarm Clock 2.4.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604941.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Daum PotPlayer 1.6.54871 Stable RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604931.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BitComet 1.39 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604928.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Wise Registry Cleaner 9.23.596 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604914.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Windows 10 HomeSL/Pro 1803 x86/x64 by kuloymin v13.4 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604904.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Soft Organizer 4.11 Final RePacK by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604875.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Amazing Audio Player 3.2 Enterprise [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604871.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ MyLanViewer 4.19.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604870.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Adobe Prelude CC 2015 4.0.0 (138) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604858.jpg" />
 </div>
 
 

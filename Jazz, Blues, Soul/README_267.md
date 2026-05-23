@@ -6,7 +6,7 @@ Dmitry Baevsky - The Day After (2017) Jazz Family [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525878.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Orchestral Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525859.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Willem Breuker Kollektief - Celebrating 25 Years On The Road (2002) 2CD, BV Haas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525540.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eugene Serebrennikov (Евгений Серебренников) - Revelation (�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525538.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bob James - The Genie (1983) 2006, Koch Jazz [FLAC|Lossless|tracks + .cue] <Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525537.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Miguel "Anga" Diaz - Echu Mingua (2005) World Circuit [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525233.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Monti Amundson - Somebody's Happened to Our Love (2006) [MP3|320 Kbps] <Modern E
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525224.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Sean Webster Band - If Only (2005) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525223.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Albert King - The Tomato Years (1994) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525221.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Paul Bley - Early Trios (1953, 1954) 2005, Fresh Sound [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524780.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bert Joris Quartet - Magone (2007) Dreyfus [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524778.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ronnie Magri And His New Orleans Jazz Band - Shim Sham Revue (2001) Jubilee Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524773.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Heather Newman - Rise From The Flames (2019) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524512.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524473.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literatur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524417.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Oberg - Blues As Blues Can Get (2009) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524371.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Neal Black & Larry Garner - Guilty Saints (2016) [FLAC|Lossless|image + .cue] <M
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524353.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rocky Athas - Let My Guitar Do The Talking... With My Friends (2014) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524266.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Leaders - Mudfoot (1986) /Bellaphon/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524130.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ George Wein And The Storyville Sextet - Metronome Presents Jazz At The Modern (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524129.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gene Ammons - Brasswind (1974) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Soul Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524128.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chet Baker - Chet In Paris: The Complete Barclay Recordings Of Chet Baker (1955-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524119.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Wayne Shorter - Super Nova (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524110.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dave Stryker - Eight Track III (2019) Strikezone Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523759.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Matthieu Bore - Fats Domino's True Spirit (2001) [FLAC|Lossless|image + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523755.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Illinois Jacquet - The Illinois Jacquet Story: Groovin' (1944 - 1951) 2002, Prop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523705.jpg" />
 </div>
 
 

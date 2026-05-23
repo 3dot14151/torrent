@@ -1,29 +1,3 @@
-###  Публикация: 1192985   (262368) от 19.12.2017
-
-IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Британию (2017) [Ru/Multi] (4.50.0) License CODEX [Blitz Edition]
-
->>Win Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-1C Game Studios вместе с Team Fusion Simulations с гордостью объявляет о выпуске улучшенной и обновлённой BLITZ версии Ил-2 Штурмовик: Битва за Британию! Присоединитесь к одной из величайших воздушных битв XX века - Битве за Британию. Пронеситесь над скалами Дувра в истребителе "Спитфайр" или "Харрикейн" Королевских ВВС или же сядьте за штурвал (   Читать дальше...   )Тип издания: LicenseРазработчик: Team Fusion Simulations, 1C: Maddox GamesЖанр: Simulator (Flight Combat), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD9BEDF92963419A1AE81CFBA41009230F7B3C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170613   (262365) от 19.12.2017
 
 Vaporum (2017) [Ru/Multi] (Build 236) Repack Other s
@@ -32,7 +6,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262365.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dark Tales 12: Edgar Allan Poe's Morella / Темные истории 12: Эд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262207.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mind: Path to Thalamus (2015) [Ru/Multi] (1.1) License PLAZA [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262198.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.3.0.0/dlc) License RELOADED [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262173.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262154.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Friday the 13th: The Game (2017) [Ru/Multi] (B9162/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262024.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262010.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261896.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.04) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261712.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261709.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Hades (2020) [Ru/Multi] (1.38290) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261704.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Granny Remake (2023) [Ru/Multi] (3.6.3) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261694.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ A.I.L.A (2025) [Ru/Multi] (1.0.0.6001) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261693.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261692.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.0.2_457676/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261675.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ DAVE THE DIVER (2023) [Ru/Multi] (1.0.5.1749/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261669.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261654.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Winter Survival (2024) [Ru/Multi] (49966) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261633.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.0.3) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261632.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.5) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261631.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Mystery Case Files 28: House That Love Built (2025) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261630.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Total Chaos (2025) [En] (1.035) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261577.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ DGT Chess Trainer (2013) [Ru/Multi] (1.1.1.7/dlc) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261576.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Speed Demons 2 (2025) [Ru/Multi] (1.0.0.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261554.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261553.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2957649378A6A56E2DD10C3925642C576ED01D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838796   (261549) от 24.11.2025
+
+NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.2.0.0/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичная аркада NBA вернулась, став ещё лучше в NBA 2K Playgrounds 2! Продолжение оригинального хита выводит уличный баскетбол на новый уровень благодаря большому составу действующих и бывших игроков NBA, улучшенному механизму подбора соперников на выделенных серверах, состязаниям по трёхочковым броскам, новым площадкам, пользовательским матчам и многому другому! (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: СпортЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56691AC91F81596286C48D1ECC6A7E14D69ABE09
 ```
 
 https://mybot314.ru/tekegram_catalog/

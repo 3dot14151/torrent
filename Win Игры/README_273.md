@@ -1,32 +1,3 @@
-###  Публикация: 724480   (350110) от 20.11.2013
-
-Party of Sin (2012) [Ru/Multi] (1.0.0.5766) License [indiegamestand]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда-нибудь испытывали жгучее желание покинуть узы Ада и добраться к самой вершине небес - Раю?
-
-В игре Party of Syn вам будут подконтрольны Семь Смертных Грехов, с помощью которых вам предстоит одолеть сложнейшие головоломки, полчища нечисти и злющих боссов. Каждый из грехов наделен своей супер-возможностью, которая поможет вам выбраться из царства мертвых и пробить себе путь на небеса. А кооператив, поддерживающий до четырех игроков, несомненно даст преимущество в решении очередной загадки.
-(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Crankshaft GamesЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, и другиеЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC102E2FFDDB5500A1DE33FC31E347F9DDE0E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329702   (350007) от 06.10.2019
 
 Enchanted Kingdom 6: Arcadian Backwoods (2019) [En] (1.0) Unofficial [Collector's Edition]
@@ -35,7 +6,7 @@ Enchanted Kingdom 6: Arcadian Backwoods (2019) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350007.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ Family Guy: Back to the Multiverse [En/Multi4] (Repack/1.0) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349799.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ Secret City 3: The Human Threat / Тайный город 3: Угроза чел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349714.jpg" />
 </div>
 
 
@@ -113,7 +84,7 @@ Assassins Creed 3 (NoDVD/1.01) 2012 | RELOADED
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349675.jpg" />
 </div>
 
 
@@ -140,7 +111,7 @@ Beyond 3: The Fading Signal / Извне 3: Исчезнувший сигнал 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349641.jpg" />
 </div>
 
 
@@ -166,7 +137,7 @@ Gauntlet (2014) [Ru/En] (2.2/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349519.jpg" />
 </div>
 
 
@@ -192,7 +163,7 @@ Veil of Crows (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349394.jpg" />
 </div>
 
 
@@ -218,7 +189,7 @@ Rayon Riddles  Rise of the Goblin King (2016) [En/Ge] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349370.jpg" />
 </div>
 
 
@@ -244,7 +215,7 @@ Chimeras 2: The Signs of Prophecy (2015) [En] Unofficial [Collector's Edition / 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349304.jpg" />
 </div>
 
 
@@ -270,7 +241,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349240.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Whispered Secrets 3: Into the Wind / Нашептанные Секреты 3: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348690.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ Legendary Tales: Stolen Life / Легендарные предания: Укра
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348655.jpg" />
 </div>
 
 
@@ -348,7 +319,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.10/dlc) License Man Hunter
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348549.jpg" />
 </div>
 
 
@@ -374,7 +345,7 @@ Remothered: Broken Porcelain (2020) [Multi] (0.14.43) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348543.jpg" />
 </div>
 
 
@@ -400,7 +371,7 @@ Production Line (2017) [En] (1.36) Repack KillaMD
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348488.jpg" />
 </div>
 
 
@@ -426,7 +397,7 @@ Vagante (2014) [En] (Alpha 28b) Unofficial CheatBraker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348426.jpg" />
 </div>
 
 
@@ -452,7 +423,7 @@ Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348359.jpg" />
 </div>
 
 
@@ -478,7 +449,7 @@ Dragon Fin Soup (2015) [En/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348281.jpg" />
 </div>
 
 
@@ -504,7 +475,7 @@ Dark Parables 16: Portrait of the Stained Princess / Темные притчи 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347698.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/En] (1.0) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347298.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Transistor (2014) [Ru/Multi] (1.50473.2019-06-10-120213) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347291.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347290.jpg" />
 </div>
 
 
@@ -608,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347248.jpg" />
 </div>
 
 
@@ -639,7 +610,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347205.jpg" />
 </div>
 
 
@@ -665,7 +636,7 @@ Emergency 2013 [En/Ru] (RePack/2.0f) 2012 l R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347089.jpg" />
 </div>
 
 
@@ -677,6 +648,32 @@ Emergency 2013 – дополнение для игры Emergency 2012: The Ques
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C138174F64F31D898B7D9CD9B1B9B9CD6787F0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241659   (347033) от 25.10.2018
+
+ShadowSide (2018) [Ru/En] (1.1/dlc) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347033.jpg" />
+</div>
+
+
+###  Подробнее
+
+ShadowSide - это приключенческая игра от первого лица. Игра о приключениях полицейского Алекса, в атмосферных и одновременно жутких локациях. Казалось бы, полицейские будни главного героя Алекса не отличались ничем особенным друг от друга. Но в один из таких дней, с главным героем происходит событие, которое не снилось даже в самом страшном сне опытным служителям (   Читать дальше...   )Тип издания: LicenseРазработчик: AdroVGamesЖанр: Adventure, Action (Detective), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE89E85168F17F5F5BD4BB83C2E4CDFC6F4FCED
 ```
 
 https://mybot314.ru/tekegram_catalog/

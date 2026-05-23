@@ -1,56 +1,3 @@
-###  Публикация: 1839161   (676074) от 27.11.2025
-
-На высоте страха / The Occupant (2025) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Чтобы оплатить лечение умирающей сестры, инженер-геолог Эбби Бреннан соглашается на работу в отдалённой урановой шахте. Когда она находит странный метеорит, экспедиция прерывается — вертолёт терпит крушение. Эбби остаётся одна среди лесов, скал и снегов. Её единственная связь с внешним миром — голос мужчины по рации, который представляется Джоном. Он утверждает, (   Читать дальше...   )Производство: Нидерланды / Studio Artizm, Revolver Films, 20 Steps ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Хьюго КейзерАктеры: Роб Делани, Элла Балинска, Стюарт Грэм, Шина Келли, Ванесса Ифедиора, Джордж Лаша, Армин Карима, Константин РоинишвилиПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFC14805CB2563333C3152CC541EEF4FEB69D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508819   (676058) от 11.06.2012
-
-Соседка [Расширенная версия] / The Girl Next Door [Unrated version] (2004) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Меттью, мечтая о карьере политика, между тем обнаруживает, что у него появилась новая соседка, неотразимая 19-летняя блондинка Дениэль. Цветочно-конфетная стадия пролетает мимолетно, и вот уже ослепленной любовью Меттью уверен, что он нашел женщину всей своей жизни.
-Каково же было его изумление, когда он вместе со всем городом узнаёт, что она — бывшая (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Люк ГринфилдАктеры: Элиша Катберт, Эмиль Хирш, Тимоти Олифант, Джеймс Римар, Крис Маркетт, Пол Дано, Тимоти Боттомс, Донна Баллок, Джейкоб Янг, Брайан КолодзейПеревод: Дублированный (2 вида)Язык субтитров: Русские (Forced, Full - 2 вида), Английские (Forced)Продолжительность: 01:49:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290667   (676043) от 21.03.2019
 
 Вход и выход / In & Out (1997) WEB-DLRip [H.264/720p] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676043.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_675996.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675796.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675787.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675756.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675704.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675571.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675196.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675135.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675053.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674979.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674921.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674913.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674802.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674640.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674631.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674611.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674607.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674551.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674491.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674490.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674484.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674465.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674362.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A48F23F99B0FFDA72F1DA95934143C0F0B28DAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136155   (674360) от 22.05.2017
+
+Призрак и Тьма / The Ghost and the Darkness (1996) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальной истории. Лондон, 1898 год. Молодой, но уже зарекомендовавший себя инженер получает задание в кратчайшие сроки построить мост через реку в Африке. Всю жизнь мечтавший побывать на этом сказочном континенте, он оставляет беременную жену и принимается за работу. Однако через какое-то время на рабочих начинают нападать два льва-людоеда, которых (   Читать дальше...   )Производство: Германия, СШАЖанр: Ужасы, Триллер, Драма, ПриключенияРежиссер: Стивен ХопкинсАктеры: Майкл Дуглас, Вэл Килмер, Том Уилкинсон, Джон Кахи, Бернард Хилл, Брайан МакКарди, Эмили Мортимер, Ом Пури, Генри Селе, Курт ЭгельхофПеревод: Профессиональный (многоголосый, закадровый), АвторскийСубтитры: Русские, АнглийскиеПродолжительность: 01:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9213FCB089FF299871A5D1AE7C548D5EFAAEFE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136276   (674357) от 22.05.2017
+
+Легионер / Legionario (2016) BDRip [H.264/1080p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легионер Сантос возвращается со службы в Афганистане. Сослуживцы приглашают его отметить возвращение и закатывают вечеринку. Друг Сантоса дает ему ключи от квартиры и предлагает провести незабываемую ночь с красивой девушкой. С утра Сантос просыпается от странного звонка и обнаруживает в постели труп той самой девушки. Спустя некоторое время, труп таинственно исчезает.Производство: Испания, Pier 922 Studios, Pony FilmsЖанр: Триллер, Драма, ВоенныйРежиссер: Эдуардо Эрнандес-ГарзаАктеры: Рауль Техон, Диана Паласон, Луис Моттола, Марта Канальда, Марианна Ачим, Омар Асми, Артуро Де Ла Торре, Элио Годино, Дэвид КронертПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: ОтсутствуютПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF6FD7C05566E6BF38F49231DC255DF2E37E631
 ```
 
 https://mybot314.ru/tekegram_catalog/

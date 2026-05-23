@@ -1,57 +1,3 @@
-###  Публикация: 908923   (629320) от 16.06.2015
-
-Континуум / Project Almanac (2014) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Однажды после просмотра старой пленки со дня рождения уже взрослый именинник заметил себя «настоящего» в отражении на видео. Съедаемые любопытством, друзья нашли чертежи таинственного устройства, похожего на машину времени. Они решили доделать ее и испробовать, чтобы вернуться в прошлое и исправить некоторые ошибки.
-
-Но что будет, если группа отвязных тинейджеров (   Читать дальше...   )Производство: США / Insurge Pictures, MTV FilmsЖанр: фантастика, триллерРежиссер: Дин ИзраэлайтАктеры: Джонни Уэстон, София Блэк-Д’Элиа, Сэм Лернер, Аллен Евангелиста, Вирджиния Гарднер, Эми Ландекер, Гари Викс, Максен Линтц, Гэри Граббс, Мишель ДеФрайтсПеревод: Дублированный (iTunes Russia)Субтитры: ОтсутствуютПродолжительность: 01:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90111EE7FAC226B1B95CA7AAD82F5DA78EEA187E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908774   (629313) от 16.06.2015
-
-Весна / Spring (2014) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм о молодом парне, который покидает Южную Калифорнию и отправляется в Италию, где закручивает бурный роман с женщиной, у которой есть темные тайны...Производство: США / XYZ FilmsЖанр: ужасы, фантастика, мелодрамаРежиссер: Джастин Бенсон, Аарон МурхедАктеры: Лу Тейлор Пуччи, Надиа Хилкер, Ванесса Беднар, Шэйн Брэйди, Франческо Карнелутти, Винни Каррен, Оджи Дьюк, Джереми Гарднер, Холли ХоукинсПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: (den904 & DeadSno) / (Antonio)Язык субтитров: АнглийскийПродолжительность: 01:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA33DC601CE9B5FD6D18E4A250C3EAD769B113B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908815   (629301) от 16.06.2015
 
 Тренер / McFarland, USA (2015) BDRip [H.264/720p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629301.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629292.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629288.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629286.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629268.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629253.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629240.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629216.jpg" />
 </div>
 
 
@@ -270,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629214.jpg" />
 </div>
 
 
@@ -296,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629213.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629210.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629206.jpg" />
 </div>
 
 
@@ -378,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629201.jpg" />
 </div>
 
 
@@ -404,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629145.jpg" />
 </div>
 
 
@@ -430,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629138.jpg" />
 </div>
 
 
@@ -456,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629133.jpg" />
 </div>
 
 
@@ -482,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629042.jpg" />
 </div>
 
 
@@ -508,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629023.jpg" />
 </div>
 
 
@@ -534,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629021.jpg" />
 </div>
 
 
@@ -560,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629020.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629009.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629008.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628909.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628908.jpg" />
 </div>
 
 
@@ -675,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:073135172A6ABA9541C9AD04B6425F0044038B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144180   (628903) от 21.06.2017
+
+Планетариум / Planetarium (2016) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628903.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 1930-х годов две сестры с паранормальными способностями, Кейт и Лора, приезжают из Америки в Париж. Во время своих выступлений перед публикой они вводят зрителей в транс и устанавливают контакт с потусторонним миром. На один такой сеанс приходит Андрэ, хозяин большой парижской киностудии, который настолько впечатляется выступлением сестер, что предлагает (   Читать дальше...   )Производство: Франция, БельгияЖанр: Фэнтези, триллер, драма, мелодрама, детективРежиссер: Ребекка ЗлотовскиАктеры: Натали Портман, Лили-Роуз Мелоди Депп, Эммануэль Салинжер, Амира Казар, Пьер Сальвадори, Луи Гаррель, Давид Беннент, Дэмиен Шапель, Ежи Рогульский, Камилль ЛелушПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AC5C7F081133C24A31B346BCDFB0B369DCD13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521240   (628801) от 10.07.2012
+
+Противоположность любви / Lo contrario al amor (2011) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628801.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нескольких неудач Мерке и Рауль влюбляются друг в друга. Они неизбежно обречены повторить столь часто случающуюся историю того как первая романтическая фаза быстро сменяется отношениями, желаниями и чувствами, не имеющими ничего общего с любовью и полностью противоположными ей.Жанр: КомедияРежиссер: Винсент ВильянуэваПродюсер: Мерседес Гамеро, Франциско Рамос, Pepe TorrescusaАктеры: Уго Силва, Адриана Угарте, Алекс Бараона, Гуадалупе Ланчo, Луис Каллехо, Кити Манвер, Алехандро Касасека, Пако Луке, Хосе Прието, Марта Асас, Лорето Фахардо, Чус Де Кастро ...Перевод: Одноголосый закадровыйПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C6A117772F6A6F9166E7F6A38901487DD71A23
 ```
 
 https://mybot314.ru/tekegram_catalog/

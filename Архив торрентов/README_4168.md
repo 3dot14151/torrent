@@ -6,7 +6,7 @@ System Dashboard Pro 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164531.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Disk Xray 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164529.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ CorelDRAW Technical Suite 2022 24.2.1.446 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164528.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wattagio 1.12.11 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164525.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ AudioSwitcher 3.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164524.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ High-Logic FontCreator Professional 15.0.0.2948 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164523.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PhotoDirector - Редактор фото 18.7.0 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164519.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Hype 4 Pro v4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164517.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Super PhotoCut Pro 2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164515.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ImageRanger Pro Edition 1.7.8.1685 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164512.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Any RecScreen 2.0.55 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164508.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Valentina Studio Pro 11.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164505.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Disk Analyzer Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164495.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ NoteBurner Spotify Music Converter 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164492.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ CorelDRAW Graphics Suite 2022 24.2.1.446 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164489.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ OmniOutliner Pro 5 v5.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164488.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Node Video - Pro Video Editor 6.8.4 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164480.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164478.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Wondershare DVD Creator 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164477.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Blocs 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164475.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Resume Templates - Design 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164473.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Duplicate Photos Fixer Pro 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164467.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wondershare PDFelement Pro OCR 10.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164464.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ NCH DreamPlan Plus 5.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164463.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Skype 8.107.0.215 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164453.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Seal 1.11.0-rc.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164452.jpg" />
 </div>
 
 

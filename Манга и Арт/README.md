@@ -7,7 +7,7 @@ Serial Experiments Lain Artworks [Арт] [PNG, JPG]
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058309.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Saishuu Densha | The Last Train | Последний поезд (2015-2017) [4 �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056819.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Given | Дарованный (2013-2023) [10 томов (57 глав + 15 EXTRA)
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056374.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Umibe no Etranger | The Stranger by the Shore | Незнакомец на бер
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055503.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Killer Pedro | Killer Peter | Киллер Педро | Киллер Питер 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046694.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Usemono Yado | Inn of the Lost Things | Дом утрат (2014) [3 тома] [�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026922.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Yunagi no Machi Sakura no Kuni | The Town of Evening Calm, The Country of Cherry
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026879.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Devil Housekeeper | Magic Emperor | Как демон-император ста�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020586.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Doki Doki Literature Club Plus! (2021) [Ru/Multi] (1.0) License DOGE
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008204.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003388.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sunrider Academy / Академия Санрайдер (2015) [Ru] (1.02) Licens
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003116.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wallpapers - anime etc wallpapers 1920x1080 [JPEG]
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980877.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ KuroGane / Курогане (2011) [4 томов| 1-31] [Манга] [Русск
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974868.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Yuuhi Romance / Роман Юуи (2007) [1-11 гл.] [Манга] [Русски
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971305.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Air / Высь (2000) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958306.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Shuffle! / Шафл! (2004) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957225.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kana ~Imouto~ / Kana: Little Sister (1999) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957153.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Little Busters! / Маленькие проказники! (2007) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957096.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Fate/Stay Night | Судьба: Ночь Схватки (2003) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956930.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Toukyou Arisu / Tokyo Alice / Токийская Алиса (2008) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955971.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Memo / Вспомни (2010) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955951.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Kansen Rettou | Pandemic | Пандемия (2008) [1-7 гл.] [Русский] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950215.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Full Metal Panic! Sigma / Стальная тревога! Сигма  [2005] [�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939315.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sakura Swim Club (2015) [En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938103.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Sakura Angels - Voiced Edition (2015) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936452.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Sakura Fantasy - Chapter 1 (2015) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936442.jpg" />
 </div>
 
 

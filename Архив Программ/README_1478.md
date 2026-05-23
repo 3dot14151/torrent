@@ -6,7 +6,7 @@ Form Pilot Office 2.49 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284134.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ICE Book Reader Professional 9.5.4 + Lang Pack + Skin Pack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284132.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Screen Gif 2017.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284090.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Audio Damage - AD036 Dubstation 2 2.1.0 VST, VST3, AAX (x86/x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284066.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PassMark PerformanceTest 9.0 Build 1029 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284022.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.99.4900 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284017.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IObit Smart Defrag Pro 6.1.5.120 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284011.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Internet Download Manager 6.25 Build 6 Final RePack (& Portable) by D!akov [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283953.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Acronis True Image 2019 Build 14610 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283854.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ReFX Nexus 2.2.0 VSTi, RTAS + Nexus Content (x86) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283847.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Foundry NUKE STUDIO 10.5v1 + HIERO [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283777.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Dreamweaver CC 2017 17.0.0.9314 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283775.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Adobe After Effects CC 2017.0 14.0.1.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283774.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Exponential Audio - PhoenixVerb 2.1.3 VST, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283733.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Reg Organizer 8.04 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283722.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Internet Download Manager 6.25 Build 7 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283644.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Luxion Keyshot Pro 6.3.16 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283634.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ SolidRocks 2.0.5 for 3ds Max [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283624.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Adobe Media Encoder CC 2017.0 11.0.0.131 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283622.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Valhalla DSP - Valhalla VintageVerb 2.0.2 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283613.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Avira Antivirus Free 2015 15.0.15.129 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283504.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Google Chrome 47.0.2526.80  Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283500.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Ashampoo Photo Optimizer 6.0.16.124 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283495.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Otter Browser 0.9.08 beta 8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283490.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Skype 7.16.32.102 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283487.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ BELOFF 2019.11 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283477.jpg" />
 </div>
 
 

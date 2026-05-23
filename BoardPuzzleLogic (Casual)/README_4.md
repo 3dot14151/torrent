@@ -6,7 +6,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.10/dlc) License Man Hunter
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348549.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ World of Goo [Ru/En] (RePack/1.30) 2009 | R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341903.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_333285.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Armello: The Usurpers (2015) [Ru/Multi] (1.00) License TiNYiSO
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322603.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MouseCraft (2014) [Ru/Multi] (1.20) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320251.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Carto (2020) [Ru/Multi] (1.0.4) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317021.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Link me / Собери меня (2015) [Ru] Repack Armeniac
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316622.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mushroom 11 (2015) [En] (1.03) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314061.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Crazy Machines 3 (2016) [Ru/Multi] (1.1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303806.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SHENZHEN I/O (2016) [En] (1.3) Repack Siberia
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297262.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Little Inferno (2012) [Ru/Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289643.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Lucas Chess / Шахматный Тренажёр (2015) [Ru/Multi] (9.07d) Lice
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286766.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ DGT Chess Trainer (2013) [Ru/Multi] (1.1.1.7/dlc) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261576.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Chess Tutor (2014) [En] (1.1.1.9) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261528.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Disharmony Blocks (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261333.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Once Twice Thrice (2002) [En] (1.0) Scene Delight
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252452.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251033.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Citadel Arcanes (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250865.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Bubblenauts: The Hunt for Jolly Rogers Treasure (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249269.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Rebuild the History (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249203.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Incredible Machine Mega Pack (1993-2001) [En] (2.1.0.24/2.1.0.22/2.1.0.21/2.
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230339.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Talisman (2014) [Multi] (1.0.0.1/dlc) License PROPHET [Digital Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215694.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Fantasy Mosaics 53: Mysterious Cosmos (2022) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213277.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ SolSuite Solitaire 2022 (2022) [Ru/En] (22.06) Repack/Portable TryRooM
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210054.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Save Room - Organization Puzzle (2022) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209968.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Zachtronics Solitaire Collection (2022) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208405.jpg" />
 </div>
 
 

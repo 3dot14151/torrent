@@ -1,29 +1,3 @@
-###  Публикация: 1039895   (594201) от 02.08.2016
-
-Rising Islands (2016) [Ru/Multi] (1.010) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в этом мире царили хаос и раздор. Лишь создав реликвии, Древние сумели восстановить мир и гармонию. Постепенно мир восстановился после эпохи междоусобиц. Но зло не побеждено, и скоро хаос вернется, чтобы нарушить природное равновесие. Только вы, молодая женщина по имени Хайро, можете спасти мир. Используя уникальную способность, позволяющую перемещаться (   Читать дальше...   )Тип издания: LicenseРазработчик: Lone Hero StudiosЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06766CB19EEC3296F5BCE891C749EF4426936DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039659   (594155) от 02.08.2016
 
 Slap Village (2016) [En/Multi] (1.0) License POSTMORTEM [Episode 1]
@@ -32,7 +6,7 @@ Slap Village (2016) [En/Multi] (1.0) License POSTMORTEM [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594155.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Cast of the Seven Godsends - Redux (2016) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594143.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Slap Village (2016) [En/Multi] (1.0) Repack Other s [Chapter 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594115.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mystery Tales 7: The House of Others / Загадочные истории 7: О
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594025.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sublevel Zero Redux (2015) [Ru/Multi] (1.2.9875/13429) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593723.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ultimate General: Civil War (2017) [Ru/Multi] (1.0.20111) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593722.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sniper Elite Anthology / Sniper Elite Антология  (2005-2017) [Ru/En] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593719.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Close to the Sun (2019) [Ru/Multi] (108) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593442.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Omensight (2018) [Ru/Multi] (1.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593193.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Armello (2015) [Ru/Multi] (1.6) License GOG [DRM Free Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593060.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Mystery Trackers 14: Mist Over Blackhill / Охотники за тайнами 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592912.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.4.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592830.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592402.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Tibetan Quest: Beyond The World's End (2015) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592305.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Grim Tales 4: The Stone Queen / Страшные сказки. Каменная 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592241.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Grim Tales: The Bride / Мрачные истории. Невеста (2011) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592237.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Grim Tales 2: The Legacy / Мрачные истории. Наследие (2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592236.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Danse Macabre 4: Thin Ice / Танец смерти 4: Тонкий лед (2015
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592232.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Grim Tales 7: Color of Fright / Мрачные истории. Цвет стра
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592229.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Grim Tales 6: The Vengeance / Мрачные истории. Возмездие 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592224.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Grim Tales 3: The Wishes / Мрачные истории. Желания (2012) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592220.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Delicious 11. Emily's Home Sweet Home (2015) [En] Unofficial [Collector's Editio
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592192.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Grim Tales 5: Bloody Mary / Страшные сказки. Кровавая Мэ
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592188.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) License GOG [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591950.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ VELONE (2022) [Ru/Multi] (1.0.1/dlc) License GOG [Supporter Bundle]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591947.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ VELONE - увлекательная головоломка, вдохновлен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8857197D8CE1854B9C74E118810BE537E5E3BF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915023   (591730) от 06.07.2015
+
+Boid (2015) [En] (0.6.223) Repack Hazestalker [Early Acsess]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boid - классово-ориентированная стратегия в реальном времени, про биоорганические инвазионные дроны. В игре примитивные формы жизни должны мутировать и развивать специальные способности. Эти формы жизни должны бороться за выживание и господство. Станьте доминирующей особью, возьмите на себя управление юнитами и завоюйте все базы на карте.Тип издания: RepackРазработчик: MokusЖанр: Стратегия в реальном времениЯзык озвучки: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDBEF749056D6EE6994F54B9137090E5FFFC17F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Evadne - Dethroned of Light (2014) Single [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557085.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Intus Mortem - Exiled From Light (2022) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557072.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Evadne - The 13-th Condition (2007) [FLAC|Lossless|image + .cue] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557024.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Running Wild - Rapid Foray (2016) Limited Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556841.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ossian - Kuldetes (2008) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556619.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sons Of Node - Deadlock (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556506.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Level Above Human - Final Anthropic Principle (EP) (2009) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556107.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hyrgal - Fin De Règne (2020) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556104.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Saratan - Antireligion (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556102.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Korpelarorelsen - Är du av den rätta tron (2022) [FLAC|Lossless|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556100.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Venus 5 - Venus 5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Glam Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556095.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Wind Rose - Warfront (2022) [FLAC|Lossless|image + .cue] <Folk Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556071.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Opprobrium - The Fallen Entities (2019) [FLAC|Lossless|tracks + .cue] <Metal, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555690.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Elvenking - Two Tragedy Poets and a Caravan of Weird Figures (2008) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555582.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Departure Chandelier - Antichrist Rise To Power (2019) [FLAC|Lossless|tracks + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555580.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Texas Hippie Coalition - Dark Side Of Black (2016) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555490.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Texas Hippie Coalition - Peacemaker (2012) [FLAC|Lossless|tracks + .cue] <Southe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555485.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Rammstein - Rammstein (2019) [FLAC|Lossless|tracks + .cue] <Neue Deutsche Härte
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555391.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Witchfinder General - Buried Amongst The Ruins (2007) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555253.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Witchfinder General - Resurrected (2008) [FLAC|Lossless|image + .cue] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555252.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Dope - The Early Years - 1997/1998 (2017) Compilation, Remastered [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555082.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Darkthrone - Old Star (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555054.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Soulskinner - Crypts of Ancient Wisdom (2014) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554932.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Taste Of Blood - My Dragon (2007) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554929.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Hermetica - Hermetica & Interpretes (1991) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554928.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Dead to a Dying World - Elegy (2019) [FLAC|Lossless|tracks + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554921.jpg" />
 </div>
 
 

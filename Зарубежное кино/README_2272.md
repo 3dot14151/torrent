@@ -1,55 +1,3 @@
-###  Публикация: 1816464   (4351) от 05.09.2025
-
-Сверху вниз / Рай и ад / Highest 2 Lowest (2025) WEB-DL [H.264/1080p] [EN / RU, EN, UKR and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Известный музыкальный магнат Дэвид Кинг, прославившийся безупречным слухом, пытается сохранить контроль над звукозаписывающей компанией и вкладывает все средства в покупку контрольного пакета акций. Вскоре группа преступников похищает сына Дэвида и требует выкуп.Производство: США, Япония / 40 Acres & A Mule Filmworks, A/Vantage Pictures, A24Жанр: триллер, драма, криминал, детективРежиссер: Спайк ЛиАктеры: Дензел Вашингтон, Ильфенеш Хадера, Обри Джозеф, Джеффри Райт, Элайджа Райт, Рик Фокс, Rod Strickland, Нури Хаззард, Jensen McRae, Джейд КейнПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, английские, украинские и др. (см. MediaInfo)Продолжительность: 02:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B68269D61C8B51F4ABCD73960114D1B5C4C525C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678444   (4268) от 06.09.2025
-
-Магнолия / Magnolia (1999) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Эта история произошла в долине Сан-Фернандо в дождливый день, когда на небе не было ни облачка. Благодаря вмешательству высших сил, а также нагромождению совпадений, случайностей, действий разных людей, их жизни и судьбы переплетутся и проникнут друг в друга в течение одного дня, финал которого будет незабываемым.Производство: США / New Line CinemaЖанр: ДрамаРежиссер: Пол Томас АндерсонАктеры: Том Круз, Филип Бейкер Холл, Филип Сеймур Хоффман, Джулианна Мур, Уильям Х. Мэйси, Джон Си Райли, Джейсон Робардс, Альфред Молина, Мелора Уолтерс, Майкл БоуэнПеревод: Многоголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 03:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3715850ED48927B3EA5FEC407A60526603E3C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212418   (4262) от 06.09.2025
 
 Простая история / The Straight Story (1999) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4262.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4242.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4239.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4232.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4211.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4149.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4140.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4139.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4120.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4104.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4092.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3998.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3996.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3972.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3970.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3969.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3966.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3962.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3921.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3909.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3904.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3899.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3895.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3892.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:428AEE5AF67E71FFECCAEC5DEA90C7751EB79293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816917   (3891) от 07.09.2025
+
+Роман Израэл, Esq. / Roman J. Israel, Esq. (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3891.jpg" />
+</div>
+
+
+###  Подробнее
+
+История опытного адвоката с твёрдой хваткой, Романа Дж. Израэля, на которого свалилось управление крупной фирмой после того, как его босса настиг сердечный приступ. Оказавшись у власти, Израэль узнаёт о тайных делах своей компании, противоречащих его профессиональным и моральным принципам.Производство: Канада, ОАЭ, США / BRON Studios, Columbia Pictures, Cross Creek PicturesЖанр: триллер, драма, криминалРежиссер: Дэн ГилройАктеры: Дензел Вашингтон, Колин Фаррелл, Кармен Эджого, Линда Граватт, Аманда Уоррен, Хьюго Армстронг, Сэм Гилрой, Тони Плана, Дерон Хортон, Амари ЧитомПеревод: Многоголосый профессиональный (BD EUR, HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F31B3D5143632477CDE51560E31A4060D40F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714526   (3827) от 08.09.2025
+
+Правдивая ложь / True Lies (1994) BDRip [H.265/1080p] [10-bit] [Remastered, CAN Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для своей семьи Гарри Таскер - любящий муж и отец, человек скромный и рассеянный, обыкновенный продавец компьютеров, «не вылезающий» с работы ни днём, ни ночью. Но лишь немногие знают, что на самом деле Гарри - специальный агент тайной правительственной службы, специализирующийся на особо опасных заданиях, владеющий кучей языков, всеми видами оружия и всеми возможными (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Lightstorm EntertainmentЖанр: боевик, триллер, комедияРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Джейми Ли Кёртис, Том Арнольд, Арт Малик, Билл Пэкстон, Тиа Каррере, Элиза Душку, Грант Хеслов, Чарлтон Хестон, Маршалл МанешПеревод: дублированный официальный (Мосфильм-мастер), профессиональный многоголосый (TVShows, Jaskier, Карусель, FDV, Lizard Cinema Trade, Goodtime Media, ТК Россия, СТС, Канал "Україна", Новий канал), профессиональный двухголосый (НТВ+, Премьер Мультимедиа, 2+2), авторский (Диктор компании C.D.V., Андрей Гаврилов, Василий Горчаков, Юрий Живов, Юрий Сербин, Александр (   Читать дальше...   )Язык озвучки: русский, украинский, английскийСубтитры: русские (full, SDH), украинские, английские (forced, full, SDH)Продолжительность: 02:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78988E14DC77D5A34E8241FAC8788EE32E335B0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

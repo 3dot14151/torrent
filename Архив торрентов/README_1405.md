@@ -6,7 +6,7 @@ Grids for Instagram 7.0.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734962.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ableton Live Suite 11 v11.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734961.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Live Home 3D Pro Edition 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734959.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734948.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GoldWave 6.58 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734947.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ RAR Extractor  - unzi‪p‬ 8.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734944.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Movavi Video Converter 22 Premium 22.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734942.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ EZ CD Audio Converter 10.0.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734939.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe Substance 3D Designer 11.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734938.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Airwave - Remixed Volume One (2013) [FLAC|Lossless]<Electronic, Progressive Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_734936.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ App Cleaner & Uninstaller Pro 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734935.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.19 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734934.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ OCCT 10.0.8 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734930.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Telegram Desktop 3.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734928.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ R-Studio 9.0 Build 190275 Network RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734927.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Adobe Animate 2022 22.0.3.179 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734922.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ QuarkXPress 2022 18.0 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734920.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ ByClick Downloader Premium 2.3.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734918.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.19 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734913.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Movavi Video Converter 22.2.0 Premium RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734908.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ R-Studio Network 9.0 Build 190275 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734906.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Alfred 4 Powerpack 4.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734882.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Ableton - Live Suite 11.1.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734880.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Cookie 6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734869.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Keep It 1.8.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734867.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Brennan Heart - Live @ Virtual Playground, Electric Love Festival, Austria 2020-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734862.jpg" />
 </div>
 
 

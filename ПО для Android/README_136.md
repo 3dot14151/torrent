@@ -1,58 +1,3 @@
-###  Публикация: 1759721   (36817) от 19.11.2024
-
-Netmonitor: 5G, Cell & WiFi v1.25.15 Premium Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-С помощью нетмонитора вы можете получить представление об уровне сигнала сотовой связи и WiFi и выяснить, в каких уголках вашего офиса или дома прием сигнала лучше всего. Отрегулируйте направление антенны для лучшего приема сигнала и повышения скорости интернета. Нетмонитор отображает расширенную информацию о сотовых сетях 2G / 3G / 4G / 5G (NSA и SA) и помогает (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.11.2024Разработчик: parizeneПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1690544E21097F7CB5C7508F6A97E7A477C70D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761133   (36802) от 19.11.2024
-
-МТС Music v9.39.0 Mod by Alex.Strannik [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Альтернатива классической Яндекс Музыке с точно такой же базой музыки, но с немного другим интерфейсом и поддержкой устаревающих устройств. В наличии обширный каталог списков под ваше настроение и разнообразных хитпарадов. Работает хорошо. МТС Music — это 65 миллионов треков, подкасты и радио для абонентов любых операторов.
-
-МТС Music без подписки это:
-• радио и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 17.11.2024Разработчик: MTS PJSCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25B72B4A880958364E884C30D55BB926AB2C57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761281   (36772) от 19.11.2024
 
 INKredible PRO v3.0.6 Mod by Balatan [Ru/Multi]
@@ -61,7 +6,7 @@ INKredible PRO v3.0.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36772.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ Magnifying Glass / Увеличительное стекло v3.9.1 (от Pony M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36690.jpg" />
 </div>
 
 
@@ -116,7 +61,7 @@ Grab Photos From Videos / Фото из видео v11.3.2 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36671.jpg" />
 </div>
 
 
@@ -142,7 +87,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36583.jpg" />
 </div>
 
 
@@ -169,7 +114,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.142 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36530.jpg" />
 </div>
 
 
@@ -196,7 +141,7 @@ Vanced Tube v5.2.80.154 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36518.jpg" />
 </div>
 
 
@@ -222,7 +167,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36496.jpg" />
 </div>
 
 
@@ -249,7 +194,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.31.7 Gold
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36291.jpg" />
 </div>
 
 
@@ -275,7 +220,7 @@ Colorize Images v4.0.93 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36282.jpg" />
 </div>
 
 
@@ -301,7 +246,7 @@ AirBrush: ИИ Фоторедактор v7.4.600 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36274.jpg" />
 </div>
 
 
@@ -327,7 +272,7 @@ NewPipe v0.27.3 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36191.jpg" />
 </div>
 
 
@@ -353,7 +298,7 @@ Magic Eraser / Магический ластик v2.12.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36169.jpg" />
 </div>
 
 
@@ -379,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36157.jpg" />
 </div>
 
 
@@ -405,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36136.jpg" />
 </div>
 
 
@@ -431,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35850.jpg" />
 </div>
 
 
@@ -457,7 +402,7 @@ Photo Sherlock v1.123 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35849.jpg" />
 </div>
 
 
@@ -483,7 +428,7 @@ PowerDirector – Video Editor v14.6.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35832.jpg" />
 </div>
 
 
@@ -509,7 +454,7 @@ Torrent Pro - Torrent Download v8 (11.76.51) Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35782.jpg" />
 </div>
 
 
@@ -535,7 +480,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.156 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35660.jpg" />
 </div>
 
 
@@ -562,7 +507,7 @@ Sleep Cycle: Sleep Tracker v4.24.46 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35651.jpg" />
 </div>
 
 
@@ -589,7 +534,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.6 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35647.jpg" />
 </div>
 
 
@@ -615,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35561.jpg" />
 </div>
 
 
@@ -641,7 +586,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.8 Gold
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35559.jpg" />
 </div>
 
 
@@ -667,7 +612,7 @@ tinyCam Monitor PRO v17.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35551.jpg" />
 </div>
 
 
@@ -678,6 +623,59 @@ tinyCam Monitor PRO - удобное приложение для работы с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763521   (35539) от 01.12.2024
+
+OsmAnd+  Карты & GPS Офлайн v4.9.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35539.jpg" />
+</div>
+
+
+###  Подробнее
+
+OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету.
+OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: Live ModРелиз состоялся: 01.12.2024Разработчик: OsmAndПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCAB6DA0CA0DD05BCBAA3CED67A7E5BAE8E21CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763433   (35535) от 01.12.2024
+
+Word Learn Languages v5.9 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Words – это лучшее приложение для изучения слов иностранного языка. Более 2.000.000 пользователей. Хочешь быстро выучить иностранный язык? Приложение Words – это лучшее решение для изучения слов иностранного языка. Изучай английский 🇬🇧 🇺🇸 и немецкий 🇩🇪 вместе с нами! Приложение превосходно подойдет для людей с любым (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 30.11.2024Разработчик: UlilabПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C892D93DB0AE09F612041A84DB34B5D8484FAC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

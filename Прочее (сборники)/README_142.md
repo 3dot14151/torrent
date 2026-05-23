@@ -6,7 +6,7 @@ VA - Союз 61 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273431.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - My Favourite Hits of 1990 (24CD) от DON Music (2017) [MP3|320 Kbps] <Hard
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273146.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Новогодний Кавказ (2011) [MP3|128 kbps]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272992.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Дискотека 2017 Eurodance Club - Назад в 90-е (1990-2000) Re
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272935.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272485.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Best Dancing Hits of The 90’s years (2017) [MP3|320 Kbps] <Eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272080.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Осенняя свежая 30-тка Vol 5 (2019) [MP3|320 Kbps] <Pop, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271517.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Top 50 Brazil (2017) [MP3|~203-283 Kbps] <Latino>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271290.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Reggaeton: Latin Direct Radio Show (2017) [MP3|320 Kbps] <Latin, Reggaeton,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271288.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - По волне моей памяти 2: Том28 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271256.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - По волне моей памяти 2: Том29 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271220.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Hit Music от Мяу: Зима (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271208.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Взаимные Лайки: Русский Сборник Популярн
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271063.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - The Official UK Top 40 Singles Chart 30.11.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271034.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Dance Charts - Dance 50 (Dazu Tanzt Ganz Deutschland) (26.11.2017) [MP3|192
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270416.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Good Story Rock And Roll (2017) [MP3|256-320 Kbps] <Rock and Roll>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270358.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - По волне моей памяти 2: Том32 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270348.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - По волне моей памяти 2: Том30 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270347.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - По волне моей памяти 2: Том31 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270343.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Absolute 80s Unwind (3 CD) (2017) [MP3|320 Kbps] <New Wave, Blue-Eyed Soul,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270279.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - По волне моей памяти 2: Том33 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270278.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Radio DFM: Top 30 D-Chart 23.11 (2018) [MP3|320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269757.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - По волне моей памяти 2: Том34 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269490.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - По волне моей памяти 2: Том37 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269466.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - По волне моей памяти 2: Том36 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269437.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - По волне моей памяти 2: Том38 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268705.jpg" />
 </div>
 
 

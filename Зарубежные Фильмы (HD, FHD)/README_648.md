@@ -1,58 +1,3 @@
-###  Публикация: 573348   (380090) от 10.11.2012
-
-На грани / The Edge (1997) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер Чарльз Морс отправляется со своей молодой женой, супермоделью Микки, на Аляску для фотосъемок. Модный профессиональный фотограф Роберт Грин убедил их, что именно там есть место, которое идеально подходит для съемок. В поисках они улетают намного дальше, чем предполагали.
-Их маленький самолет терпит крушение при столкновении с птицами и падает в озеро. Пилот погиб, остальные спаслись… Но как выжить вдали от цивилизации? Чтобы спастись в лесу, полном диких животных, они должны полагаться только друг на друга. До спасения остается недолго… Но Чарльз начинает подозревать свою жену в связи с Робертом.Жанр: Триллер, Приключения, ДрамаРежиссер: Ли ТамахориАктеры: Энтони Хопкинс, Алек Болдуин, Эль Макферсон, Хэролд Перрино, медведь Барт, Л. К. Джонс, Кэтлин Уилхойт, David Lindstedt, Марк Кили, Эли ГабэйПеревод: 2х Профессиональный |многоголосый закадровый| Двадцатый Век Фокс СНГ, Позитив-Мультимедиа + 2x Одноголосый закадровый |А.Гаврилов, Ю.Живов|Продолжительность: 01:57:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251090   (379841) от 28.10.2010
-
-Эквилибриум / Equilibrium (2002) [1080p] Blu-Ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в будущем, когда люди лишены возможности выражать какие-то эмоции, потому, что они… запрещены. Это — та цена, которую человечество платит за устранение из своей жизни войны. Теперь книги, искусство и музыка находятся вне закона. А любое чувство — уже преступление, наказуемое смертью.
-
-Для проведения в жизнь существующего правила используется принудительное (   Читать дальше...   )Жанр: Фантастика, Боевик, ДрамаРежиссер: Курт УиммерАктеры: Доминик Пурселл, Кристиан Бэйл, Шон Бин, Кристиан Карманн, Джон Кеог, Шон Пертуи, Уильям Фихтнер, Энгус МакФадьен, Дэвид Барраш, Дирк МартенсПеревод: ДубляжСубтитры: русские, английские - вшитыеПродолжительность: 01:47:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067713   (379712) от 01.11.2016
 
 Тарзан. Легенда / The Legend of Tarzan (2016) BDRip [H.264/1080p-LQ]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379712.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379707.jpg" />
 </div>
 
 
@@ -114,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379566.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379450.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379433.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379192.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379188.jpg" />
 </div>
 
 
@@ -245,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379157.jpg" />
 </div>
 
 
@@ -272,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379099.jpg" />
 </div>
 
 
@@ -298,7 +243,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEB-DL [H.264/720p-LQ]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379097.jpg" />
 </div>
 
 
@@ -324,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379091.jpg" />
 </div>
 
 
@@ -350,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379089.jpg" />
 </div>
 
 
@@ -376,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379075.jpg" />
 </div>
 
 
@@ -402,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379066.jpg" />
 </div>
 
 
@@ -428,7 +373,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEB-DL [H.264/1080p-LQ]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378938.jpg" />
 </div>
 
 
@@ -454,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378937.jpg" />
 </div>
 
 
@@ -480,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378936.jpg" />
 </div>
 
 
@@ -507,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378919.jpg" />
 </div>
 
 
@@ -533,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378888.jpg" />
 </div>
 
 
@@ -559,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378878.jpg" />
 </div>
 
 
@@ -585,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378801.jpg" />
 </div>
 
 
@@ -611,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378759.jpg" />
 </div>
 
 
@@ -637,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378747.jpg" />
 </div>
 
 
@@ -663,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378746.jpg" />
 </div>
 
 
@@ -674,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95BB0A5553CD8E76E1476A4A23FC9A8F3CA9F721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948661   (378735) от 22.10.2015
+
+Наркотик / Dope (2015) BDRip [H.264/720p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378735.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре истории подросток, мечтающий учиться в Гарварде, однако живет он в преступном районе Инглвуда, откуда выбраться не так уж и просто.Производство: США / Forest Whitaker's Significant Productions, IamOTHER Entertainment, Revolt FilmsЖанр: Драма, Комедия, КриминалРежиссер: Рик ФамуйиваАктеры: Раким Мэйерс, Блейк Андерсон, Брюс Битти, Де’андре Бондс, Джулиан Брэнд, Куинси Браун, Кирси Клемонс, Кимберли Элиз, Рик Фокс, Кристофер ГленнПеревод: Многоголосый закадровый, профессиональный (Официальный звук)Продолжительность: 01:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA39AF55237A5034D6D3FCE41F58AEBE693C8640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720154   (378619) от 08.11.2013
+
+Наемный убийца / Bounty Killer (2013) BDRip [1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя двадцать лет после начала Корпоративной Мировой войны, некогда цветущая и плодородная планета превратилась в выжженную пустыню, усеянную полуразрушенными останками людских поселений. Среди непрекращающейся тьмы и разрухи на свет появился Совет Девяти Роз, призванный уничтожить всё, что хоть отдалённо напоминает о корпорациях. Так началась эпоха наёмных убийц, (   Читать дальше...   )Производство: США |  Just Chorizo Productions, Kickstart ProductionsЖанр: Фантастика, Боевик, ТриллерРежиссер: Генри СэйнАктеры: Мэттью Мэрсден, Кристанна Локен, Кристиан Питре, Барак Хардли, Абрахам Бенруби  Гэри Бьюзи, Беверли Д’Анджело, Ив, Кевин МакНэлли, Алекса Вега ...Перевод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH-Colored)Продолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5E259C3F5B23F1CBB32EF3429CFFB0D411D961
 ```
 
 https://mybot314.ru/tekegram_catalog/

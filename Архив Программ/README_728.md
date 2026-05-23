@@ -6,7 +6,7 @@ Reg Organizer 8.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kdenlive 21.12.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682370.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MultiBootHDD 2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682323.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reg Organizer 7.80 DC 17.05.2017 Final RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682271.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Audition CC 2017 (v10.1.1) Multilingual Update 2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682263.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TechSmith Camtasia 21.0.17 (Build 35755) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682243.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ WinNTSetup 5.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682239.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WinToUSB Professional, Technician, Enterprise 6.6 RePack (& Portable) by 9649 [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682236.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Reg Organizer 8.87 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682233.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SupRemo 4.7.0.3107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682231.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ashampoo Music Studio 9.0.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682185.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Files Inspector Pro 3.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682182.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BitDefender Antivirus Free Edition 1.0.16.1026 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682148.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Shadow Defender 1.4.0.636 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682118.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ MediaMonkey Gold 4.1.13.1801 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682117.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Hard Disk Sentinel PRO 6.0.0 Build 12540 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682113.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Punto Switcher 4.2.6 Build 1275 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682055.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681991.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Mozilla Firefox Quantum ESR 60.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681987.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Wise Disk Cleaner 10.1.7.766 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681980.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Bitdefender Internet Security 2013 16.30.0.1843 EFX [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681949.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ WinRAR 6.11 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681881.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ inPixio Photo Clip 9 Professional RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681866.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681861.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dicter 3.76 Portable by yn_nemiroff [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681851.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Shadow Defender 1.4.0.636 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681833.jpg" />
 </div>
 
 

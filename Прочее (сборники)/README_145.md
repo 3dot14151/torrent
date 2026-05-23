@@ -6,7 +6,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261757.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Green Dolls - Dark Cabaret Nights (2025) [MP3|192-320 Kbps] <Electro Swing, Nu-J
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261491.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Music News For Forum vol.150 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261463.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Music News For Forum vol.149 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261310.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Музыка для кача (1996-2012) [MP3|320 кб/с]<Metall, Heavy Me
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261274.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Русская Дискотека 80-90-Х Remix DJ Vol.2 (2012) [MP3|256 k
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261040.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Maxi. Mega Italo Disco (2012) [MP3|320 kbps]<Dance|Pop|Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260808.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - MAXI. Горячее Лето в стиле Dance (2012) [MP3|320 kbps]<Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260722.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ L’Amour Fané - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal, Eas
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260639.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - No name compilation part 14 Instrumental, Other (2025) [MP3|320 Kbps] <Inst
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260616.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - Сборник медленных хитов Vol.7 (2012) [MP3|320 kbps]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260523.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Metal Compilation - Best III (2012) [MP3|128-320 кб/с]<Symphonic, Black,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260414.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Ассорти Зарубежных Новинок (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260384.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Хит-Парад Наше Радио (2012) [MP3|256 кб/с]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260354.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Радио Energy - NRJ HOT30 (31.05.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260257.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Зарубежные Новинки Vol.53 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260165.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Non Stop Pop Wave (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260075.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Synthpop Stars (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260050.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - National Pop Dance Music Vol.124 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260047.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Клубные Новинки Vol.84 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259793.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Наше Радио 200 Хитов (2012) [MP3|128 кб/с]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259709.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Українські Народні Пісні: Українська Гул
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259445.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - MAXI. Летний танцевальный Fresh (2012) [MP3|320 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259051.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ VA - Летние Хиты Радиостанций (2012) [MP3|256 кб/с]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258534.jpg" />
 </div>
 
 
@@ -774,7 +774,7 @@ VA - Золотые Хиты Курортов Алания *2012* (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258526.jpg" />
 </div>
 
 
@@ -809,7 +809,7 @@ VA - Рок в Авто (Русский) (2012) [MP3|320 кб/с]<Pop Rock, Rock
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258351.jpg" />
 </div>
 
 

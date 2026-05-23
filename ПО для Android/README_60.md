@@ -1,55 +1,3 @@
-###  Публикация: 1413514   (407982) от 04.10.2020
-
-DailyRoads Voyager v7.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-DailyRoads Voyager - приложение для устройств под управлением операционной системы Android, позволяющее делать видеозапись из автомобиля. Приложение работает как "чёрный ящик" или видеорегистратор, записывая всё, но сохраняя только то, в чём действительно заинтересован пользователь. Программа будет полезна водителям, позволяя быстро и безопасно сохранять (   Читать дальше...   )Тип издания: Пиратка (AdFree: удалена реклама и аналитика)Релиз состоялся: 01.06.2020Разработчик: DailyRoadsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CA11A7DF77D7F55EAC5F7DBE4CC090956A139B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399852   (407751) от 04.10.2020
-
-Android Hidden Settings (Professional) v1.7.3 [En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Скрытые настройки Android позволяют открывать некоторые настройки Android, которые некоторые продавцы телефонов скрывают для пользователя. Это приложение позволяет получить доступ к скрытым настройкам на вашем Android-устройстве без рута, без прав доступа. Это приложение показывает вам только доступные параметры для вашего устройства.Тип издания: Пиратка (открыт Pro)Релиз состоялся: 25.08.2020Разработчик: Common toolsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8BF84DD89644A23D95E0B7D21F8E0807F30A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903504   (406977) от 05.10.2020
 
 Marine Aquarium v3.3.21 PRO [Ru\En]
@@ -58,7 +6,7 @@ Marine Aquarium v3.3.21 PRO [Ru\En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406977.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ ABBYY FineScanner Pro v1.13.1157 [Ru/Multi] - сканер для любых д�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403672.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Sound & Voice Recorder - ASR Premium v83 [Ru/Multi] - Мультиформатн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396351.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Facetune 1.1.4 [RU]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393761.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387042.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Diabetes:M v8.0.8 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386810.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385478.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Ebook Reader 5.1.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383537.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ NetGuard Pro - no-root firewall v2.302 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383142.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ Volume Styles 4.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381310.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ No Smoking 2.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381300.jpg" />
 </div>
 
 
@@ -352,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380960.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380925.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ GPS HUD Speedometer Plus v3.27 [En/Rus] - спидометр с навигаци
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379716.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ Tides app & widget - eTide HDF 1.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379339.jpg" />
 </div>
 
 
@@ -458,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378574.jpg" />
 </div>
 
 
@@ -484,7 +432,7 @@ Quick Video Recorder - Background Video Recorder v1.3.3.9 Mod by Balatan, >root<
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378129.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ Music Writer - Music Composer 1.2.275 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377089.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ Universal AC Air conditioner Remote Control 8.8.7.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376995.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ Guitar Effects, Amps, Deplike 5.9.3.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376991.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375902.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ Boom v2.7.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374683.jpg" />
 </div>
 
 
@@ -646,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373899.jpg" />
 </div>
 
 
@@ -672,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372111.jpg" />
 </div>
 
 
@@ -683,6 +631,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C77A9A26E2B941B5566E511CC32EAE4D071DB2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940631   (372107) от 14.10.2018
+
+EveryCircuit v2.19 [En/Rus] - Проектирование и моделирование электронных схем
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение является одним из лучших для экспериментов с электронными схемами. Анимация напряжений и токов позволит легко понять работу схемы.
+Особенности:
+1. Автоматическое соединение элементов
+2. Анимация сигналов(   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 22.08.2017Разработчик: MuseMazeПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904002   (371965) от 25.10.2015
+
+Helium 1.1.4.1 [Ru] - Альтернатива Titanium Backup
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helium - это уникальное решение для резервного копирования и синхронизации приложений на Android. Helium не требует рут. Каждый пользователь Android может использовать Helium для резервного копирования и синхронизации Android приложений. Helium позволяет создавать резервные копии приложений и их данных на карту памяти или в облачное хранилище. С Helium вы можете (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 7 июля 2015 г.Разработчик: ClockworkModПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3C2D9952DB9EBAEACC4A9190845C03727D4931
 ```
 
 https://mybot314.ru/tekegram_catalog/

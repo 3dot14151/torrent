@@ -6,7 +6,7 @@ Fate/Stay Night TV Reproduction / Судьба: Ночь Схватки [2010, O
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830249.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Himouto! Umaru-chan | Beautiful Little Sister! Umaru-chan | Моя двулич�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830189.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Psycho-pass New Edit | Психо-паспорт: Новое издание [TB-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829399.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 эп. + 1 OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828720.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Houkago no Pleiades | Wish Upon the Pleiades | Внеклассные плеяд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828711.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Diabolik Lovers More, Blood / Дьявольские возлюбленные [T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828089.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Souryo to Majiwaru Shikiyoku no Yoru ni... | Жаркая ночка с мона
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825975.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Kouryuu Densetsu Villgust | Armored Dragon Legend Villgust | Легендарн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824687.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823805.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hadashi no Gen 2 | Barefoot Gen 2 | Босоногий Гэн 2 [1986, Movie] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822919.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - Cadenza | Мелодия воро
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822837.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Hadashi no Gen | Barefoot Gen | Босоногий Гэн [1983, Movie] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822815.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Schwarzesmarken / Чёрные метки [2016, TV, 12 эп.] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822594.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ajin | Полулюди [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822592.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kishibe Rohan wa Ugokanai | Так говорил Рохан Кисибэ [2017,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822366.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Mouryou Senki Madara / Мадара [1991, OVA, 2 ep.] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821534.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - Cadenza / Мелодия воро
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821051.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Time Travel Shoujo: Mari Waka to 8-nin no Kagakusha-tachi | Девушки, пу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821018.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Strike the Blood III | Удар крови [OVA-3] [2018, OVA, 10 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820609.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Himouto! Umaru-chan R | Двуличная сестрёнка Умару - 2 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820418.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mewkledreamy | Мяу, исполняющая мечты [ТВ-1][2020, TV, 48 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819482.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] HDTV 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818296.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Love Live! School Idol Project / Живая любовь! Проект "школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817985.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Love Live! Superstar!! / Живая любовь! Суперзвёзды!! [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817211.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Kingdom 3 / Царство [TB-3] [2020, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817203.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Kaitouranma: The Animation | Samurai: Hunt for the Sword | Самурай в п�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816328.jpg" />
 </div>
 
 

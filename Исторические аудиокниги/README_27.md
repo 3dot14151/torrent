@@ -1,58 +1,3 @@
-###  Публикация: 1060278   (452769) от 08.10.2016
-
-Игорь Можейко(Кир Булычев) | Пираты, корсары, рейдеры (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге историка и писателя Игоря Можейко (Кира Булычева), в увлекательной форме излагается история пиратства в Индийском океане и Южных морях со времени проникновения туда европейцев и до наших дней. Книга состоит из расположенных в хронологической последовательности очерков, каждый из которых посвящен тому или иному событию либо историческому лицу.
-
-Игорь Можейко (   Читать дальше...   )Жанр: историческая, научно-популярная литератураПродолжительность: 11:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0C89BAEC8EC9DBB5F3EF12B8E5872F99EF813F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408851   (451454) от 14.09.2020
-
-Леонид Млечин | Сталин против Троцкого. Финал (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В аудиокниге Леонида Млечина «Сталин против Троцкого. Финал», записанной на студии «Ардис», продолжается рассказ о противостоянии двух вождей Советской России.
-Сталин не только приказал убить Троцкого. Несколько десятилетий работы пропагандистской машины не прошли даром. Он превращён ею в воплощение зла. Кажется, его ненавидят все. Те, кто считает революцию трагедией, (   Читать дальше...   )Жанр: История, РоссииПродолжительность: 04:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9936EA841871547F39B31FFF9AD91ED1CBD112CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060542   (449166) от 10.10.2016
 
 Анатолий Виноградов | Байрон (2013) [MP3]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449166.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448092.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447626.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447139.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447107.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446516.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444917.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442874.jpg" />
 </div>
 
 
@@ -270,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442872.jpg" />
 </div>
 
 
@@ -296,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442862.jpg" />
 </div>
 
 
@@ -323,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442503.jpg" />
 </div>
 
 
@@ -349,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437339.jpg" />
 </div>
 
 
@@ -375,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437219.jpg" />
 </div>
 
 
@@ -401,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436920.jpg" />
 </div>
 
 
@@ -427,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435298.jpg" />
 </div>
 
 
@@ -453,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434822.jpg" />
 </div>
 
 
@@ -479,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431572.jpg" />
 </div>
 
 
@@ -505,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430795.jpg" />
 </div>
 
 
@@ -531,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430791.jpg" />
 </div>
 
 
@@ -557,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429314.jpg" />
 </div>
 
 
@@ -583,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428942.jpg" />
 </div>
 
 
@@ -609,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425387.jpg" />
 </div>
 
 
@@ -638,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424437.jpg" />
 </div>
 
 
@@ -664,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424085.jpg" />
 </div>
 
 
@@ -675,6 +620,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD296990D0AC040AF39E0B285B7C7A8E5EB3FE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064371   (424056) от 21.10.2016
+
+Джулия Гарвуд | Добрый ангел (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англия, XIII век. Время кровавых междоусобных войн. Неперимиримая вражда между англичанами и шотландцами. Можно ли надеятся обрести счастье, когда вокруг полыхает пожар? Прелестная молодая англичанка и суровый шотландский лаэрд бросают вызов судьбе, хотя единственное, что они могут противопоставить жизненным невзгодам и козням врагов, - их нежная и искренняя любовь.Жанр: Исторические любовные романыПродолжительность: 17:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3FA01DC2583F857F522CAF4A7245D7C518F83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572384   (423519) от 26.08.2022
+
+Вазген Гнуни | История на пальцах. Армения (2022) [MP3, Дмитрий Шабров]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный гид по Армении: история, культура и традиции.
+"Армения – это страна чудес… Если меня бы спросили, где на
+нашей планете можно встретить много чудес, то я первой назвал бы Армению…
+Невольно поражаешься тому, как на столь небольшом клочке земли можно встретить такие памятники и таких людей, которые способны украсить весь мир и стать предметом его (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 09:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2D1F5C90FFD9AD07C84E959BB6F429E1F98CB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

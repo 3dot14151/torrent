@@ -1,84 +1,3 @@
-###  Публикация: 1574721   (383752) от 06.09.2022
-
-Мария Вой | Сиротки (Книга 1). Сиротки (2022) [MP3, Кирилл Головин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Сиротки» – первая книга дилогии темного фэнтези.
-
-В королевстве, охваченном гражданской войной, нет оружия желаннее, чем магия. Последний королевский маг погибает при странных обстоятельствах, но успевает распорядиться Даром: оставляет его простой девушке Шарке. Король, лишенный Дара и его мощи, и повстанцы, которые не прочь иметь такое оружие при себе, начинают (   Читать дальше...   )Жанр: Героическое фэнтези, Детективное фэнтезиПродолжительность: 10:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7088E909C0E1A600FD2AE5A7521330FB87B684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574783   (383742) от 06.09.2022
-
-Дмитрий Борк | Последний рубеж (2022) [MP3, Иван Букчин]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Последний рубеж» – роман в жанре остросюжетных приключений. История беспечного игрока, случайно попавшего на Аляску, в тайгу. Там, в дикой природе, в полном одиночестве начнется ежедневная борьба за жизнь. Удастся ли выжить и поможет ли ему в этом дружба с волчицей, вы узнаете, прочитав этот увлекательный роман. Роман поднимает вопросы о том, как часто нам в своей (   Читать дальше...   )Жанр: Приключения, современная прозаПродолжительность: 12:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA76F90E477D35126DD08F3A5EFAE142150004C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574778   (383651) от 06.09.2022
-
-Елена Михалкова | Охота на крылатого льва (2022) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если вам кажется, что вы проживаете не свою, а чью-то чужую жизнь, скучную и унылую, если мечты не сбываются и желания не исполняются, пора вырваться из круга однообразных будней!
-Виктории Маткевич надоело тусклое существование, и она отправляется в Венецию – любоваться старинными палаццо, кататься по каналам под протяжное пение гондольеров и дышать новообретенной (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522CDCE89730D053993BD13AECC927C9A02B2DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574768   (383650) от 06.09.2022
 
 Елена Михалкова | Тигровый, черный, золотой (2022) [MP3, Игорь  Князев]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383650.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383647.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383527.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383495.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383371.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383309.jpg" />
 </div>
 
 
@@ -245,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383253.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383151.jpg" />
 </div>
 
 
@@ -297,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383025.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383001.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382951.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382928.jpg" />
 </div>
 
 
@@ -406,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382923.jpg" />
 </div>
 
 
@@ -432,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382861.jpg" />
 </div>
 
 
@@ -458,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382834.jpg" />
 </div>
 
 
@@ -484,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382827.jpg" />
 </div>
 
 
@@ -510,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382807.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382673.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382254.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382205.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382059.jpg" />
 </div>
 
 
@@ -642,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381769.jpg" />
 </div>
 
 
@@ -668,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381761.jpg" />
 </div>
 
 
@@ -679,6 +598,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DC8CC64E19DEE297750623C558DBEE538BC16F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574807   (381650) от 07.09.2022
+
+Анна Иванова | Вера. Надежда. Смерть (2022) [MP3, Ольга Глушко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она чудом спаслась от маньяка и с тех пор боится выходить из дома одна. Она знает, спасение – только отсрочка неизбежного. Аделина готова встретить мучителя во всеоружии, но убийца придумал свой сценарий кровавого свидания.Жанр: Детектив, Триллер,Продолжительность: 08:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB398395D057C5C33654E55D0C52B3C747A0726E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253417   (381622) от 10.10.2018
+
+Збигнев Ненацки | Раз в год в Скиролавках (2018) [MP3, Евгений Перепелица]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381622.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Как родилась книга? Недалеко от моего дома ночью убили девочку. Приехала милиция. Установили, что убийство совершено на сексуальной почве. Стали опрашивать всех жителей деревни, пришли и ко мне. Полковник говорит:
+- Того, кто ворует кур, надо искать в курятнике. А того, кто убивает на сексуальной почве, надо искать, изучая интимную жизнь людей. Но мы не в состоянии (   Читать дальше...   )Жанр: ДетективИздательство: Aудиокнига своими рукамиПродолжительность: 23:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E2AFA6D5128B3FC9009234EEB6C14BABF6A38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574811   (381557) от 07.09.2022
+
+Дейрдре Салливан | Совершенно необязательные смерти (2022) [MP3, Марина Лисовец]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестнадцатилетние близняшки Мэдлин и Кэтлин по воле судьбы переезжают в тихий Баллифран. Но сама земля странного, изолированного ирландского городка хранит страшные и кровавые тайны… Это проклятое место, где из поколения в поколение в окрестностях бесследно пропадают девочки-подростки. Жизнь в тихом городке разводит близнецов в разные стороны. Все дальше и дальше (   Читать дальше...   )Жанр: Детектив, Триллер, МистикаПродолжительность: 11:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C94D69ED4FDF773CC0143148F9B0392C058DD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

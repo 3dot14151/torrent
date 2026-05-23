@@ -6,7 +6,7 @@ IMANDIX Cover Professional 0.9.3.0 RePack by KpoJIuK [Русский / Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471504.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Auslogics Disk Defrag Pro 4.8.2.0  RePack (& Portable)  by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471498.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Google Chrome 45.0.2454.99 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471475.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Tor Browser Bundle 8.0 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471427.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471348.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AkelPad 4.9.6 + Plugins (х86 & х64) RePack + Portable by San_dr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471341.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Total Commander Ultima Prime 5.7 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471328.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Mozilla Firefox 41.0 Final Portable by PortableApps [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471322.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Cyberfox 41.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471318.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ R-Studio 7.7 Build 159747 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471313.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ SysTweak Regclean Pro 6.21.65.2436 + Portable by T_BAG [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471284.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Acronis True Image 2018 Build 9207 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471281.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Acronis True Image 2018 Build 9202 + Universal Restore [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471276.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Super Hide IP 3.2.3.8 Portable by KGS [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471253.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Privacy Eraser Free 5.3 Build 3656 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471183.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Mozilla Firefox 41.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471172.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ AnyMP4 Video Downloader 6.0.68 RePack (& Portable) by AlekseyPopovv [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471169.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Skype 7.11.0.102 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471166.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Aiseesoft Video Downloader 6.0.56 RePack (& Portable) by AlekseyPopovv [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471164.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471156.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ IObit Driver Booster Pro 3.0.3.257 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471155.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Xtreme Download Manager 5.3.147 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471154.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Acronis True Image 2018 Build 9207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471133.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Acronis True Image 2018.9207 / Universal Restore 11.5.40058 / Disk Director 12.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471115.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ SamDrivers 19.7 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471105.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ SlimBrowser 10.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471092.jpg" />
 </div>
 
 

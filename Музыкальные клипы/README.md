@@ -7,7 +7,7 @@ Jin Young - EverLove (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070039.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ woo!ah! - WXW (Wish With W) (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069492.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Daita (Daitah Itoh) - EUPHONY (2003) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069367.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ YouTube канал "NoMadU55555" - Музыкальные клипы (1936-2009)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068910.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Rose - On The Ground (2021) WEBRip [H.265/2160p] [60fps] [Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068211.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Lisa - Dream (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068207.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ MinSeo (woo!ah!) - Endlessly You (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068195.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Kanye West - Седая ночь (2026) WEBRip [H264/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065113.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Yena - Catch Catch (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065034.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Hwasa - So Cute (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065027.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Kanye West - Белые розы (2026) WEBRip [H264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065011.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065007.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Laibach - Musick (feat. Wiyaala) (2026) WEBRip [AV1/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065006.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065003.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062907.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062198.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Narin - No Savior (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062190.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061855.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ MTV 80s Video Hits Collection (2026) SATRip [ex VH1] (parts 1-4)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061335.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061000.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Crematory - Born (2026) WEBRip [H.265/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060999.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060810.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Madein - Pung! (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060477.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/216
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060461.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NiziU - Emotion (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060460.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ First Love (CSR) - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060459.jpg" />
 </div>
 
 

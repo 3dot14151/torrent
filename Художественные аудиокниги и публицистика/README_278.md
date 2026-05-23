@@ -1,81 +1,3 @@
-###  Публикация: 1503481   (819385) от 19.10.2021
-
-Александр Тамоников | Заговор против Сталина (2021) [MP3, Игорь Петров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Накануне войны раскрыт крупный заговор против Сталина. Многие его участники уничтожены. Но некоторым все-таки удалось скрыться. Среди них – бывший сотрудник разведки Резник. Где он теперь: бежал на Запад? Воюет на фронте? Найти и обезвредить беглеца поручено группе майора СМЕРШ Павла Романова. Но при переходе границы группа погибает. Сам майор попадает сначала в (   Читать дальше...   )Жанр: Боевик, шпионский детективПродолжительность: 10:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F3DF48523DDA39B010F78B45A66F8E6CDAF3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117312   (819265) от 22.03.2017
-
-Герман Мелвилл | Рай для Холостяков и Ад для Девиц (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены короткие и относительно короткие произведения Г.Мелвилла, написанные в период с 1853 по 1891 гг. Две «малые повести» - «Бенито Серено» и «Билли Бад - фор-марсовый матрос» - на морские темы; сборник очерков «Энкантадас, или Заколдованные острова» (в другом переводе - «Очарованные») - посвящен природе Галапагосских островов и связанным с ними приключениям (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 15:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CC12EFC0D977E2F4BD1A829C9FBDDD29697093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503469   (819262) от 19.10.2021
-
-Андрей Ефремов | Виртуальный боец (2021) [MP3, Александр Городиский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Слово геймер – это уже не просто принадлежность к миру игр, это профессия. Мир изменился, изменились и игры. Виртуальность открыла массу возможностей зарабатывать деньги, занимаясь любимым делом. Но всё меняется, когда на смену обычным виртшлемам приходят капсулы полного погружения. Технология весьма дорога, и двум братьям придётся сильно постараться, чтобы успеть (   Читать дальше...   )Жанр: Боевая фантастика, LitRPGПродолжительность: 06:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085A16F4B2940AACEFA110AC6937AEE6BA9080E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117306   (819258) от 22.03.2017
 
 Боб Алман | Знать или жить (2015) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819258.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819120.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819107.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819105.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819098.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819096.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819091.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819005.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818896.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818892.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818870.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818793.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818779.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818773.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818768.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818745.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818406.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818234.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818097.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818090.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818023.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818022.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818017.jpg" />
 </div>
 
 
@@ -676,6 +598,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1528722628B08193572DC7C715CE65E5F962571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503860   (817878) от 20.10.2021
+
+Юрий Моисеев | Право на гиперболу (2021) [MP3, Николай Козий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не успел Фильдекосов в своей речи на чествовании академика Пташечкина произнести несколько фраз, как оказался в дежурной части Эмоциональной службы. А всё закон об эмоциональных выступлениях, ибо он гласит:
+
+«Запретить: возбуждение неуправляемых эмоций в больших массах людей; употребление в речах троп: эпитетов, гипербол, метафор и т.д.».Жанр: ФантастикаПродолжительность: 00:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20FADDAB8C1E67B8565ACA611E08ABD4BC03C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008023   (817851) от 17.04.2016
+
+Артур Конан Дойл | Рассказы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крупнейший английский писатель, тонкий мыслитель, общественный деятель, публицист, доктор медицины и доктор права сэр Артур Конан-Дойл известен всему миру как непревзойденный мастер детективного и приключенческого жанров. Однако огромный пласт его литературного наследия состоит из рассказов, не вошедших ни в один из официальных циклов: исторические, детективные, (   Читать дальше...   )Жанр: ПрозаПродолжительность: 04:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237158B48B9A3DB52AEFEE019847452D4C37401F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007589   (817753) от 17.04.2016
+
+Сет Грэм-Смит, Джейн Остин | Гордость и предубеждение и зомби (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817753.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении десятилетий Англию терзает загадочный недуг: полчища оживших мертвецов постоянно вылезают из-под земли и норовят употребить в пищу мирное население. Дворянские семьи посылают своих отпрысков в Японию и Китай для обучения боевым искусствам, позволяющим отражать нападения зомби. После того как нечисть истребила всех обитателей поместья Незерфилд-парк, (   Читать дальше...   )Жанр: Классическая проза с элементами ужасовПродолжительность: 11:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29568BA45BCC8DF000B7742CEC6B1C8D445F43C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

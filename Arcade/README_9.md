@@ -6,7 +6,7 @@ Out of Line (2021) [Ru/Multi] (1.0.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833090.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832928.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Where is my Brain!? (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831368.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Immortal Planet (2017) [En] (16620/upd3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830755.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adventure Time: Finn and Jake Investigations (2015) [En/Multi] (1.0) License REL
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830185.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Caravanserail (2016) [Ru/Multi] (1.0) Repack DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828296.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Monochroma (2014) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827529.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Jet Set Knights (2016) [En] (1.0) Rip Unleashed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826529.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Gryphon Knight Epic (2016) [Ru/Multi] (1.3.1) Repack ARMENIAC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824785.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TRON RUN/r - DISC Extender Bundle (2016) [En/Multi] (1.0/dlc) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822448.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Flat Kingdom (2016) [En/Es] (1.01) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820777.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Skullgirls 2nd Encore (2016) [En/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820653.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Outland (2014) [Ru/Multi] (1.13) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820648.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818401.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VODKA (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816740.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816733.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Jars (2021) [Ru/Multi] (1.0.1018) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815535.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Evertried (2021) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813682.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ LostWinds: The Blossom Edition (2016) [En/Multi] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812956.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ My Friend Pedro (2019) [Ru/Multi] (1.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812811.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Steel Rain (2015) [En/De] (1.4.1) Repack ARMENIAC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811333.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ STEEL STRIDER (2015) [En] (1.0) Repack ARMENIAC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811318.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ SpeedRunners (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811057.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Melty Blood Actress Again Current Code (2016) [En/Multi] (1.0) License POSTMORTE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809358.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Pang Adventures (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809357.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Rogue Stormers (2016) [Ru/Multi] (b3100) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808977.jpg" />
 </div>
 
 

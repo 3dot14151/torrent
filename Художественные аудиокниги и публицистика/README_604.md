@@ -1,81 +1,3 @@
-###  Публикация: 1329229   (354188) от 04.10.2019
-
-Юрий Корнеев | Свой путь (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Николай Дроздов, попав в звездную империю, вроде бы неплохо устроился благодаря проявившимся ментальным способностям и обнаруженной законсервированной базе давно исчезнувшей цивилизации атланцев. Однако эти удачи обернулись серьезными проблемами: за менталистами такого уровня идет охота, каждый хочет использовать их в своих интересах, а за знания, полученные на базе (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 09:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA0C8E17AA7A060270F3139B7D7A4CFAB68B10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329249   (354179) от 04.10.2019
-
-Кевин Д. Митник, Вильям Л. Саймон | Искусство вторжения (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книгу "Искусство взлома" вошли реальные истории хакеров, телефонных мошенников (фрикеров), а так же бывших хакеров, ставших профессионалами в области безопасности. Данная книга является одновременно увлекательным детективом и пособием для деловых людей. Книга призвана помочь защитить ценную информацию и вычислительные ресурсы. Авторы уверены, что, раскрывая (   Читать дальше...   )Жанр: Кибербезопасность, МемуарыПродолжительность: 08:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FB20EAD25038C4A56CC9D2497685E3FD0A6ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329233   (354177) от 04.10.2019
-
-Михаил Нестеров | Комэск (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Военный летчик ВКС Российской Федерации Олег Северов после гибели попадает в прошлое. Он снова молод и здоров, но на дворе весна 1941 года, скоро начнется Великая Отечественная война, а у него на руках направление в истребительный авиаполк, дислоцирующийся на территории Западной Украины. Шансов выжить в жуткой «мясорубке» первых недель войны немного… Знания и опыт, (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 07:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6335C299E020737204AECEC4D4368DFD561D57A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329122   (354077) от 04.10.2019
 
 Михаил Ланцов | Славься! Коронация «попаданца» (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354077.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354076.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354071.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354059.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354051.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353955.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353950.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353939.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353672.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353654.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353559.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353520.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353513.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353412.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353299.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353288.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353116.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353046.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353029.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352988.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352778.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352678.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352436.jpg" />
 </div>
 
 
@@ -675,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474066E9099906F93EF5ED9D5AFBE1396CE3CFED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329394   (352373) от 05.10.2019
+
+Николай Блохин | Отдайте братика (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352373.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Алеши будет братик!... Какое счастье!... Алеша уже вот сейчас видел его живого, в коляске, агукающего и играющего с ним, Алешей, и его медведем... видел, как он кормит его из ложечки, как он учит кататься его на своем велосипеде, как, взявшись за руки, они бегут к пруду, где они будут ловить ротанов... и еще и еще наплывали и наплывали живые картинки его жизни (   Читать дальше...   )Жанр: драма, повестьПродолжительность: 03:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B945D6127563E08962A28DD8D6E85B461DDFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329490   (352370) от 05.10.2019
+
+Джеймс Герберт | Тайна Крикли-холла (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гэйб Калег, опасаясь за душевное состояние жены, которая винит себя в исчезновении их младшего ребенка, снимает дом в тихой провинции, куда и перевозит семью. Несуразный и зловещий особняк мало похож на тихое, уютное жилище — Крикли-холл полон призраков и загадок. Много лет назад, еще во время Второй мировой войны, эти места сильно пострадали от страшного наводнения, (   Читать дальше...   )Жанр: УжасыПродолжительность: 21:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B93A5DB9AD3BBB3D4197CE01EE9117BD261485E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577783   (352312) от 20.09.2022
+
+Фаллада Ханс | Кошмар в Берлине (2022) [MP3, Дмитрий Стрелков]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Послевоенная Германия, Берлин. Первые месяцы жизни города после поражения страны во Второй мировой войне. Нищий быт в разрушенном городе. Немцами владеет сложный комплекс чувств: национальное унижение, стыд и раскаяние за совершенные преступления, страх наказания, кошмарное ощущение себя объектом всеобщей ненависти… И в то же время любовь к своей сбившейся с пути (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 07:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609D7383893D63F58FEF6FB655976D2A253D1359
 ```
 
 https://mybot314.ru/tekegram_catalog/

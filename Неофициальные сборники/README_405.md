@@ -1,38 +1,3 @@
-###  Публикация: 542287   (499613) от 02.09.2012
-
-VA - 538 Dance Smash Vol.4 (2012) [MP3|320 кб/с]<Dance, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack - Rock The House
- 02. Usher - Scream
- 03. Otto Knows - Million Voices
- 04. Alex Kenji & Ron Carroll - Good Time (A-Lab Radio Edit)
- 05. Sander van Doorn & Mayaeni - Nothing Inside
- 06. Cash Cash - Michael Jackson (The Beat Goes On)
- 07. Asaf Avidan - One Day / Reckoning Song (Wankelmut Remix)
- 08. Mark Knight - Alright
- 09. Nicki Minaj - Starships
- 10. Basto - I Rave You (Give It To Me)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5401D9B8981F43B98B4DAE67140D700E0E0203F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564496   (499585) от 19.07.2022
 
 Roger Waters - It's A Miracle (2022) Compilation [MP3|320 Kbps] <Progresive Rock>
@@ -41,7 +6,7 @@ Roger Waters - It's A Miracle (2022) Compilation [MP3|320 Kbps] <Progresive Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499585.jpg" />
 </div>
 
 
@@ -70,7 +35,7 @@ VA - Hybrid ElectriX Extremely (2015) [MP3|211-320 кб/с]<Breaks, Electro, Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499555.jpg" />
 </div>
 
 
@@ -99,7 +64,7 @@ VA - US Top 40 Single Charts (01-09-2012) [MP3|96-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499506.jpg" />
 </div>
 
 
@@ -134,7 +99,7 @@ VA - Kiss FM - Top-40 (02.09.2012) [MP3|320 кб/с]<Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499498.jpg" />
 </div>
 
 
@@ -169,7 +134,7 @@ VA - Chilled Ballads (The Most Beautiful Sentimental Songs Ever) (2015) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499468.jpg" />
 </div>
 
 
@@ -198,7 +163,7 @@ VA - Lounge Music Cafe Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499463.jpg" />
 </div>
 
 
@@ -227,7 +192,7 @@ VA - NRJ Hits 2012 Volume 2 (2CD) (2012) [MP3|~240~288 кб/с]<Dance, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499417.jpg" />
 </div>
 
 
@@ -271,7 +236,7 @@ DJ Nil - My Buddha Mix (2012) [MP3|320 кб/с]<Deep House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499412.jpg" />
 </div>
 
 
@@ -306,7 +271,7 @@ VA - Музыка для отдыха №2 (2011) [MP3|320 кб/с]<Piano, New A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499284.jpg" />
 </div>
 
 
@@ -341,7 +306,7 @@ Jacob Gurevitsch - Lovers in Paris (2015) [MP3|320 кб/с]<new age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499247.jpg" />
 </div>
 
 
@@ -367,7 +332,7 @@ VA - Enigmatic History (2010) [MP3|256 кб/с]<World music, World beat, New Age
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499178.jpg" />
 </div>
 
 
@@ -400,7 +365,7 @@ VA - Подарок любимой женщине / Подарунок коха�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499000.jpg" />
 </div>
 
 
@@ -435,7 +400,7 @@ VA - Золотая 200-ка Дорожное Радио (2012) [MP3|128 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498998.jpg" />
 </div>
 
 
@@ -470,7 +435,7 @@ VA - Psy Ambiente (2019) [MP3|320 Kbps] <Ambient, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498621.jpg" />
 </div>
 
 
@@ -499,7 +464,7 @@ VA - Summer Tempted Dance House (2019) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498619.jpg" />
 </div>
 
 
@@ -528,7 +493,7 @@ VA - The Official UK Top 40 Singles Chart 02.08.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498615.jpg" />
 </div>
 
 
@@ -557,7 +522,7 @@ VA - Empire Records - Church 3 (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498573.jpg" />
 </div>
 
 
@@ -586,7 +551,7 @@ VA - не Громкие новинки недели 28 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498571.jpg" />
 </div>
 
 
@@ -615,7 +580,7 @@ VA - Celestial Drift: Clubbing Disco Set (2022) [MP3|320 Kbps] <Club, Dance, Syn
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498530.jpg" />
 </div>
 
 
@@ -644,7 +609,7 @@ VA - 2047 Spacehawk (2022) Compiled by mCITY [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498526.jpg" />
 </div>
 
 
@@ -673,7 +638,7 @@ VA - Dance Selected Summer (2022) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498522.jpg" />
 </div>
 
 
@@ -702,7 +667,7 @@ Ten Sharp - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498520.jpg" />
 </div>
 
 
@@ -731,7 +696,7 @@ Various Artists - Guitars & Machines (1995) [MP3|192 кб/с]<EBM, Industrial>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498512.jpg" />
 </div>
 
 
@@ -760,7 +725,7 @@ VA - ЕвроХит Топ 40 Europa Plus 02.08.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498505.jpg" />
 </div>
 
 
@@ -789,7 +754,7 @@ VA - 100 хитов в дорогу. Русский выпуск часть 3 (2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498400.jpg" />
 </div>
 
 
@@ -803,6 +768,35 @@ VA - 100 хитов в дорогу. Русский выпуск часть 3 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B511D39030E1A073A84F388D35C5555B5017BB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564713   (498370) от 20.07.2022
+
+VA - Best tracks of Way Out There by Jody Wisternoff, 2010-2011, Volume 3 (2022) [MP3|192-320 Kbps] <Progressive House, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Todd Terje - Snooze 4 Love (8:05)
+02. Damabiah - Les Brumes Oceanes (center is accelerated on 6%) + Intro (2011-09-20) (7:25)
+03. Vinayak A - Pleading to Be Forgiven (4:56)
+04. Paul Kalkbrenner - Platscher (4:12)(   Читать дальше...   )Жанр: Progressive House, Deep House, Electro HouseПродолжительность: 10:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8776E2697FC4892F54F0EAF309F5BA3683ADBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

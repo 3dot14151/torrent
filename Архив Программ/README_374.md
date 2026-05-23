@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.36 (1704) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856887.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iTunes 12.3.3.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856828.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat X Pro 10.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856818.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avast Premier 17.2.2288 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856810.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ QOwnNotes 20.4.10 Build 5566 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856771.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MemTest86 7.3-4.3.7 Pro Retail [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856700.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ DVDFab 10.0.2.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856698.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ DAEMON Tools Pro 8.1.1.0666 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856683.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ IcoFX 3.4 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856663.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BELOFF [dp] 2020.04.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856573.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ ImageUSB 1.5.1001 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856566.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CyberLink PhotoDirector Ultra 11.0.2516.0 (unofficial pack) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856467.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PDF-XChange Editor Plus 8.0.337.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856465.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Internet Download Manager 6.37 Build 10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856454.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Altium Designer 20.0.14 build 345 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856346.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ foobar2000 1.4.5 DarkOne + DUIFoon Portable by MC Web (19.04.2020) [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856335.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ HDCleaner 2.009 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856052.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Opera 79.0.4143.66 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856050.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ ScreenToGif 2.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856043.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Comodo Dragon 92.0.4515.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856038.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Notepad++ 8.1.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855903.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Video Thumbnails Maker Platinum 15.3.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855901.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adobe Acrobat Pro DC 2021.007.20091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855795.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ SiSoftware Sandra Lite 2021.10.31.40 (R6 31.40) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855793.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Windows Repair Toolbox 3.0.3.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855709.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Stellarium 0.14.78.1 Test [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855635.jpg" />
 </div>
 
 

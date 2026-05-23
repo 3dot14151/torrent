@@ -6,7 +6,7 @@ Disk Xray 2.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213725.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ PC Cleaner Pro 8.2.0.8 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213722.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PullTube 1.8.5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213720.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213718.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Dark Mode for Safari 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213716.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ PaintCode 3 v3.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213715.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Dynamic Wallpaper Engine 15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213712.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Starkey - Orbits (2012) [MP3|320 kbps]<Drum n Bass, Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213707.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Glary Utilities Pro 5.133.0.159 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213704.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Auslogics Registry Cleaner Pro 8.2.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213702.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Extreme Picture Finder 3.46.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213697.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ DEVONthink Pro Office/Server 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213689.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VidCoder 6.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213687.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kiwi for Gmail 2.0.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213686.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ iThoughtsX 5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213682.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Whale Browser 3.12.129.34 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213680.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ WiFi Explorer 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213670.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Wondershare PDFelement Pro 7.5.4.2797 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213656.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Viscosity 1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213650.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ TweakPower 1.081 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213646.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ MyFitnessPal: Счетчик калорий 23.15.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213639.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ FireAlpaca 2.4.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213637.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Skype 8.102.0.211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213630.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Artlantis 2020 v9.0.2.21201 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213628.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ FireAlpaca 2.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213612.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Moom 3.2.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213610.jpg" />
 </div>
 
 

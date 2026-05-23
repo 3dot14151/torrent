@@ -6,7 +6,7 @@ FL Studio 12 Producer Edition 12.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684837.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander 8.51a Extended 15.5 RePack (&Portable) by BurSoft [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684830.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Coolmuster iOS Assistant 2.0.148 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684823.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SuperHelix Pro 1.04 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684806.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Agnitum Outpost Firewall PRO 7.5.3 (3941.604.1810.488) Final [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_684777.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Novicorp WinToFlash Professional 1.9.0000 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684708.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Ashampoo WinOptimizer 15.00.01 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684697.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684682.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ CXZ Engines Installer V1.2 |INTEL ONLY|[For Mac]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_684641.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ CleanMyPC 1.8.5.843 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684586.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Novicorp WinToFlash Professional 1.9.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684579.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wise Registry Cleaner Pro 9.44.616 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684515.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ HWiNFO x32/x64 5.50-3130 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684513.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Internet Download Manager 6.28 Build 10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684509.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Stardock Start10 1.55 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684503.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Windows 10 Manager 2.1.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684499.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ AutoRuns 13.71 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684486.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ BestReminder v2019.03.17.10 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684459.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Total Commander 9.0a VIM 22 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684356.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Shadow Defender 1.4.0.668 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684353.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Microsoft Office 2016 Standard 16.0.4498.1000 RePack by KpoJIuK (2017.05) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684349.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Q-Dir 10.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684305.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Firefox Browser ESR 91.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684303.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Free Studio 6.6.23.620 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684291.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Stellarium 0.14.90.8485 Test [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684287.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ K-Lite Codec Pack Update 12.2.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684283.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057862.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.050) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057818.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Radiance of Souls (2026) [Ru/Multi] (Build 21957122) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057745.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mystery of Myths 3: Whisper of Depth / Загадки мифов 3: Шепот �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057705.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ChromaGun 2 Dye Hard (2026) [Ru/Multi] (0.1.908) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057700.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (2.0.38/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057698.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NORSE: Oath of Blood (2026) [Ru/Multi] (1.0.0/dlc) Repack Wanterlude [Special Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057683.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack Wanterlude [
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057681.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Brigador (2017) [Ru/Multi] (1.63/dlc) Repack Let'sРlay [Up-Armored Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057631.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Star Trek: Voyager - Across the Unknown (2026) [Ru/Multi] (1.3.23489/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057630.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.0.0-1.0.8.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057612.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (2.2)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057611.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ KLETKA / КЛЕТЬ (2024) [Ru/Multi] (1.0.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057606.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack Other s [Qua
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057579.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack Other s [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057573.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack FitGirl [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057555.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack seleZen [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057554.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Forgotton Anne (2018) [Ru/Multi] (Build 20250418/dlc) Repack Let'sРlay [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057531.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 11026049/dlc) Repack Wanterl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057473.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Disney Villains Cursed Cafe (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057464.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NORSE: Oath of Blood (2026) [Ru/Multi] (1.0.0/dlc) Repack Let'sРlay [Special Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057461.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Total War: Rome II (2) (2013) [Ru/Multi] (2.5.6.3427123/dlc) Repack FitGirl [Emp
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057458.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack Let'sРlay [
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057452.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Total War: Rome II (2) (2013) [Ru/Multi] (2.5.6/dlc) License GOG [Emperor Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057299.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Forgotlings (2026) [Ru/Multi] (1.0.0/dlc) Repack Let'sРlay [Collector's Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057279.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ New Yankee 17: Jelly Chaos / Янки 17: Желейный хаос (2026) [Ru] 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057275.jpg" />
 </div>
 
 

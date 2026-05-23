@@ -6,7 +6,7 @@ The Sorceress (2017) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902572.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.4.2.0.8) SteamRip Let'sPlay [Sp
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900664.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Trulon: The Shadow Engine (2016) [Ru/Multi] (1.0) License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900273.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898689.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fae Tactics (2020) [Multi] (1.010) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898487.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cosmic Star Heroine (2017) [En] (1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898437.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Icewind Dale (2001) [Ru/En] (1.061/1.42/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897008.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ultimate ADOM - Caverns of Chaos (2021) [Multi] (1.0.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893400.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891956.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Forgotten City (2021) [Ru/Multi] (1.2.1) License GOG [Digital Collector's Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891722.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Disgaea PC: Digital Dood Edition (2016) [En/Multi] (1.0.3) Repack АRMENIAC
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890706.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Shadowrun: Hong Kong (2015) [Ru/En] (3.0.8) License GOG [Extended Edition Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890214.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Ru/En] (80.8193.9/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889683.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888617.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887939.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Arboria (2021) [En] (1.0.0.1055) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885348.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2021) [Ru/Multi] (1.0.906.0546/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885324.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Tales of Berseria (2017) [Ru/Multi] (1.48.00#193/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884662.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884572.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (7310529) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884069.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Final Fantasy IV (2021) [Ru/Multi] (1.0) License Fairlight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881966.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0151/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881300.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879711.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Highrisers (2021) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878601.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ UnderRail (2015) [En] (1.0.1.4) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878458.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Fallout 4 VR (2017) [Ru/Multi] (1.2.72.0.1) Repack xatab [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877933.jpg" />
 </div>
 
 

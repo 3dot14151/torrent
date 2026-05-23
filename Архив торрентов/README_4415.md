@@ -6,7 +6,7 @@ SponsorBlock for YouTube 5.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121264.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iNet Network Scanner 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121259.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Text Workflow 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121253.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sound Siphon 3.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121252.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Iris 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121251.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Cardhop 2.2.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121248.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Debit & Credit Premium 6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121247.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ iTop VPN 5.3.0.5103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121244.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Corona Renderer 11.1 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121243.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Tor Browser Bundle 13.0.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121222.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ vpnify - Безлимитный VPN 2.1.7 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121208.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PDF-XChange Editor Plus 10.2.1.385 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121202.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121198.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ NVIDIA GeForce Desktop Game Ready 551.23 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121194.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Topaz Video AI 4.1.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121192.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Topaz Gigapixel AI 7.0.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121189.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Slimjet 42.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121184.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Google Chrome 121.0.6167.86 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121183.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Topaz Gigapixel AI 7.0.1 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121182.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Topaz Gigapixel AI 7.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121181.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Photomator for Mac 3.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121180.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Total Commander 11.03 RC2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121177.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ashampoo Photo Optimizer 10.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121174.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ AMD Radeon Software Adrenalin Edition 24.1.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121171.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121167.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Topaz Photo AI 2.3.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121166.jpg" />
 </div>
 
 

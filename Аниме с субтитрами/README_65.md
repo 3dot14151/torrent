@@ -6,7 +6,7 @@ Bubblegum Crisis / Кризис каждый день [1987, OVA, 8 эп.] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554135.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553038.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hi no Tori 2772: Ai no CosmoZone / Phoenix 2772: Cosmo Song of Love / Жар-п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553034.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Koro-sensei Quest! (2016) / Квест Коро-сэнсэя! (2016) [2016, ONA,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552878.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Senki Zesshou Symphogear AXZ / Последняя Песня Боевых При
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552801.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ansatsu Kyoushitsu OVA / Assassination Classroom OVA / Класс убийц [20
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552762.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552347.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Hanamonogatari / История Цветов [2014, SP] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551081.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Nobunaga the Fool | Глупец  Нобунага [2014, TV, 24] BDrip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550747.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Tonari no Seki-kun | Tonari no Seki-kun: The Master of Killing Time | Сэки, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549935.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Toshokan Sensou: Kakumei no Tsubasa / Библиотечная война: Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549421.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Basilisk: Kouga Ninpou Chou | Basilisk: The Kouga Ninja Scrolls | Василис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549283.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548785.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Seikaisuru Kado | Seikai Suru Kado | Kado: The Right Answer | Правильны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548741.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Citrus | Цитрус [2018, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548718.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Seikaisuru Kado | Seikai Suru Kado  | Kado: The Right Answer | Правильн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548653.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sacred Seven / Священная Семерка [2011, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548408.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548389.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Nanatsu no Taizai OVA | The Seven Deadly Sins OVA | Семь смертных г
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548071.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Nobunaga-sensei no Osanazuma | Nobunaga Teacher's Young Bride | Молодая �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547560.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Overman King-Gainer / Король Гэйнер [2002, TV, 26 из 26] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547341.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Samurai Champloo / Самурай Чамплу [2004, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547246.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Go! Go! Ackman | Вперёд! Вперёд! Акман! [1994, OVA] VHSRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547067.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546776.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Shoumetsu Toshi | Afterlost | Исчезнувший город [2019, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545969.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545907.jpg" />
 </div>
 
 

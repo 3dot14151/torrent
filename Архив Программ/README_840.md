@@ -6,7 +6,7 @@ SolveigMM Video Splitter 5.0.1506.19 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621654.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VideoCacheView 2.87 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621652.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AnyMP4 Blu-ray Player 6.1.50 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621557.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HideAway VPN 4.18.3 [Multi] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621519.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe Prelude CC 2015 4.0.0 Build 138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621445.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MKVToolNix 8.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621443.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VMware Workstation 11.1.2 Build 2780323 Lite + VMware-tools 9.9.3 RePack by qazw
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621435.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621427.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ HomeWiki 2.0 Portable [Ru/En] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621404.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ ACDSee Pro 8.2 Build 287 Lite RePack by MKN (20.06.2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621351.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.431 + BootCD / Recovery Boot Medias
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621341.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Advanced SystemCare Pro 8.3.0.807 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621340.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ XMind 6 Pro 3.5.3 Build 201506180105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621281.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VMware Workstation 11.1.2 Build 2780323 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621273.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Adobe Illustrator CC 2015 (v19.0) x86-x64 RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621268.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft Windows 10 Insider Preview 10.0.10147 (x64) [En] + Language Pack [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621262.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Geek Uninstaller 1.4.0 Build 87 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621004.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Daum PotPlayer 1.5.33820 Stable [Английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_620989.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Daum PotPlayer 1.5.33820 Stable RePack (& portable) by D!akov [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_620985.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Slimjet 11.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620935.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Windows Firewall Control 4.8.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620926.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Display Driver Uninstaller 16.1.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620925.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Aiseesoft PDF Converter Ultimate 3.3.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620922.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ CPU-Z 1.61.2 Portable [Русский by loginvovchyk]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_620906.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Tipard PDF Converter Platinum 3.3.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620848.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620725.jpg" />
 </div>
 
 

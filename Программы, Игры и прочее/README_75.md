@@ -1,56 +1,3 @@
-###  Публикация: 950275   (369895) от 26.10.2015
-
-Dracula 4 V1.0.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Dracula 4: The Shadow of the Dragon - квестовая приключенческая игра от третьего лица, цель которой - добраться до графа Влада Цепеша, Дракулы. Завязка сюжета начинается с исчезновения корабля с ценным грузом в Атлантическом океане. Корабль с ценным грузом вместе с профессором Вэмберри попадает в шторм в Атлантическом океане и исчезает. Через некоторое время пропавшие (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 25 июня 2014 г.Разработчик: AnumanПоддерживаемая ОС: Android 2.3+Жанр: Головоломки/ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B73A3255887D41421A6C5A5DEFF3F06BBE72737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949887   (369726) от 26.10.2015
-
-Garmin: City Navigator Australia & New Zealand NT HERE 2016.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Перемещайтесь по улицам с уверенностью. Этот продукт содержит подробные карты и точки интереса (POI) для навигаторов Гармин, так что вы можете перемещаться с точными подсказками от поворота к повороту на любой адрес или перекресток.
-- Включает около 1,3 млн. км (796 000 миль) дорог, в том числе автодорог, национальных и региональных магистралей и дорог местного значения (   Читать дальше...   )Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: октябрь 2015Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCE8F688B0EAF1ADA7252915268CD6463E1FCD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950341   (369569) от 26.10.2015
 
 Козел HD 1.5 [Ru]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369569.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ The Room Two 1.06 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369470.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369243.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ Terrarium TV-Premium v1.9.10 Mod v8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367590.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367133.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365625.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_364988.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364937.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364813.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ ElLi (free) - Расчет проводки v1.3.35 AdFree [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362904.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ Checkers Elite 2.0.4.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362751.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ Terra Genesis Mod v5.13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362728.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362604.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ Hungry Shark Evolution v8.0.6 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362589.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ Sixaxis Controller v0.8.3 [Ru/Multi]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362483.jpg" />
 </div>
 
 
@@ -460,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362476.jpg" />
 </div>
 
 
@@ -486,7 +433,7 @@ Stellarium Mobile PLUS - Star Map v1.6.0 [Ru/Multi] - Карта звездно�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362469.jpg" />
 </div>
 
 
@@ -512,7 +459,7 @@ GPS Up v1.7.1 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362468.jpg" />
 </div>
 
 
@@ -538,7 +485,7 @@ Osmos HD 2.3.1 [RU/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362290.jpg" />
 </div>
 
 
@@ -564,7 +511,7 @@ ActionDirector Video Editor v6.0.1 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362077.jpg" />
 </div>
 
 
@@ -590,7 +537,7 @@ Android Auto 2.0.642308 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361112.jpg" />
 </div>
 
 
@@ -618,7 +565,7 @@ ABBYY Lingvo Dictionaries 4.6.6 [Ru/Multi] - Оффлайн словарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360682.jpg" />
 </div>
 
 
@@ -644,7 +591,7 @@ Microsoft Word 16.0.7426.1015 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358487.jpg" />
 </div>
 
 
@@ -670,7 +617,7 @@ Car Eats Car 3 v2.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357697.jpg" />
 </div>
 
 
@@ -681,6 +628,58 @@ Car Eats Car 3 v2.4 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C143ABC1E2573C101F7941D6AA60A48BEFB988A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127535   (357678) от 20.10.2020
+
+ADV Screen Recorder v4.3.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение под названием ADV Screen Recorder предлагает солидный набор возможностей в плане захвата картинки с дисплея: можно ставить запись на паузу в нужный момент, рисовать на экране любым цветом, захватить изображения с фронтальной или основной камеры вместе с записью экрана. Внутри ADV Screen Recorder присутствует видео-редактор, который позволяет обрезать ненужные (   Читать дальше...   )Тип издания: Пиратка (Mod: Pro)Релиз состоялся: 14.08.2020Разработчик: ByteRevПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756713FBB2BCD5C49A4171D85B3EE7907B1C3463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952592   (355720) от 01.11.2015
+
+Garmin: City Navigator East & West Africa NT 2016.20 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карты Западной и Восточной Африки для навигаторов Гармин.Тип издания: карты заблокированы (таблетка есть в комплекте)Релиз состоялся: октябрь 2015Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656C83341D559CBED3DDCB7471E9C4CAD97B6DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

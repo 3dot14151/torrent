@@ -1,29 +1,3 @@
-###  Публикация: 1229833   (622535) от 08.06.2018
-
-BBC: Амазонка с Брюсом Перри / Amazon with Bruce Parry (2008) HDTV [H.264/1080i-LQ] (Сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Амазонка величайшая по своим размерам, длине и полноводности река. Брюс Перри, бывший офицер английской морской пехоты, а ныне путешественник, покажет вам великую Амазонку во всей её красоте и силе.Производство: Великобритания, BBCЖанр: Документальный, природа, путешествияРежиссер: Стив Робинсон, Мэт Брэндон, Роб Салливан, Джеймс СмитПеревод: Одноголосый закадровый, профессиональный (Селена Интернэшнл)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0089DFDD7780B1937945BD2CF45CBDA6E1B2AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229903   (620777) от 09.06.2018
 
 BBC: Захватывающая история криминалистики / Catching History's Criminals: The Forensics Story (2015) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-3 из 3)
@@ -32,7 +6,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620777.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC: Выдающиеся женщины ХХ столетия. Агата Кр�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620695.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Выдающиеся женщины ХХ столетия. Одри Хеп�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620546.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618734.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC: Выдающиеся женщины ХХ столетия. Жозефина
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616884.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC. Как устроена Земля / Earth Machine (Der rastlose Planet) (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613309.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC. История Жизни / Life Story (1-6 серии из 6)  (2014) BDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612350.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC. Происхождение человека / Origins of Us (2011) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612054.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ BBC. В краю муссонов: Потоп / Wonders of the Monsoon: Deluge (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610563.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTV [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607520.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ BBC. Большой Барьерный риф / Great Barrier Reef (3 серии
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607065.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606710.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BBC. Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606330.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ BBC: История хирургии. Кровоточащие сердца [2 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605430.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ BBC: Восхождение женщины / The Ascent of Woman (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603177.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ BBC: Век природы / The Age of Nature (2020) HDTVRip [H.264/720p] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602868.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ BBC: Одна жизнь / One Life (2011) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602479.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ BBC: Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602245.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ BBC: Первобытная Америка / BBC: Wild New World (2002) DVDRip (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599430.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596970.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ BBC. Horizon: В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595702.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ BBC: Выдающиеся женщины ХХ столетия. Индира Г�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595581.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ BBC: Выдающиеся женщины ХХ столетия. Коко Шан�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595457.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591335.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ BBC: Дикая Африка и Маленькие гиганты / Wild Africa 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587015.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ BBC: Дикая Африка и Маленькие гиганты / Wild Africa 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:834560D0701607003424C60FC5E6C52438F4DC28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435807   (585586) от 16.07.2015
+
+ВВС: Живая природа. Ребятам о зверятах / BBC: All About Animals (26 серий из 26) (2006) 2 x DVD-9 + 3 x DVD-5
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на передачу "Ребятам о зверятах" - познавательный и увлекательный сериал для самых маленьких зрителей. В этом фильме дети смогут не только наблюдать за любимыми животными, но и узнают ответы на многие любопытные вопросы, например такие как: кто громче всех рычит, у кого самая большая семья и даже у кого самый неприятный запах. А также познакомятся (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Дэвид КарлингПеревод: Профессиональный двухголосыйПродолжительность: ~ 02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A9B353F8AF5B08F80CEB2BC6FBBDD99BC133F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

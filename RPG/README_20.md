@@ -6,7 +6,7 @@ ELDEN RING (2022) [Ru/Multi] (1.02/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699050.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BELOW (2018) [Ru/Multi] (1.0.0.36) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698909.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rebel Galaxy (2015) [Ru/Multi] (1.08) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697682.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697559.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697466.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695487.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Quest Hunter (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693535.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Demon's Rise - Lords of Chaos (2018) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692785.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690114.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ The Caligula Effect: Overdose (2019) [En/Ja] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689787.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sanctuary RPG (2015) [En] (2.3.1) License GOG [Black Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688770.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687821.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Might and Magic - Clash of Heroes (2011) [Ru/Multi] (1.0.1.1) Repack R.G. Origam
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686517.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Hammerting (2020) [Ru/Multi] (1.2.39.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680083.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679835.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Goliath (2016) [Ru/En] (1.04/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677867.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Fate/EXTELLA LINK (2019) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677793.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Submerged: Hidden Depths (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676144.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (1.0.6e-fix/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675929.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675737.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ We. The Revolution (2019) [En/Po/Fr] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673818.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Monster Hunter: World (2018) [Ru/Multi] (1.0 build 166925/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671929.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671563.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ StarCrawlers (2017) [En] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670530.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ HordeCore (2022) [Ru/Multi] (1.06.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670438.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Telepath Tactics (2015) [En] (1.051) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670222.jpg" />
 </div>
 
 

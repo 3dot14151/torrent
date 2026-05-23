@@ -6,7 +6,7 @@ Six Silver Suns - As Archons Fall (2021) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585850.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Train - AM Gold (2022) [FLAC|Lossless|WEB-DL|tracks] <Roots Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585849.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Evals Mess Project - Born of the Flower (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585846.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Red Moon Shaman - Chapter One (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585843.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lonerider - Sundown (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585842.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mick Fleetwood & Friends - Celebrate The Music Of Peter Green And The Early Year
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585730.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Abronia - The Whole of Each Eye (2019) [FLAC|Lossless|WEB-DL|tracks] <Krautrock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584826.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Abronia - Map of Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Krautrock, Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584823.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Oculto - Caos, Cosmos & Cataclismos (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584817.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Starlight Brigade - Beyond The Future (2022) [FLAC|Lossless|WEB-DL|tracks] <Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584756.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sacred Reign - Looking For Love (1993) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584167.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Heart Rock - Rock Fur's Herz vol. 6 (1994) 2CD [FLAC|tracks + .cue]<Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584027.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Life By Night - Glass Walls (2021) [FLAC|Lossless|image + .cue] <Soft Rock, Synt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583759.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Polite Force - Canterbury Knights (1996) [WavPack|Lossless|image + .cue] <Canter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583465.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blue Coupe - Million Miles More (2013) [FLAC|Lossless|tracks + .cue] <Rock, Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583459.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Wilde Flowers - Tales of Canterbury: The Wilde Flowers Story (1994) Compilat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583456.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Eric Clapton & Friends - The Breeze: An Appreciation Of JJ Cale (2014) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583437.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Suzi Quatro - No Control (2019) Japanese Edition [FLAC|lossless|image + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583203.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bad Company - Here Comes Trouble (1992) [FLAC|Lossless]<Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583057.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Chris de Burgh - Golden Ballads (1995) [APE|Lossless]<Pop/Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582992.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Jon Anderson - The More You Know (1998) [FLAC|Lossless|image + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582965.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Status Quo - Quid Pro Quo (2011) [FLAC|Lossless]<Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582916.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Bruce Hornsby - Absolute Zero (2019) [FLAC|Lossless|tracks + .cue] <Rock, Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582253.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ The Griswalds - Better Late Than Never! (2012) [FLAC|Lossless|tracks + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581963.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Big Thief - Dragon New Warm Mountain I Believe In You (2022) 2xCD, Japanese Edit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581962.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ No-Man (Steven Wilson project) - 7 альбомов (1993 - 2009) [FLAC|APE|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581745.jpg" />
 </div>
 
 

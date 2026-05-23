@@ -1,87 +1,3 @@
-###  Публикация: 1512347   (245646) от 24.11.2021
-
-Юлия Ханевская | Витморт. Играя со смертью (2021) [MP3, Галина Кейнз]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-«Витморт. Играя со смертью» – фантастический роман Юлии Ханевской, жанр приключенческое фэнтези, романтическое фэнтези.
-
-За изготовление любовных зелий суд отправляет Сайену далеко на север, в суровую академию некромантии – Витморт. И отнюдь не для того, чтобы учиться или преподавать. Она должна будет целый год отработать на должности завхоза.
-(   Читать дальше...   )Жанр: Любовное фэнтези, Магические академииПродолжительность: 10:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6381443241CF891BDCB032B4351598DA9FDDB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512339   (245640) от 24.11.2021
-
-Юлия Ханевская | Невеста в академии, или Если ты полюбишь меня (2021) [MP3, Наталья Фролова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Невеста в академии, или Если ты полюбишь меня – фантастический роман Юлии Ханевской, жанр приключенческое фэнтези, любовное фэнтези.
-
-Влюбилась! Да не в кого-нибудь, а в лучшего друга! Вот только… притворяюсь, что ничего не случилось. Ведь уже давно обещана другому.
-Ради нее я готов на многое. Но только не уступить ее сердце Снежному Лорду, нагло и бесцеремонно влезшему (   Читать дальше...   )Жанр: Любовное фэнтези, Магические академииПродолжительность: 09:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC163D808DB2B41D574B32114AFE18714423469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566041   (245632) от 26.07.2022
-
-Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 663-713 (2022) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Более позднего происхождения группа сказок сборника «Тысяча и одна ночь» – отражающих жизнь и быт средневекового арабского торгового города. Как это видно из некоторых топографических подробностей, действие в них разыгрывается главным образом в столице Египта – Каире. В основе эти новелл лежит обычно какая-нибудь трогательная любовная история, осложненная различными (   Читать дальше...   )Жанр: Зарубежная классика, Сказки, НовеллыПродолжительность: 04:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45DE00C619DB84C03D8F65E277D1468B31C8B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512346   (245627) от 24.11.2021
 
 Юлия Ханевская | Турнир драконов (2021) [MP3, Галина Кейнз]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245627.jpg" />
 </div>
 
 
@@ -118,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245626.jpg" />
 </div>
 
 
@@ -144,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245608.jpg" />
 </div>
 
 
@@ -172,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245563.jpg" />
 </div>
 
 
@@ -200,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245554.jpg" />
 </div>
 
 
@@ -226,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245503.jpg" />
 </div>
 
 
@@ -252,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245493.jpg" />
 </div>
 
 
@@ -278,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245463.jpg" />
 </div>
 
 
@@ -305,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245450.jpg" />
 </div>
 
 
@@ -331,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245411.jpg" />
 </div>
 
 
@@ -357,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245360.jpg" />
 </div>
 
 
@@ -386,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245339.jpg" />
 </div>
 
 
@@ -413,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245332.jpg" />
 </div>
 
 
@@ -441,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245328.jpg" />
 </div>
 
 
@@ -470,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245310.jpg" />
 </div>
 
 
@@ -496,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245302.jpg" />
 </div>
 
 
@@ -522,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245299.jpg" />
 </div>
 
 
@@ -550,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245273.jpg" />
 </div>
 
 
@@ -576,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245272.jpg" />
 </div>
 
 
@@ -604,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245263.jpg" />
 </div>
 
 
@@ -630,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245253.jpg" />
 </div>
 
 
@@ -656,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245198.jpg" />
 </div>
 
 
@@ -682,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245170.jpg" />
 </div>
 
 
@@ -693,6 +609,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:524EF08ED429F475F11DB00C20A8284BB84E8C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265731   (245167) от 01.12.2018
+
+Патти Смит | Поезд М (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сама Патти Смит назвала эту книгу «картой своей жизни». Перед читателем - записанный автором в блокнот рассказ, где мечты перемешаны с реальностью, жизнь прошлая вплетается в жизнь настоящую. Смит вспоминает и размышляет о том, что ей дорого – о Мексике и Марокко, о Жане Жене и Сильвии Плат, о муже, о брате, о детях.Жанр: Зарубежная прозаПродолжительность: 07:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730BE40B9E91400D566B9226F2212672953EA5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624361   (245136) от 05.04.2023
+
+Анна Завгородняя | Ведьмина сила (2023) [MP3, Анна Басс]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не делай добра, не получишь и зла, так, кажется, говорят? Я сделала и получила в подарок магию, превратившую меня, скромную городскую жительницу, в настоящую ведьму. И прости-прощай спокойная жизнь. Тут тебе и домовой нарисовался, а вместе с ним и прочая нечисть (глаза б мои ее не видели!). И как вишенка на торте, ко всему прочему, в моей жизни появился странный (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 16:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B018477F8BC6663F5E3B296609266D08F36183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063872   (245124) от 21.10.2016
+
+Андрей Дмитриев | Бухта Радости (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245124.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе Дмитриева "Бухта Радости" предпринята попытка масштабной панорамы нынешнего дня. Множество эпизодических персонажей разных возрастов, из разных пластов общества, от престарелого экс-вертухая до олигарха, от циничного спецназовца до трепетной прямодушной юницы; все они в летний солнечный выходной собрались на подмосковном Пироговском водохранилище, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 07:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5A2621CB4CA8035971FBC0D461316582054AD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

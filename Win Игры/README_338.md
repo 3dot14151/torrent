@@ -1,29 +1,3 @@
-###  Публикация: 1640049   (196935) от 16.06.2023
-
-Mask of the Rose (2023) [En] (1.2.664) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Mask of the Rose - это увлекательная визуальная новелла в жанре симулятора свиданий с необычным и многогранным игровым процессом. История берет начало в альтернативной версии викторианского Лондона, который по неизвестной причине ушел глубоко под Темзу, куда не пробиваются солнечные лучи. Королева Виктория ни разу не покидала свой дворец, поэтому страной правят загадочные (   Читать дальше...   )Тип издания: LicenseРазработчик: Failbetter GamesЖанр: Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59200F4FE0C287E614CC4CA7C56EB61F45D7B4A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640174   (196917) от 16.06.2023
 
 System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196917.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196905.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Academia : School Simulator (2017) [Ru/Multi] (1.0.44) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196883.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196854.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196807.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Impaler (2022) [Ru/Multi] (1.0.475) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196792.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196789.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196785.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Park Beyond (2023) [Ru/Multi] (1.0) Scene Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196784.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Tales of Vogar - Lost Descendants (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196768.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Mystery Case Files 25: The Dalimar Legacy / За семью печатями 25:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196760.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196740.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Case of the Golden Idol (2022) [En] (2.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196728.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196704.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Crossroads 3: What Was Lost (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196703.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Spriters, Hopes Blooming Dawn (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196691.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Yakuza 4 Remastered (2021) [Multi] (1.003a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196660.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Yakuza 3 Remastered (2021) [Multi] (1.005a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196646.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Yakuza Kiwami 2 (2019) [Multi] (1.004a/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196644.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196633.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Neon Chrome (2016) [Ru/Multi] (1.1.12/dlc) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196615.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Yakuza Kiwami (2019) [Multi] (1.011a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196614.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196607.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Yakuza 0 (2018) [Multi] (1.015a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196602.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Forgotten Fields (2021) [En] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196592.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Forgotten Fields представляет собой инди-приключен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15CA3C8ACAF864807D8310986CFCE8F509E2C398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641885   (196577) от 24.06.2023
+
+Yakuza 5 Remastered (2021) [Multi] (1.006a) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пройдите пятую часть саги о Кадзуме Кирю - с разрешением 1080p и частотой 60 кадров в секунду. В декабре 2012 года Кадзума Кирю отказался от образа жизни «легендарного якудза» и покинул свой тихий приют в Окинаве. Теперь он живет в Фукуоке, где скрывает свою личность, работая водителем такси в районе красных фонарей. Он делает всё это, чтобы дорогой ему человек мог (   Читать дальше...   )Тип издания: LicenseРазработчик: Ryu Ga Gotoku StudioЖанр: Action, AdventureЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Корейский, Китайский, ЯпонскийЯзык интерфейса: Английский, Корейский, Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C01D346FC057D60C1E02BB513A8937CC13D959
 ```
 
 https://mybot314.ru/tekegram_catalog/

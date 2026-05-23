@@ -6,7 +6,7 @@ Fit for an Autopsy - The Sea of Tragic Beasts (2019) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298960.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Accept - Russian Roulette (1986) Japanese Edition /2009, Epic/ [FLAC|image +.cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298717.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dwarrowdelf - Evenstar (2020) [FLAC|Lossless|image + .cue] <Epic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298163.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Unheilig - Rares Gold (2017) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297437.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Item - Outlife (2009) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296930.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Crisix - From Blue To Black (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296398.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wayd - Ghostwalk (2007) [FLAC|Lossless|image + .cue] <Prog Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296172.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ World Of Silence - Window Of Heaven (1996) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296168.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Virgin Snatch - Act Of Grace (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296163.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cro-Mags - In The Beginning (2020) [FLAC|Lossless|image + .cue] <Hardcore, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296025.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wolf Spider - Hue Of Evil (1991) (2009 remaster) [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296024.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dark Sarah - The Puzzle (2016) [FLAC|Lossless|image + .cue] <Symphonic, Power, N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295996.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Motorhead - Overkill (1979) [FLAC|tracks+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294833.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Logos - Plan Mundial Para La Destruccion (2006) [APE|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293739.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wolverine - Machina Viva (2016) [FLAC|Lossless|image + .cue] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293524.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Stratovarius & Kotipelto - 18 Albums, 7 Compilations & Lives, 8 Singles & EP (19
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292890.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Slechtvalk - Falconry (2000) [APE|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292219.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Slechtvalk - The War That Plagues The Lands (2002) [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292211.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Morgart - Die Türme (2007) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292149.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Carnal Grief - Out of Crippled Seeds (2004) [WavPack|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292143.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Slechtvalk - Thunder Of War (2005) [APE|Lossless|image + .cue] <Pagan Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292138.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Blind Stare - Symphony of Delusions (2005) [WavPack|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292071.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Persecutor - Rebirth (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291677.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Angeli Di Pietra - Storm Over Scaldis (2009) [FLAC|image +.cue]<Folk, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291495.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sirenia - Arcane Astral Aeons (2018) Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291411.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Graveshadow - Nocturnal Resurrection (2015) [FLAC|image +.cue]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291344.jpg" />
 </div>
 
 

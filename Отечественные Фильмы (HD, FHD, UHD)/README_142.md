@@ -1,81 +1,3 @@
-###  Публикация: 1815482   (5194) от 30.08.2025
-
-Новоселье (2024) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сергей едет на новоселье к старому знакомому, чтобы увести у того девушку. Но его план рушится из-за проклятия семейной реликвии хозяина дома, которая пробуждает в нем скрытое зло.Производство: Россия / MAYBE filmЖанр: короткометражный, триллер, драмаРежиссер: Игорь БелянскийАктеры: Марк Грант, Катерина Кельман, Роман Дудич, Ирина Завгородняя, Артём Еремеев, Милана Липатова, Никита Буреев, Александра Белова, Ольга ХохловаПродолжительность: 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9B68141B78F7D8A62358ACBEE48CC97FF615A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815444   (5163) от 30.08.2025
-
-Ответь мне (2008) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Гениальный ученый Антон Грошев разрабатывает уникальное вещество — стимулятор мозговой деятельности, невероятно повышающий возможности человека. Но созданный на благо препарат способен работать и во вред… За изобретением начинается настоящая охота, и на начальство Грошева выходят влиятельные криминальные структуры. В этом деле деньги решают все, но что делать с автором (   Читать дальше...   )Производство: Россия / Триикс МедиаЖанр: драма, криминал, детективРежиссер: Андрей ЩербининАктеры: Анвар Либабов, Валерий Николаев, Оксана Скакун, Семён Стругачев, Юрий Ицков, Андрей Федорцов, Алексей Осипов, Дмитрий Макеев, Дмитрий Аршанский, Елена МеньшиковаПродолжительность: 01:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6508E1A9EB8158CB4E43355324F81F5E8C30F773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815754   (5042) от 31.08.2025
-
-Предвестники бури (2024) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История воина и эльфа, на чьи плечи возложена важная миссия — доставить послание в город Эребор, минуя многочисленный отряд орков и троллей.Производство: Россия, Молдова / MADS, RU FILM PRODUCTIONЖанр: Короткометражный, фэнтези, приключения, драма, боевикРежиссер: Максим БаралюкАктеры: Андрей Онищенко, Михаил СусоровПродолжительность: 00:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE6DBF5F4ED043704876A7591BB2322BD206CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815709   (4955) от 31.08.2025
 
 Каптар (2024) WEBRip [H.264/1080p]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4955.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4954.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4905.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4870.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4842.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4823.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4767.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4764.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4704.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4655.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4543.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4472.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4442.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4423.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4343.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4333.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4228.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3948.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3926.jpg" />
 </div>
 
 
@@ -581,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3771.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3623.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3530.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3505.jpg" />
 </div>
 
 
@@ -671,6 +593,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960D3D47832535D997AFE455527D753AF8517893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817460   (3481) от 10.09.2025
+
+Контракт на любовь (2008) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илья Ракитин – звезда российского кино. Он много зарабатывает и очень много тратит, потому что привык брать от жизни лучшее. Все должно быть высшего качества – от квартиры и автомобиля до бритвенного станка. Слишком много поклонниц и слишком мало свободного времени, чтобы задуматься и понять: у него нет самого главного – чувств высшего качества. Но однажды он вынужден (   Читать дальше...   )Производство: Россия / ПЦ «АМА»Жанр: мелодрама, комедияРежиссер: Илья Хотиненко, Елизавета ЛижнинаАктеры: Марат Башаров, Алексей Панин, Ольга Сутулова, Юлия Рутберг, Евгений Стычкин, Михаил Ефремов, Валерий Баринов, Юрий Чурсин, Янина Студилина, Александра ФатхиСубтитры: русскиеПродолжительность: 01:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB357AD52BDFCD6566A64F5BAB740FA15ACB9F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817571   (3336) от 11.09.2025
+
+Полевая медсестра (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Отечественная война. Задача медсестры Зойки - вытаскивать с поля боя раненых солдат. Однажды раненым оказался любимый ею мужчина Коля. Он был на волосок от смерти. Герои после этого боя расстанутся на год и снова встретятся уже накануне Курской битвы.Производство: РоссияЖанр: Короткометражный, военный, драмаРежиссер: Оксана ХарламоваАктеры: Вероника Норина, Павел ГаличПродолжительность: 00:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82FC67BBA4F3CF1B5BC501C0D72DAF45A7FD508B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817531   (3335) от 11.09.2025
+
+Обухов (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3335.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 160-летнему юбилею Обуховского завода.
+О детстве и начале трудового пути Павла Матвеевича Обухова — русского горного инженера, металлурга, изобретателя способа производства литой стали, потомственного дворянина и действительного статского советника.Производство: Россия / RK ProductionЖанр: короткометражный, драма, история, биография, экранизацияРежиссер: Андрей КрасавинАктеры: Кузьма Стомаченко, Никита Демидов, Дмитрий Гульнев, Сергей Барковский, Андрей Аладьин, Анастасия Закирова, Артём Кузьмин, Алиса Рейфер, Сергей Бызгу, Даниил Буров, Владислав Глухов и др.Продолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA4C27CD7B477EB30E8D90FFF80225F17FAB448
 ```
 
 https://mybot314.ru/tekegram_catalog/

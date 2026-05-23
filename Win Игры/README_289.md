@@ -1,29 +1,3 @@
-###  Публикация: 1335453   (286914) от 02.11.2019
-
-Strategic Mind: The Pacific (2019) [Ru/Multi] (2.02) Repack xatab
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Strategic Mind: The Pacific - пошаговая стратегия, события которой разворачиваются в период Второй мировой войны и с поразительной исторической точностью демонстрируют противостояние между США и Японской империей в Тихом океане. Игра предлагает полное погружение в процесс командования обеими сторонами конфликта, позволяя получить уникальное понимание ситуации с точки (   Читать дальше...   )Тип издания: RepackРазработчик: Starni GamesЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A85FB63D2C4CF6FF1CBB238A9295843740AA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963344   (286766) от 08.12.2015
 
 Lucas Chess / Шахматный Тренажёр (2015) [Ru/Multi] (9.07d) License
@@ -32,7 +6,7 @@ Lucas Chess / Шахматный Тренажёр (2015) [Ru/Multi] (9.07d) Lice
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286766.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dark Heritage: Guardians of Hope / Мрачное наследие: Стражи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286094.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Crime Secrets: Crimson Lily / Преступные тайны: Алая Лили
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285918.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Vampire Legends: The True Story of Kisilova / Легенды о вампирах
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285916.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tales of Terror 5: The Fog of Madness / Трепетные истории 5: Т�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285758.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ That Dragon, Cancer (2016) [En] (1.0) License PROPER-PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285733.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Worlds Align: Beginning / Слияние миров: Начало (2019) [Ru] (1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285657.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Phantasmat 9: Insidious Dreams / Фантазмат 9: Коварные виде
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285647.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ State of Mind (2018) [Ru/Multi] (1.2.24280) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285454.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Whiplash - Crash Valley (2016) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285422.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Her Majesty's SPIFFING (2016) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285416.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Sacred Almanac: Traces of Greed / Священный Альманах: След�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285414.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ EARTH'S DAWN (2016) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285406.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Bomber Crew (2017) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285336.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0upd5) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285240.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Nioh (2017) [Ru/Multi] (1.21.02/dlc) Repack R.G. Revenants [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285203.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285191.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285078.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lost Horizon 2 (2015) [En] (08.12.2015) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285046.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Paranormal Files 2: The Tall Man / Секретные досье 2: Верзил
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284198.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284136.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284128.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ D Series OFF ROAD Driving Simulation 2017 (2015) [En] (1.0) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283773.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Root Of Evil: The Tailor (2016) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283632.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Wanted Corp. (2016) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283629.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Wanted Corp — это экшн с видом сверху, в котором в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E4547317247D31E6B3FE71C9140F315B5AA3E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335881   (283625) от 04.11.2019
+
+LIMBO (2011) [Ru/Multi] (3.0.0.1) Repack Other s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283625.jpg" />
+</div>
+
+
+###  Подробнее
+
+По трагическому стечению обстоятельств маленький мальчик оказывается на краю загробного мира – в лимбе, где также блуждает его сестра. Чтобы найти сестренку, ему придется набраться храбрости и проделать нелегкий путь по жутковатому черно-белому миру, наполненному чудовищными тварями, коварными механизмами и сложными головоломками. Что это: воплощение его самых страшных (   Читать дальше...   )Тип издания: RepackРазработчик: PlaydeadЖанр: Arcade (Horror), Adventure, 2DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A439B1BF38B18FAFED872C8854478F530936716
 ```
 
 https://mybot314.ru/tekegram_catalog/

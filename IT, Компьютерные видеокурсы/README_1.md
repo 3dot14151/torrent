@@ -1,32 +1,3 @@
-###  Публикация: 1856793   (1059167) от 02.03.2026
-
-Дмитрий Зверев | Нейросеть Claude (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Claude — мощный инструмент для создания разнообразного контента. Вот лишь некоторые из его функций:
-Контент-планирование: генерирует темы для постов, статей и других материалов, соответствующих вашему проекту.
-Заголовки: предлагает множество вариантов для писем, постов и других текстов.
-Посты для соцсетей: создаёт тексты для социальных сетей, мессенджеров и других (   Читать дальше...   )Жанр: видеокурс, обучающий курс, нейросетиЯзык озвучки: русскийПродолжительность: 05:49:19Реклама: наложение на видео и в презентации (плашка спонсора и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6D3F3D5C5F15BA1CB24F03D5476A8C2549973F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856362   (1058917) от 27.02.2026
 
 Дмитрий Зверев | Режим "Учёба и обучение" в нейросети ChatGPT (2025) PCRec [AD] [RU]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058917.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ LiveClasses, Антон Мартынов | Обзор возможностей K
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058915.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ Sorokin School, Павел Сорокин | Многопоточность в Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058881.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ infostart, Александр Кунташов | Автоматизирован�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058050.jpg" />
 </div>
 
 
@@ -144,7 +115,7 @@ OTUS, Иван Федоров | Observability: мониторинг, логир�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057895.jpg" />
 </div>
 
 
@@ -172,7 +143,7 @@ Kobezzza, Андрей Кобец | Rust во Frontend (2026) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057894.jpg" />
 </div>
 
 
@@ -198,7 +169,7 @@ Purpleschool, Антон Ларичев | Продвинутый Python (2026) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057740.jpg" />
 </div>
 
 
@@ -224,7 +195,7 @@ Kobezzza, Дмитрий Холстинин | Инфраструктура Front
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057565.jpg" />
 </div>
 
 
@@ -252,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056499.jpg" />
 </div>
 
 
@@ -278,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056494.jpg" />
 </div>
 
 
@@ -304,7 +275,7 @@ OTUS, Владимир Денисов, Николай Медведев, Григ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055717.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055213.jpg" />
 </div>
 
 
@@ -357,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055090.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055074.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054874.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Udemy, Андрей Кудлай | Laravel 11. Теория и практика 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054784.jpg" />
 </div>
 
 
@@ -464,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053886.jpg" />
 </div>
 
 
@@ -492,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053885.jpg" />
 </div>
 
 
@@ -510,32 +481,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849597   (1053884) от 25.01.2026
-
-Web Dev Simplified | tRPC (2024) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-tRPC - это потрясающая библиотека, которая значительно упрощает взаимодействие между вашим клиентом и сервером. Лучшая часть tRPC - это то, как она обеспечивает безопасность типов для вашего API и взаимодействия с клиентом, чего я никогда раньше не видел (особенно так хорошо). В этом видео я рассказываю обо всем, что вам нужно знать о tRPC.Производство: Web Dev SimplifiedЖанр: ВидеокурсЯзык озвучки: Английский, РусскийПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D5F2DE8A96D996139A05E7837249F2DD4C3C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849541   (1053882) от 25.01.2026
 
 karpov.courses, Евгений Ермаков и др. | Инженер данных с нуля (2025) WEB-DL [Базы данных и СУБД, SQL, PostgreSQL, ClickHouse, AirFlow, DWH, Python, PySpark, Git и GitHub, Bash] [RU]
@@ -544,7 +489,7 @@ karpov.courses, Евгений Ермаков и др. | Инженер данн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053882.jpg" />
 </div>
 
 
@@ -573,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053790.jpg" />
 </div>
 
 
@@ -599,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053556.jpg" />
 </div>
 
 
@@ -627,7 +572,7 @@ Golang School, Михаил Непряхин | Обучение языку Go и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053547.jpg" />
 </div>
 
 
@@ -655,7 +600,7 @@ R&D-лаборатория Devhands, Алексей Рыбак | Системн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053546.jpg" />
 </div>
 
 
@@ -683,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053539.jpg" />
 </div>
 
 
@@ -694,6 +639,63 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1396CA8631DC6BA11FCCE6B0360EF6F1F9C90017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849204   (1053429) от 21.01.2026
+
+OTUS, Кирилл Федченко, Павел Ершов, Сергей Потамошнев |  Rust разработчик. Professional (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для разработчиков, которые хотят использовать язык Rust для создания надёжного, безопасного и высокопроизводительного программного обеспечения.
+
+OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRecПроизводство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 75:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DB4AA68D3D291E4E7ECB26864B0B6DE1142E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848165   (1052824) от 16.01.2026
+
+Udemy, Stephen Grider | Redis: полное руководство разработчика (2025) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс научит вас всему, что вам нужно знать, чтобы интегрировать Redis в новый или существующий проект.
+
+Получите практический опыт работы с командами, используемыми для добавления, обновления и запроса данных
+Применяйте передовой опыт и многочисленные шаблоны проектирования, добавляя Redis в приложение для электронной коммерции.(   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 15:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F90538071B9D0F9611585C941F708D4CD5AC78
 ```
 
 https://mybot314.ru/tekegram_catalog/

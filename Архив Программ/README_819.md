@@ -6,7 +6,7 @@ Adobe components: Flash Player 26.0.0.131 + AIR 26.0.0.118 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632920.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4937.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632915.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4937.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632910.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6770.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632845.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7182.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632843.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2010 Standard 14.0.7182.5000 SP2 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632838.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2007 Standard SP3 12.0.6770.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632837.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Windows Release By StartSoft 30-2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632829.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Notepad++ 7.4.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632823.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Video Watermark Pro 2.6.0 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_632675.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_632573.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MKVToolNix 9.3.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632426.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Display Driver Uninstaller 16.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632424.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Junkware Removal Tool 6.9.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632411.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Registry Life 3.30 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632374.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MKVToolNix 9.3.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632266.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632261.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ PowerISO 6.3 RePacK by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632248.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ jv16 PowerTools X 4.0.0.1499 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632238.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ PowerISO 6.3 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632233.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Adobe Flash Player for Internet Explorer 22.0.0.210 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632167.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ TweakBit Driver Updater 1.7.1.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632152.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Apowersoft Video Converter Studio 4.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632150.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PowerISO 6.3 Retail [Multi\Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632141.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ SIV (System Information Viewer) 5.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632054.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ WM Capture 8.6.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632053.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1566371   (211740) от 28.07.2022
-
-Мир Юрского периода: Господство / Jurassic World Dominion (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После уничтожения острова Нублар динозавры вырвались на свободу и заполнили планету. Людям удается поддерживать хрупкое равновесие, определяющее мирное сосуществование на Земле. Но как долго человек сможет сохранять свое господство, живя по соседству с самыми устрашающими существами в истории?Производство: США, Китай, Мальта, Amblin Entertainment, Latina Pictures, Legendary Entertainment, Perfect World Pictures, Universal PicturesЖанр: фантастика, боевик, триллер, приключенияРежиссер: Колин ТреворроуАктеры: Крис Пратт, Брайс Даллас Ховард, Лора Дерн, Сэм Нил, Джефф Голдблюм, ДеВанда Уайз, Мамуду Ати, Изабелла Сермон, Кэмпбелл Скотт, Б.Д. ВонгПеревод: Дублированный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA774F9F39C694DC904C5E0666069E4B6BDAF1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585550   (211732) от 22.10.2022
-
-Скрытая угроза / Domestic Disturbance (2001) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Моррисон больше не живёт со своей бывшей женой Сьюзан и сыном Дэнни, у которого теперь есть отчим - известный промышленник Рик Барнс. Несмотря на все попытки Рика подружиться с Дэнни, их отношения не клеятся. Вскоре Дэнни случайно становится свидетелем страшных событий: его отчим хладнокровно убивает и уничтожает труп странного незнакомца, недавно появившегося (   Читать дальше...   )Производство: США, De Line Pictures, Jonathan Krane Group, Paramount PicturesЖанр: криминал, триллерРежиссер: Харольд БеккерАктеры: Джон Траволта, Винс Вон, Тери Поло, Мэтью О’Лири, Рубен Сантьяго-Хадсон, Стив Бушеми, Сьюзэн Флойд, Анджелика Торн, Джэймс Лэйшли, Ребекка ТилниПеревод: дублированный, профессиональный многоголосый (5 канал Санкт-Петербург), профессиональный двухголосый, авторский (Юрий Живов)Субтитры: русские, английские SDHПродолжительность: 01:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA58E6035D845418E20F32EBFB8A7F0E90A08B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566391   (211731) от 28.07.2022
 
 Мир Юрского периода: Господство / Jurassic World Dominion (2022) WEB-DLRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211731.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211727.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211722.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211718.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211715.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211709.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211705.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211701.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211700.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211698.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211697.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211694.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211693.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211689.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211685.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211684.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211653.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211646.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211635.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211617.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211601.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211587.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211580.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211574.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:599FF6C835235818343F998E2BD7C0FA9108FC6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585849   (211564) от 24.10.2022
+
+Бойся темноты / Ogre (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько месяцев назад в глухой деревушке бесследно пропал ребенок. Спустя время все почти забыли о происшедшем. Однажды в местную школу приезжает молодая учительница. Вместе с маленьким сыном она пытается начать новую жизнь, подальше сбежав от своего прошлого. Цепь загадочных событий указывает на то, что появление мальчика могло вновь пробудить древнее зло, затаившееся (   Читать дальше...   )Производство: Бельгия, Франция / Canal+Жанр: ужасы, фэнтези, драмаРежиссер: Арно МалербАктеры: Ана Жирардо, Джованни Пуччи, Самуэль Жуи, Альбертин Ривьер, Янник Маццилли, Софи Пинсемелль, Фабьен Уссе, Феликс Мальэрб, Эмиль Тенар, Роман МальэрбПеревод: Дублированный (Кипарис)Язык озвучки: Русский, ФранцузскийСубтитры: Французские (SDH)Продолжительность: 01:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AE5B8304464878E37E158B6106A1AFA4307F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566064   (211563) от 30.07.2022
+
+Сколько ты стоишь? / Combien tu m aimes? (2005) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франсуа — офисный служащий, у которого проблемы со здоровьем. Он отправляется в бордель на площадь Пигаль, где к нему подходит роскошная итальянка Даниэла, одна из проституток. Франсуа рассказывает ей, что выиграл в лотерею 4 миллиона евро и предлагает ей пожить с ним с условием, что будет платить ей 100 000 евро в месяц, пока не закончатся наличные. Даниэла принимает (   Читать дальше...   )Производство: Италия, Франция, BIM Distribuzione, Fidélité Productions, France 2 Cinéma, Les Films Action, Pan Européenne Production, Plateau A, TPS Star, Wild BunchЖанр: драма, мелодрама, комедияРежиссер: Бертран БлиеАктеры: Моника Беллуччи, Бернар Кампан, Жерар Депардьё, Жан-Пьер Дарруссен, Эдуард Баэр, Фарида Рахуадж, Сара Форестье, Мишель Вюйермоз, Франсуа Роллин, Жан БарнеПеревод: дублированный (R5 Twister), профессиональный многоголосыйСубтитры: русские, английскиеПродолжительность: 01:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270AEC400D21566FBB617338A5FFDA6F1E0A8099
 ```
 
 https://mybot314.ru/tekegram_catalog/

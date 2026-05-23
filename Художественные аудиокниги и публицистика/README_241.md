@@ -1,87 +1,3 @@
-###  Публикация: 997877   (871878) от 18.03.2016
-
-Лев Пучков | Испытание киллера (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Этот человек виртуозно расправится с каждым и не оставит никаких следов. А в промежутках между убийствами – утехи секса.
-Но и у него, неуловимого киллера, порой возникают непредвиденные проблемы.
-
-(Жанр: БоевикПродолжительность: 17:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37AEDD93280407C06F2B6C3B43F9F5ACE5F5602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186323   (871844) от 31.03.2010
-
-Эд Макбейн | Охота на полицейских [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это первый роман о 87 полицейском участке. Некий «ненавистник полицейских» убивает детектива Майка Риардона. Дело расследуют коллеги Риардона – Хэнк Буш и Стив Карелла. Обычные трудовые будни полицейского участка.2009Жанр: Детектив
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997777   (871771) от 18.03.2016
-
-Сергей Абрамов | Как хорошо быть генералом (2012) [MP3, Сергей Анискин]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Как хорошо быть генералом» - сатирическая повесть Сергея Абрамова. В книге рассматриваются такие важные темы как равнодушие, бездуховность, приспособленчество.
-
-Толерантность, политкорректность, конформизм…
-А может нужно жить по принципу - «Не стоит прогибаться под изменчивый мир, пусть лучше он прогнётся под нас?»Жанр: Дорожная фантазия (сюрреализм)Продолжительность: 02:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF96FB69F31154B26B1914974EF853603207B5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998020   (871766) от 18.03.2016
 
 Стефани Майер Морган | Сумерки (2016) [MP3]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871766.jpg" />
 </div>
 
 
@@ -117,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871765.jpg" />
 </div>
 
 
@@ -144,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871568.jpg" />
 </div>
 
 
@@ -170,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871567.jpg" />
 </div>
 
 
@@ -196,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871538.jpg" />
 </div>
 
 
@@ -222,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871434.jpg" />
 </div>
 
 
@@ -248,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871411.jpg" />
 </div>
 
 
@@ -275,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871381.jpg" />
 </div>
 
 
@@ -301,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871333.jpg" />
 </div>
 
 
@@ -328,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871228.jpg" />
 </div>
 
 
@@ -354,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871223.jpg" />
 </div>
 
 
@@ -382,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871192.jpg" />
 </div>
 
 
@@ -408,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871184.jpg" />
 </div>
 
 
@@ -434,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871071.jpg" />
 </div>
 
 
@@ -460,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871055.jpg" />
 </div>
 
 
@@ -486,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870949.jpg" />
 </div>
 
 
@@ -513,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870948.jpg" />
 </div>
 
 
@@ -539,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870947.jpg" />
 </div>
 
 
@@ -565,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870935.jpg" />
 </div>
 
 
@@ -591,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870926.jpg" />
 </div>
 
 
@@ -617,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870923.jpg" />
 </div>
 
 
@@ -644,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870908.jpg" />
 </div>
 
 
@@ -671,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870899.jpg" />
 </div>
 
 
@@ -682,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B68CDE782572B078761F22D28BA938835A055D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374815   (870766) от 11.04.2020
+
+Юлиан Семенов | Костенко (Книга 1). Петровка, 38 (2020) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870766.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Москве, во дворе жилого дома совершенно дерзкое преступление – убит сотрудник милиции Кузьма Семенович Копытов. Судя по срезанной кобуре пистолета – целью нападавших было оружие убитого. Последовавшие за убийством события подтвердили это предположение. В городе начала орудовать банда вооруженных грабителей. Лучшие сыщики МУРа во главе с майором Костенко начинают (   Читать дальше...   )Жанр: ДетективПродолжительность: 05:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C61B19F87C3AACFD465EB44D47AC6C0523431C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374746   (870593) от 11.04.2020
+
+Хантер С. Томпсон | Царство страха (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшитесь! Хантер С. Томпсон, крестный отец Гонзо, верховный жрец экстремальности и главный летописец Американского кошмара, берется разобраться в теме, взяться за которую побоялся бы любой, – в теме самого себя. В «Царстве Страха», его долгожданных мемуарах, Добряк Доктор окидывает взглядом прошедшие несколько десятилетий существования «на полную катушку», чрезмерных (   Читать дальше...   )Жанр: Мемуары, публицистикаПродолжительность: 11:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186F909EB0D4ACC1719984F8859B0DB09C3D8F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374646   (870590) от 11.04.2020
+
+Иар Эльтеррус | Потерянный легион. Империя (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже случайно оказавшись в другой вселенной, иногда приходится принимать тяжелые решения. Позволить или нет древней империи быть захваченной молодой и хищной, абсолютно бесчеловечной? Оставить без внимания чужую боль и чужое отчаяние? Или прийти на помощь, тем более что возглавляешь боевой легион иной цивилизации? Командир легиона «Черные Рыси» свой выбор сделал. (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 14:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794E8591644DBD2F2BCEA007E655446176529A21
 ```
 
 https://mybot314.ru/tekegram_catalog/

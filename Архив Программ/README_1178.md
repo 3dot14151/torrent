@@ -6,7 +6,7 @@ Nero Burning ROM 2016 17.0.5000 Portable by PortableWares (04.10.2015) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KMSAuto Lite 1.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446265.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XMedia Recode 3.3.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446250.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Flip PDF Professional 2.4.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446249.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 69.0.3497.100 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446189.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446165.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ UltraISO Premium Edition 9.7.2.3561 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446158.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BurnAware Professional 9.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446148.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ XnViewMP 0.83 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446145.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Google Earth Pro 7.1.7.2606 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446137.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Nikon Capture NX-D 1.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446081.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Blackmagic Design DaVinci Resolve Studio 15.1.0.24 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446080.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Google Chrome 69.0.3497.100 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446079.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Readiris Corporate 17.0 Build 11519 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446077.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Advanced SystemCare Ultimate 11.2.0.84 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446069.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Reg Organizer 8.0 Final Portable by Kopejkin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446050.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Celemony - Melodyne Studio 4 v 4.2.3.001 STANDALONE, VST, VST3, RTAS, AAX (x86/x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446044.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Core Temp 1.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446041.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ UltraISO Premium Edition 9.7.2.3561 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446039.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ UltraISO Premium Edition 9.7.2.3561 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446032.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ PDF-XChange PRO 6.0.317.1 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446002.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Adobe Flash Player 23.0.0.185 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445998.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ XnView 2.37 | Minimal | Standard | Extended + Portable 2.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445993.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Microsoft Silverlight 5.1.50901.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445988.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Adobe Flash Player 11.5.500.80 Beta 1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445981.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445951.jpg" />
 </div>
 
 

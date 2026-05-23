@@ -6,7 +6,7 @@ Short Menu 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630583.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ KCNcrew Pack 07-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630516.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Navicat Premium 11.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630308.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Data Rescue Pro 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630204.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Adguard 1.3 (309) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629928.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Alien Skin Exposure X4 Bundle 4.5.1.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629895.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ PatterNodes 3 v3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629787.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Beamer 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629768.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VideoDuke 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629678.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Path Finder 2128 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629672.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ CalendarPro for Google and Yahoo! 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629653.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Blackmagic Design Fusion Studio 17.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629532.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ WiFi Explorer Pro 3 v3.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629522.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Hazel 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629511.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Downie 2.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629508.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Alfred Powerpack 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629496.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ PhoneRescue 3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629364.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Sublime Text 3 Dev (3139) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629356.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ ExpanDrive 5.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629349.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Luminar 1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629348.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ iMazing 2.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629341.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ LEGO Jurassic World (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629208.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ TechSmith Snagit 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629158.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Be Focused Pro (aka Pomodoro Time Pro) 1.6.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629157.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ IP Scanner Pro 3.49 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628634.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ FontExplorer X Pro 5.5.1
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628617.jpg" />
 </div>
 
 

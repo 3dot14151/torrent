@@ -6,7 +6,7 @@ ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52180.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52110.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dungeon Drafters (2023) [Ru/Multi] (1.1.1.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51880.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Russian Village Simulator / Симулятор русской деревни (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51720.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51714.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ludus Mortis (2024) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51355.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51215.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51156.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51055.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51044.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50916.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50872.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50860.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50811.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50806.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50720.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Islands of the Caliph (2023) [En] (1.2.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50709.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.1.4/dlc) Scene Tenoke [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50702.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (2.01.31.01) Scene DINOByTES
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50420.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50372.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50367.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50297.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0.2/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50286.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Clash II (2) (2022) [Multi] (497) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50208.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dark Envoy (2023) [Ru/Multi] (1.5.2.73561) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49975.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49665.jpg" />
 </div>
 
 

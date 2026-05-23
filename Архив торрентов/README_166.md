@@ -6,7 +6,7 @@ BurnAware Free 14.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018637.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Denzel Curry & Kenny Beats - UNLOCKED 1.5 (2021) [FLAC|Lossless|Web-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018620.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PrivaZer 4.0.22 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018616.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ OCCT 8.1.2 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018608.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Opera GX 75.0.3969.259 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018605.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ant Download Manager Pro 2.2.3 Build 77885 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018603.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Wise Data Recovery 5.1.9.337 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018601.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018598.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ System Toolkit 3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018597.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ WonderFox HD Video Converter Factory Pro 22.0 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018588.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ PotPlayer 210428(1.7.21482) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018585.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Pixelmator Pro 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018584.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ PureSync 6.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018572.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Vivaldi 3.8.2259.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018571.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ WinMerge 2.16.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018564.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Telegram Desktop 2.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018548.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ IObit Uninstaller Pro 10.5.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018542.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ PotPlayer 210428(1.7.21483) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018540.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Windows 10 Manager 3.4.7.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018529.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DUMo (Drivers Update Monitor)+ portable 2.23.5.115 [Multi] Giveawayoftheday
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018528.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ XnView Classic 2.50 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018520.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Alcohol 120% 2.1.1 Build 422 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018519.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VirtualBox 6.1.22 Build 144080 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018515.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ CCleaner 5.79.8704 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018491.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Hookshot 1.21.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018475.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Downcast 2.10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018474.jpg" />
 </div>
 
 

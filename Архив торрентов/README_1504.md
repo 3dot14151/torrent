@@ -6,7 +6,7 @@ Windows Repair (All In One) 3.1.4 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710821.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710804.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BELOFF [dp] 2019.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710800.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Deep Space Trance Progressive (2017) [MP3|320 Kbps] <Trance, Progressive Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710781.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Neil Young Archives: Volume 1 (1963-1969) 2009, Blu-Ray [LPCM Audio 2.0 | DTS 5.
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_710755.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Luminar 3.0.2.2186 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710744.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Core Temp 1.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710740.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ GoldWave 6.60 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710737.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Simple Sticky Notes 5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710735.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ TweakPower 2.009 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710718.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710700.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Maxon Cinema 4D Studio S22.118 (build RB320081) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710694.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Zettlr 2.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710690.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Foxit Reader 7.1.5.425 Portable by PortableAppZ [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710682.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Progressive Goa Trance (Intellect Progressive Psychedelic Goa Psy Trance) (
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710674.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710669.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Greatest Hits: Psy & Prog Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance,Goa Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710668.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Microsoft Windows 10 TP Language Pack build 10074 (x86-x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710632.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Microsoft Windows 10 Home Insider Preview 10.0.10074 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710616.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Microsoft .NET Framework 4.6 RC DC 19.04.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710609.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VeraCrypt 1.24-Update 7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710588.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ GetWindowText 4.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710569.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Vit Registry Fix Pro 14.7 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710541.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ XnView Shell Extension 4.1.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710533.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ MacBooster 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710527.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ IP Scanner Pro 3.57.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710523.jpg" />
 </div>
 
 

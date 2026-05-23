@@ -1,57 +1,3 @@
-###  Публикация: 210366   (703649) от 15.06.2010
-
-Ип Ман 2 / Yip Man 2 (2010) [720p] BDRip
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-1949 год, Гонгконг. Ип Ман открывает школу боевых искусств и пропагандирует стиль Вин Чунь. Практикующий стиль Хун Гар, хозяин другой школы, считает стиль Ип Мана не в пример своему девчачьим. Соседство двух мастеров становится напряжённым.
-
-Сиквел известного фильма «Ип Ман». Полубиографический фильм, основанный на жизни Ип Мана, мастера боевого искусства Вин Чунь, (   Читать дальше...   )Жанр: Боевик, Биография, ИсторияРежиссер: Уилсон ИпАктеры: Донни Ен, Линн Хунг, Саймон Ям, Саммо Хунг Кам-Бо, Хуан Сяомин, Сю-Вонг Фан, Кент Чэн, Даррен Шахлави, Эмбер ЧиаПеревод: Двухголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:47:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792955   (703607) от 05.06.2014
-
-Хорошенькая / The Pretty One (2013) WEB-DLRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лорел Одри – девушка крайне эксцентричная, в отличие от своей сестры-близняшки, и из-за этого её жизнь полна множеством проблем. Когда её сестра неожиданно гибнет, Лорел использует возможность занять её место и таким образом поменять своё унылое существование на настоящую, как ей кажется, жизнь. Впрочем, постепенно ей этот маскарад надоедает и она начинает ценить (   Читать дальше...   )Производство: США, Provenance PicturesЖанр: Драма, комедияРежиссер: Джин МаркьюАктеры: Джейк Джонсон, Зои Кэзен, Рон Ливингстон, Фрэнки Шоу, Дэнни Пуди, Стерлинг Бомон, Джереми Ховард, Джон Кэрролл Линч, Сабрина Ллойд, Шаэ Д’ЛинПеревод: Профессиональный многоголосыйСубтитры: английскиеПродолжительность: 01:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EDA56E981D477469D7348B5107DB7628C1F56C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026000   (703569) от 15.06.2016
 
 Лазурный берег / By the Sea (2015) Blu-Ray [H.264/1080p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703569.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703567.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703565.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703563.jpg" />
 </div>
 
 
@@ -167,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703551.jpg" />
 </div>
 
 
@@ -193,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703546.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703484.jpg" />
 </div>
 
 
@@ -247,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703438.jpg" />
 </div>
 
 
@@ -273,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703421.jpg" />
 </div>
 
 
@@ -299,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703419.jpg" />
 </div>
 
 
@@ -325,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703395.jpg" />
 </div>
 
 
@@ -351,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703391.jpg" />
 </div>
 
 
@@ -377,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703380.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703378.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703278.jpg" />
 </div>
 
 
@@ -457,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703270.jpg" />
 </div>
 
 
@@ -483,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703267.jpg" />
 </div>
 
 
@@ -509,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703239.jpg" />
 </div>
 
 
@@ -535,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703227.jpg" />
 </div>
 
 
@@ -561,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703223.jpg" />
 </div>
 
 
@@ -587,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703162.jpg" />
 </div>
 
 
@@ -614,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703159.jpg" />
 </div>
 
 
@@ -640,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703149.jpg" />
 </div>
 
 
@@ -667,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703143.jpg" />
 </div>
 
 
@@ -678,6 +624,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02EC766CB1E7ABFB0CE0C63FA59B57662F322BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 331451   (703129) от 02.05.2011
+
+Снайпер 4 / Sniper: Reloaded (2011) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_703129.jpg" />
+</div>
+
+
+###  Подробнее
+
+При работе с ООН в Демократической Республике Конго сержант морской пехоты Брэндон Беккет, сын известного снайпера Томаса Беккета, получает приказ спасти европейских фермеров с захваченных территорий повстанцев. Когда он и его люди прибыли на ферму, то таинственный снайпер из засады их обстрелял, ранив Беккета и убив всех остальных. С помощью бывшего протеже отца, (   Читать дальше...   )Производство: Stage 6 Films / ApolloMovie Beteiligungs / Film Afrika Worldwide (ЮАР)Жанр: боевик / триллер / драма / военныйРежиссер: Клаудио ФахПерсонажи: Чад Коллинз, Ричард Саммел, Анабель Райт, Билли Зейн, Клайд Бернинг, Хломла Дандала, Роб Фрюйтхоф, Конрад Кемп, Martin Le Maitre, Патрик Листер и др.Перевод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые, отключаемыеЯзык субтитров: Английский / Русский / Польский / Арабский / Хорватский / Эстонский / Греческий / Хинди / Исландский / Португальский / Румынский / Сербский / Словенский / Турецкий / УкраинскийПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287283   (703105) от 07.03.2019
+
+Убийцы на замену / The Replacement Killers (1998) BDRip [H.264/720p-LQ] [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный киллер Джон Ли получает новое задание — убить полицейского. Но в решающий момент он не смог нажать на курок: под прицелом оказался ребенок. А мафия не прощает ошибок.
+На замену она посылает своих людей, и Джон становится мишенью. Теперь он и мошенница Мэг, которая случайно становится участницей всех событий, попадают под перекрестный огонь преступников (   Читать дальше...   )Производство: США / Brillstein-Grey Entertainment, Columbia Pictures Corporation, WCG Entertainment ProductionsЖанр: Боевик, Триллер, КриминалРежиссер: Антуан ФукуаАктеры: Чоу Юнь-Фат, Мира Сорвино, Майкл Рукер, Кеннет Цан, Юрген Прохнов, Тиль Швайгер, Дэнни Трехо, Клифтон Коллинз мл., Карлос Гомес, Фрэнк МедраноПеревод: Дублированный, многоголосый закадровый, авторскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B002B0C77E3EAE4A1BE99D8A808EECB263AC67
 ```
 
 https://mybot314.ru/tekegram_catalog/

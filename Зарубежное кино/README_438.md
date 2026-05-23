@@ -1,55 +1,3 @@
-###  Публикация: 998611   (867605) от 20.03.2016
-
-Пустынная бухта / Hollow Creek (2016) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йоркский писатель Блейк Блэкман, в поисках вдохновения и душевного спокойствия со своей возлюбленной Анжеликой, убегает из шумного города, чтобы уединится в уютном горном домике. По прибытию, он узнает по местному телевидению, что в горах пропали несколько детей, плюс ко всему, его собака ведет себя очень странно. В итоге романтическая поездка, превращается в (   Читать дальше...   )Производство: СШАЖанр: Триллер, Криминал, ДетективРежиссер: Гусела МороАктеры: Стив Дарон, Гусела Моро, Берт Рейнолдс, Дэвид Осем, Тони Райхарт, Элин Дарне, Стив Альбертс, Демия Элифф, Шэрон БлоПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7686E85FE6AFF8A9AA14BE445D5D5E3316D31F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998748   (867603) от 20.03.2016
-
-Дорога / Camino (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная опытная фотожурналистка Эйвери ради очередной порции великолепных фотографий отправляется в опасное путешествие по джунглям Колумбии под руководством местного гида Гильермо и его группы миссионеров.Производство: СШАЖанр: Боевик, триллер, приключенияРежиссер: Джош С. УоллерАктеры: Зои Белл, Начо Вигалондо, Франсиско Баррейро, Шейла Ванд, Теноч Уэрта, Амин Наземзадех, Нэнси Гомес, Джейсон Канела, Кевин Поллак, Брюс ТомасПеревод: Любительский двухголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0A4E577389FC6DF4F6BC1AF5246D82E21B9631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496941   (867593) от 20.09.2021
 
 За гранью жизни / Out of Death (2021) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867593.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867587.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867580.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867546.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867538.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867533.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867532.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867507.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867503.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867501.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867496.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867492.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867449.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867444.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867443.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867423.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867407.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867406.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867338.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867327.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867306.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867284.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867275.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867244.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16DA40DC7D12C3BE1A2EA6BD64D6B94581F49A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107070   (867236) от 22.02.2017
+
+Планетариум / Planetarium (2016) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж 30-х годов XX века, город декаданса и роскоши. Красавицы американки, сестры Лора и Кэти Барлоу, приезжают туда, чтобы провести спиритические сеансы. Знаменитый кинопродюсер Андрэ Корбен решает, что с их помощью ему удастся поправить пошатнувшиеся дела. Показ «оживших» духов на большом экране принесет ему новую славу и богатство. Лора будет главной звездой его (   Читать дальше...   )Производство: Франция, Бельгия | Canal+, Cine, France TelevisionsЖанр: Фэнтези, Триллер, Драма, ДетективРежиссер: Ребекка ЗлотовскиАктеры: Натали Портман, Лили-Роуз Мелоди Депп, Эммануэль Салинжер, Амира Касар, Пьер Сальвадори, Луи Гаррель, Давид Беннент, Дэмиен Шапель, Ежи Рогульский, Камилль ЛелушПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC613183038C1A051E3B1B5F02DB71640365AF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645326   (867223) от 17.04.2013
+
+Ванильное небо / Vanilla Sky (2001) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867223.jpg" />
+</div>
+
+
+###  Подробнее
+
+У богатого плэйбоя Дэвида было все: деньги, свой собственный издательский дом, дорогая машина и квартира в респектабельном районе Нью-Йорка, друг-писатель и подружка Джулианна, даже враги, в лице семи управляющих его компанией, тоже были. Так он и жил без оглядки, пока в один прекрасный момент не встретил Софию.
+Его жизнь круто изменилась вскоре после этой встречи, (   Читать дальше...   )Производство: США, ИспанияЖанр: Фантастика, триллер, мелодрама, детективРежиссер: Кэмерон КроуАктеры: Том Круз, Пенелопа Крус, Кэмерон Диаз, Курт Рассел, Джейсон Ли, Ноа Тейлор, Тимоти Сполл, Тильда Суинтон, Майкл Шеннон, Ивана Милишевич, Алисия Уитт, Лора Фрейзер, Делайна Митчел, Шэлом Хэрлоу, Уна Харт, Джонни Галецки, Джейми Уилленс, Арманд Шульц, Кэмерон Уотсон, Робертсон Дин, У. Эрл Браун, Рэй Просиа...Перевод: ДублированныйЯзык субтитров: Русские, английские, литовские, латышские, эстонские, украинскиеПродолжительность: 02:10:25
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Ukrainian Warfare: Gostomel Heroes (2026) [Ru/Multi] (Build 22572514) Scene Teno
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063860.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063850.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GRIME II (2026) [Ru/Multi] (1.0.17360c) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063849.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Last Faith (2023) [Ru/Multi] (2.03/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063785.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Truck Mechanic: Dangerous Paths (2026) [Ru/Multi] (1.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063784.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Truck Mechanic: Dangerous Paths (2026) [Ru/Multi] (1.0.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063783.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GRIME II (2026) [Ru/Multi] (1.0.17360c) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063782.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ GRIME II (2026) [Ru/Multi] (1.0.17360c) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063780.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Super Meat Boy 3D (2026) [Ru/Multi] (0.3) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063766.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Hard
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063765.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Legacy of Kain: Ascendance (2026) [Ru/Multi] (1.0.5.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063675.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Crown of Greed (2026) [Ru/Multi] (1.0.0f5/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063674.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Whispers of the Eyeless (2025) [Ru/Multi] (1.0.3.4) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063672.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Legacy of Kain: Ascendance (2026) [Ru/Multi] (1.0.5.2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063671.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Aether & Iron (2026) [Ru/Multi] (1.0.159/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063668.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.08/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063644.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Truck Mechanic Dangerous Paths (2026) [Ru/Multi] (1.0.1 02.04.2026) Repack Let's
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063609.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326) Repack dixen18 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063602.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Temtem: Swarm (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063595.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Darwin's Paradox (2026) [Ru/Multi] (1.0.1.24747) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063588.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ukrainian Warfare: Gostomel Heroes (2026) [Ru/Multi] (1.1.508.2) Repack Let'sРl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063581.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063546.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ DOOM Eternal (2020) [Ru/Multi] (20260319-122157/dlc) License GOG [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063545.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Super Meat Boy 3D (2026) [Ru/Multi] (1.2 34) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063499.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ YAR: Forgotten Throne / ЯР: Забытый Чертог (2024) [Ru/Multi] (1.0
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063498.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Salvage Shop Simulator (2026) [Ru/Multi] (1.0.020) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063473.jpg" />
 </div>
 
 

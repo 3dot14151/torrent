@@ -1,117 +1,3 @@
-###  Публикация: 1723202   (56499) от 15.05.2024
-
-Modern Talking - Video Collection (2024) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Дарю это собрание клипов легендарного дуэта, всем кто любит музыку 80х. Сделал всё что смог, из того материала, который нашёл для реставрации, в приемлемом качестве. Творчество Modern Talking, приятно и смотреть и слушать. Чтобы понять гениальность этой музыки, рекомендую послушать их альбомы 80х, в формате FLAC, в хороших наушниках, с нормальным усилителем. Откроете (   Читать дальше...   )00. Intro
-01. Atlantis Is Calling (S.O.S. For Love)
-02. You're My Heart, You're My Soul
-03. Cheri Cheri Lady(   Читать дальше...   )Жанр: Pop, DiscoКачество: WEBRipПродолжительность: 03:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CF46D233D9DA3AF063DE3812519ADA0210AFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649908   (55436) от 25.05.2024
-
-Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] [Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Cборник видеоклипов финской музыкальной группы, пик популярности которой пришёлся на вторую половину 90-ых и первую половину "нулевых".Жанр: Electronic breakbeat, Freestyle, Hip-HopРежиссер: Раймонд Эбанкс, Яакко СаловаараАктеры: Рэймонд Ибэнкс, Исмо Лаппалайнен, Яакко СаловаараПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8B082789C0A32573B6E0FE1712DEB7A1687B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725983   (55339) от 26.05.2024
-
-Queen: Live Aid (1985) BDRemux [H.265/1080p] [10-bit] [EN]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Выступление Queen на международном благотворительном музыкальном фестивале, состоявшийся 13 июля 1985 года. Мероприятие было организовано музыкантами Бобом Гелдофом и Миджем Юром, с целью сбора средств для помощи пострадавшим от страшного голода в Эфиопии 1984—1985 годов.
-Данный Remux взят из двух-дискового издания, вышедшего в 2024 году.01.Intro
-02.Bohemian Rhapsody
-03.Radio Ga Ga
-04.Ay-Oh(   Читать дальше...   )Жанр: РокЯзык озвучки: английскийСубтитры: отсуствуютПродолжительность: 00:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D76DD87C9249AB920FF1DA0E73822628A0D824E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725901   (55332) от 26.05.2024
-
-Queen: Rock Montreal (1981) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [EN / EN Sub]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт Queen в Монреале, Канада. В фильме принимали участвие Freddie Mercury, Brian May, John Deacon, и Roger Taylor. Изначально название фильма "We Will Rock You" и с этим название фильм был показан на Каннском кинофестивале в мае 1983 года. Отреставрированная версия 4K была выпещена на 2 дисках. На них присуствует 4 версии концерта -  1.33:1 на (   Читать дальше...   )01.Intro
-02.We Will Rock You (fast)
-03.Let Me Entertain You
-04.Play The Game(   Читать дальше...   )Жанр: РокРежиссер: Сауль СвиммерЯзык озвучки: английскийСубтитры: английские (PGS)Продолжительность: 01:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5742F8BA68C903BC8EE80E242EDF20EEE84BD1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725809   (55306) от 26.05.2024
 
 Квартирник у Маргулиса. Виталий Дубинин (25.05.2024) WEBRip [H.264/1080p]
@@ -120,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55306.jpg" />
 </div>
 
 
@@ -149,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53540.jpg" />
 </div>
 
 
@@ -178,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53292.jpg" />
 </div>
 
 
@@ -207,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53090.jpg" />
 </div>
 
 
@@ -236,7 +122,7 @@ BAND-MAID - World Domination Tour at Zepp Tokyo (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52996.jpg" />
 </div>
 
 
@@ -266,7 +152,7 @@ BAND-MAID - Tour Autumn-Winter 2017 at Studio Coast (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52985.jpg" />
 </div>
 
 
@@ -296,7 +182,7 @@ BAND-MAID - World Domination Tour (Shinka) at Line Cube Shibuya (Shibuya Public 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52978.jpg" />
 </div>
 
 
@@ -326,7 +212,7 @@ BAND-MAID - Tokyo Garden Theater OKYUJI (2023) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52809.jpg" />
 </div>
 
 
@@ -356,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52775.jpg" />
 </div>
 
 
@@ -382,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52622.jpg" />
 </div>
 
 
@@ -411,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52447.jpg" />
 </div>
 
 
@@ -440,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52254.jpg" />
 </div>
 
 
@@ -469,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51680.jpg" />
 </div>
 
 
@@ -495,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51666.jpg" />
 </div>
 
 
@@ -522,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51663.jpg" />
 </div>
 
 
@@ -548,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51655.jpg" />
 </div>
 
 
@@ -575,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51650.jpg" />
 </div>
 
 
@@ -604,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51576.jpg" />
 </div>
 
 
@@ -632,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51559.jpg" />
 </div>
 
 
@@ -658,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51557.jpg" />
 </div>
 
 
@@ -684,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51556.jpg" />
 </div>
 
 
@@ -711,7 +597,7 @@ Chris Isaak  "BEST OF" (2006) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51554.jpg" />
 </div>
 
 
@@ -725,6 +611,120 @@ Chris Isaak  "BEST OF" (2006) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:484206F5E971D1BB1782900808FCBE7BF4EB3533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 324267   (51546) от 30.06.2024
+
+Свои люди - сочтёмся (1970) VHSRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертная комедия рассказывает нам о мире, в котором царит обман, и если мошенник бывает наказан, то только потому, что его обманывает еще больший плут.
+Очень хитро поступил купец Большов, объявив себя банкротом и положившись во всем на своего преданного приказчика. Да только не перехитрил ли он самого себя? Случается, плут сталкивается с еще более искусным плутом (   Читать дальше...   )Жанр: Спектакль, комедияРежиссер: А.ЗиновьеваВ ролях: Р.Филиппов, Г.Скоробогатова, М.Фомина, Ю.Соломин, А.Щепкина, А.Смирнов, В.Обухова, С.ЕремеевФормат: AVIПродолжительность: 02:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A116D45A83E2646D393E998722A51FAC5F8C39E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478468   (51538) от 30.06.2024
+
+Ричард III / Театр им. Вахтангова (1982) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Театра им. Евг. Вахтангова по одноименной трагедии Уильяма Шекспира.
+
+Ричард родился уродом – он был горбат и кривобок и знал, что не имеет шансов на престол, так как его нормальные братья обошли его в этом. Он, понимая свою неполноценность, овладевает такими «науками», как коварство, лицемерие, жестокость и становится мастером придворных интриг. (   Читать дальше...   )Жанр: драма, спектакльРежиссер: Рачья Капланян, Михаил УльяновПродолжительность: 01:34:19 + 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6A891E3602162F1A3AE28FE7DB821CE5BBC937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481491   (51535) от 30.06.2024
+
+Синие розы / Театр на Фонтанке (2012) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Санкт-Петербургского Молодёжного театра на Фонтанке по мотивам пьесы Теннесси Уильямса "Стеклянный зверинец".
+
+Мир "Стеклянного зверинца" - это мир юности Теннеcси Уильямса, его истоков, его дома. Спектакль рассказывает историю одной американской семьи. Герои пьесы замкнуты в своем мире: мать семейства Аманда живёт воспоминаниями, сын (   Читать дальше...   )Жанр: драма, спектакльРежиссер: Лев ШехтманПродолжительность: 02:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FED7CB5B71C5B92E5D1B71D68F4A3BBDF7A8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466806   (51528) от 30.06.2024
+
+Сирано де Бержерак / Театр им. Моссовета (2006) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Московского Государственного академического театра им.Моссовета по одноименной пьесе Эдмона Ростана.
+Перевод с французского Т.Щепкиной-Куперник и В.Соловьева.
+
+Судьба бывает несправедлива к талантливому человеку во все времена. Если она дарует блестящий ум и светлую душу, то обязательно лишит его внешней привлекательности. Сирано смел, бескорыстен, благороден (   Читать дальше...   )Жанр: героическая комедия, спектакльРежиссер: Павел ХомскийПродолжительность: 02:25:54
+
+Качество видео: 1,36Gb на два с половиной часа для идеала маловато будет!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5ECC611DC0E277A0D68926907A3D8070680F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

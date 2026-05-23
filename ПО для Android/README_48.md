@@ -1,55 +1,3 @@
-###  Публикация: 993029   (723362) от 05.06.2016
-
-8 Minutes Abs Workout v2.4.32 [Ru/Multi] - Комплекс упражнений для тренировки пресса
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Наконец, самые известные тренировки в мире предоставлены на ваши портативные устройства, поэтому вы можете ими воспользоваться где, как и когда вы хотите! Мы не можем обещать, что вы будете терять вес после выполнения наших тренировок или что вы будете иметь идеальный пресс, красивые ягодицы или стальные мышцы .... Никогда не доверяйте никому кто Вам гарантирует (   Читать дальше...   )Тип издания: Пиратка (Paid features Unlocked)Релиз состоялся: 01.04.2016Разработчик: Passion4Profession AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AC97FDEC3C74789CF330F6267FDD490A54E3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217736   (722934) от 09.04.2018
-
-DigiSender TV Launcher 2.6.3 RU [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Полнофункциональный интерфейс Leanback для устройств на Android. Настройте щелкнув иконку в верхнем левом углу главного экрана. Доступ к настройкам приложения с длинным нажатием на значок приложения. Полный список приложений доступен, щелкнув значок «Apps» вверху.Тип издания: Русская модификация без рекламыРелиз состоялся: 06.04.2018Разработчик: AEI Security & Communications LtdПоддерживаемая ОС: Android 5.0.1 или более поздняяЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F774F3ACC3520BA04EEF1F5857CC16DCD84F87B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129501   (722276) от 28.04.2017
 
 GlassWire для Android (Data Usage Privacy) 1.0.50r [En]
@@ -58,7 +6,7 @@ GlassWire для Android (Data Usage Privacy) 1.0.50r [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722276.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Balance BY Pro 6.0.203 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721822.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721328.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ iMuscle 2 v1.9 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720144.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ AdAway 4.3.6 и 5.0.6 Beta [Ru] - Блокировщик рекламы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716445.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ AutoBoy v3.5.1 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716050.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ MScopesPro for USB Camera v1.28 [En/Rus] - запись видео с внешн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715874.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714536.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714408.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Infinite Design v3.4.21 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714310.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Gboard – Google Клавиатура 6.2.34.154174348 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712176.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711768.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711608.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711569.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ MyTV v2.0.0-beta+1244 [Ru] - приложение для просмотра ТВ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711053.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ Paper Camera v4.4.231 [Ru/Multi] - фотографии в виде рисунк
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711049.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707675.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ Audiomack v5.7.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707516.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ Persona: Бьюти-камера v1.3.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706699.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ Remotix VNC RDP Remote Desktop v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706318.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ SURE Universal Remote v4.11.90 [Ru/Multi] - Универсальный пуль�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706313.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ USB Camera Standard 2.1.2 [En] - запись видео с внешней ве�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702880.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ Vocaberry  v2.7.3 [Ru] - научиться петь 0+ (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701582.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ Vocal Range Vocaberry v0.8.0 [Ru] - Диапазон Голоса (обновл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701581.jpg" />
 </div>
 
 
@@ -674,6 +622,62 @@ A2-A4 - Баритон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3CC30E7826F8A168FBF1B652558B4765453371D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402391   (701412) от 14.08.2020
+
+Vocaberry Karaoke v0.22.1 [Ru] - Научиться петь популярные песни Vocaberry (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701412.jpg" />
+</div>
+
+
+###  Подробнее
+
+С этим приложением вы сможете научиться красиво петь любимые песни.
+Без занятий с преподавателем вы сможете попадать в ноты и не фальшивить, развить слух и музыкальную память. Караоке с 21480 песнями на разных языках (включая RU). Во всех песнях поддерживается «фирменная» технология. По окончании исполнения показывается оценка в баллах.Тип издания: Пиратка (Mod)Релиз состоялся: 12.07.2020Разработчик: adhocappПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEC250B2FD15BD04E7CAF304AE365C09A0F669B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400349   (701168) от 14.08.2020
+
+Справочник электрика v1.0 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701168.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Справочник электрика" - это программа в которой собраны интересные и познавательные статьи про электрику.
+
+В этом приложении собраны статьи:
+- Последовательное соединение проводников(   Читать дальше...   )Тип издания: AdFree (без рекламы)Релиз состоялся: 13.08.2020Разработчик: strange theoryПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D99BA7F5C4A88F81B12FF26D3CCBA8C4F728604
 ```
 
 https://mybot314.ru/tekegram_catalog/

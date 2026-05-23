@@ -6,7 +6,7 @@ VirtualBox 6.0.12 Build 133076 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435097.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ESET NOD32 | ESET Endpoint 7.0/6.x/5.x (x32 x64) Offline Update 12378 (октя�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435077.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Re-Loader Activator 1.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435076.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ UltraSurf 15.02 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435072.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ IObit Driver Booster Pro 3.0.3.261 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435064.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Shadow Defender 1.4.0.591 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435059.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BurnAware Professional 10.5 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435012.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ZD Soft Screen Recorder 11.1.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434946.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ oMega Commander 2.2.55 Build 3941 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434930.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Shadow Defender 1.4.0.591 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434914.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Wondershare Data Recovery 6.5.0.8 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434874.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MediaInfo 0.7.99 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434867.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434832.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sleipnir 6.2.1.4000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434825.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tor Browser Bundle 8.0.1 DC 21.09.2018 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434788.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Movavi Video Converter 18.4.0 Premium DC 17.08.2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434787.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Acrobat Pro DC 2018.011.20063 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434775.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Citrio 50.0.2661.273 (0.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434682.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ QQ Browser 9.5.9244.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434676.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Everything 1.4.1.773 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434671.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Adobe AIR 27.0.0.124 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434665.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Balabolka 2.11.0.611 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434662.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Display Driver Uninstaller 17.0.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434661.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Torch Browser 52.0.0.11657 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434658.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Creative SB X-Fi Series Support Pack 2.0 [только английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434548.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Hetman Excel Recovery 2.5 Home Edition RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434499.jpg" />
 </div>
 
 

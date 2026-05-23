@@ -6,7 +6,7 @@ Beast Quest (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774889.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ghost of a Tale (2018) [Ru/Multi] (7.91) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774789.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Planescape Torment (2017) [Multi] (3.0.3.0) License CODEX [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772738.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dragon Age II / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772512.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Terrible Beast from the East (2019) [En/Ch] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771317.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bloom: Labyrinth (2019) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771209.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769422.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769415.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Cosmic Star Heroine (2017) [En] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768443.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Bastion (2011) [Ru/En] (0.12367) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768386.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Bound by Flame (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767162.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ELEX (2017) [Ru/Multi] (1.0.2981.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766607.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Shadowhand (2017) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766478.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Moonfall (2017) [Ru/Multi] (1.00) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765929.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764999.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ghost of a Tale (2018) [Ru/Multi] (6.39) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763859.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762758.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Ash of Gods: Redemption (2018) [Ru/Multi] (1.0.7) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762749.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Ni no Kuni II: Revenant Kingdom (2018) [Ru/Multi] (1.0/dlc) License CODEX [The P
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761021.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759457.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759368.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0/upd9/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756958.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752506.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751193.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.B258.R57446) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749379.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747583.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Airbourne - Boneshaker (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305268.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stephen Pearcy (ex-Ratt) - View To A Thrill (2018) Japanese Edition [MP3|320 Kbp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303394.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Black Sabbath - The End (2017) Live [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302884.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ian Paice and Forever Deep - Made in Verona (2010) [MP3|320 кб/с]<Hard Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301103.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Deep Purple - The Infinite Live Recordings, Vol. 1 (2017) [MP3|320 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301080.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Jorge Salan - Tempus (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299943.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - 80s Hard Rock Anthems (2016) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Soft R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299702.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Foreigner - The Best Of Foreigner 4 & More (2014) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295657.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Hard Life. Heavy Music. Metallection (3CD) (2001-2004) [MP3|320 кб/с]<Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294927.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Santa Cruz - Katharsis (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294871.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Hardbone - Tailor-Made (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294188.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Silked & Stained - Goes Up to Eleven (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291311.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Trixie - Shelter (2006) [MP3|320 Kbps] <Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288479.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Deaf Rat - Ban the Light (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287707.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [MP3|320 K
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287132.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Good Rats - Ratcity In Blue (1976) Remastered, 1998, Uncle Rat Music [MP3|320 к
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285798.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Growl - Growl (1974) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285789.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sister Whiskey - Liquor & Poker (1993) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285783.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ After Hours - Take Off (1988) [MP3|320 кб/с]<AOR, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284129.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ AC/DC - Transmission Impossible Legendary Broadcasts From The 1970s (2016) [MP3|
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283941.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Cry Of Love - Brother (1993) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280920.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Tiger B. Smith - Tiger Rock (1972) Reissue, 1997, Second Battle [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280781.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Wildness - Wildness (2017) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280450.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Revolution Highway - Revolution Highway (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279514.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Ruud Cooty - Aftermath (2002) [MP3|320 Kbps] <Hard Rock, Heavy Blues>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279102.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ WHITE LION - Дискография (1985-2008) [MP3|320 kbps]<Hard Rock,Glam Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278554.jpg" />
 </div>
 
 

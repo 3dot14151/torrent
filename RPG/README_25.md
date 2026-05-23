@@ -6,7 +6,7 @@ City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556892.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556690.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556342.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Deep Sky Derelicts (2018) [Ru/En] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556297.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555961.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mary Skelter: Nightmares (2018) [En/Jp] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553761.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Overlord II / Overlord 2 (2009) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552098.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SteamWorld Quest: Hand of Gilgamech (2019) [Ru/Multi] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550003.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Zombasite (2016) [En] (1.000) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549823.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SpellForce 3 (2017) [Ru/Multi] (1.40.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549177.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Bastion (2011) [Ru/Multi] (1.50436) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547511.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Divinity Original Sin 2 / Divinity Original Sin II (2017) [Ru/Multi] (3.6.44.404
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547493.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Outward (2019) [Multi] (1.0upd2/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545062.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sword Art Online: Hollow Realization (2017) [Multi] (1.00) License SKIDROW [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543549.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Starbound (2016) [Ru/En] (1.4.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542301.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (2.7a/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539420.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536816.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NECROPOLIS: A Diabolical Dungeon Delve (2016) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535857.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Lisa (2014) [Ru] (1.0u2) Repack MasterDarkness
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533836.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Technomancer (2016) [Ru] (1.0.3636) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533787.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Silver (1999) [Ru/En] (1.23) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531333.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mechajammer (2021) [En] (1.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531332.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Deiland (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531131.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Deiland (2018) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531122.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530150.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529462.jpg" />
 </div>
 
 

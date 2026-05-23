@@ -6,7 +6,7 @@ Nero v11.2.00400 Lite RePack by MKN 11.2.00400 [ Русский/ Английс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79250.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79218.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Panda Cloud Antivirus 1.5.2 [Multilanguage+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79073.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79063.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Qip 2012 4.0 Build 7210
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79013.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78972.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ PhotoLine_17.01_ML+RUS_Portable 17.01 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78942.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Google Sketchup Free & Pro v8.0.11752 [Английский/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78880.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ PhotoLine 16.54 ML+Rus Portable 16.54 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78731.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Windows 7 Ultimate x64 Enigma 3in1 R.G.Win&Soft v.21.02.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78683.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Portable Microsoft Office Enterprise 2007 PreSP3 DreamEdition 2010.2 Win7x86 & W
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78673.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Super Boot DVD by bucefal82 v.1.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78652.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WinDoZa Live CD & USB by Core-2 11.2.12 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78651.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ WinZip 16.0.9715r Pro Final / Офрелиз Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78639.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kaspersky World 1.3.0.11 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78602.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ AVG Anti-Virus Pro 2012 SP1 RC ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78596.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Daum PotPlayer 1.5.32007 Stable & Portable by SamLab + 164 Skins / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78590.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Spotmau Power Suite Golden Edition 2012 v7.0.1 & Portable  / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78549.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Privatefirewall 7.0.26.4 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78483.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Lenovo IdeaPad Z460 Z560 оригинальный диск для Windows 7 Driv
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78479.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Open Server 4.1.2 (Mini+Standart+Full) [Русский, Украинский, Б
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78440.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Microsoft Toolkit 2.3 Stable / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78393.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Any DVD Converter Professional 4.3.4 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78312.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Corel Paint Shop Pro Photo X2 Portable RUS 12.0.1.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78270.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 WPI Boot by OVGorskiy 19.02.2012
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78256.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Xilisoft Video Converter Ultimate v.7.1.0.20120222 (x32/x64/RUS) - Тихая у
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78255.jpg" />
 </div>
 
 

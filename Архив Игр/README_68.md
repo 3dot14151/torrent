@@ -6,7 +6,7 @@ Hyperspeed: Alien Combat and Role-Playing Adventure (RePack) [En] 1991 | RG game
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260780.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Machinarium / Машинариум [Ru/En] (RePack/1.1) 2009 | R.G. Механи
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260647.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Port Royale 3: Pirates & Merchants [Ru] (RePack/1.1.2 build 24556) 2011 l R.G. R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260527.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260505.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Max Payne 3 (Update1) 2012 | REVOLT/SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260369.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ridge Racer Unbounded {1.11} (RePack) [Multi6\+] 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260318.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260309.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ The Tuttles: Madcap Misadventures {0.99b} (P) [En] 2007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260246.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Red Orchestra 2: Heroes of Stalingrad Game of the Year Edition [En] (L) 2011 | H
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260123.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Mad Riders [En] (RePack/1.0.1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259977.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Contraption Zack [En] (RePack) 1992 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259846.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ The Binding of Isaac: The Wrath of the Lamb [En] (Rip/1.1) 2012 | Theta
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259724.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Gas Guzzlers: Combat Carnage (RePack/1.0) [En/Ru] 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259665.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Titus the Fox: To Marrakech and Back [En] (RePack) 1992 | RG games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259599.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259586.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Gas Guzzlers: Combat Carnage (RePack/1.0) [En/Ru] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259468.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259465.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259464.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Alan Wake's American Nightmare (RePack/1.01.16.9062) [Ru] 2012 l R.G. World Game
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259459.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Alan Wake's American Nightmare (Rip) [Multi6/-] 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259244.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259234.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ghost Rider (RePack/Emul) [Ru] 2007 | MarkusEVO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258948.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258656.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258434.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Kerbal Space Program [En] (L/0.15) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258409.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ The Incredible Hulk [Ru/En] (RePack/1.1) 2008 | Soprano
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258185.jpg" />
 </div>
 
 

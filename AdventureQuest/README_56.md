@@ -1,29 +1,3 @@
-###  Публикация: 1342725   (222295) от 03.12.2019
-
-Waxworks (1992) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Кошмар начался, когда вам было восемь лет, и ваш брат-близнец Алекс без вести пропал в черном лабиринте под кузницей Виста, где ваш дядя Борис хранил свои одержимые демонами восковые фигуры. Прошло 20 лет... Дядя Борис умер, а вы получили в наследство его адскую коллекцию и жуткое известие о том, что Алекс жив. Одержимый древним семейным проклятием, он намеревается (   Читать дальше...   )Тип издания: LicenseРазработчик: HorrorsoftЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510397   (221731) от 30.11.2021
 
 The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
@@ -32,7 +6,7 @@ The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221731.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221509.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Lake Ridden (2018) [En] (1.5.1505) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220225.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Guest (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220157.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219988.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219631.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219121.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Pale Beyond (2023) [En] (1.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217515.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217481.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217261.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Republique Remastered: Fall Edition (2015) [Ru/Multi] (1.0) Repack R.G. Меха
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216942.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216418.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ DarkHouse (2021) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216196.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Wolfstride (2021) [Ru/Multi] (1.2.1) License GOG [Golden God Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216191.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ House on the Hill (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215358.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215319.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215177.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215115.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 7575778/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214268.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213968.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (s106) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212772.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ LEGO Indiana Jones: The Original Adventures (2008) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212744.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212739.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212531.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211978.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CB113710CC96CD461FF87575FFC4742146ABED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566676   (211616) от 30.07.2022
+
+Big Earth (2022) [En] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Earth - платформер со сложными головоломками и потрясающими визуальными эффектами. Отправляйтесь в это крошечное-огромное приключение вместе с доктором Кайлом Сидом и лично станьте свидетелем его путешествия по возвращению Земли и восстановлению будущего человечества. Природа задает нам насущные вопросы, а Большая Земля вносит в обсуждение совершенство и напоминает (   Читать дальше...   )Тип издания: LicenseРазработчик: PlayPlay StudiosЖанр: Приключенческие игры, Казуальные игры, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E4E558CE383AC3362E96C9A0A5B173EA914E64
 ```
 
 https://mybot314.ru/tekegram_catalog/

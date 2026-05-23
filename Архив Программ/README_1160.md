@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455402.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Mozilla Firefox 50.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455308.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ cFosSpeed 11.04 Build 2440 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455290.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BlueStacks App Player 4.230.10.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455285.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.50.3600 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455272.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AIDA64 Extreme Edition 5.50.3600 Repack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455271.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Re-Loader Activator 1.4 RC 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455270.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mozilla Firefox 41.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455265.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Mirillis Action! 1.27.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455260.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CDBurnerXP 4.4.2 Build 3442 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455251.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Punto Switcher 3.2.8 Build 94 RePack by elchupacabra [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455244.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Aiseesoft Total Video Converter Platinum v6.3.20 Portable by SamDel [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455241.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Mozilla Thunderbird 45.4.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455179.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Movavi Video Converter 15.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455154.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Acronis BootDVD 2015 Grub4Dos Edition v.32 (9/28/2015) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455147.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Novicorp WinToFlash Professional 1.3.0003 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455142.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ AIDA64 Extreme | Engineer | Business Edition 5.50.3600 Final + Portable [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455140.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Aiseesoft Total Video Converter Platinum v6.3.20 [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455075.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Password Recovery Bundle 2012 Enterprise Edition 2.25 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455071.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Mozilla Thunderbird 45.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455025.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.50.3600 Final RePack (& p
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454958.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ CoolUtils Total PDF Converter 6.1.0.155 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454927.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5278.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454908.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Album Player 2.108 (03.10.2016) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454902.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ DFX Audio Enhancer 11.104 RePack by D!akov [Английский / Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454882.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ DFX Audio Enhancer 11.104 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454871.jpg" />
 </div>
 
 

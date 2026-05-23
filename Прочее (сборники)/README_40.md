@@ -6,7 +6,7 @@ VA - Не спи за баранкой 5 (Музыка в машину) (2021) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827869.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Relaxing Songs (2020) [MP3|320 Kbps] <Pop, Rock, Ballads>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827805.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Vintage Jazz'Bossa EROTIC Journey (2020) [MP3|320 Kbps] <Lounge, Jazzy, Bos
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827642.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Official UK Top 40 Singles Chart (06-04-2014) [MP3|320 кб/с]<Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827588.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - Remixes 2020 NNM 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827355.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Soft & Chill (2020) [MP3|320 Kbps] <Acoustic, Chill Pop, Soft Rock, Easy Li
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826240.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - не Громкие новинки недели 66 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826236.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Vintage Nu Swing Desert (2020) [MP3|320 Kbps] <Nu Jazz, Electro Swing, EDM>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826232.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Super Hits 100 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825823.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Клубные Суперхиты (2017) [MP3|320 Kbps] <House, Club, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825669.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - 20 Песен, которые заставляют сердце битьс�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825667.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - 20 Кавер версий которые превзошли оригина
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825663.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Popular Dance Boy And Girl (2016) [MP3|64-320 кб/с] <Pop, Dance, Eurodan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825476.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Minimal Tech House: 120 Club Party (2017) [MP3|320 Kbps] <Dance, Club, Mini
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824968.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - 50 оттенков музыки 18+ (01.2016) [MP3|128-320 кб/с] <House
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824921.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Chill Tracks By Blank & Jones (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824605.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Italo Disco (2020) [MP3|320 Kbps] <Italo Disco, Euro-Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824475.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Зажигательный Eurodance Vol.1 (2017) [MP3|320 Kbps] <Eurodance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824363.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Зайцев.Нет: Лучшие Новинки Марта (2017) [MP3|192
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824361.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Vocal House Unlimited (2025) [MP3|320 Kbps] <Vocal, House, Electro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824149.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Only Retro Hits Arena (2017) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824121.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.68
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823721.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - The IDM Sounds: March Version (2017) [MP3|320 Kbps] <Club, Dance, Electro H
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822997.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - The Official UK Top 40 Singles Chart 08.05.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822765.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - ЕвроХит Топ 40 Europa Plus 08.05.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822658.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Moscow Cast - Бал Вампиров - официальная запись со
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822343.jpg" />
 </div>
 
 

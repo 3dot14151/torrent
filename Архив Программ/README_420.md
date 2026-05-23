@@ -6,7 +6,7 @@ Dism++ 10.1.25.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827802.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 7.33.0.105 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827788.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ TweakBit FixMyPC 1.8.1.4 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827785.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Spectrasonics - Omnisphere 2.7.0f VSTi, VSTi3, STANDALONE, AAX (x64) + Libraries
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827765.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5215.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827748.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Zoner Photo Studio X 19.2004.2.245 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827736.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Telegram Desktop 2.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827733.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Emurasoft EmEditor Professional 19.8.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827728.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ GeoGebra 6.0.580.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827727.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ GPU-Z 2.31.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827726.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.03.17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827696.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Google Chrome 57.0.2987.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827695.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ WebBrowserPassView v1.85 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827691.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827682.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CoolUtils Total CAD Converter 3.1.0.174 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827660.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Google Chrome 81.0.4044.138 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827657.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Spyware Terminator Premium 2015 3.0.1.112 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827611.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ IObit Driver Booster Pro 4.3.0.504 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827610.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Inkscape 1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827579.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ AOMEI Partition Assistant Technician Edition 8.8.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827568.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Hard Disk Sentinel PRO 5.61.2 Build 11463 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827567.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7177.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827531.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7177.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827530.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Microsoft Office 2010 Standard 14.0.7177.5000 SP2 RePack by KpoJIuK (2017.03) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827520.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ EMCO UnLock IT 5.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827475.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ AOMEI Partition Assistant Standard Edition 8.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827474.jpg" />
 </div>
 
 

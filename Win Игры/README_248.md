@@ -1,29 +1,3 @@
-###  Публикация: 550456   (445431) от 27.09.2012
-
-Small Tanks [En] (RePack) 2012
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Small Tanks - 3D игра на популярную тему танчиков. Прохождение начинается простыми миссиями и заканчивается настоящей мясорубкой. Если станет совсем трудно, можно позвать друга и подключить второго игрока. Пройденные миссии сохраняются, по этому можно не бояться потерять заработанные потом и кровью ранги и пройденные миссии. Удачи!(   Читать дальше...   )Тип издания: Переупакованная лицензияРазработчик: Dima KivaЖанр: Arcade / 3DЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A20E82165E2690CD7CB5DD0CA7793083BD8D5F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552670   (445422) от 27.09.2012
 
 Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
@@ -32,7 +6,7 @@ Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445422.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Steam-Rip CHRONOS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444807.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444489.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Othercide (2020) [Ru/En] (6.23/upd8) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444484.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.6/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444335.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Immortal Love 5: Kiss of the Night / Бессмертная любовь 5: По
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444309.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Memoirs of Murder 3: Behind the Scenes (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444182.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Spirit of Revenge 2: Elizabeth's Secret / Месть духа 2: Королев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443949.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Transference (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443794.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Battle Chef Brigade (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443680.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Carmageddon: Reincarnation (2015) [Ru/Multi] (1.2.0.7673) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443668.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Double Dragon: Neon (2014) [En] (1.0/u3) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443617.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443608.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Zombie Army Trilogy (2015) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443482.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Avernum: Escape From the Pit (2012) [Ru/En] (1.0.1S) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443468.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2/dlc) License PROPHET [Compete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443467.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ The Whispered World  / Ускользающий мир [Ru] (L) 2010
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443051.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Mystery Case Files 21: The Harbinger / За семью печатями 21: Пр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442687.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ A-Train 9 V3.0: Railway Simulator (2014) [En] (3.0) Repack Mr.Weegley [Premium E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442188.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Way of the Samurai 4 (2015) [En] (1.06.2/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442179.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ A-Train 9 V3.0: Railway Simulator (2014) [En] (3.0) SteamRip SKIDROW [Premium Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441983.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Lost Horizon 2 (2015) [En] (1.0.3) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441803.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Solstice (2016) [En] (1.4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441680.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Transference (2018) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441314.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Injustice 2 (2017) [Ru/Multi] (1.0/u12/dlc) Repack R.G. Catalyst [Legendary Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441298.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Injustice 2 – новейшая игра в жанре файтинг во вс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABBE746616F36102844D48C8DE1EAB248232A72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062380   (441200) от 13.10.2016
+
+Mantis Burn Racing (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гонка в Mantis Burn Racing стартует! В этой одной из самых красивых гонок с полным эффектом присутствия стремительное движение бампер-к-бамперу сочетается с интуитивно понятным, тактильным геймплеем и потрясающими визуальными эффектами. Сидя за рулем невероятного автомобиля, созданного с высокой степенью детализации специально для того, чтобы мчаться по завораживающим (   Читать дальше...   )Тип издания: RepackРазработчик: VooFoo StudiosЖанр: Racing (Cars), Arcade, Simulator, Top-down, 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E3004A782148282B3F14B83344D391CCA04911
 ```
 
 https://mybot314.ru/tekegram_catalog/

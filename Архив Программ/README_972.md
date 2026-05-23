@@ -6,7 +6,7 @@ Soft Kit 1.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557376.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VSO Downloader Ultimate 4.3.0.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557375.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Download Master 6.5.2.1475 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557359.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Google Chrome 44.0.2403.130 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557350.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ System Ninja 3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557348.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ R-Studio 7.7 Build 159222 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557341.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AMD Radeon Software Adrenalin Edition 18.7.1 Beta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557333.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PrivaZer 3.0.50 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557328.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AVG Internet Security 2015 15.0.6125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557317.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AVG AntiVirus 2015 15.0.6125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557311.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Telegram Desktop 1.3.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557293.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ IP-TV Player 0.28.1.8839 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557278.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ K-Lite Codec Pack 11.3.6 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557276.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SmithMicro Poser Pro 2014 10.0.5.28445 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557272.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Internet Download Manager 6.23 Build 18 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557270.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.5049.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557246.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ DAEMON Tools Pro Advanced 6.1.0.0485 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557228.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.30.3500 Final RePack (& p
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557215.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557212.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557206.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sandboxie 5.26 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557174.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Total Commander 9.20 VIM 32 Portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557168.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Office 2016 Standard 16.0.4717.1000 (2018.07) RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557159.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557157.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4717.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557155.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ PrivaZer 3.0.71 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557097.jpg" />
 </div>
 
 

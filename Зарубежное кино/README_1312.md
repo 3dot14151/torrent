@@ -1,56 +1,3 @@
-###  Публикация: 1175821   (371811) от 21.10.2017
-
-Фриц и Фредди / Frits en Freddy (2010) DVDRip [H.264] [AVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Братья Фриц и Фредди зарабатывают на жизнь продажей Библий. Однажды они оказываются в доме мафиози Карло Мауса и пытаются его ограбить. После неудачного ограбления, мафиози отправляется на разборки с братьями и взрывает их машину. За всем этим наблюдает полиция, следящая за Маусом. За оскорбление, унижение и машину Фриц и Фредди решают жестоко отомстить мафиози.Производство: Бельгия / Independent ProductionsЖанр: КомедияРежиссер: Ги ХоссенсАктеры: Франк Анденбом, Стиин Коул, Том Де Виспеларе, Фрэнк Фокетийн, Эрик Годон, Вим Опбраук, Питер Ван ден БегинПеревод: Авторский (Вадим Белов)Субтитры: отсутствуютПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E22F75EDC40E554FC1BBBBA6D78AA17A5B5D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175780   (371797) от 21.10.2017
-
-Мешки для трупов / Body Bags (1993) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В первой новелле, «Бензоколонка», материализуются ужасы симпатичной афроамериканки, настоящей королевы автозаправки, заступившей на дежурство в ночную смену.
-Во второй новелле, «Волосы», стареющий жуир, озабоченный появлением лысины, получает столь радикальное средство для роста волос, что от ужаса волосы дыбом встают! В третьей новелле, с названием «Глаз» — попавшему (   Читать дальше...   )Производство: США / 187 Corp., ShowtimeЖанр: Ужасы, Фантастика, Триллер, КомедияРежиссер: Джон Карпентер, Тоуб Хупер, Ларри СалкисАктеры: Уэс Крэйвен, Джон Карпентер, Том Арнолд, Сэм Рэйми, Роберт Кэррадайн, Питер Джейсон, Алекс Дэтчер, Молли ЧикПеревод: Многоголосый закадровый (СТС)Субтитры: отсутствуютПродолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33B40B27773E77E404F443BD935DAFD665CA4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 153429   (371788) от 18.11.2009
 
 Маска / The Mask (1994) [H.264] BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371788.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371746.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371740.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371723.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371684.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371636.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371574.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371480.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371477.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371462.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371412.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371364.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371351.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371239.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371237.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371235.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371231.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371213.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371204.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_371118.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371003.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ U-429: Подводная тюрьма / In Enemy Hands (2004) DVDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370861.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370733.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370729.jpg" />
 </div>
 
 
@@ -674,6 +621,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD094EEC4B8EE1A1C8F5DE7B684E3B60D77A4551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252516   (370723) от 01.11.2010
+
+2081 / 2081 (2009) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370723.jpg" />
+</div>
+
+
+###  Подробнее
+
+По рассказу Курта Воннегута "Гаррисон Бержерон".
+Шёл 2081 год. Все люди, наконец-то, стали равны. Они были равны не только перед Богом и законом. Они были равны во всём. Никто не был умнее другого. Никто не был красивее другого. Не было ни самых сильных, ни самых быстрых…Производство: СШАЖанр: Фантастика, Боевик, КороткометражныйРежиссер: Чандлер ТаттлАктеры: Эрми Хаммер, Джеймс Космо, Джули Хэгерти, Джеймс Барнс, Патриция Кларксон и др.Перевод: Любительский (Одноголосый закадровый), Оригинальный английскийПродолжительность: 00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736D1C938C94D522398C74F1168797229FB455C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576036   (370697) от 12.09.2022
+
+Храм диких гусей / Gan no tera / The Temple of the Wild Geese (1962) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370697.jpg" />
+</div>
+
+
+###  Подробнее
+
+По автобиографической повести японского писателя Цутому Мидзуками 1961 года. После смерти художника Нангаку Кисимото, нарисовавшего и передавшего в дар храму Кохо чудесные панно с изображением диких гусей, его молодую и красивую наложницу Сатоко берёт под своё покровительство священник Дзикай Китами. При храме также живёт прислуживающий юноша Дзинэн. Драматичная (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: драма, мелодрамаРежиссер: Юдзо КавасимаАктеры: Аяко Вакао, Масао Мисима, Исао Кимура, Кунъиити Таками, Гандзиро Накамура, Кю Садзанка, Минэко Ёродзуё, Ёсико Камо, Сёити Одзава, Ко НисимураПеревод: любительский одноголосый (Олег Воротилин)Субтитры: русские (дед_сто_лет), английские (Scannon & lordretsudo)Продолжительность: 01:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C31937CB1AD281A238ED940CD0F2C6C2B72422
 ```
 
 https://mybot314.ru/tekegram_catalog/

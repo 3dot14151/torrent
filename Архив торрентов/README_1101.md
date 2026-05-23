@@ -6,7 +6,7 @@ BlogTouch for Blogger 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797038.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ebia - Wavedancer (2008) [MP3|320 кб/с] <Traditional Electronic, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797037.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cookie 5.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797035.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ RightFont 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797030.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ TagScanner 6.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797018.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797014.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ iMazing 1.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797002.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Радио Шансон Хиты то, что надо (2016) [MP3|256 кб
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796999.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Zloe Fly Music - Travel Girl (2011) [MP3|256 кб/с] <Electro House, Electro Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796992.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ HyperSnap 8.16.02 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796991.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Coolmuster iOS Assistant 2.0.133 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796968.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Navicat Premium 12.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796964.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ XMedia Recode 3.3.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796962.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Cyberfox 46.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796959.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Percussion Bullet - Future Accommodation (2006) [FLAC|Lossless]<Progressive Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796953.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - Prismatic Perceptions Vol 1 (Compiled by Axell Astrid) (2018) [MP3|320 Kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796944.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796939.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Avast Clear 11.2.2738.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796938.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SmartAlbums 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796937.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Cookie 6.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796929.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Tap Forms Organizer 5 v5.3.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796926.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ MovieSherlock 6.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796923.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ System Toolkit 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796922.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ A Better Finder Attributes 7 v7.17 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796921.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Stats 2.6.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796920.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Nova 8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796918.jpg" />
 </div>
 
 

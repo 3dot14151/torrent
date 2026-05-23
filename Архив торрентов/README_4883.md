@@ -6,7 +6,7 @@ CoolUtils Total HTML Converter 5.1.0.310 RePack (& portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24678.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 10.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24674.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Care 365 Pro 7.2.3.696 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24667.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ iTubeGo YouTube Downloader 10.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24640.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Display Driver Uninstaller 18.1.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24620.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FurMark 2.7.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24607.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MobaXterm 25.1 build 5288 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24606.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Rosetta Stone: Изучение языков v8.32.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24598.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DigiKam 8.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24596.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Emurasoft EmEditor Professional 25.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24588.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Instant Translate On Screen / Перевод с экрана v6.9.31008 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24587.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ EF Commander 25.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24574.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sleep as Android: отличный сон v20250220 Mod by Alex.Strannik [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24570.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Shazam v15.13.0-250306 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24567.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ GPS Locker Prime v2.4.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24564.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ AIMP 5.40 Build 2668 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24560.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Alfa eBooks Manager 9.1.30 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24559.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 03.2025 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24552.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Adguard 7.20.2 (7.20.4988.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24529.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SketchUp Pro 2025 25.0.575 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24524.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ CopyQ 9.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24516.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 12.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24496.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AIMP 5.40 Build 2668 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24493.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ ES File Explorer File Manager v4.4.2.21 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24486.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24482.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Ventusky: Прогноз погоды v41.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24465.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ DiskDigger 1.67.23.3251 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542580.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Revo Uninstaller Free 2.3.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542573.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FastStone Image Viewer 5.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542565.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Novicorp WinToFlash Professional 1.1.0000 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542558.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Punto Switcher 4.1.0 Build 432 RePack (& portable) by KpoJIuK (04.08.2015) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542554.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Bat! Professional Edition 7.0.0.56 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542549.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Norton 360 22.10.0.85 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542511.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542509.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Maxthon Browser 5.2.4.1100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542439.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Kaspersky Rescue Disk 10.0.32.17 (03.08.2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542409.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Destroy Windows 10 Spying 1.3 beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542403.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Foxit Reader 7.2.0.722 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542400.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Destroy Windows 10 Spying 1.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542397.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Norton Security Premium 22.10.0.85 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542395.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Microsoft Toolkit 2.6 BETA 1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542375.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Norton Internet Security 22.10.0.85 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542367.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Avkeys 1.9.9.1 [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542365.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dr.Web Security Space 10.0.1.8040 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542351.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ BELOFF 2022.06 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542309.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ AIDA64 Business Edition 2.50.2042 Beta [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542296.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ R-Drive Image 6.2 Build 6206 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542271.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542269.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542266.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wise Care 365 Pro 4.26.413 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542247.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Cowboy WPI Summer StartSoft 47-2015-August Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542236.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Adobe Photoshop CC 2015.0.1 (20150722.r.168) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542228.jpg" />
 </div>
 
 

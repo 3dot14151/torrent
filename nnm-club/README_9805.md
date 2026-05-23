@@ -1,25 +1,24 @@
-###  Публикация: 1223943   (669777) от 07.05.2018
+###  Публикация: 1537283   (669318) от 15.03.2022
 
-John Patitucci - John Patitucci (1988) [FLAC|Lossless|image + .cue] <Fusion>
+Kaleidoscope 3.3 [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Growing (4:35)
-02. Wind Sprint (6:10)
-03. Searching, Finding (5:05)
-04. Baja Bajo (5:46)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:59:48
+Kaleidoscope — приложение, предназначенное для сравнения текстовых или графических файлов и быстрого поиска различий в них.
+Область применения программы предельно ясна.
+Если вы программист, то с помощью Kaleidoscope всегда будете видеть различия в коде двух версий файлов. При этом зелёным цветом будут подсвечиваться добавленные строки, красным — удалённые, а синим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2022Разработчик: © 2010-2022 Letter Opener GmbHПоддерживаемая ОС: OS X 11.1 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93F67EA8CCF1E6A7AC9B38FB57DDF9C0DA5891C6
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223857   (669776) от 07.05.2018
+###  Публикация: 1537243   (669317) от 15.03.2022
 
-VA - Best Of Uplifting Trance (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+Высокопреосвященнейший Димитрий, архиепископъ Херсонский и Одесский | Беседы на сто сороковой псаломъ (1900) [PDF, DJVU]
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steve Allen & Sue McLaren - Old Flame (Extended Mix)
-02. Hazem Beltagui & Sarah Russell - When Our Story Has To End (Stargazers Extended Mix)
-03. Alan Morris & Enzo & Jess Morgan - Tapestry Of Us (Extended mix)
-04. F.G. Noise & Patrick Dreama - Kepler (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:49:50
+Бесѣды на сто сороковой псаломъ на стихи:
+
+Господи, воззвахъ къ Тебѣ, услыши мя! Вонми гласу моленiя моего, внегда воззвати ми къ Тебѣ (ст. 1-й).
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACE52B5C0D9D47A69AB0D68134DE2E24A9250054
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223992   (669775) от 07.05.2018
+###  Публикация: 1537164   (669316) от 15.03.2022
 
-Журнал | Дачный клуб №6 (июнь 2018) [PDF]
+Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 
->>Журналы
->>Домоводство (журналы)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF
+A1 Well Known Lady
+A2 Good Loving Woman
+A3 Encore After Encore
+A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:36:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:572816B3E9EA696152A2879D21880A5FD8440793
+magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,31 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223947   (669774) от 07.05.2018
+###  Публикация: 1537169   (669315) от 15.03.2022
 
-Kathy Boye & The DTG Gang - I Feel Alive (2018) [MP3|320 Kbps] <Blues>
+Caravan Palace - Caravan Palace (2008) [AAC|~337 Kbps] <Jazz, Neo Swing, Electro Swing, Gypsy>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Французская блюзовая исполнительница Кэти Бойе́ с бандой DTG Gang успешно гастролирует по Европе уже не первый год.
-Ее проникновенный, страстный и мощный голос вместе с ее игрой на губной гармони мало кого оставляют равнодушными.
-Kathy Boyé - Vocals, Piano, Harmonica
-Mister Tchang - Guitars, Vocals(   Читать дальше...   )01. I Feel Alive  05:11
-02. Well on My Road  03:43
-03. No More Baby  04:20
-04. Crazy 16 Blues  06:23(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:07
+01. Dragons (4:06)
+02. Star Scat (3:51)
+03. Ended with the Night (5:00)
+04. Jolie Coquine (3:45)(   Читать дальше...   )Жанр: Jazz, Neo Swing, Electro Swing, GypsyПродолжительность: 00:54:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6574FDC2CC23DCF7AD8D4FB77066A2CB8EE85DED
+magnet:?xt=urn:btih:5E123E87F3B2920C1B85380B7D4D8A510E4D1232
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +113,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223955   (669773) от 07.05.2018
+###  Публикация: 1537118   (669314) от 15.03.2022
 
-Dear Rouge - Black To Gold (2015) [FLAC|Lossless|tracks] <Electronic Pop Rock, Dance Rock, Female Vocal>
+Valentina Studio Pro 12.0.7 [Multi/Ru]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black To Gold
-02. Best Look Lately
-03. Nostalgia
-04. I Heard I Had(   Читать дальше...   )Жанр: Electronic Pop Rock, Dance Rock, Female VocalПродолжительность: 00:42:19
+Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B288B2C5680272AB2C02902E74662AC0325A04B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223684   (669772) от 07.05.2018
+###  Публикация: 1537127   (669313) от 15.03.2022
 
-Jan Jelinek - Zwischen (2018) Faitiche [FLAC|Lossless|WEB-DL|tracks] <Experimental>
+VA - Sunrise Avenue, Vol. 7 (20 Lounge & Chill-Out Pearls) (2016) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alice Schwarzer, Is It True That You’re A Person Of Great Tenacity? (02:09)
- 02. John Cage, I've Been Told To Ask You The Following Question: Where Are You Going? (02:58)
- 03. Hubert Fichte, Your Journey Through Life Has Been Full Of Twists And Turns. Please Tell Us When And Where This Journey Began! (02:22)
- 04. Slavoj Zizek, What Signs Were There Of The Imminent (   Читать дальше...   )Жанр: ExperimentalПродолжительность: 00:30:05
+01. Glenn Edwads - Pure Water (Ibiza Sunset Mix) (4:30)
+02. Brian Connors - Tropical Sunset (Original Mix) (4:08)
+03. Gore Fontaine - Hindu Love (Original Mix) (3:25)
+04. Jason Chambers - Black Horse (Original Mix) (3:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E954F3553E7559633F78D77D5973AA4AA7701407
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,26 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223697   (669771) от 07.05.2018
+###  Публикация: 1537124   (669312) от 15.03.2022
 
-Текстуры - Creative Market - The AWSM Marble Textures Collection - 1437631 [JPG]
+VA - Sunrise Avenue, Vol. 5 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~338 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мраморные текстуры.
-Автор: this is awsm.Формат: JPGРазрешение файлов: 5000 x 5000
+01. Gary Cools - Watching from Above (Original Mix) (6:00)
+02. Jamie Rogers - Look Out (Original Mix) (3:11)
+03. Daniel Oliveira - Exeter (Original Mix) (3:29)
+04. Earl Coppens - Illusions of Dreams (Original Mix) (4:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:28:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F59A725EFE0B8C646080CB83E85E8E1E2385DEA0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,25 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223887   (669770) от 07.05.2018
+###  Публикация: 1537113   (669311) от 15.03.2022
 
-Р. Гильфердинг | Финансовый капитал: новейшая фаза в развитии капитализма (1922) [PDF]
+Антей (изд.) | Аборт - узаконенное детоубийство (2012) [PDF, DJVU]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В своём главном труде "Финансовый капитал" Гильфердинг сделал одну из первых попыток дать научное объяснение новым явлениям капитализма, связанным с его вступлением в стадию империализма. В нём Рудольф обобщил большой теоретический материал о появлении и деятельности акционерных обществ, образовании фиктивного капитала, описал биржу; рассмотрел процесс (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+В сборник вошли проповеди православных священников и другие материалы, выражающие позицию Христианской Церкви, осуждающей аборт как убийство.
+
+Приводятся неоспоримые доказательства такой оценки абортов как из Священного Писания, так и ссылаясь на данные науки, с целью спасти человеческие жизни и уберечь женщин от убийства своих детей.
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51F7A960649FF08528A0B5350FA0C4DE9DF96FA1
+magnet:?xt=urn:btih:31D8E9D2B7655D653FD697CB5112363152F820F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +226,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223975   (669769) от 07.05.2018
+###  Публикация: 1536258   (669310) от 15.03.2022
 
-VA - Progressive Electro House: 99 DJ Remix (2018) [MP3|320 Kbps] <Progressive, Electro, House>
+AngelMaker - Sanctum (2022) [MP3|320 Kbps] <Deathcore>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ожидаемая весеняя музыкальная подборка в направлении прогрессив хауса с названием "Progressive Electro House: 99 DJ Remix" полна занимательных мелодий, прекрасных, но интересных ритмов, а также владеет безупречным звуком. Если вам нравятся электро и в особенности прогрессивного хауса или просто тяготеете к клубным ритмам актуальной электронной музыки, то (   Читать дальше...   )01. Analog Jungs - Voyager (Imran Khan Remix)
-02. AQUILLA - Rewind (Original Mix)
-03. 1touch - Surfing Swans (Original Mix)
-04. Krashbeatt - Jump (Original Mix)(   Читать дальше...   )Жанр: Progressive, Electro, HouseПродолжительность: 11:22:09
+01. Slaughter
+02. Creators Conscience
+03. Eating the Body of God
+04. Effulgence(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:45:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25D0205035B4063420538C66352B279715394B6B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,28 +255,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223971   (669768) от 07.05.2018
+###  Публикация: 1537222   (669309) от 15.03.2022
 
-VA - Deep House Collection Vol.169 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Борис Заходер | Сказка про доброго Носорога (1980) [PDF]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Aaris Feat. Dj Antonio - S.O.S  (Roma Mario Reboot 2018)
-002. Adventure Tale - Sleepless in Eden  (Original Mix)
-003. Aera - The Sun Will (Original Mix)
-004. Ahmet Kilic feat. Adeba - You Are My Soul (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:42:29
+Рассказ в стихах про Носорога с чувствительной кожей. Для детей дошкольного возраста. Иллюстрации Т.Зуйковой.Жанр: Стихи, РассказФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:105AAE59591132A1F57CB67EDB40AEA2CEAF708A
+magnet:?xt=urn:btih:11A14B8C706F035C95DB091BD9CC035AF93717E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,26 +281,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223738   (669767) от 07.05.2018
+###  Публикация: 1537291   (669308) от 15.03.2022
 
-Текстуры - Creative Market - Cool Marble - 673703 [JPG]
+Мэри Пикфорд. Тэсс из Страны бурь / Tess of the Storm Country (1922) TVRip [H.264]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мраморные текстуры.
-Автор: Evlogiev CreativeФормат: JPGРазрешение файлов: 4500 x 3000
+Внимательный зритель конечно же скажет - "стоп-стоп, позвольте, я уже видел эту фильму с милейшей Мэри Пикфорд, буквально совсем недавно, вот же, это было в 1914 году". И будет прав. Есть такой фильм. И именно с Мэри Пикфорд. Дело в том, что практически с рождением и взрослением кинематографа появилось и такое понятие как "ремейк". Вот он и есть. (   Читать дальше...   )Производство: США, Mary Pickford CompanyЖанр: Драма, мелодрама, немое киноРежиссер: Джон С. РобертсонАктеры: Мэри Пикфорд, Ллойд Хьюз, Глория Хоуп, Дэвид Торренс, Форрест Робинсон, Джин Хершолт, Дэнни Хой, Роберт Расселл, Гас Савилл, Madame De BodamereПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 01:57:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AEC9700BD0CC66E1A63977D3A368302C90DCBA2
+magnet:?xt=urn:btih:81659AEB5FCFA08169A628A2C5C20DECDFD4CE95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,57 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223935   (669766) от 07.05.2018
+###  Публикация: 1137252   (669307) от 25.05.2017
 
-Dear Rouge - Phases (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic Pop Rock, Dance Rock, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked Thing
-02. Live Through The Night
-03. Stolen Days
-04. Boys & Blondes(   Читать дальше...   )Жанр: Electronic Pop Rock, Dance Rock, Female VocalПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EA9EBCED04905A071D4A4393CC15C51535A80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223882   (669765) от 07.05.2018
-
-Joyann Parker - Hard To Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Rockin' Blues, Blues Soul>
+Pam Taylor Band - Hot Mess (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bluer Than You (3:06)
-02. Dizzy (2:43)
-03. Envy (3:39)
-04. Evil Hearted (3:58)(   Читать дальше...   )Жанр: Rockin' Blues, Blues SoulПродолжительность: 00:49:12
+01. Smile Again  (04:01) 
+02. Hot Mess  (03:55) 
+03. Whatcha Doin'  (04:27) 
+04. It's So Easy  (04:26) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B32A6D73549BE630F0C72EA08F354C2E39A3D21E
+magnet:?xt=urn:btih:716F4B659B3622D898206B2B6DDA96FEEC5FDA6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,25 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223898   (669764) от 07.05.2018
+###  Публикация: 1137084   (669306) от 25.05.2017
 
-Журнал | Историк №5 (41) (май 2018) [PDF]
+Журнал | Elle Decoration [Россия] №6 (15) (июнь 2017) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяФормат: PDF
+"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C56BA4C1814CB5B01CDE4F24E39743000114273
+magnet:?xt=urn:btih:B1F27B1E1EFD9599860697D5C781C022766547B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,25 +362,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223941   (669763) от 07.05.2018
+###  Публикация: 1137014   (669305) от 25.05.2017
 
-Т.М. Калинина | Сведения ранних ученых Арабского халифата (1988) [PDF, DJVU]
+VA - Electro House Rarty. Volume. №2 (2017) [MP3|320 Kbps] <Club House, Electro House, Remix>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данный выпуск продолжающегося издания ”Древнейшие источники по истории народов СССР” содержит первую в отечественной истории комментированную публикацию арабских географических сочинений IX—X вв., содержащих ценную информацию о народах Восточной Европы, и в первую очередь Руси. Комплексный анализ всех известий арабских географических сочинений зтого времени позволяет (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
+01. Aine Aura - Uncover (Mountain Of Youth Remix)
+02. Croatia Squad - The Dance Machine (Original Mix)
+03. Dizco Dudes - World to Me (Radio Edit)
+04. Amade Landan - Inside (Original Mix)(   Читать дальше...   )Жанр: Club House, Electro House, RemixПродолжительность: 07:04:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1ADFAB6DCDB27E663865502C38EB214280F50F0
+magnet:?xt=urn:btih:1359D4D637C6FFCCC97F33D4B69F256C579A6D7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,28 +391,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223913   (669762) от 07.05.2018
+###  Публикация: 1137185   (669304) от 25.05.2017
 
-VA - Deepalma Ibiza 2018 | 5th Anniversary DJ Edition (Compiled By Yves Murasca, Rosario Galati & Keyano) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
+Газета | 1000 секретов [Украина] №10 (май 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669304.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFE07871557B00FE63FE3A6D9F14318239953FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137268   (669303) от 25.05.2017
+
+Tranceway - Around The World (2017) [MP3|320 Kbps] <Goa Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mind Trip (7:33)
+02. Alchimia (8:11)
+03. Human Evolution (7:41)
+04. Psychedelic Mirage At Timbuctu (8:18)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4C4D534DE428115C3D501AFF5A17531C5DC18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136976   (669302) от 25.05.2017
+
+VA - The Art of Electronic Music: Deep House Edition (2017) [MP3|320 Kbps] <Funky, Club House>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweed, Jalana, Dayne S - Finally (Dayne S Deep Mix) (6:16)
-02. Meines - Take Me Away Feat. Lenny (Original Mix) (5:48)
-03. Rosario Galati, Yves Murasca - Kalura (Original Mix) (6:30)
-04. Holter & Mogyoro - Summer Vibes (Original Mix) (6:28)(   Читать дальше...   )Жанр: Deep House, Tech House, Nu DiscoПродолжительность: 04:42:29
+01. CamelPhat - Siren Song - Radio Edit
+02. AMinusLex - Nepal - Radio Edit
+03. E.M.C.K. - Be Yourself - Radio Edit
+04. Paris Avenue - Better Day (In Lifetimes) - Radio Edit(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:04:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B2C236643DEA22C3C878934A3CB508C2D4D8A28
+magnet:?xt=urn:btih:5B09D0C49D9C2E8BD2B279C47BB4FBEEA3FFF72D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,25 +475,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030971   (669761) от 02.07.2016
+###  Публикация: 1137080   (669301) от 25.05.2017
 
-Большой Босс / The Boss (2016) WEB-DLRip
+Журнал | Садовод и огородник №10 (422) (май 2017) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В центре сюжета бизнес-леди, промышленный магнат, очутившаяся в тюрьме, погорев на теневых сделках. Отсидев положенное, женщина мечтает искупить вину и сменить статус мошенницы на всеобщую любимицу, только не все жертвы ее махинаций готовы пересмотреть свое отношение к ней.Производство: СШАЖанр: КомедияРежиссер: Бен ФэлкоунАктеры: Мелисса МакКарти, Кристен Белл, Питер Динклэйдж, Элла Андерсон, Тайлер Лабин, Кэти Бэйтс, Сесили Стронг, Мэри Сон, Кристен ШаалПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:49
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5F7F180AEEFAF73DAA59BB4EF7F7E0B44D2BEAE
+magnet:?xt=urn:btih:75876770AC4ED006C63770B55E5EA0224D8940AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,26 +501,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030878   (669760) от 02.07.2016
+###  Публикация: 1137300   (669300) от 25.05.2017
 
-The Walking Dead: Survival Instinct (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] [En]
+Script - Electronic And Spatial (unknown) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
 
->>Консольные Игры
->>Wii U
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Совершенно новый экшен с видом от первого лица, созданный по мотивам культового сериала, позволит вам прибегнуть к любым средствам ради собственного выживания. Вам предстоит взять на себя роль загадочного Дерила Диксона, который, вместе со своим неуравновешенным братом Мэрлом, отправляется на отчаянные поиски пути к призрачной безопасности Атланты.
-Вас ждет захватывающая (   Читать дальше...   )Тип издания: LicenseРазработчик: Terminal RealityЖанр: Horror, Action, Survival horrorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Script - редкое французское космическое диско высшей категории конца 70-х. Прозорливый меломанский глаз сразу обнаружит здесь обработки знаменитых мелодий группы Space и сольно Didier Marouani, Space Art, композиции из фильмов "Звездные Войны", "Стар Трек" и другие необходимые для коллекции вещи. Год выпуска ориентировочно - 1979.01. Star Wars (4:04)
+02. 2001 A Space Odissey (4:18)
+03. Star Trek (2:44)
+04. The Eve Of The War (The War Of The Worlds) (3:35)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:49:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46B66F2EFB338F4C9A08F73E11B8AF6AB054B42F
+magnet:?xt=urn:btih:D6EEC59811ADCF988F0EFA1454891DF50E919545
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,25 +530,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030461   (669759) от 02.07.2016
+###  Публикация: 1137025   (669299) от 25.05.2017
 
-Бэтмен против Супермена: На заре справедливости / Batman v Superman: Dawn of Justice (2016) AC3 5.1 [hand made] [Extended Ultimate Edition]
+Selwyn Birchwood - Don't Call No Ambulance (2014) [MP3|320 Kbps] <Blues Rock, Electric Blues>
 
->>След.
->>Звуковые дорожки и субтитры
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Опасаясь, что действия богоподобного супергероя так и останутся бесконтрольными, грозный и могущественный страж Готэм Сити бросает вызов самому почитаемому в наши дни спасителю Метрополиса, в то время как весь остальной мир решает, какой герой ему по-настоящему нужен. И пока Бэтмен и Супермен пребывают в состоянии войны друг с другом, возникает новая угроза, которая (   Читать дальше...   )Жанр: Фантастика, БоевикПеревод: Дублированный(центральный канал iTunes)Продолжительность: 03:02:00
+01. Addicted (02:34)
+02. Don't Call No Ambulance (03:51)
+03. Walking In The Lion's Den (03:39)
+04. The River Turned Red (04:16)(   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:53:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBBB3655C35D725A0EF1D68C652A52663B05C1FE
+magnet:?xt=urn:btih:55F915F2191C458F741CCB61313939B732432A75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,25 +559,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030980   (669758) от 02.07.2016
+###  Публикация: 1137127   (669298) от 25.05.2017
 
-Большой Босс / The Boss (2016) WEB-DL [H.264/1080р-LQ]
+VA - Jazz Dictionary U (2017) [MP3|320 Kbps] <Jazz>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669298.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В центре сюжета бизнес-леди, промышленный магнат, очутившаяся в тюрьме, погорев на теневых сделках. Отсидев положенное, женщина мечтает искупить вину и сменить статус мошенницы на всеобщую любимицу, только не все жертвы ее махинаций готовы пересмотреть свое отношение к ней.Производство: СШАЖанр: КомедияРежиссер: Бен ФэлкоунАктеры: Мелисса МакКарти, Кристен Белл, Питер Динклэйдж, Элла Андерсон, Тайлер Лабин, Кэти Бэйтс, Сесили Стронг, Мэри Сон, Кристен ШаалПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:49
+01. Cedar Walton Trio - Ugetsu (6:04)
+02. John Di Martino Romantic Jazz Trio - Ugly Beauty (5:37)
+03. Dan Nimmer Trio - Uh Huh (5:16)
+04. Enrico Rava - Un Bel Di, Vedremo (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D9C8BF9F6A883F57268B58BE0A5614DF4426E04
+magnet:?xt=urn:btih:A272E77939B04D3B09540269606CB28FF5703E77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,25 +588,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030903   (669757) от 02.07.2016
+###  Публикация: 1137094   (669297) от 25.05.2017
 
-MAGIX Movie Edit Pro 2016 Premium 15.0.0.102 + Content [Ru/En]
+Журнал | Золотые рецепты наших читателей №10 (188) (май 2017) [PDF]
 
->>3
->>След.
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MAGIX Movie Edit Pro 2016 - это программа для работы с видео, способная удовлетворить самые высокие требования профессиональных пользователей. Эта программа является победителем самых разных конкурсов и включает в себя уникальный набор инструментов для детальной обработки видео и аудио. Кроме того благодаря продуманной разбивке программы на модули и повышенной производительности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6D3A8ADB72DE5925DA35821199BAA586A44E662
+magnet:?xt=urn:btih:C61D1A03FD3D9F51617D1766AA72C37A1E3024BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,26 +614,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030937   (669756) от 02.07.2016
+###  Публикация: 1137137   (669296) от 25.05.2017
 
-Imagenomic Plug-in for Photoshop, Aperture 3 and Lightroom (upd 02.07.2016)
+Chastity Brown - Silhouette Of Sirens (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, RnB, Folk>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект плагинов от компании Imagenomic …
-Portraiture -  незаменимый фильтр, который превратит ваше фото в гламурный снимок, позволит избежать трудоемкой процедуры попиксельного ретуширования снимка с целью удаления дефектов изображения. Благодаря реализованной в приложении технологии интеллектуального сглаживания, фотолюбители смогут бесследно удалять дефекты, не (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 июля 2016Разработчик: ImagenomicПоддерживаемая ОС: Mac OS X 10.9.x +Язык интерфейса: Английский
+01. Drive Slow (4:19)
+02. Wake Up (4:21)
+03. Carried Away (4:04)
+04. Whisper (4:43)(   Читать дальше...   )Жанр: Blues, RnB, FolkПродолжительность: 00:48:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAB1276BFF3990C8211A768C17698B68D9E162F2
+magnet:?xt=urn:btih:30300C9081D74F418EE3E50D7C69AC9594BC286A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,25 +643,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030774   (669755) от 02.07.2016
+###  Публикация: 1137214   (669295) от 25.05.2017
 
-Пятница (2016) Blu-Ray [H.264/1080p]
+Email Archiver Enterprise 3.7.1 [En]
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что если азартный миллионер на одну ночь станет официантом, офисный лузер будет звездой самой яркой вечеринки, а двум «заклятым» друзьям придется искать кенгуру ночью в подмосковном лесу? У каждого своя пятница! Как она закончится для каждого, знает только утро субботы.Производство: Россия / RSS ProductionЖанр: КомедияРежиссер: Евгений ШелякинАктеры: Данила Козловский, Настасья Самбурская, Катерина Шпица, Павел Деревянко, Кирилл Плетнёв, Евгения Брик, Антон Шагин, Ян Цапник, Евгений Стычкин, Сергей БуруновПеревод: Не требуется (Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:26:54
+Архивирование электронной почты может быть болезненным опытом. Упростите свою жизнь с Email Archiver
+Email Archiver - с помощью этого приложения вы можете архивировать и хранить всю вашу почту или отдельные письма в формате PDF. Удобство использования такого подхода неоспоримо, т.к. для того, чтобы прочитать почтовые сообщения, не требуется собственно Mail.app.
+ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Palmer Andersen Design & Development Ltd.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BDBB9D9BD0479D62EC9E5FECF6BF55ECDD03219
+magnet:?xt=urn:btih:2A2728E09945C7AFA769BB975500F474B3D12ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,25 +671,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030853   (669754) от 02.07.2016
+###  Публикация: 1137194   (669294) от 25.05.2017
 
-Earth Space Colonies (2016) [En] (1.0) License PLAZA
+Журнал | Автопарк. 5 колесо №3 (92) (май 2017) [PDF]
 
->>Win Игры
->>Strategy (Manage/Busin)
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Earth Space Colonies – стратегия-симулятор, где вам предстоит заняться строительством космических колоний вокруг Солнечной системы. Ваш первый пункт назначения, Марс, где вам необходимо будет создать первую самодостаточную колонию и превратить пустынную красную планету в зеленый оазис.Тип издания: LicenseРазработчик: Persona and Pixel studioЖанр: Strategy, SimulationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+«Автопарк. 5 колесо» - Полноцветное издание рынка коммерческого автотранспорта. Основная цель - предоставление участникам рынка коммерческого транспорта объективной информации о существующих практических решениях, применяемых в данной сфере, а также о текущих тенденциях развития рынка в целом и его сегментов. Над созданием журнала работает профессиональная команда (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D65A1C2E2429E33BD71B8DFFC1533FD2A22F9037
+magnet:?xt=urn:btih:C337F5264693008D1E288B9E362E0B4B91A533C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,51 +697,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021988   (669753) от 02.07.2016
+###  Публикация: 1137200   (669293) от 25.05.2017
 
-Dovetail Games Flight School (2016) [En/Multi] (1.0.8470.0) Repack Other s
+Orion PDF Author 2.98 [Multi]
 
->>Win Игры
->>Simulation (Flight/Space)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dovetail Games Flight School — это аркадный авиасимулятор, в котором игроков с нуля учат летать на тренировочных самолетах. Станьте пилотом одного из двух высокодетализированных самолётов, каждый из которых подарит вам множество уникальных ощущений. Садитесь за штурвал самолёта и пройдите курс обучения всем нюансам и тонкостям управления воздушными суднами.Тип издания: RepackРазработчик: Dovetail GamesЖанр: Simulator (Civil Aviation), 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+Создавайте PDF-документы, опираясь на интуитивные средства редактирования, которые могут работать как с графическим, так и с текстовым контентом в попытке сократить время обработки
+
+Orion PDF Author разработан для того, чтобы помочь вам создавать профессионально выглядящие PDF-документы, которые включают в себя как текст, так и графический контент, не тратя слишком (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 мая 2017Разработчик: Aidaluu Inc.Поддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Английский, Немецкий, Французский и др
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31825829F416633AD20952E268BF16C2C6DEA900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851049   (669752) от 02.07.2016
-
-Алекс Мэй | Вебинары по курсу Академия секса (для мужчин) (2012) [MP3]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Цикл вебинаров, которые были после каждого модуля академии(после 2, 3 и 4 модуля). Там Алекс Мэй отвечает на вопросы после каждого модуля,разбирает много нюансов, касающихся секса достаточно подробно. Рассказывает много интересных нюансов, про которые не полностью рассказал в академии.Жанр: Отношения, сексологияПродолжительность: 03:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156CF816E16B129856B5D44939FDBBA731975C74
+magnet:?xt=urn:btih:0B32C5FD8C6A2B17D9A18BF0E442FBD8312139BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

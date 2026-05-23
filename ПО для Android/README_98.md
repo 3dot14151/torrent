@@ -1,57 +1,3 @@
-###  Публикация: 1520053   (144947) от 26.12.2021
-
-Русско-английский словарь v2.4.4 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Это русско-английский и англо-русский словарь (Russian-English Dictionary)
-Этот новый словарь больше, чем просто словарь. Вы можете искать слова и прослушать произношение. Словарь работает в режиме офлайн!
-Словарь так же имеет дополнитульные функции, например: словарный тренер! Словарьный тренер помогает быстро запомнить и выучить новые английские слова. В нем содержатся (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 26 декабря 2021 г.Разработчик: AllDictПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBC4288FA21C789CE4362E524DC06ED7D4AF4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596437   (144780) от 21.11.2023
-
-Meditative Mind v2.96  [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобный клиент для доступа к обширного каталогу медитативной музыки с возможность скачивания оной. Красочный и понятный интерфейс позволит вам быстрее достичь слияния со своей душой. В каталоге предоставлено множество категорий для медитаций разного типа. Поддерживается функционал отключения воспроизводения по таймеру. Meditative Mind - лучшее музыкальное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.10.2023Разработчик: Meditative MindПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674515   (144523) от 21.11.2023
 
 Лучшие Аудиокниги всегда под рукой. AudioBooks v6.0 Plus [Ru]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144523.jpg" />
 </div>
 
 
@@ -87,7 +33,7 @@ Vetcalculators v2.9.91 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143714.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143688.jpg" />
 </div>
 
 
@@ -143,7 +89,7 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143507.jpg" />
 </div>
 
 
@@ -169,7 +115,7 @@ SuperLingo: учи английский, китайский язык и боле
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143270.jpg" />
 </div>
 
 
@@ -198,7 +144,7 @@ Santa 3D Live Wallpaper 1.4.1 Premium [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143174.jpg" />
 </div>
 
 
@@ -227,7 +173,7 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141841.jpg" />
 </div>
 
 
@@ -253,7 +199,7 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141742.jpg" />
 </div>
 
 
@@ -279,7 +225,7 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141679.jpg" />
 </div>
 
 
@@ -305,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141675.jpg" />
 </div>
 
 
@@ -331,7 +277,7 @@ aCalendar+ Calendar & Tasks v2.5.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140421.jpg" />
 </div>
 
 
@@ -357,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140227.jpg" />
 </div>
 
 
@@ -384,7 +330,7 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140196.jpg" />
 </div>
 
 
@@ -412,7 +358,7 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139238.jpg" />
 </div>
 
 
@@ -439,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139147.jpg" />
 </div>
 
 
@@ -467,7 +413,7 @@ Caustic 3 v3.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139142.jpg" />
 </div>
 
 
@@ -493,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138647.jpg" />
 </div>
 
 
@@ -520,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138459.jpg" />
 </div>
 
 
@@ -549,7 +495,7 @@ Coach Guitar v1.1.6 Premium [Ru] - Играть на гитаре, Songs, Tab, C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138447.jpg" />
 </div>
 
 
@@ -575,7 +521,7 @@ Wi-Fi Mouse Pro v4.3.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138303.jpg" />
 </div>
 
 
@@ -601,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138177.jpg" />
 </div>
 
 
@@ -627,7 +573,7 @@ PixelLab Pro - Text on pictures 2.1.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138072.jpg" />
 </div>
 
 
@@ -653,7 +599,7 @@ Flud+ 1.10.5 Mod by Derrin [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137898.jpg" />
 </div>
 
 
@@ -679,7 +625,7 @@ PaperColor v2.5.4 Mod by bahguo [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137377.jpg" />
 </div>
 
 
@@ -690,6 +636,59 @@ PaperColor - превосходное приложение для рисован
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CDAD4F4CC934E59B50889B8938C94FDE8B07B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601351   (137111) от 31.12.2022
+
+eWeather HD - weather app v8.7.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137111.jpg" />
+</div>
+
+
+###  Подробнее
+
+eWeather HDF - это точный прогноз погоды от двух метеоагенств, домашняя метеостанция и барометр.
+Уникальные виджеты погоды на экране телефона имеют более 50-ти тем оформления на выбор, включающие виды Санкт-Петербурга, Москвы, Парижа, римские и арабские часы на экране и т.д. Виджет часы показывает время будильника и текущее время на домашнем экране телефона как в (   Читать дальше...   )Тип издания: Pro / Mod ExtraРелиз состоялся: 23.12.2022Разработчик: Elecont softwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6F020230DCA32D5FB705A6B47E78DDDE72D80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824702   (136968) от 15.10.2025
+
+Smart AudioBook Player Pro v11.5.5 Mod by Kirlif' [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: ProРелиз состоялся: 15.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8A6B878F69429636337F2E0E8AEE426F34302A
 ```
 
 https://mybot314.ru/tekegram_catalog/

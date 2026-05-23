@@ -6,7 +6,7 @@ WinSCP 5.19.4 Build 11829 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808217.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Balabolka 2.15.0.803 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808216.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ TagScanner 6.0.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808164.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FreeFileSync 10.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808138.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Acoustica Premium Edition 7.2.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808130.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ JRiver Media Center 26.0.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808129.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Blackmagic Design Fusion Studio 17.4 Build 23 (x64) Portable by rsloadNET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808080.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ YT Downloader 7.8.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808074.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ HiBit Uninstaller 2.6.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808070.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ BleachBit 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808069.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808066.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Multi Commander Full Edition 11.4 Build 2831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808065.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AMS Greeting Card Studio v5.15 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808059.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Opera 50.0.2762.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808012.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Internet Download Manager 6.30 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808011.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Opera 50.0.2762.58 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808009.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Ant Download Manager Pro 1.18.0 Build 70489 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807986.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Easy Disc Burner 4.7.7.349 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807974.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Boilsoft Video Splitter 8.3.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807961.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Devious Machines - Plugins Bundle 10.2021 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807960.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ AIMP 5.00 build 2338 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807959.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Universal Media Creation Tool 23.10.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807948.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Adobe Substance 3D Designer 11.2.0 Build 4869 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807937.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Kdenlive 20.04.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807854.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Wise Force Deleter 1.25.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807834.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Wise Disk Cleaner 9.23.642 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807827.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Raise Data Recovery for FAT/NTFS 5.4 [Multi/Rus] + Portable by Invictus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519052.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VirtualBox 4.20.80014 RC1 + Extension Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519044.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Magic Office Recovery 2.6 Commercial Edition Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519042.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe components: Flash Player 32.0.0.223 + AIR 32.0.0.125 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519037.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Bat! Professional Edition 8.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518994.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ System Ninja 3.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518989.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Shockwave Player 11.6.6.636 (Full/Slim) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518975.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wondershare Filmora 9.1.5.1 (x64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518957.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4732.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518901.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows 7 Manager 4.1.2 Final [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518881.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Nokia Suite 3.5.34 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518806.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IObit Uninstaller Free 11.5.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518780.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Flash Player 11.3.300.271 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518746.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Punto Switcher 3.2.8.94 RC [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518742.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Acoustica Premium Edition 7.4.7 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518727.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ HitPaw Video Converter 2.4.1.3 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518724.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AIMP 5.03 Build 2394 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518721.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Avira Internet Security 2012 12.0.0.351 SP1 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518687.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Alien Skin Exposure 4.0.0.470 Revision 21602 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518683.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ PDF24 Creator 11.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518665.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ O&O Defrag Professional / Server 25.5 Build 7512 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518660.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Shareman 3.74.7 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518627.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Adobe Reader X 10.1.4 Final [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518622.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ phpDesigner 8.1.0.10 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518593.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Photodex ProShow Producer 5.0.3280 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518591.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Adobe Acrobat X Pro 10.1.4 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518582.jpg" />
 </div>
 
 

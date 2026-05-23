@@ -6,7 +6,7 @@ House of 1000 Doors: The Palm of Zoroaster Collector’s Edition / Дом 1000 �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83748.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83620.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Living Legends: Ice Rose Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83617.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Amulet of Time: Shadow of La Rochelle / Путешествие во времен
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83307.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Easter Eggztravaganza (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83200.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dream Mysteries: Case of the Red Fox / Тайны грёз: История ры�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83078.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Time Chronicles: The Missing Mona Lisa (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83039.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Awakening: The Dreamless Castle / Пробуждение. Заколдованн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82708.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition / Аген
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82694.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Columnof the Maya / Тайна сокровищ майя (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82687.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mystery Chronicles: Murder Among Friends / Загадочное происшес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82598.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Silent Nights: The Pianist Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82195.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Brink of Consciousness: Dorian Gray Syndrome. Collectors Edition / Край со
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81909.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Whispers / Шепот (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80746.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ City of Stories 3: The Hunter's Heart (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71677.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mind Echoes: The Lost Mysteries (2025) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71337.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Living Legends 12: Frozen Destiny (2025) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71281.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Reflections of Life 13: Sleep's Embrace (2025) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70969.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bridge to Another World Remastered: Burnt Dreams (2025) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70653.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Lucky Season 2: End of the Rainbow (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69628.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Whispered Secrets 16: In the Cards (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69420.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Enchanted Stories: Mystic Woods (2025) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69387.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Ms. Holmes 7: The Death of Peter Blackheart / Мисс Холмс 7: Смерт�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69196.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Unseen Fears 7: Inner Darkness (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64658.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Halloween Stories 9: The Death Card (2025) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63904.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Lucky Season: King of Fools (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63512.jpg" />
 </div>
 
 

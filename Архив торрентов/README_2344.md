@@ -6,7 +6,7 @@ Microsoft Silverlight 5.1.50709.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529070.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529068.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Нов
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529046.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SamDrivers 19.6 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529020.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NNM-Club Sound Cleaner Group Collection - s1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529019.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Game WideScreener 1.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529015.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Auslogics BoostSpeed 11.0.1.0 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529006.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Auslogics BoostSpeed 11.0.1.0 RePack (& Portable) by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529003.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Reg Organizer 7.50 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528997.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Avira Antivirus Free 15.0.20.59 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528987.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VueScan Pro 9.5.57 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528984.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SamDrivers 19.6 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528944.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Valentina Studio Pro 12.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528940.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Integrity Pro 12.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528939.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Text Workflow 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528935.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The Bat! Professional Edition 7.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528931.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ M.I.A. - AIM (2016) Deluxe Edition [MP3|320 Kbps] <Alternative Hip-Hop, Electron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528930.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Paint.NET 4.0.12 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528928.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ CCleaner 5.22.5724 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528927.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ DevelNext 2016 Beta 5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528915.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Graphic Inspector 2 v2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528867.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ EagleFiler 1.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528866.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ SpamSieve 2.9.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528865.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Photo Image Editor Pixelstyle 3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528857.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Micro Snitch 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528849.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VirtualBox 5.1.6 Build 110634 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528847.jpg" />
 </div>
 
 

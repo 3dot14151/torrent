@@ -6,7 +6,7 @@ TweakPower 1.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735208.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735193.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 69.0.3686.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735191.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nitro4D NitroVertex v1.04 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735187.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Firefox Browser 79.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735181.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe XD 31.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735178.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PIDKey Lite 1.64.4 Beta 3 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735173.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cockos REAPER 6.13 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735172.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AIMP 4.70 Build 2224 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735171.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wondershare PDFelement Pro 7.6.6.3136 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735168.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Media Encoder 2020 14.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735158.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Animate 2020 20.5. [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735147.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Movavi Video Suite 20.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735078.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WINDY  v8.1.1 [Ru/Multi] - прогноз ветра и погоды
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735066.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Adobe Premiere Pro 2020 14.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735059.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v4 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735054.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ DirEqual 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734992.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ GoodNotes 5 v5.7.60 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734989.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ PCDJ DEX 3 v3.17.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734986.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ EdgeView 3 v3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734982.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ xScope 4 v4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734981.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dato 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734980.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ GoodTask 6.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734976.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Vinegar 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734973.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Art Text 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734971.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ uDock 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734970.jpg" />
 </div>
 
 

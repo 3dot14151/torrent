@@ -6,7 +6,7 @@ Firefox Browser 118.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184802.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser ESR 115.3.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184794.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sandboxie 5.66.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184783.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Text Edit Plus 13.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184748.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chasys Draw IES 5.28.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184740.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ App Builder 2023.55 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184729.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ GoldWave 6.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184715.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 11.2022 by OVGorskiy 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184711.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Icecream Screen Recorder PRO 7.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184709.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sandboxie plus 1.11.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184700.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mozilla Thunderbird 115.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184689.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CherryTree 1.0.2.0 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184683.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ EssentialPIM Pro 11.7.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184675.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Zoner Photo Studio X 19.2309.2.494 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184671.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Perfectly Clear WorkBench 4.6.0.2600 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184663.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184653.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MediaHuman YouTube Downloader 3.9.9.86 (2509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184647.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BurnAware Professional 17.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184628.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sumatra PDF 3.5.15698 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184622.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Duplicate Files Sweeper 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184614.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Microsoft PowerToys 0.74.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184607.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ IconJar 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184606.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Duplicate Photos SweeperOff 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184601.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Mirillis Action! 4.38.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184596.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ SyncTime 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184595.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Magic Sort List 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184591.jpg" />
 </div>
 
 

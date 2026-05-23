@@ -6,7 +6,7 @@ Kaido Player 7.1.37.14 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516582.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kaspersky World 1.3.6.21 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516569.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Norton 360 6.3.0.14 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516526.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Defender Tools 1.15 b02 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516487.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BELOFF 2022.06 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516486.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Total Commander 8.01 LitePack | PowerPack | ExtremePack 2012.8a Final + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516478.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Kaspersky Internet Security 2013 13.0.1.4173 Technical Preview [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516473.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Denwer Fast v2.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516471.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WPI Pack AntivirusoFF 8.5 2012 by ravmen [Multi-Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516469.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Norton Internet Security 2012 19.8.0.14 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516441.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Home Plan Pro 5.2.25.19 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516438.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Red Giant - Trapcode Suite v12.0  (32-bit/64-bit) 12.0 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516427.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Microsoft .NET Framework 4.5 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516423.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Internet Download Manager 6.23 Build 20 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516300.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ XMedia Recode 3.2.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516272.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Internet Download Manager 6.23 Build 20 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516258.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ GPU Caps Viewer 1.25.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516255.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lunascape 6.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516148.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Ashampoo Movie Studio 2.0.2.1 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516138.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Skype 7.8.73.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516134.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Rob Papen - RAW 1.0.4a VSTi, AAX Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516117.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Infix PDF Editor Pro 7.2.9 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516114.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ discoDSP Discovery Pro 6.8.0 VSTi (x86/x64) Repack by HEXWARS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516113.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ XviD4PSP 7.0.168 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516088.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ ProgDVB 7.10.5 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516085.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ CPU-Z 1.73.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516081.jpg" />
 </div>
 
 

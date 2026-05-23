@@ -6,7 +6,7 @@ Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Inazuma Eleven: Reloaded – Soccer no Henkaku | Inazuma Eleven: Reloaded – Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11800.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11112.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397487.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinTools.net Premium 17.9.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397445.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 48.0.2685.35 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397442.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Driver Talent Pro 6.5.55.162 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397396.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Acronis BootCD 7PE x86 by naifle [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397336.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397330.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VMware Workstation 14 Pro 14.0.0 Build 6661328 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397322.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ISO Workshop 3.6 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397063.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mac Blu-ray Player v2.6.2.1029 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397054.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Corel AfterShot Pro 1.0.1.10 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396978.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WinMend Data Recovery 1.4.6.0 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396974.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bigasoft DVD Ripper 3.1.5.4561 [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396915.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Hetman FAT Recovery 1.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396856.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Hetman NTFS Recovery 1.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396813.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Garden Planner 3.0.0.60 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396812.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Vit Registry Fix Pro 12.4.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396754.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Windows 8 Codecs 1.2.4 (x86) / 3.8.2 (x64) [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396753.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ AIDA64 Extreme/Extreme Engineer/Business Edition 2.70.2200 Final [Rus/Ukr/Eng] R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396750.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Comodo Dragon 58.0.3029.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396710.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Vit Registry Fix Pro 12.4.1 RePack (& portable) by KpoJIuK [Rus/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396702.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Corel AfterShot Pro 1.0.1.10 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396694.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ JetBrains PyCharm 2.6.3 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396692.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ CocCoc 66.4.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396683.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ CoolUtils Total Doc Converter 5.1.0.170 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396681.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ AIDA64 Extreme/Business Edition 2.70.2200 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396648.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Clementine 1.1 [Multi/Rus] + Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396639.jpg" />
 </div>
 
 

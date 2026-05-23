@@ -6,7 +6,7 @@ Sniper Elite III (2014) [Ru] (1.15a/dlc) Rip Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276640.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HITMAN 2 (2018) [Ru/Multi] (2.11.0/dlc) License CPY [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Butter_
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275621.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275555.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bombshell (2016) [En] (1.2.10466) License GOG [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275433.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Resident Evil: Revelations (2013) [Ru/Multi] (1.0/upd4/dlc) Repack Other s [Comp
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275375.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Lost: Via Domus / Lost. Остаться в живых (2008) [Ru/En] (1.0) Lice
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274965.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Watchmen: The End is Nigh / Хранители (2009) [Ru/En] (1.0) Repack Serap
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274301.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.7/dlc) Repack Other s [Game of the Ye
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272200.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Daemonica / Daemonica: Зов Смерти (2006) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271639.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Iron Man [Ru/En] (RePack) 2008
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269285.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Resident Evil: Operation Raccoon City (2012) [Ru/En] (1.2.1803.136/dlc) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269199.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268498.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Resident Evil 0 / Resident Evil 0 HD Remaster (2016) [Ru] (1.0/dlc) Repack Other
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265609.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru/En] (1.04/dlc) Repack Seraph1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264935.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.767.2/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264915.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Surge (2017) [Ru/En] (42876/dlc) Repack R.G. Механики [Complete Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264762.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Phoning Home (2017) [Ru/Multi] (1.3) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263691.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Tom Clancy's Splinter Cell (2003) [Ru/En] (1.3) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263656.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow (2004) [Ru/En] (1.0) Repack R.G. Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263654.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Teenage Mutant Ninja Turtles: Portal Power (2017) [Ru/Multi] (2.0.224) License H
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263645.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Tom Clancy's Splinter Cell: Chaos Theory (2005) [Ru/En] (1.05.157) Rip R.G. Reve
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263641.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack R.G. Reve
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263322.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru/En] (1.04) Rip R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263315.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Star Wars™: The Force Unleashed II (2010) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262970.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Star Wars™: Jedi Knight™ - Jedi Academy™ (2003) [Multi] (1.01A) License GO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262967.jpg" />
 </div>
 
 

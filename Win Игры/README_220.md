@@ -1,29 +1,3 @@
-###  Публикация: 817594   (545126) от 31.08.2014
-
-Death and Betrayal in Romania: A Dana Knightstone Novel 5 (2014) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вас ждут новые приключения Данны Кнайтстоун в пятой части невероятно захватывающей серии игр от Boomzap Entertainment! На этот раз Вы отправляетесь в Румынию расследовать очередное запутанное дело, полное загадок и интриг. Эта история об обитателях Старинного замка в Карпатах. Граф Люсьен влюбился в прекрасную Александру, но накануне свадьбы невеста была убита. Вам предстоит расследовать это таинственное убийство. В поиске разгадки Вам придется найти все улики, обыскивая Старинный замок, столкнуться с его призраками и выяснить всю правду о виновнике этой ужасной трагедии. Как всегда, с Вами будет верный друг и помощник Даны - призрачный пёс по имени Бандит! Удачи Вам!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: BoomZap EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609B4D3B40F03C1CC9CD58CB9D80B121D724C79E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310764   (545062) от 26.06.2019
 
 Outward (2019) [Multi] (1.0upd2/dlc) Repack R.G. Catalyst
@@ -32,7 +6,7 @@ Outward (2019) [Multi] (1.0upd2/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545062.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Room (2014) [Ru/En] (1.0.0) Repack xGhost
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545011.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ CURSE (2016) [En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544629.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ CURSE (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544417.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.16.3/dlc) License HI2U
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544355.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Post Human W.A.R (2017) [Ru/Multi] (1.1.3) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544351.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Deluded Mind (2018) [Ru/Multi] (1.8.6) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544345.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544089.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Dark Romance 9: A Performance To Die For / Роман Тьмы 9: Фантом �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543703.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Sword Art Online: Hollow Realization (2017) [Multi] (1.00) License SKIDROW [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543549.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Dream Alone (2018) [Multi] (1.0/upd1) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543546.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Hunted: One Step Too Far (2016) [En] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543496.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ New York Mysteries 4: The Outbreak / Загадки Нью-Йорка 4: Про�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543264.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Immortal Love 2: The Price of a Miracle / Бессмертная любовь 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542649.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Absolute Drift (2015) [En] License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542412.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ PuppetShow 11: Arrogance Effect / Шоу марионеток 11: Эффект �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542380.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Hotel 19-95 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542362.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. C
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542258.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Sudden Strike 3: Arms for Victory (2007) [Multi] (1.4) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542196.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Sudden Strike: The Last Stand (2009) [Ru/En] (1.5) License GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542195.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/En] (1.2/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541921.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Chronology (2014) [Ru/Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541806.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Midnight Mysteries 5: Witches of Abraham / Тайны прошлого 5: Вед
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541706.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9) Repack R.G. Revenants [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541683.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ The Political Machine 2012 [En] (L) 2012 | POSTMORTEM
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541650.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ The Political Machine 2012 [En] (L) 2012 | POSTMORTEM
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049272   (541595) от 06.09.2016
+
+Citadel (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Citadel - это кооперативная инди игра на выживание с rogue-like элементами, вдохновленная фильмом "Куб".Тип издания: RepackРазработчик: Magisterion, 3DeverЖанр: Action, 3D, 3rd Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99F00FD07C332196D00B70D7DE953421E282A3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

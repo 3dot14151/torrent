@@ -6,7 +6,7 @@ Caribbean Legend: Age of Pirates (2026) [Ru/Multi] (1.0.1/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061221.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Starship Troopers: Ultimate Bug War! (2026) [Ru/Multi] (1.1.1.0+464) Repack Let'
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061208.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Streamer Life Simulator 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061165.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sancticide (2025) [Ru/Multi] (1.0.26471) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061144.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AETHUS (2026) [Ru/En] (1.015/dlc) Repack Let'sРlay [Supporter's Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061143.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Seclusa (2026) [Ru/Multi] (1.0.4i) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061139.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sancticide (2025) [Ru/Multi] (1.0.26471) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061138.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Scott Pilgrim EX (2026) [Ru/Multi] (1.0.0.13877) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061118.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Umigari (2026) [Ru/Multi] (1.6.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061115.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Underground Garage (2024) [Multi] (157_UG) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061105.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ S.E.M.I.: Side Effects May Include... (2025) [Ru/Multi] (1.0.ebcf741ea) Repack F
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061091.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wreckreation (2025) [Ru/Multi] (1.4.4.149571) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061089.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Peregrino (2026) [Ru/Multi] (1.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061054.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Towerborne (2024) [Ru/Multi] (5.6.1-488249.4611/dlc) Repack FitGirl [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061053.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack HardwareMining [Mas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061052.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061047.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BioShock 2 (2010) [Ru] (Build 789537) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061021.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061020.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Hellmart (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061002.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sherman Commander (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060991.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Rent A Car Simulator 24 (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060980.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ GreedFall: The Dying World (2024) [Ru/Multi] (1.0.0.0/dlc) Repack HardwareMining
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060976.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Galactic Vault (2026) [Ru/Multi] (1.0.2/dlc) Repack FitGirl [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060940.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (20760608/dlc) Repack Wanterlude [Premium 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060939.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Premium E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060931.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060918.jpg" />
 </div>
 
 

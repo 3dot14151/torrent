@@ -1,29 +1,3 @@
-###  Публикация: 1159200   (485549) от 19.08.2017
-
-Gas Guzzlers: Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) License PROPHET [Gold Pack]
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Gas Guzzlers Extreme – это динамичный, яростный, агрессивный, оснащенный новейшим вооружением гоночный экшен! Окунись в мир экстремальных заездов в этой невероятно захватывающей гонке на выживание, которая заставит кровь закипать в жилах. Тонны машин, оружия, апгрейдов, бонусов и трасс. Gas Guzzlers Extreme – это новый виток эволюции в жанре, благодаря добавлению (   Читать дальше...   )Тип издания: LicenseРазработчик: GamepiresЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E264C24AC05D88BF8FAD7A46628DFB1D1A9C4289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159279   (485401) от 19.08.2017
 
 Blue Angels Aerobatic Flight Simulator (2017) [Multi] (1.0.0) License SKIDROW
@@ -32,7 +6,7 @@ Blue Angels Aerobatic Flight Simulator (2017) [Multi] (1.0.0) License SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485401.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6430.37816/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485395.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Blue Horizon (2017) [Ru/Multi] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485393.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Absolute Drift (2015) [En] (1.0 upd2) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485304.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Way of the Samurai 4 (2015) [En] (1.06/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485141.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Volume (2015) [Ru/Multi] (1.1.04) Repack Let'sРlay [Triptych Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485134.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Darkwood (2017) [Ru/Multi] (1.3) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484469.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386/dlc) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484466.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Apsulov: End of Gods (2019) [Ru/Multi] (1.0.4) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484456.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Black Mirror / Черное зеркало Трилогия [Ru] (Repack) 2003-2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484223.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Allods Online / Аллоды Онлайн (2009) [Ru] (20.07.22) License
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483970.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Warcraft III (3): Reforged (2020) [Ru/En] (1.32.10.18820) Repack dixen18
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483961.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Beyond 2: Star Descendant / Извне 2: Звездный потомок (2016)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483912.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Sundered (2017) [Ru/Multi] (1.0.20170817) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483725.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Bathory: The Bloody Countess / Батори: Кровавая графиня (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483722.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Sundered (2017) [Ru/Multi] (1.0.20170817) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483646.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2009) [En] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483639.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Hero of the Kingdom III (2018) [Ru/Multi] (1.00) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483573.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483501.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Blade Kitten (2010) [En/Multi] (1.0/dlc) RePack Let'sPlay [Re-Release Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483193.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Vernon’s Legacy (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483100.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Pavilion (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482965.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Haunted Hotel 18: Room 18 / Проклятый отель 18: Комната 18 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482960.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ FIFA 12 Editor (FIFA 12) [Ru] (Other/0.7.3)
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482232.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Turner (2016) [En/Es] (1.5/dlc) License HI2U
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481750.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Turner (2016) [En/Es] (1.5/dlc) License HI2U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C4B3002A0DD8C64E244941EE39FC32774A55101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244359   (481537) от 01.09.2018
+
+Panzer Strategy (2018) [Ru/En] (1.0) License CODEX
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Panzer Strategy - варгейм в сеттинге Второй Мировой Войны, сочетающий классический пошаговый геймплей с современной графикой. Командуйте своей армией и адаптируйте ее к любой боевой задаче, используя широкий выбор оборудования, экипировки и боевых навыков.Тип издания: LicenseРазработчик: Starni GamesЖанр: Straregy (TBS), TacticsЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A4F4FF5CB03CE4D09840FED75E398172CEA49C
 ```
 
 https://mybot314.ru/tekegram_catalog/

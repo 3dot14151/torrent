@@ -6,7 +6,7 @@ Susie Arioli Swing Band - It's Wonderful (2001) Justin Time [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680436.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rodney Jones - Articulation (1978) Remaster, 2015, Solid Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680354.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lara Price - Faces of the Blues (2002) [FLAC|Lossless|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680343.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ B.B. King - Do The Boogie! B.B. King's Early 50s Classics (1988) [FLAC|Lossless]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679643.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Duke Ellington - Plays Standards (1935 - 1964) 1998, Columbia [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679603.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Duke Ellington - New York Concert (1964) 1995, MusicMasters Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679526.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Duke Ellington - Cornell University (1948) 2CD, 1995, Jazz Heritage [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679523.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Duke Ellington - Jazzworks (1953 - 1960) 1998, Sony Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679519.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Duke Ellington - Figure Charismatique (1962 - 1972) 1996, Warner [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679517.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Duke Ellington - Great Original Performances 1927-1934 (1986) BBC [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679515.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Stanley Silverman - Duke Ellington's Timon of Athens (1993) Varese Sarabande [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679513.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Duke Ellington - This Is Jazz (1927 - 1959) 1996, Columbia [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679512.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Duke Ellington - Jazz Profile (1953, 1954, 1969) 1997, Blue Note [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679511.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Duke Ellington - Original Jazz Classics Collection (1997) OJC [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679507.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Duke Ellington and His Great Vocalists: Best of the Big Bands (1930-e - 1950-e) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679505.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Duke Ellington - The Duke in Washington (1943 - 1969) 1999, Storyville [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679424.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679376.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Lanny Morgan Quartet - Pacific Standard (1997) Contemporary [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679369.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mel Lewis & Friends - Gettin' Together (1957) 1987, Vee Jay [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679368.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nicki Parrott - Fly Me To The Moon (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679321.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Temporary Roads - Hero (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679307.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Jazz At The Lincoln Center Orchestra & Wynton Marsalis - The Music of John L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679303.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Scotty Meyer Band - Pay The Price (2004) [FLAC|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679291.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Kathy Boye & The DTG Gang - I Feel Alive (2018) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679282.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Nils - Play (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679268.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Atmospheric Jazz Music for Calm Down (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679146.jpg" />
 </div>
 
 

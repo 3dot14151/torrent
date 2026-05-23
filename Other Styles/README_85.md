@@ -6,7 +6,7 @@ Urferd - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609620.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chet Atkins – From Nashville With Love & Solo Flights (2015) [FLAC|Lossless|im
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609618.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_609412.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608849.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608534.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607895.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Organ Plays Sentimental Favorites (1999) [FLAC|Lossless|image + .cue] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607606.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607511.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607330.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607089.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606793.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606601.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Ginger Wildheart - The Pessimist's Companion (2018) Remastered, 2022, Wicked Coo
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604487.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604425.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604312.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Francis Goya/Франсис Гойя - Романтический альбом (
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604199.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604141.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604132.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Emmanuelle - Instrumental Collection (2004) [APE|Lossless|image + .cue] <Po
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603802.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603483.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (201
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603412.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603350.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603195.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603182.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603095.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603090.jpg" />
 </div>
 
 

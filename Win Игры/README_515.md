@@ -1,29 +1,3 @@
-###  Публикация: 1780004   (27424) от 16.02.2025
-
-Heroine's Quest: The Herald of Ragnarok (2014) [Ru/Multi] (1.2.9.2/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Heroine's Quest: The Herald of Ragnarok – классическое ролевое приключение с видом сбоку и многоуровневыми локациями, по которым можно двигаться в разные стороны, что имитирует трёхмерное пространство. Ретро-игра имеет глубокую историю, рассказывающую о спасении мира избранной, которой стала главная героиня. Визуальная составляющая выполнена в ярком стиле, с применением (   Читать дальше...   )Тип издания: LicenseРазработчик: Crystal ShardЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Венгерский, Французский и другиеЯзык интерфейса: Русский, Английский, Венгерский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE270410BA53A7385A5459989F902CEBACA283AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780308   (27353) от 17.02.2025
 
 Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
@@ -32,7 +6,7 @@ Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27353.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (0.6.2) Repack EXROW [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27346.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27333.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Secrets of Salem: Shadow of the Witch (2025) [Multi] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27319.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dr Livesey Rom And Death Edition (2023) [Ru/Multi] (Build 15093803) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27262.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ailuri (2025) [En] (Build 17384128) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27259.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Mini Airways (2024) [Ru/Multi] (0.11.3f1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27258.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Puzzle Quest 3 (2023) [Ru/Multi] (3.5.0.41964/dlc) Repack Let'sРlay
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27257.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 9473356/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27255.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27249.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27245.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27243.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Supermarket Simulator (2024) [Ru/Multi] (0.6) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27220.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0.28.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27217.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27206.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Vertical Kingdom (2024) [Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27186.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27174.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Galactic Simulator (2025) [Ru/Multi] (0.2.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27159.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27155.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27135.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.152s/dlc) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27090.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (build 17370633) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27079.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.02.01/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27065.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay [Deluxe E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27064.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27049.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CFB1106088ED40F2634C2A270E7E5FA01D74C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780830   (27042) от 20.02.2025
+
+Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrack Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое нарративное путешествие от создателей Life is Strange. Снимите собственный фильм про лето 1995 года, которое вашей новой компании запомнится на всю жизнь. Двадцать семь лет спустя всем вам придется вновь столкнуться с мрачными секретами, о которых вы договорились никогда не вспоминать.Тип издания: RepackРазработчик: DON'T NODЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

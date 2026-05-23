@@ -1,55 +1,3 @@
-###  Публикация: 1392314   (769275) от 25.06.2020
-
-Itoo Forest Pack Pro 6.3.0 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-iToo Forest Pack Pro 6.3.0 - предоставляет полноценное решение для создания огромных массивов объектов любых типов: от деревьев и мелких растений, до зданий, групп людей, камней и многих других. Данный плагин является самым популярным в мире и применяется для расстановки объектов в 3DS MAX. Всё что Вы сможете смоделировать в 3DS MAX, Forest Pack Pro сможет распространить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7095B3C49E33466AC8CCD2FA4651FE03D44CF5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279325   (765947) от 29.01.2019
-
-Snap To Floor 1.3 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Snap To Floor это совершенно новый плагин от Merkvilson,который умеет ставить объекты на пол,и непосредственно в режиме реального времени работать с объектом изменяя его размер,геометрию,и т.д. оставляя при этом его на поверхности.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CD8DBE4F8BCC541320266641D9537E6B7550BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127250   (740516) от 20.04.2017
 
 MaxToC4D 3.4 [En]
@@ -58,7 +6,7 @@ MaxToC4D 3.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740516.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ DropToSlate 1.29 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735353.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Guruware Ivy generator 0.976b [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731358.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ Remograph Remo 3D v2.1 [Английский]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725644.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ E-on Vue xStream 2016 R2 Build 104398 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719994.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ Nevercenter Silo Professional 2.5.3 (x64) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719233.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ RappaTools 3.41 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715862.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ E-on PlantFactory Producer 2016 R2 Build 104398 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714047.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ Anatomy360 - Male and Female Bundle 5.4.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692735.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ Topowire 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691052.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Syflex 1.0 for Cinema 4D R20 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689796.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Reeper 2.03 For Cinema 4D [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688933.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ VisiCon 1.1 SE [русский]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_665625.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ ArchvizTools - Backdrop Generator 1.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662018.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ CrazyTalk 7.32.3114.1 Pro + Custom Content Packs Repack by Kindly [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658393.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ Anim8or 0.9.8.0 Portable [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643235.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ MultiTexture Map 1.0.2 для 3DS Max 9, 2008, 2009, 2010, 2011, 2012, 2013 x86/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_620126.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ Nitro4D NitroBlast 2.0.2 for Cinema 4D  [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607782.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ Smith Micro Anime Studio Pro 11 Build 15858 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604591.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ Reallusion CrazyTalk Pipeline 8.13.3615.3 + Resource Pack [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604189.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ Rayfire 1.65.01 for 3ds Max 2014-2015 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599388.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587741.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ Anima 2.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574093.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ Itoo RailClone Pro 3.3.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537559.jpg" />
 </div>
 
 
@@ -675,6 +623,59 @@ RailClone - это плагин для программы 3ds Max для пар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB1FBD85DDC6A638967B6925ABC4F0199C9F3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536867   (511998) от 20.08.2012
+
+Artlantis Studio 4.1.7 x64 [Multi]
+
+>>След.
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abvent Artlantis Studio - это программа, позволяющая, помимо построения высококачественных фотореалистических изображений, снимать эпизоды фильмов, создавать QuickTime VR панорамы и QuickTime VR объекты. В Artlantis Studio полностью реализованы все возможности программы Artlantis R и сохранен ее интерфейс. Artlantis Render разрабатывался в основном для тех профессионалов, которым требуется фотореалистическое изображение самого высокого качества (архитекторам, дизайнерам интерьера, градостроителям). Artlantis Studio — это идеальный инструмент не только для создания фотореалистических изображений высокого качества, но и для съемки фильмов или создания VR панорам.
+В версии 4.1 добавлен движок Maxwell Render.Название программы: Artlantis StudioЯзык интерфейса: Английский, Русский, Немецкий, Испанский, Французский, Итальянский, Японский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931496   (510608) от 27.08.2015
+
+V-ray 3.10.01 for Maya 2015-2016 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510608.jpg" />
+</div>
+
+
+###  Подробнее
+
+V-Ray — мощная система рендеринга которая хорошо себя зарекомендовал во многих сферах визуализации благодаря своей гибкости и широкому набору инструментов для интеграции в пайплайн различных студий, будь то анимационные или архитектурные компании.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484A0CE610D9A573C6233090F4F24633D8859458
 ```
 
 https://mybot314.ru/tekegram_catalog/

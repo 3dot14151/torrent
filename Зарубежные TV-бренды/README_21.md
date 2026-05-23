@@ -6,7 +6,7 @@ BBC Horizon: Вкусная еда без вреда для планеты / Fea
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819248.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819162.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC: Содержанки: настоящая цена спонсорских о
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819087.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BBC. Панорама: Неонацизм в Германии. Новая вол
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818801.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818774.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818561.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Discovery: Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818527.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817592.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817504.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ History Channel. Островное помешательство Гитлера 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817461.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ History Channel. Наследие кельтов / The Celtic Legacy (2011) HDTV
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817454.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817132.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ NGW: Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817090.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Discovery. Северная Америка / North America (2013) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816993.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BBC. "Испанка". Грипп, унесший 50 миллионов жизн
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816943.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816857.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815852.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815280.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814797.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC. Полиамория: Любовь без границы / Louis Theroux's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814675.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Discovery. Аполлон: найденные видео / Apollo: The Forgotten
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813844.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813517.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813457.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813451.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813311.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813102.jpg" />
 </div>
 
 

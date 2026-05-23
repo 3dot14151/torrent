@@ -6,7 +6,7 @@ Microsoft Windows Hyper-V Server 2016 Technical Preview 3 (10.0.10514) [En] WZT
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523038.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FastStone Image Viewer 5.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523037.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CyberLink PowerDVD Ultra 15.0.2003.58 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523035.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bitdefender Internet Security 2015 19.2.0.151 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522996.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MgoSoft PDF To Image Converter 11.9.7 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522963.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522960.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Maxthon Browser 5.2.3.6000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522953.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Opera 62.0.3331.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522924.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Q-Dir 7.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522923.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Ummy Video Downloader 1.10.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522868.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ SoftPerfect Network Scanner 7.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522860.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ qBittorrent 4.1.2 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522841.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NVIDIA GeForce Desktop 431.36 WHQL + For Notebooks + DCH[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522805.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe Audition CC 2019 12.1.2.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522798.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ FolderSizes 9.0.246 Enterprise Edition [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522793.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Comodo Internet Security Premium 12.0.0.6870 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522792.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ SIV (System Information Viewer) 5.32 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522765.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ YTD Video Downloader PRO 5.9.9.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522759.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ uTorrent 3.5.5 Build 45291 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522718.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Zoom Player MAX 14.3 Build 1430 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522677.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe Flash Player 30.0.0.154 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522671.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Norton AntiVirus 22.15.0.88 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522662.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Norton Security Deluxe 22.15.0.88 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522638.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ WinNTSetup 3.9.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522634.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Maxon CINEMA 4D Studio R19.068 Portable by soyv4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522624.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Aiseesoft Screen Recorder 2.3.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522609.jpg" />
 </div>
 
 

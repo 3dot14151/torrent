@@ -6,7 +6,7 @@ VA - Amsterdam Trance Sessions Vol.3 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824985.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ App Pier 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824982.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Fantastical 2 - Calendar and Reminders 2.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824976.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824975.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Tremah, Mage, Monrroe - The Inevitable (2015) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824972.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Radicall - Starburst (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824970.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ ThunderSoft GIF to Video Converter 3.8.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824955.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Mac FoneLab for iOS 10.1.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824953.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - A State Of Trance Festival 1000, Music Media Dome Moscow, Russia (2021-10-0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824947.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824920.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - PRSPCT Best Of 2015 (2016) [MP3|320 кб/с] <Hardcore, Breakcore, Drum & B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824912.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Direct Message for Instagram Pro 4.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824876.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ DJ Melo - Vocal De Luxe Edition (2007-2016) [MP3|192-320 Kbps] <Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824863.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Headstrong & Stine Grove - Time (2017) [FLAC|Lossless|tracks] <Trance, Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824861.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Screaming Frog SEO Spider 16.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824855.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Internet Download Manager 6.39 Build 3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824853.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Spotify 1.1.70.610 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824852.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Cockos REAPER 6.37 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824850.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ThunderSoft Video to GIF Converter 3.5.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824845.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824838.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BurnAware Pro 3.1.6 [Rus/Eng] [Silent Install]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824837.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Slimjet 26.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824814.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Allavsoft Video Downloader Converter 3.22.5.7431 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824811.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Unity Pro 2018.4.21f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824802.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Centr - Система (2016) [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824784.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ AIMP 5.00 Build 2335 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824739.jpg" />
 </div>
 
 

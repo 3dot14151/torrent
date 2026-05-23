@@ -6,7 +6,7 @@ Cyranoi - Exist (2016) EP [MP3|320 кб/с] <Modern Metal, Metalcore, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894295.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Singularity - [E]llusion (2016) [MP3|320 кб/с] <Progressive Deathcore, Djent>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894253.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lethal Injektion - Sex Is Power (2016) EP [MP3|320 кб/с] <Rap Metal, Rapcore,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893968.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Aevum - 3 Albums (2014-2020) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893689.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Hasswut - Falsch! (2017) 2CD [MP3|320 Kbps] <Industrial Metal, Industrial>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893078.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Deserted Fear - Dead Shores Rising (2017) [MP3|320 Kbps] <Death Metal, Melodic D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893053.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Anna Havoc - Anna Havoc / Последствия (2018-2020) [MP3|320 Kbps] <Cha
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892030.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Demise Of The Crown - Demise Of The Crown (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891597.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Warpath - Bullets for a Desert Session (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891301.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Soen - Lykaia (2017) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891288.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Witherfall - Nocturnes And Requiems (2017) [MP3|320 Kbps] <Progressive Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891167.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Overkill - The Grinding Wheel (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891116.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Imonolith - State of Being (2020) [MP3|320 kbps] <Nu-Metal, Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890272.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eternal Of Sweden - Heaven's Gate (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889852.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Aeternam - Ruins Of Empires (2017) [MP3|320 Kbps] <Melodic Death Metal, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889454.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cranial - Dark Towers / Bright Lights (2017) [MP3|320 кб/с]<Atmospheric Sludg
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889450.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Redemptus - Blackhearted (2021) [MP3|320 Kbps] <Sludge, Post-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889354.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Haeres - Trom (2014) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887973.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Knorkator - We Want Mohr (2014) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887870.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Knorkator - Ich Bin Der Boss (2016) [MP3|320 Kbps] <Industrial Metal, Neue Deuts
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887552.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Northern Genocide - Planet Asylum / Genesis Vol. 666 (2015-2019) [MP3|320 Kbps] 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887259.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Red - Declaration (2020) [MP3|320 Kbps] <Alternative Metal, Alternative Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887122.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dynazty - The Dark Delight (2020) [MP3|320 Kbps] <Melodic Heavy Metal, Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887113.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Testament - Titans Of Creation (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886753.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Nightwish - Human. :II: Nature. (2020) 2CD [MP3|320 Kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886622.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Accuser - The Forlorn Divide (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886531.jpg" />
 </div>
 
 

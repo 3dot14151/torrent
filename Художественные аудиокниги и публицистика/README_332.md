@@ -1,81 +1,3 @@
-###  Публикация: 1215398   (759717) от 25.03.2018
-
-Кира Измайлова | С феями шутки плохи. Чудовища из Норвуда. Одиннадцать дней вечности (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кто не любит фэнтези? Правда эти книги зачитаны до дыр и концовки известны. Данная же серия привносит новый вкус давно устаревшим историям. Известные персонажи, но с новыми именами и жизнями. Увлекательно, не оторваться! Данная серия не стала исключением. Спасибо автору за старые истории, рассказанные на новый лад! Казалось бы, что еще можно добавить в этих книгах? (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 33:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987BA5B5C9739AB5147DA21E5685938C63B98284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215134   (759715) от 25.03.2018
-
-Игорь Екимов | Братская могила на семерых (2018) [MP3, Елена Коростенская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой попал в тяжёлую жизненную ситуацию. Его жена сначала увлеклась азартными играми, потом, благодаря этому увлечению, впуталась в долги и наконец умерла от инфаркта после одной особо неудачной ставки. После этого её долг повесили на него. Он хотел разрешить этот вопрос по закону, в судебном порядке, но его стали «прессовать» незаконными способами. Обращения (   Читать дальше...   )Жанр: ДетективИздательство: Творческая группа "СамИздат"Продолжительность: 03:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824338D8F53B6A1763A1EEC19B073B98C290EC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215389   (759712) от 25.03.2018
-
-Иван Бунин | Деревня (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Конец России, конец деревни, конец частному бизнесу, конец усадьбам, конец работящим, конец дуракам, тунеядцам, алкашам. Грязь, моча, гниющие поля с пшеницей, тула и окрестности. Злой рок? Не уродилась. Книга Бунина "Деревня", 1909 г.Жанр: Классика. ПовестьПродолжительность: 05:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1AC31CDB8E8B1FB07BB29F71DDD96AD60CC5A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215288   (759613) от 25.03.2018
 
 Михаил Светлый | Узор судьбы (2018) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759613.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_759514.jpg" />
 </div>
 
 
@@ -141,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759470.jpg" />
 </div>
 
 
@@ -168,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759461.jpg" />
 </div>
 
 
@@ -194,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759456.jpg" />
 </div>
 
 
@@ -221,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759453.jpg" />
 </div>
 
 
@@ -247,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759448.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759286.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759269.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759197.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759192.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759184.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759096.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759078.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758849.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758780.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758667.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758666.jpg" />
 </div>
 
 
@@ -564,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758665.jpg" />
 </div>
 
 
@@ -590,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758664.jpg" />
 </div>
 
 
@@ -616,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758662.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758646.jpg" />
 </div>
 
 
@@ -670,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758622.jpg" />
 </div>
 
 
@@ -681,6 +603,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0714AFCAC46C7DC348C0A89D92507334A03EE0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280043   (758612) от 04.02.2019
+
+Александр Чаковский | Свет далекой звезды (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758612.jpg" />
+</div>
+
+
+###  Подробнее
+
+А. Чаковский — мастер динамичного сюжета. Герой повести летчик Владимир Завьялов, переживший тяжелую драму в годы культа личности, несправедливо уволенный из авиации, случайно узнает, что его любимая — Ольга Миронова — жива. Поиски Ольги и стали сюжетом, повести. Пользуясь этим приемом, автор вводит своего героя в разные сферы нашей жизни — это помогает полнее показать (   Читать дальше...   )Жанр: Русская классикаПродолжительность: 09:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08D4CACA7693C745C384FE5049FAB4FE110ACC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522395   (758534) от 07.01.2022
+
+Николай Леонов, Алексей Макеев | Привычка к темноте (2021) [MP3, Евгений Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758534.jpg" />
+</div>
+
+
+###  Подробнее
+
+На охоте при невыясненных обстоятельствах погибает сын губернатора Павел Саблин. Официальная версия — случайный выстрел егеря. Но расследующие дело полковники МВД Гуров и Крячко считают иначе. Смерть Павла, претендующего на место в правительстве, была выгодна кому-то из его конкурентов. Оперативники спешат допросить свидетелей происшествия. Но те неожиданно один (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3E373C3E6047A46E8DAAD1525F5C922AA470AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321101   (758159) от 09.04.2011
+
+Джон Стейнбек | Зима тревоги нашей (2007) [MP3, Владимир Рыбальченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний роман лауреата Нобелевской и Пулитцеровской премий Джона Стейнбека(1902–1968). Роман не похожий на его предыдущие книги. Место действия – старинный городок Новой Англии. Герой романа – отпрыск основателей городка, неплохо устроенный человек, словом, средний добропорядочный американец. Итен Аллен Хоули, получивший высшее гуманитарное образование, знаток (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 11:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B44DEBFAD2D7A92922CF7BC65965956B53C6748
 ```
 
 https://mybot314.ru/tekegram_catalog/

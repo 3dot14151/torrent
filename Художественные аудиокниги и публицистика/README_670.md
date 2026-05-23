@@ -1,81 +1,3 @@
-###  Публикация: 1838790   (261555) от 24.11.2025
-
-Ирина Дегтярева | Пётр Горюнов. Новобранцы холодной войны (2025) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-2022 год. Ирак. Двадцатилетний нелегальный разведчик Мансур Булут второй месяц находился в Иракском Курдистане на базе курдов РПК, где выполнял свое первое задание, полученное от Центра. Мансур родился в Турции от курдянки Дилар и тогда еще очень молодого Петра Горюнова, с которой тот закрутил несанкционированный Москвой роман. После провала Горюнова тринадцатилетнего (   Читать дальше...   )Жанр: ДетективИздательство: СОЮЗПродолжительность: 08:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9747A1DA53FF49BE2F642A119CC1FB672FF0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838814   (261535) от 24.11.2025
-
-Вадим Денисов | Антигеймер (2025) [MP3, Александр Чернов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы задумали масштабную операцию по улучшению человеческого рода, которая могла бы внести изменения в теорию Дарвина. Люди, неспособные работать и вести семейную жизнь, отправлялись на новую планету с неблагозвучным именем Рассадник. Чтобы жизнь на новой планете не была скучной, Кураторы наполнили её различными фэнтези-существами, придуманными за последнее (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: МедиаКнигаПродолжительность: 11:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1667932AA1FB63C575331F0598DE2E8706164A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838779   (261531) от 25.11.2025
-
-Джеймс Фенимор Купер | Кожаный чулок (Книга 3). Следопыт,  или На берегах Онтарио  (2025) [MP3, Александр Бордуков, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Конец 1750-х годов. На территории Северной Америки продолжается кровавая война за колониальное господство. Британские войска вынуждены отступить под натиском превосходящих сил французов. Группе солдат поручено эвакуировать секретную базу, прежде чем она попадёт в руки французов и их союзников-ирокезов. Под предводительством Натти Бампо на сей раз носящего имя Следопыт (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: СОЮЗПродолжительность: 13:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F32C18512D2B0D33629295C1B076BBA002AD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838832   (261495) от 25.11.2025
 
 Борис Романовский | Асура. Новый дом (2024) [MP3, Вадим Пугачев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261495.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261494.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261489.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261474.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261467.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261304.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261301.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261297.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261241.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261215.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261205.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261037.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261004.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260888.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260880.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260872.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260871.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260731.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260729.jpg" />
 </div>
 
 
@@ -590,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260700.jpg" />
 </div>
 
 
@@ -619,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260694.jpg" />
 </div>
 
 
@@ -648,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260643.jpg" />
 </div>
 
 
@@ -674,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260632.jpg" />
 </div>
 
 
@@ -686,6 +608,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1AB61C98792A21E301257B1D566F52DC023BBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838521   (260629) от 23.11.2025
+
+Игорь Витте | S-T-I-K-S. Пекло (Книга 2). Сапфир (2025) [MP3, Coyote]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марго почти двенадцать лет живет в Италии. Она приехала сюда ища вдохновения для своих картин. Много хорошего и плохого случилось в ее жизни за это время. И вот, переживая очередную черную полосу, пытаясь наконец наладить жизнь, Марго устраивает с помощью друзей персональную выставку у себя в галерее. Выставка проходит великолепно, и дело не в том что купили несколько (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: АвторПродолжительность: 19:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F2B66F1D045BA72237C972BADFD779EF616183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838520   (260626) от 23.11.2025
+
+Борис Палант | Билль о Правах (2019) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стала бы Америка великой страной без своей Конституции и Билля о правах?
+В своем труде известный нью-йоркский адвокат, юрист-международник, Борис Палант развернуто и аргументированно показывает читателю то, какое огромное значение Конституция и «Билль о правах» (документ, содержащий десять первых поправок к Конституции США) сыграли в развитии демократии в США. Они (   Читать дальше...   )Жанр: ПублицистикаИздательство: СОЮЗПродолжительность: 08:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B249BB15D70EE77518D01C60E2A922A44F27FB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838676   (260578) от 23.11.2025
+
+Вадим Верник | Звезды века. Майя Плисецкая. Пять дней с легендой (2024) [MP3, Вадим Верник]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звезды века.
+Честно о жизни и творчестве известнейшей примы-балерины Большого театра!
+В 1996 году Вадим Верник снял документальный фильм о Майе Плисецкой. Однако, значительная часть материала не была показана на экранах – она стала основой для этой аудиокниги.
+В 1996 году журналист и телеведущий Вадим Верник снял документальный фильм о Майе Плисецкой (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Аудиокнига (АСТ)Продолжительность: 03:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F05F4A1BA435DE4A0C8C858CD9215383C81DA44
 ```
 
 https://mybot314.ru/tekegram_catalog/

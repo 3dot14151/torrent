@@ -6,7 +6,7 @@ Any Video Converter Ultimate 6.1.8 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459034.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459020.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Toolkit 2.6.2 Stable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459015.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Junkware Removal Tool 8.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459014.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PassMark RAMMon 1.1 build 1001 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458972.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Brave Browser 0.23.107 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458968.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Run-Command 3.11 + Portable[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458962.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MKVToolNix 37.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458946.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458936.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Essential Tuner 0.1.0.3470 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458883.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Skype 8.30.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458834.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Athentech Perfectly Clear Complete 3.8.0.1656 Repack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458809.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VueScan Pro 9.6.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458807.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ TurbulenceFD v1.0 build 1437 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458697.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WinMend Registry Cleaner 1.6.2.0 [Русский,Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458668.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ BitTorrent Pro 7.10.5 Build 45312 Stable RePack (& Portable) by D!akov [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458660.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Comodo Internet Security Premium 10.0.1.6294 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458617.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Kaspersky Free 2020 20.0.14.1085 (c) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458507.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VLC Media Player 3.0.8 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458503.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WinMend Disk Cleaner 1.4.9.0 [Русский,Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458473.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ TwistedBrush Pro Studio 19.07 Portable by Baltagy [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458247.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ TwistedBrush Pro Studio v19.07 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458241.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ FastStone Capture 7.3 Final RePack (& Portable) by D!akov [RUS/ENG/UKR]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458219.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Beyond Compare Pro 4.3.6.25063 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458161.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ O&O Defrag Professional 16.0 Build 139 RePack by elchupacabra [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458121.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ WinISO Standard 6.2.0.4645 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458108.jpg" />
 </div>
 
 

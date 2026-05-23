@@ -1,55 +1,3 @@
-###  Публикация: 1672122   (169846) от 27.10.2023
-
-Синий Жук / Blue Beetle (2023) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мексиканский подросток Хайме Рейес получает инопланетный костюм, который даёт ему суперсилы.Производство: Мексика, США / DC Studios, Safran Company, The, Warner Bros.,  	Warner Bros. Pictures MexicoЖанр: фантастика, боевик, триллер, приключенияРежиссер: Анхель Мануэль СотоАктеры: Шоло Маридуэнья, Бруна Маркезини, Бекки Джи, Дамиан Алькасар, Джордж Лопес, Адриана Барраса, Белисса Эскобедо, Эльпидия Каррильо, Сьюзен Сарандон, Харви ГильенПеревод: Дублированный (Bravo Records Georgia / Movie Dubbing, Red Head Sound), Профессиональный многоголосый (TVShows, Lostfilm)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), украинские (Forced, full), английские (forced, full, SDH)Продолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50A738A3E9CD756B9CD32CA91CD3B4DF1A297E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672121   (169838) от 27.10.2023
-
-Продавцы боли / Pain Hustlers (2023) WEB-DL [H.264/1080p] [EN / RU, EN, UKR and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лиза Дрейк бросила колледж и отправилась на поиски лучшей жизни для себя и своей маленькой дочери. Получив работу в обанкротившемся фармацевтическом стартапе, она, благодаря мужеству и напористости, вдохнула в компанию новую жизнь. Однако с большими деньгами приходят и риски.Производство: Великобритания, США / Grey Matter Productions, Wychwood MediaЖанр: драма, криминалРежиссер: Дэвид ЙейтсАктеры: Крис Эванс, Эмили Блант, Кэтрин О’Хара, Энди Гарсиа, Хлоя Коулмэн, Джей Дюпласс, Амит Шах, Брайан Д’Арси Джеймс, Алексис Бака, Обри ДолларПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, украинские и др. (см. MI)Продолжительность: 02:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41955D45595412D405EE80FC8A92F0383861EEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515245   (169825) от 06.12.2021
 
 Тихая ночь / Silent Night (2020) WEB-DLRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169825.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169812.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169809.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169797.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169796.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169773.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169754.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169706.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169700.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169695.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169663.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169660.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169657.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169630.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169628.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169618.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169617.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169610.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169607.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169605.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169600.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169598.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169582.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169536.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CD7BBA6AB787BC2CEB2078A3F989DBDC360241B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344382   (169478) от 11.12.2019
+
+Гангстер, коп и дьявол / Akinjeon / The Gangster, the Cop, the Devil (2019) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169478.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 год. Криминальный босс провинциального города Чхонан Чан Дон-су подвергается нападению серийного убийцы и оказывается единственной выжившей жертвой. Репутация подмочена, единственный способ восстановить авторитет в глазах братвы — найти нападавшего и отомстить. Местный детектив Чон Тхэ-сок всей своей полицейской душой ненавидит организованную преступность, но (   Читать дальше...   )Производство: Корея Южная / B&C Group, BA Entertainment, Balboa ProductionsЖанр: Боевик, криминал, триллерРежиссер: Ли Вон-тхэАктеры: Ма Дон-сок, Ким Му-ёль, Ким Сон-гю, Ю Сын-мок, Чхве Мин-чхоль, Ким Юн-сон, Хо Дон-вон, Ким Сын-хён, Ким Гю-ри, Ю Джэ-мёнПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английскиеПродолжительность: 01:49:54Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10543B2A66261D2F6BF05FCE129B447BF4A93F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596511   (169457) от 10.12.2022
+
+Её правда / Она сказала / She Said (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналистки The New York Times Меган Туи и Джоди Кантор убедили жертв сексуального насилия рассказать об этом. Несмотря на усилия Вайнштейна, девушкам удалось предать его многочисленные преступления огласке.Производство: США / Annapurna Pictures, Plan B Entertainment, Universal PicturesЖанр: драмаРежиссер: Мария ШрадерАктеры: Кэри Маллиган, Зои Казан, Патриша Кларксон, Андре Брауэр, Дженнифер Эль, Анджела Йео, Марен Хири, Шон Каллен, Анастасия Барзи, Кейли МаккуэйлПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF0D170BB2BA227E3E36A09252E19B796D8C9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 572476   (383606) от 09.11.2012
-
-VA - Двойной размер удовольствия (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Руки Вверх - Миражи
-002. Руки Вверх - Жаль
-003. Beyonce feat. T.I. - Dance For You (Remix)
-004. Allexinno feat. Starchild - Joanna (Radio Edit)
-005. Roman Bellezzo vs. Slider & Magnit feat. Irene - Frozen (extended mix)
-006. DJ Ruslan Nigmatullin - Relax And Relax
-007. A-Sen - Давай Поженимся (Club Remix)
-008. 5sta Family - Вместе мы (DJ Lena Front & DJ Jeneva Remix)
-009. Руки Вверх - Разные
-010. Потап и Настя - Улелето(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3F3586FD5A2F073C5EC86D9DB41A4B0679EE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326489   (383503) от 21.09.2019
 
 VA - Urban Sound: Tech House Set (2019) [MP3|320 Kbps] <Techno, Tech House>
@@ -41,7 +6,7 @@ VA - Urban Sound: Tech House Set (2019) [MP3|320 Kbps] <Techno, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383503.jpg" />
 </div>
 
 
@@ -70,7 +35,7 @@ VA - Straight Outta Tennessee (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383501.jpg" />
 </div>
 
 
@@ -99,7 +64,7 @@ VA - Power Trance Surgery: Euphoric Mix (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383498.jpg" />
 </div>
 
 
@@ -128,7 +93,7 @@ VA - Grace & Mercy: Hip-Hop Soul Control (2019) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383496.jpg" />
 </div>
 
 
@@ -157,7 +122,7 @@ VA - Top 100 Drum & Bass Vol.3 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Sou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383491.jpg" />
 </div>
 
 
@@ -186,7 +151,7 @@ VA - не Громкие новинки недели 84 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383424.jpg" />
 </div>
 
 
@@ -215,7 +180,7 @@ VA - Background Instrumental Smooth Jazz (2020) [MP3|320 Kbps] <Jazz, Jazz Smoot
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383408.jpg" />
 </div>
 
 
@@ -244,7 +209,7 @@ VA - In My Feelings: Lyric Rnb Compilation (2019) [MP3|320 Kbps] <Rhythm And Blu
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383386.jpg" />
 </div>
 
 
@@ -273,7 +238,7 @@ VA - Space Patrol: Synth Electronic Compilation (2019) [MP3|320 Kbps] <Synthpop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383378.jpg" />
 </div>
 
 
@@ -302,7 +267,7 @@ VA - Empire Records - Acapella (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383375.jpg" />
 </div>
 
 
@@ -331,7 +296,7 @@ VA - Hammond Organ Heroes (2020) [MP3|320 Kbps] <Instrumental Jazz, Hammond>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383301.jpg" />
 </div>
 
 
@@ -360,7 +325,7 @@ VA - Кроссфит 2 (2020) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Othe
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383297.jpg" />
 </div>
 
 
@@ -389,7 +354,7 @@ VA - ЕвроХит Топ 40 Europa Plus 20.09.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383247.jpg" />
 </div>
 
 
@@ -418,7 +383,7 @@ VA - Summer Melodies Vol. 8 (2022) [MP3|320 Kbps] <Electronic, House, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383156.jpg" />
 </div>
 
 
@@ -447,7 +412,7 @@ VA - Горячий хитовый драйв. Часть 4 (2016) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383116.jpg" />
 </div>
 
 
@@ -476,7 +441,7 @@ VA - Музыкальный заряд  #2 (2016) [MP3|256~320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383106.jpg" />
 </div>
 
 
@@ -505,7 +470,7 @@ VA - Гуляночка блатного радио (2016) [MP3|256 Kbps] <Ша�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383104.jpg" />
 </div>
 
 
@@ -534,7 +499,7 @@ VA - Блатная осень. Сборник 9 (2016) [MP3|256 Kbps] <Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383098.jpg" />
 </div>
 
 
@@ -563,7 +528,7 @@ VA - Extra Trance: Bonus [10] (2016) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383082.jpg" />
 </div>
 
 
@@ -592,7 +557,7 @@ VA - 80s Magic Turn Around (2017) [MP3|320 Kbps] <New wave, Italo Disco, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383007.jpg" />
 </div>
 
 
@@ -621,7 +586,7 @@ VA - Шоферской хит. Спецвыпуск №3 (2016) [MP3|256 Kbps] 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382963.jpg" />
 </div>
 
 
@@ -650,7 +615,7 @@ VA - Mega chart №15 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382953.jpg" />
 </div>
 
 
@@ -679,7 +644,7 @@ VA - Необыкновенная. Топ новинок поп музыки (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382821.jpg" />
 </div>
 
 
@@ -708,7 +673,7 @@ VA - Record Super Chart #460 (2016) [MP3|320 Kbps] <House, Electro House, Future
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382820.jpg" />
 </div>
 
 
@@ -737,7 +702,7 @@ VA - Mega сборник Europa Plus №2 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382818.jpg" />
 </div>
 
 
@@ -751,6 +716,35 @@ VA - Mega сборник Europa Plus №2 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FBF7A3B383EB2731633939359790A0AB72BEBA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068186   (382810) от 31.10.2016
+
+VA - Шансон Шоферской (Топ 2) (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Альберт Ибраев - Любите Жизнь
+002. Эдуард Ярославцев - Не Печальтесь Пацаны
+003. Ян Марти - Гейзер Страсти
+004. Сергей Любавин - Свадьбы(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA49BE4E90C1B860FB3228325F746FCF9EC6F8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

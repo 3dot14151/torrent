@@ -6,7 +6,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (5730292/upd16/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339192.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) SteamRip R.G. Origins [Singleplayer Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339160.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Viktor Kalvachev's - Blue Estate: The Game (2015) [En/Multi] (1.0) Lossless Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338834.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337328.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336915.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.0) License Razor1911
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335942.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332980.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Prodeus (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330463.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328143.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322713.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинград
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322191.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320144.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320036.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319932.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319303.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Gun [Ru/En] (RePack) 2005 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319301.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) License RELOADED [Digital Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318432.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Prodeus (2022) [Ru/Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318163.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Kingpin: Life of Crime [Ru] (RePack) 1999 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317695.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PositronX (2020) [En] (1.0.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317011.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Crimson Earth 2 (2017) [En] (2.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316178.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3.1.15989/mp) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316153.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ In Sound Mind (2021) [Ru/Multi] (1.016) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315835.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Get Even (2017) [Ru/Multi] (1.0/Upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315597.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ NecroVisioN: Lost Company / NecroVisioN: Проклятая рота (2010) [Ru/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311426.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311293.jpg" />
 </div>
 
 

@@ -1,58 +1,3 @@
-###  Публикация: 829828   (430749) от 10.10.2014
-
-Гувернантка / Governess, The (1998) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Героиня этой странной истории, девушка по имени Розина, устраивается гувернанткой в дом состоятельного шотландца, мистера Кавендиша. Дом, где Розине предстоит воспитывать избалованную дочь хозяина, располагается на отрешенном от внешнего мира острове.
-Здесь, в темных комнатах своего особняка, мистер Кавендиш экспериментирует с новейшим изобретением своего времени (   Читать дальше...   )Производство: ВеликобританияЖанр: Драма, МелодрамаРежиссер: Сандра ГольдбахерАктеры: Брюс Майерс, Джонатан Рис-Майерс, Минни Драйвер, Том Уилкинсон, Флоренс Хот, Хэрриет УолтерПеревод: Многоголосый закадровыйПродолжительность: 01:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C66EDA07602D2A15426F410DFCE747A49AE130D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555278   (430743) от 03.10.2012
-
-Земное ядро / The Core (2003) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Герой картины, геофизик Джош Кийз, сделал шокирующее открытие: ядро земли перестало вращаться. Электромагнитное поле нашей планеты разрушается, и скоро Земля погибнет!
-
-Есть лишь одна надежда: Кийз с командой первоклассных ученых отправится в экспедицию к остановившемуся ядру на уникальном термостойком корабле, чтобы… взорвать ядерный заряд. Этот взрыв должен будет заставить вращаться злополучное ядро, и человечество будет спасено! Путешествие к центру Земли начинается!Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Джон ЭмиелАктеры: Аарон Экхарт, Хилари Суэнк, Делрой Линдо, Стэнли Туччи, ДиДжей Куаллс, Ричард Дженкинс, Чеки Карио, Брюс Гринвуд, Элфри Вудард, Кристофер Шайер, Рэй Галлетти, Эйлин Педде, Рекха Шарма, Том Шолте, Гленн Моршауэр, Энтони Харрисон, Барт Андерсон, Николь ЛеруаПеревод: Дублированный, Многоголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:14:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249684   (430742) от 25.09.2018
 
 Истощение / Attrition (2018) WEB-DL [H.264/1080p-LQ] [EN]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430742.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430721.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430719.jpg" />
 </div>
 
 
@@ -140,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_430708.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430701.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430662.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430657.jpg" />
 </div>
 
 
@@ -245,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430653.jpg" />
 </div>
 
 
@@ -271,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430646.jpg" />
 </div>
 
 
@@ -297,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_430570.jpg" />
 </div>
 
 
@@ -324,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430530.jpg" />
 </div>
 
 
@@ -350,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430528.jpg" />
 </div>
 
 
@@ -376,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430440.jpg" />
 </div>
 
 
@@ -402,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430392.jpg" />
 </div>
 
 
@@ -428,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430384.jpg" />
 </div>
 
 
@@ -454,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430382.jpg" />
 </div>
 
 
@@ -480,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430379.jpg" />
 </div>
 
 
@@ -506,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430375.jpg" />
 </div>
 
 
@@ -533,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430266.jpg" />
 </div>
 
 
@@ -560,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430219.jpg" />
 </div>
 
 
@@ -586,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430155.jpg" />
 </div>
 
 
@@ -612,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430046.jpg" />
 </div>
 
 
@@ -638,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430036.jpg" />
 </div>
 
 
@@ -664,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430035.jpg" />
 </div>
 
 
@@ -676,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDB49D154FFA0F31754FBFAA2C3841DF07BD28D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063811   (430009) от 18.10.2016
+
+Латинский любовник / Latin Lover (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весь фильм завязан на одном известном культовом итальянском актере Саверио Криспо. Как настоящий человек латинской страстной натуры герой не мог обойтись только одной женщиной, поэтому и дочерей у него пять (те, кто знает о друг друге): итальянская Сузанна, французская Стэфани, испанская Сегунда, американская Шелли и шведская Сольвейг. В его итальянском доме собираются (   Читать дальше...   )Производство: ИталияЖанр: Драма, КомедияРежиссер: Кристина КоменчиниАктеры: Мариса Паредес, Анджела Финоккьяро, Валерия Бруни-Тедески, Кандела Пенья, Пихла Виитала, Nadeah Miranda, Франческо Шанна, Нери Маркоре, Клаудио Джоэ, Льюис ОмарПеревод: Многоголосый закадровый, любительский (СПД)Продолжительность: 01:45:26Реклама: присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F94E42C2DC6734CEFDC507F608313CF58B8581E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165717   (429968) от 14.09.2017
+
+Пираты Карибского моря: Мертвецы не рассказывают сказки / Pirates of the Caribbean: Dead Men Tell No Tales (2017) BDRip [H.264][AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исчерпавший свою удачу капитан Джек Воробей обнаруживает, что за ним охотится его старый неприятель, ужасный капитан Салазар и его призрачные пираты. Они только что сбежали из Дьявольского треугольника и намерены уничтожить всех пиратов, включая Джека. Поможет спастись лишь могущественный артефакт — трезубец Посейдона, который дарует своему обладателю полный контроль (   Читать дальше...   )Производство: СШАЖанр: Приключения, Комедия, ФэнтезиРежиссер: Эспен СандбергАктеры: Джонни Депп, Хавьер Бардем, Джеффри Раш, Брентон Туэйтс, Кая Скоделарио, Кевин МакНэлли, Голшифте Фарахани, Дэвид Уэнэм, Стивен Грэм, Энгус БарнеттПеревод: Одноголосый закадровый авторский, SolodСубтитры: ОтсутствуютПродолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC71878C4331F2DE2F7B79844771561F15817D83
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524704.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524690.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CunninLynguists - The Azura (2017) EP [MP3|320 kbps] <Hip-Hop, Rap, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524669.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ DCommander 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524657.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Chillhop Raw Cuts 2 (2017) [FLAC|Lossless|Web-DL|tracks] <Chill Hop, Jazz H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524653.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Transmit 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524599.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Nine Inch Nails - Pretty Hate Machine (1989) [FLAC|Lossless|image + .cue] <Indus
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524582.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Joshua Sabin - Discography 2 Releases (2017-2019) Subtext [FLAC|Lossless|WEB-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524578.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Glary Utilities Pro 5.123.0.148 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524574.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ SimpleMind 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524560.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Dism++ 10.1.1000.20 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524547.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ FRONTLINER feat JANTINE - I Follow You (2018) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524541.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ FRONTLINER & SERI - Rains Of Fire (2014) [FLAC|Lossless|WEB-DL|tracks] <Hardstyl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524540.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ GUNZ FOR HIRE - A2REC038 (2012) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524530.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ SØS Gunver Ryberg (SOS Gunver Ryberg) - Entangled (2019) Avian [FLAC|Lossless|W
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524524.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Apowersoft GIF 1.0.0.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524523.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Glary Utilities Pro 5.123.0.148 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524519.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524514.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Wise Care 365 Pro 5.3.5.532 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524510.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Acme CAD Converter 2019 8.9.8.1492 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524508.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Flip PDF Corporate Edition 2.4.9.29 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524505.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ PowerPhotos 2.0b14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524504.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ DuplicateViewer Pro 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524503.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ GrandTotal 7 v7.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524501.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ BusyCal 2022.2.3 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524500.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524488.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Little Snitch nightly 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199536.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Photoshop 2023 24.3.0.376 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199533.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AOMEI Backupper Technician Plus 7.2.1 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199530.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VirtualBox 7.0.8 Build 156879 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199525.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe Photoshop Lightroom Classic 12.3.0.15 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199523.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Bat! Voyager 10.3.3.1 Repack by zaremastr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199517.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PotPlayer 230407 (1.7.21902) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199514.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Disk Drill Enterprise 5.2.1215 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199505.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Tor Browser Bundle 12.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199504.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ GoodbyeDPI 0.2.2. Launcher 5.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199492.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AIDA64 Extreme Edition 6.88.6408 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199487.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ SolidWorks 2023 SP1.0 Premium RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199484.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ GoodbyeDPI 0.2.2. Launcher 5.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199480.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ DAEMON Tools Lite 11.2.0.2067 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199472.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ OneCommander Pro 3.42.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199470.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ DesktopDigitalClock 4.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199464.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Topaz Video AI 3.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199462.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ X-Mouse Button Control 2.20.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199456.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Adobe Photoshop 2023 24.4.1.449 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199453.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ OpenShot Video Editor 3.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199448.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Topaz Photo AI 1.3.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199444.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v7 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199411.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32530.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199407.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Microsoft  Visual C++ Runtimes AIO v0.71.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199405.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Phase One Capture One 23 Enterprise 16.1.3.1223 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199403.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ CCleaner 6.11.10435 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199391.jpg" />
 </div>
 
 

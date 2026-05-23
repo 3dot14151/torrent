@@ -6,7 +6,7 @@ Citrio 48.0.2564.269 (5730.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855632.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Slimjet 13.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855610.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF-XChange Viewer Pro 2.5 Build 317.0 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855580.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stellarium 0.14.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855547.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MEGA Sync Client 2.8.0 (c5b19) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855536.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft OneDrive 17.3.6302.0225 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855529.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Stellarium 0.14.3 classic Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855465.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AdwCleaner 5.106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855461.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Junkware Removal Tool 8.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855453.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Advanced Renamer 3.72 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855422.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NVIDIA Inspector 1.9.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855409.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ EZ CD Audio Converter 5.3.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855406.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Icecream Slideshow Maker Pro 2.15 Portable by Speedzodiac [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855398.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Dism++ 10.1.23.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855325.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Icecream Slideshow Maker Pro 2.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855318.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Daum PotPlayer 1.7.457 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855316.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855314.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Clover 3.2.9.02131 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855230.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Emsisoft Emergency Kit 2017.2.0.7222 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855219.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Photo Supreme 5.4.0.2821 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855205.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Video to Flash 6.7.7.443 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855202.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.36 (1604) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855200.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Soft4Boost Document Converter 6.2.9.459 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855076.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Soft4Boost AMPlayer 5.6.7.291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855070.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ LDPlayer 3.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855065.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Zemana AntiMalware Premium 2.20.2.8 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854995.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ R-Studio 8.3 Build 169775 Network Edition RePack (& portable) by KpoJIuK  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394503.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced SystemCare Pro 6.0.8.170 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394464.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sibelius 7.1.3.77 [Eng (+ русификатор Х86/Х64)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394378.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mozilla Firefox 17.0 Beta 4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393959.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ K-Lite Codec Pack Update 9.4.2 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393925.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ UC Browser 7.0.6.1618 Portable by thumbapps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393885.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Pointstone Total Privacy 6.21 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393873.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mac Blu-ray Player 2.6.3.1034 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393860.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Infix PDF Editor Pro 7.2.1 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393832.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Mail.Ru Agent Repack от DJFenix 6.0.5998 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393808.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ OOo4Kids 1.3.120524 Build 131 [Rus] + Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393806.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ HomeWiki 4.0 Portable [Ru/En] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393772.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Xilisoft DVD Ripper Ultimate 7.6.0 Build 20121027 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393748.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ LibreOffice 3.6.3 Final + Help Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393744.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ JetBrains ReSharper Ultimate 2017.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393700.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Comic Life 2.2.5 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393691.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Raise Data Recovery for FAT/NTFS 5.5 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393674.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ SamDrivers 17.10 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393614.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ ABBYY Lingvo 12 Первый шаг Итальянский язык [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393493.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ The KMPlayer 3.4.0.55 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393490.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ IconTo Pro 5.7 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393432.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393376.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Media Player Classic Home Cinema 1.6.5.6133 (Nightly) + Portable [Multi/Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393366.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Media Player Classic HomeCinema 1.5.3.3785 [Многоязычный] [RU]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393314.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Calibre 3.9.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393044.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ BluffTitler Ultimate 13.5.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393041.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1819448   (1457) от 22.09.2025
-
-Хищные твари / Dangerous Animals (2025) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Дерзкую сёрфершу Зефир похищает серийный убийца, одержимый акулами и убивающий с их помощью своих жертв. Оказавшись запертой на его лодке, она должна проявить смекалку и перехитрить маньяка, прежде чем острые как бритва акульи зубы разорвут её на куски.Производство: Австралия, США, Канада / LD Entertainment, Brouhaha Entertainment, Range Media PartnersЖанр: ужасы, триллерРежиссер: Шон БирнАктеры: Хэсси Харрисон, Джай Кортни, Джош Хюстон, Элла Ньютон, Liam Greinke, Роберт Карлтон, Ali Basoka, Майкл Голдман, Carla Haynes, Dylan EastlandПеревод: Дублированный (Мосфильм-Мастер), Многоголосый (HDRezka)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785C7344A1F2FF2D93A1245404C575025A1992DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218275   (1408) от 23.09.2025
-
-21 грамм / 21 Grams (2003) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что каждый человек в момент смерти теряет 21 грамм. Столько весит горстка монет в пять центов, плитка шоколада, птица колибри…
-«21 грамм» — это история о надежде и человечности, жизнелюбии и выживании. Независимо от того, боитесь вы смерти или нет, она приходит, и в этот момент ваше тело становится на 21 грамм легче. Быть может, это вес человеческой души?Производство: США / Mediana Productions FilmgesellschaftЖанр: триллер, драма, криминалРежиссер: Алехандро Гонсалес ИньярритуАктеры: Шон Пенн, Бенисио Дель Торо, Наоми Уоттс, Дэнни Хьюстон, Карли Наон, Клер Пакис, Ник Николс, Шарлотта Генсбур, Джон Рубинстайн, Эдди Марсан, Ллойд Кит Сэлтер, Мелисса ЛеоПеревод: Дублированный (Лицензия), Профессиональный (многоголосый) (Tycoon), (Лиц. MVO R1, R1 - переиздание), Авторский (М. Яроцкий - присутствует ненормативная лексика)Субтитры: Русские, английскиеКачество: BDRip 1080pПродолжительность: 02:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F44172BE9F056B957B01F29A19450645F910F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819665   (1361) от 23.09.2025
 
 Особь 2 / Species II (1998) UHD BDRip [H.265/1080p] [10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1361.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1330.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1325.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1323.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1322.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1255.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1251.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1243.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1213.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1211.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1209.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1188.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1168.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1165.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1154.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1113.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1087.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1068.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1042.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1018.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1011.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1008.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1001.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_985.jpg" />
 </div>
 
 
@@ -671,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C705885646AEC996124BA05E4CB37924AA67D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455171   (885) от 26.09.2025
+
+Провал во времени / Sengoku Jieitai (1979) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма начинается в конце 70-х годов ХХ века в Японии. Во время учений японской армии, группа военных, ночью, во-время передислокации попадает в аномальную зону, после чего попадает во времена самураев, когда Япония была в состоянии междоусобных войн, шел передел территорий.
+Командир одного из подразделений японской армии, подружившись с одним из правителей, (   Читать дальше...   )Производство: Япония / Kadokawa Haruki JimushoЖанр: Фантастика, боевик, приключенияРежиссер: Мицумаса СаитоАктеры: Сонни Чиба, Дзюн Это, Тоситака Ито, Харуки Кадокава, Хироси Камаяцу, Кэндзо Каварадзаки, Асао Койкэ, Кэнтаро Кудо, Ко Курайси, Масао Кусакари, Ёити МиураПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 02:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B64C1F32CA94BC50ED5BB862F043452EED29FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820188   (861) от 26.09.2025
+
+Феникс в ярости / Jija - Deu suay doo / Raging Phoenix (2009) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодую девушку Дью бросает парень и она с горя напивается. Ее пытаются похитить, но ей на выручку приходит бригада бродяг-алкоголиков: мастер Саним, Ки Му и длинноволосый Ки Ма, позже к ним присоединяется загадочный Ки Квай с прической из дрэдов.. Они берут ее под свою опеку и обучают приемам боевого искусства Мейрайют, состоящего из пьяного тайского бокса и танцевальных (   Читать дальше...   )Производство: Таиланд / Baa-Ram-EweЖанр: боевикРежиссер: Рашан ЛимтракулАктеры: Янин Висмитананда, Патрик Танг, Nui Saendaeng, Sompong Leartvimolkasame, Boonprasert Salangam, Рунгтаван Джиндасинг, Марк Хоанг, Дэвид Буено, Saroch Ruampaothai, Клонгкрит КлайдангПеревод: Двухголосый, одноголосыйЯзык озвучки: Русский, ТайскийСубтитры: Русские, АнглийскиеПродолжительность: 01:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441DA74245C065193E7577BD722AA46CDA2A93C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1628182   (162675) от 03.11.2023
-
-The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.1hf/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-The Mageseeker: A League of Legends Story - ролевое приключение, события которого переносят игроков во вселенную Лиги Легенд. Вместе с протагонистом и его друзьями предстоит исследовать королевство Демасия. Под предлогом защиты обычных людей охотники на магов выходят на тропу войны, искореняя всех, кто имеет хотя бы минимальные магические способности. Главным героем (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital SunЖанр: Экшны, Ролевая игра, ФэнтeзиЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D5C668BE679BF5E2124228913558F4F9502AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517356   (162672) от 15.12.2021
 
 Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162672.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162644.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ WWE 2K20 (2019) [Multi] (1.08/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162558.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Counter-Strike 1.6 Warface (2020) [Ru] (1.1.2.7/pv48/b4554) Repack Ganniball
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162501.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Slay the Spire (2019) [Ru/Multi] (2.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162489.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Unyielder (2025) [Multi] (1.0.1) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162411.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Rusty Rabbit (2025) [Ru/Multi] (Build 18177047) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162407.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162247.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Unpacking (2021) [Ru/Multi] (1.41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162244.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162240.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162236.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0.21b_plus_l1.1.36) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162231.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162229.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162225.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Bridge to Another World 9: Christmas Flight (2021) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162118.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162011.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161918.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Bridge to Another World 7: Secrets of the Nutcracker (2020) [En] (1.0) Unofficia
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161914.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161885.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161863.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.8b plus l1.1.36) License GO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161852.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161818.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161814.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Order of Battle: World War II (2) (2015) [Ru/Multi] (10.0.6.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161809.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Overcooked! 2 (2018) [Ru/Multi] (6.231.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161805.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Overcooked возвращается с новой порцией безумно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12287F4DA5D4381080000E0F1507DE528CBE765E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517409   (161804) от 16.12.2021
+
+Firegirl: Hack 'n Splash Rescue (2021) [Ru/Multi] (1.017) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня – новенькая в бригаде пожарных. Она готова броситься на помощь тем, кто в ней отчаянно нуждается, вооружившись верным топором и пожарным шлангом (на котором, к слову, можно полетать). Сумеет ли она спасти мирных жителей, оказавшихся в огненной ловушке? Ей предстоит раскрыть причину загадочных пожаров, внезапно охвативших город. Кто стоит за всем этим?Тип издания: LicenseРазработчик: DejimaЖанр: Экшн, Приключение, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883A164ABD163C77F20AB0A618B5F1308152847E
 ```
 
 https://mybot314.ru/tekegram_catalog/

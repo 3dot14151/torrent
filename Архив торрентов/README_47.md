@@ -6,7 +6,7 @@ WinTools.net Premium / Professional / Classic 23.3.1 RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038875.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sumatra PDF 3.5.15312 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038872.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ O&O DiskImage Professional 18.3 Build 271 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038870.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CyberLink AudioDirector Ultra 13.2.2614.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038866.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wondershare PDFelement 9.4.2.2105 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038865.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WinTools.net 23.3.1 Classic / Professional / Premium RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038861.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Coldharbour Reflections (2020) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038853.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VisualDiffer 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038850.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Cristoph - BBC Radio 1 Essential Mix (2021-01-15) [MP3|~245 Kbps (V0)] <Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038847.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Caffeinated 1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038844.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Hex Editor Neo Ultimate 7.25.01.8458 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038834.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ WinCatalog 2023.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038830.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Radiant Photo 1.1.0.252 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038824.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Music Collection 3.5.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038823.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ RadioMaximus 2.31.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038821.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Saola Animate Pro 3.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038816.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Naga & Azuku - Bamboo Sword (2020) EP [FLAC|Lossless|Web-DL|tracks] <Instrumenta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038815.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Naga - Lullabies for Stargazers (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038811.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Nuver & Naga - Neverland (2020) EP [FLAC|Lossless|Web-DL|tracks] <Chillhop, Lo-F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038810.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Algoriddim Neural Mix Pro 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038808.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Naga - Yin & Yang (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Lo-Fi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038805.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ TG Pro (Temperature Gauge Pro) 2.55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038802.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Chaotica 2.0.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038800.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Quick CPU 4.5.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038794.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Clipboard Fusion Pro + portable + MSI 5.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038792.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ WinTools.net Premium 23.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038791.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1043241   (574255) от 15.08.2016
-
-Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Under Night In-Birth Exe: Late представляет собой нечто среднее между безбашенными, скоростными файтингами вроде Guilty Gear и вдумчивым Street Fighter. И надо сказать, что находясь в этом промежутке, она оказалась удачным и самобытным проектом. Кроме очень «своего» темпа в ней достаточно свежих механик, которые неплохо разнообразят и без того хороший игровой процесс.Тип издания: RepackРазработчик: Ecole Software и French BreadЖанр: Arcade (Fighting)Язык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860FB064E327887C1ED22F59ABF3D7C37D663525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151362   (574197) от 18.07.2017
 
 Amaranthine Voyage 6: Winter Neverending / Вечное путешествие 6: Бесконечная зима (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Amaranthine Voyage 6: Winter Neverending / Вечное путешествие 6
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574197.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Labyrinths of the World 4: Stonehenge Legend / Лабиринты Мира 4: Л
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574181.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Vampyr (2018) [Ru/Multi] (1.0/upd1) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574082.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Eador: Genesis / Эадор. Сотворение (2009) [Ru/Multi] (1.05.2 Lang
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574077.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573976.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573967.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Despotism 3k (2018) [Ru/En] (1.2.6) Repack Fenias2011
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573898.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dark Future: Blood Red States (2019) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573894.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573893.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ GRIP: Combat Racing (2018) [Ru/Multi] (1.4/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573890.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Coffee Talk (2020) [Ru/Multi] (1.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573755.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dead Reckoning 3: The Crescent Case (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573707.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Hidden Fears / Тайные Страхи (2015) [Ru] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573270.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dead Reckoning 5: Snowbird's Creek / Точный расчет 5: Залив С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572731.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572692.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Dead Reckoning 6: Death Between the Lines / Точный расчет 6: Сме�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572606.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Vermillion Watch 2: Fleshbound / Алый дозор 2: Бремя плоти (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572590.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ The Guild 2: Renaissance [En] (RePack) 2010 | Ultra
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_572396.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572315.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Risky Wings (2018) [Ru/Multi] (502) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572181.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ Risky Wings (2018) [Ru/Multi] (502/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572159.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ Milanoir (2018) [Ru/Multi] (1.1.0.213) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572140.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ RiME (2017) [Ru/Multi] (1.04) Repack =nemos=
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572062.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ Ice Age 4: Continental Drift - Arctic Games [Ru] (RePack/1.0) 2012 l R.G. Elemen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572037.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572027.jpg" />
 </div>
 
 
@@ -675,6 +649,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D17C9B79C9DDAACAA308649C865671134CBFABD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526773   (572024) от 28.07.2012
+
+Prototype 2  [Ru] (v.1.0) 2012 | Новый Диск
+
+>>Win Игры
+>>Языковые пакеты для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русификатор для игры Prototype 2
+Приятной  игры.  :wink: (   Читать дальше...   )Тип издания: официальный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBC85222A5448033952849E1D1793FA6F3F211A
 ```
 
 https://mybot314.ru/tekegram_catalog/

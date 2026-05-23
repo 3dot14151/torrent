@@ -6,7 +6,7 @@ Xfer Records - Serum 2 2.0.21 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3601.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ashampoo Music Studio 12.0.3.3 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2505.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CyberLink AudioDirector 2026 16.0.5703.0 Ultra (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2029.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ iZotope - RX 11 Audio Editor Advanced 11.3.0 STANDALONE, VST 3, AAX (x64) RePack
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1485.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ iZotope - Ozone 12 Advanced 12.0.2 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1461.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Overloud - TH-U Slate Edition 2.0.3 STANDALONE, VST, VST 3, AAX (x64) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1441.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Exacoustics - GHOST 1.1.8 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1420.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ HOFA - Colour Delay 1.0.4 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1418.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ FL Studio Producer Edition 25.1.6.4997 - All Plugins Edition + Addons (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1312.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ FL Studio Producer Edition 25.1.6.4997 - All Plugins Edition + Addons [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1293.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Reveal Sound - Spire 1.5.19 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1162.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ iZotope - VEA 1.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_279.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ iZotope - Trash 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_277.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Native Instruments - Kontakt 8.7.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_270.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Cockos REAPER 7.47 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58.jpg" />
 </div>
 
 

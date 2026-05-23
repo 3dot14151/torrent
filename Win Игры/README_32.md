@@ -6,7 +6,7 @@ Monster Mop Up (2025) [Ru/Multi] (0.8.417) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053287.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Overthrown (2024) [Ru/Multi] (b19669165) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053286.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053285.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack FitG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053284.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adventure Seekers: Lost to Sea / Искатели Приключений: Уне
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053283.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MIO Memories in Orbit (2026) [Ru/Multi] (r21606) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053282.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack FitG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053281.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MIO Memories in Orbit (2026) [Ru/Multi] (r21606) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053274.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053272.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Emerald Valley (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053188.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053187.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Poly Plaza ULTIMATE (2025) [Ru/Multi] (1.0.13) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053186.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.2.2/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053185.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Decepticon
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053098.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053067.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Coastal Kitchen Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053055.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BrokenLore: UNFOLLOW (2026) [Ru/Multi] (Build 21512240/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053054.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Burkina Faso: Radical Insurgency (2024) [Multi] (21318310) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053037.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Kamikaze Strike: FPV Drone (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053036.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack Wanterlude [Complete Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053023.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Stone of Madness (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay [Special Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052999.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.11) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052964.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Joker's Game (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052962.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052961.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dreamscaper (2020) [Ru/Multi] (1.1.7.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052958.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052943.jpg" />
 </div>
 
 

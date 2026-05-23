@@ -1,29 +1,3 @@
-###  Публикация: 1694640   (53567) от 12.06.2024
-
-Cuisineer (2023) [Multi] (1.1.3909) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Cuisineer - восхитительная игра, сочетающая в себе подземелья, кулинарию и управление рестораном, которая погружает в увлекательную историю Пом, энергичной искательницы приключений, которой предстоит спасти семейную закусочную в Паэлле. Вооружившись кулинарными способностями, она отправляется в путешествие за пределы родного города, вступая в кулинарные схватки с (   Читать дальше...   )Тип издания: SceneРазработчик: BattleBrew ProductionsЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3124B0219A2ACE4069A220BD12077F3165CAE0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729638   (53566) от 12.06.2024
 
 Corpse Keeper (2023) [Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Corpse Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53566.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53565.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tour de France 2024 (2024) [Multi] (01.04.03.846/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53561.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ An English Haunting (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53559.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53553.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53548.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Whispers in the Moss (2024) [En] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53545.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53534.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sinderfury (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53530.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Thriving City: Song (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53527.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ House Flipper (2018) [Ru/Multi] (1.24157/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53488.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53479.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Enigma Quest (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53477.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ A Game's Tale (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53475.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53469.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.15/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53467.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Hood Story: Kaito Yamazaki (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53445.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Escape from Hata / Побег из Хаты (2024) [Ru/Multi] (1.0) Repack FitGi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53385.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53381.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Legendary Tales 3: Stories / Легендарные предания 3: Исто
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53374.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Fallen Seeds (2024) [Ru/En] (1.0.15) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53371.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Kamaeru: A Frog Refuge (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53366.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Simpler Times (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53364.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53361.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53358.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC1E3C5B0C9BFA280293E825D6A8EAB1F2010AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730045   (53349) от 14.06.2024
+
+Lost Lands 9: Stories of the First Brotherhood / Затерянные земли 9: Истории о Первом Братстве (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Lost Lands. Неведомая сущность рыщет по долинам, разрушая все на своём пути. Жители долин обеспокоены появлением таинственного злодея. Информация об инцидентах поступает из разных мест. Все свидетели говорят об одном и том же звере, который настолько быстр, что его невозможно увидеть.Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015ECC6A29CBCDFF7A0DDB1D7B19240B12ADAF40
 ```
 
 https://mybot314.ru/tekegram_catalog/

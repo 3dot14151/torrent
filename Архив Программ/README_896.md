@@ -6,7 +6,7 @@ ASoft .NET Version Detector 19 R1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592712.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaHuman YouTube Downloader 3.9.9.71 (0805) RePack (& Portable) by 9649 [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592645.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BurnAware Professional 15.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592643.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Format Factory 5.11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592607.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Boris FX Mocha Pro 2022 9.5.1 Build 25 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592606.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Futuremark 3DMark 2.22.7358 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592601.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Revo Uninstaller Pro 5.0.0 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592600.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Revo Uninstaller Pro 5.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592568.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Bat! Professional 10.0.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592564.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Topaz Video Enhance AI 2.6.4 RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592543.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MediaHuman YouTube Downloader 3.9.9.71 (0805) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592513.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Q-Dir 10.73.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592509.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Process Lasso Pro 10.4.7.22 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592507.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Revo Uninstaller Pro 5.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592503.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ FanControl V113 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592489.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Process Lasso Pro 10.4.7.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592482.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WhyNotWin11 2.4.3.2 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592481.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Revo Uninstaller Pro 5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592478.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Advanced SystemCare Pro 15.4.0.246 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592468.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Format Factory 5.11.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592458.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ WinX DVD to iPad Ripper 5.0.6 Build on Sep 23 2014 Re-Pack by FoXtrot [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592339.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ OpenCloner UltraBox 1.50 Build 210 RePack by WYLEK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592311.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Blender 2.75 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592291.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ CrystalDiskMark 4.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592276.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ WinMend Registry Cleaner 1.7.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592265.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VirtualBox 5.0.0 r101436 RC3 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592264.jpg" />
 </div>
 
 

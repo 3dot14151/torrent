@@ -6,7 +6,7 @@ Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxoph
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510491.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Franz Lambert - Pur (2001) [MP3|320 Kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509520.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509362.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpa
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509027.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509024.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509018.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508825.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Luis Berra - Before Chaos (2019) [MP3|320 Kbps] <Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508795.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Alkualat - Space Journey (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508736.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508242.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, C
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508231.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Francisco Canaro - Tango Collection (2010) [MP3|192 кб/с]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508047.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507943.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507889.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507582.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506824.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506102.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505363.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ London Philharmonic Orchestra - The Genius of Film Music 1960s-80s (2015) Live [
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505273.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505271.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504885.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504867.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504856.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504839.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504743.jpg" />
 </div>
 
 
@@ -773,7 +773,7 @@ Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504740.jpg" />
 </div>
 
 

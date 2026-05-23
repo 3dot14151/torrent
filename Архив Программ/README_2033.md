@@ -6,7 +6,7 @@ FireAlpaca 2.11.15 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116667.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fort Firewall 3.11.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116662.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ QOwnNotes 24.2.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116660.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4046 (Updated Feb 2024) by FaTaL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116643.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Microsoft Activation Scripts (MAS) 2.5 (12.02.2024) Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116635.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Bandicam 7.1.0.2151 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116612.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VideoProc Converter AI 6.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116601.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ JRiver Media Center 32.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116596.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ O&O DiskImage Professional 19.0 Build 110 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116585.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0220) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116583.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PilotEdit Lite & Pro 18.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116582.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Topaz Video AI 4.1.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116580.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Notepad++ 8.6.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116574.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ISO Workshop Pro 12.7  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116566.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Kdenlive 23.08.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116563.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ GPU Shark II 2.1.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116562.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NewFileTime 7.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116560.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ RogueKiller Anti-Malware 15.15.2.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116559.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Perfectly Clear WorkBench 4.6.0.2640 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116554.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Adobe DNG Converter 16.1.0.1728 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116551.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ TweakPower 2.052 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116550.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ IsMyLcdOK 5.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116549.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116548.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ WinTools.net Premium 24.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116547.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Fort Firewall 3.11.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116537.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Waterfox Current G6.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116532.jpg" />
 </div>
 
 

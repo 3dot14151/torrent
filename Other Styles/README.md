@@ -7,7 +7,7 @@ VA - Beverly Hills Cop (Music From The Motion Picture Soundtrack) (1984) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069640.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Soundtrack Smashes - The 80's (1989) [FLAC|Lossless|tracks + .cue] <Electro
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069639.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - The Orient Collective: Voices of the Ancients (2026) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069605.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Govi - Cuchama (1993) [FLAC|Lossless|tracks + .cue] <Latin Jazz, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069154.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068580.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068509.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Capcom Sound Team - PRAGMATA Original Soundtrack (2026) [FLAC|Lossless|WEB-DL|tr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068449.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - The Orient Collective: Ash & Amber (2026) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067681.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066971.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Paul Mauriat - Magic (1982) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066928.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Король и Шут. Навсегда (2026) [MP3|320 Kbps] <Punk Rock>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066774.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ David Wilcox - Big Horizon (1994) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Worl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066732.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066304.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Raymond Wong - Shaolin Soccer (Убойный футбол) (2001) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066299.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Carl Doy - Piano by Candlelight (1987) [FLAC|Lossless|image + .cue] <Pop, Music 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065984.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - The Orient Collective: Tales From the Sand (2026) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065850.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Bond - Shine (2002) [FLAC|Lossless|image + .cue] <Electronic, Pop, Modern Classi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065647.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065446.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [FLAC 24/48|Lossless|WE
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065445.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065092.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - The Orient Collective: Ancestors Still Speak (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065081.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Paul Mauriat - Blooming Hits (1967) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrum
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065076.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064189.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063728.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063477.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Maura O’Connell - Helpless Heart (1989) [FLAC|Lossless|tracks + .cue] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062939.jpg" />
 </div>
 
 

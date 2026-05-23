@@ -1,29 +1,3 @@
-###  Публикация: 1694236   (40319) от 15.10.2024
-
-Kitten Burst (2024) [En] (4.04c) Scene Tenoke
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Kitten Burst - это сюрреалистичная гоночная игра, где вместо привычным транспортных средств выступает… белый кот! События разворачиваются в далеком будущем, где киберпространство оказалось под угрозой уничтожения. Именно в попытках спасти родные Интернет-просторы хакер объединяет свои усилия с очаровательным котом, которому потребуется пробраться в Сеть и выяснить (   Читать дальше...   )Тип издания: SceneРазработчик: LithodelphisЖанр: Приключенческие игры, Инди, Гонки, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FFC8C38B295A55461A3BE2DB7E0C82FB9E9BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749488   (40314) от 15.10.2024
 
 Edge of Sanity (2024) [Ru/Multi] (1.1.10/dlc) License GOG
@@ -32,7 +6,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.10/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40314.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Portal 2 (2011) [Ru/Multi] (Build 14822445) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40311.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0.15) Repack Fit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40295.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Elasto Mania II (2017) [En] (1.02) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40253.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40249.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.0.1) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40248.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40229.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Combat Mission: Shock Force 2 (2020) [Multi] (02.06.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40221.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Other s [Alex Murphy 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40150.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40145.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40134.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40131.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40130.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cobalt Core (2023) [Ru/Multi] (1.2.4) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40119.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Waveform (2012) [Multi] (1.0/dlc) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40111.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40106.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40028.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40005.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39997.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39945.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39939.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Call of Duty: Black Ops II (2) (2012) [Ru/En] (1.0.0.1 Update 3/dlc) Repack Othe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39934.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39921.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39913.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39904.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6AF46F17806D4B3F03888A25F59E3A79058E96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756084   (39896) от 19.10.2024
+
+Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы Харуна - квестор, наделенный способностью погружаться в Складку - таинственное измерение, напрямую связанное с нашим миром. В погоне за тайными знаниями Харуне предстоит отточить свое исключительное умение использовать силу Складки в реальности... Однако дар Харуны не остается незамеченным, и она становится целью Восходящих. Эта организация замыслила повлиять (   Читать дальше...   )Тип издания: RepackРазработчик: Reflector Entertainment Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEF14C3D22C308A66F017FDB4F70931BE2F0B74
 ```
 
 https://mybot314.ru/tekegram_catalog/

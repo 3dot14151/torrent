@@ -6,7 +6,7 @@ Volume Activation Management Tool (VAMT) 3.1 Version 10.1.10586.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NewWeather 2.4 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851812.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ RapidTyping Tutor 5 Beta 5.0.99 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843543.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Crossword Creator 1.3.0.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830530.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Stardock Start10 1.94 RePack by Tyran[Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828961.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ DJVU reader 2.0.0.26 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828331.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Telemaster2 2.07 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820232.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Image Comparer 3.8 Build 713 [Multi/Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819146.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Wise Hotkey Pro 1.2.7.57 (promo COMSS) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815146.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813657.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ YoWindow Unlimited Edition 4 Build 108 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812624.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Check Flash 1.17.0 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812549.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ UltraMon 3.3.0 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812445.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Screaming Bee MorphVOX Pro 4.4.39 Build 1538 Deluxe Pack RePack by KpoJIuK [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801901.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Unlimited Clipboard 1.1.2.1. [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799730.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Actual Installer 5.0 RePack by вовава (Upd. 03.04.2017) [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799503.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Horloger v. 1.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798901.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Start Menu X 7.31 PRO [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_794549.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Keyboard Test Utility 1.4.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794180.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ HashTab 6.0.0.34 Commercial DC 06.12.2017 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788876.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Apowersoft Phone Manager 2.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785199.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ PIDKey 2.1.2  build 1017 Final Portable  [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781543.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PC Auto Shutdown 6.8 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780196.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ File Converter 1.2.3[En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779761.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ DeadLock 1.4.0.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779585.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Right Click Enhancer Professional 4.5.3.0 RePack (& portable) by elchupacabra [R
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779187.jpg" />
 </div>
 
 

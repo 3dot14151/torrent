@@ -1,30 +1,3 @@
-###  Публикация: 713724   (832735) от 20.03.2015
-
-Dead Rising 2 (2010-2011) [Ru/En] (1.0/1.0) SteamRip Let'sРlay [Complete Pack]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Серия игр Dead Rising 2
-Одна из тех игр, при виде которых взрослые мужчины превращаются в маленьких детей. Глаза горят восторгом, руки дрожат, а на экране творится форменное безумие. Главный герой избивает зомби бильярдным кием, катается по торговому центру на трехколесном велосипеде и гоняется за психопатами в костюме супергероя. В игре хочется перепробовать абсолютно (   Читать дальше...   )Тип издания: SteamRipРазработчик: Capcom Games VancouverЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297CD04C305BE4BA2C1D945C353D43910D0CF319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005492   (832460) от 09.04.2016
 
 Love Chronicles 5: Beyond the Shadows (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -33,7 +6,7 @@ Love Chronicles 5: Beyond the Shadows (2016) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832460.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.0.1) RePack R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832312.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Stairs (2015) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832141.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Statues (2015) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832140.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Warden: Melody of the Undergrowth (2016) [En] (1.0.190) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832135.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ Mind: Path to Thalamus (2015) [Ru/Multi] (1.0/upd1) License SKIDROW [Enhanced Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832066.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Rewind (2016) [En] (1.01) License P O S T M O R T E M
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832065.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831647.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ Where is my Brain!? (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831368.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830968.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ The Walking Evil (2020) [Ru/Multi] (1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830851.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Children of Zodiarcs (2017) [Multi] (1.0.3.7-2f11118c226f) License GOG [Collecto
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830762.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Immortal Planet (2017) [En] (16620/upd3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830755.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ Secret Trails: Frozen Heart / Секретные тропы: Ледяное се
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830578.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ Recursion Deluxe (2016) [En] (1.0.0) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830473.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ Rabiez: Epidemic (2016) [Ru/Multi] (1.01) Repack ALiAS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830192.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ Bunker - The Underground Game (2015) [Ru/De] (22.5) Repack ARMENIAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_830191.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ SolSuite Solitaire 2016 (2016) [Ru/En] (16.4/dlc) Portable by PortableWares
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830187.jpg" />
 </div>
 
 
@@ -501,7 +474,7 @@ Adventure Time: Finn and Jake Investigations (2015) [En/Multi] (1.0) License REL
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830185.jpg" />
 </div>
 
 
@@ -527,7 +500,7 @@ MXGP2 - The Official Motocross Videogame (2016) [En/Multi] (1.0) Repack =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830078.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ Europa Universalis IV (2013-2016) [En/Multi] (1.16.1.0/60a9/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829989.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ Fear Equation (2016) [En] (2.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829978.jpg" />
 </div>
 
 
@@ -605,7 +578,7 @@ Dark Tales 9: Edgar Allan Poe's Metzengerstein / Темные Истории 9: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829405.jpg" />
 </div>
 
 
@@ -631,7 +604,7 @@ Mable & The Wood (2019) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829172.jpg" />
 </div>
 
 
@@ -657,7 +630,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.10/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829056.jpg" />
 </div>
 
 
@@ -668,6 +641,32 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A62FCC72F31CDFB03D66EF932036375C7BDDA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006473   (828296) от 11.04.2016
+
+Caravanserail (2016) [Ru/Multi] (1.0) Repack DARKSiDERS
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caravanserail - это аркадная торговая стратегия в духе Pirates!, в которой игроки управляют караванами, покупая, продавая и устанавливая свои цены на товары.Тип издания: RepackРазработчик: Jerome BodinЖанр: Strategy, ArcadeЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26C4E46AF3F66482DB100FC718767493064138F
 ```
 
 https://mybot314.ru/tekegram_catalog/

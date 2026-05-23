@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38827.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John’s Background Switcher 5.9.0.9  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38825.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Easy Voice Recorder - Pro / Простой диктофон Про v2.9.0 Mod by
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38823.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Shotcut 24.10.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38817.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PhotoDirector v19.7.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38795.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ GeoGebra 6.0.864.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38788.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Photo Studio PRO v2.7.11.3468 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38787.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MobaXterm 24.3 build 5248 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38757.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Topaz Video AI 5.3.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38753.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (2510) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38752.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Native Instruments - Kontakt 8.1.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38732.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ iZotope - Neutron 5 v5.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38730.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ XYplorer 26.60.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38718.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Vivaldi 7.0.3495.10 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38713.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Topaz Photo AI 3.3.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38657.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.11.4 Mod by Balatan  [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38646.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BiglyBT 3.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38636.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Karing 1.0.31.429 + Portable [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38629.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Steinberg - SpectraLayers Pro 11 11.0.40 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38618.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Music Collection 3.7.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38615.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Relax Rain: sleeping sounds v7.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38610.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Steinberg - Cubase Pro 13 13.0.50 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38605.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ LosslessCut 3.64.0 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38599.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Telegram Desktop 5.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38586.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ V-Ray 7.00.02 for 3ds Max 2020-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38561.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Topaz Gigapixel AI 8.0.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38538.jpg" />
 </div>
 
 

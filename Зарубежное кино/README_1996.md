@@ -1,55 +1,3 @@
-###  Публикация: 1692556   (122474) от 17.01.2024
-
-Гайвер / Guyver (1991) BDRip [H.264/1080p-LQ] [Directors Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В самом начале времен пришельцы прилетели на Землю, чтобы создать самое совершенное органическое оружие. Они создали человечество. Введя специальный ген в человека, они создали зоаноидов - людей, которые могли по своему желанию превращаться в монстров-суперсолдат. Много эпох спустя, вождь зоаноидов по имени Зоалорд пробудился ото сна и создал корпорацию "Хронос" (   Читать дальше...   )Производство: США, Япония / New Line CinemaЖанр: ужасы, фантастика, боевик, комедияРежиссер: Скримин Мэд Джордж, Стив ВанАктеры: Марк Хэмилл, Джимми Уокер, Грег Йюнг Пайк, Питер Спеллос, Майкл Берриман, Спайс Уильямс, Джек Армстронг, Джонни Сайко, Вивиан У, Дебора ГорманПеревод: Профессиональный многоголосый (СВ Студия), авторский одноголосый (Андрей Гаврилов - ранний, Василий Горчаков, Андрей Гаврилов - поздний, AVO + Озвучка добавленных сцен AleXounDirector)Язык озвучки: Русский, английскийСубтитры: Русский (forced (на Горчакова), full), английскиеПродолжительность: 01:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7638D8EF9F69030E23B168B5BB4546B7D6177E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692525   (122466) от 17.01.2024
-
-Ещё один удар / One More Shot (2024) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фильма «Последний шанс» (2021) об офицере спецназа США Джейке Харрисе. После нападения на секретную военную базу в Польше Джейк должен использовать все свои боевые навыки, чтобы пережить осаду аэропорта наемными убийцами, которые изо всех сил стараются поймать подозреваемого в терроризме Амина Мансура, единственного человека, который может знать местонахождение (   Читать дальше...   )Производство: Великобритания / Signature FilmsЖанр: боевикРежиссер: Джеймс НаннАктеры: Скотт Эдкинс, Майкл Джей Уайт, Алексис Нэп, Том Беренджер, Валид Эльгади, Ханна Артертон, Мина Райанн, Стивен Блейдс, Дункан Кэйси, Тип КалленПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E8DC8EC9FB650804031E34AAA4A108D3695887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692627   (122455) от 17.01.2024
 
 Красные комнаты / Les chambres rouges / Red Rooms (2023) WEB-DLRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122455.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122438.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122428.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122414.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122392.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122385.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122371.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122315.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122314.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122312.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122311.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122309.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122308.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122307.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122306.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122305.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122304.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122297.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122280.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122277.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122266.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122251.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122243.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122242.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63AB536A27FD4D798AB940D4969D5C5B76D6185D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692764   (122238) от 18.01.2024
+
+Адская пасть Мохаве / The Outwaters (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо молодых друзей — музыканты и режиссер — отправляются в отдаленный уголок пустыни Мохаве, чтобы найти идеальное место для съемок музыкального клипа. Их приключение начиналось спокойно, пока тишину не нарушили загадочные звуки, вибрации и странное поведение животных. В ту ночь всё изменилось, а друзья попали в мир, полный запредельного ужаса.Производство: США / 5100 Films, Fathom Film CompanyЖанр: Ужасы, фантастика, триллерРежиссер: Робби Джо БэнфитчАктеры: Робби Джо Бэнфитч, Анджела Басолис, Скотт Шамелл, Мишель Мэй, Лесли Энн Бэнфитч, Аро Кэйтлин, Кристин Браун, Мелисса Андреа, Нэнси Буйновски, Агнешка ЧеслакПеревод: Дублированный (Мосфильм-Мастер), Профессиональный многоголосый (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54890D1A5202BA852C410184F1C228C898F5B60E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692377   (122237) от 18.01.2024
+
+Суррогат / The Sessions (2012) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снятый по мотивам оптимистической автобиографичной прозы калифорнийского журналиста и поэта Марка О'Брайена, фильм рассказывает историю 36-летнего Марка О'Брайена, который пользуется аппаратом для искусственного дыхания и решает, что больше не хочет оставаться девственником. С помощью своего врача и своего священника он связывается с Черил Коэн-Грин, профессионалкой (   Читать дальше...   )Производство: США / Rhino Films, Such Much FilmsЖанр: драма, мелодрама, биографияРежиссер: Бен ЛуинАктеры: Джон Хоукс, Хелен Хант, Уильям Х. Мэйси, Мун Бладгуд, Анника Маркс, Риа Пёрлмен, Адам Аркин, У. Эрл Браун, Робин Вайгерт, Блейк Линдсли, Ло Минг, Тобиаш Форрест, Джаррод Бэйли, Джеймс Мартинез, Пол МаклинПеревод: Профессиональный многоголосый (BD CEE)Язык озвучки: русский, английскийСубтитры: русские (Владимир Фадеев), английскиеПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E88414E0A822A980ED1D087B0E0C66C06AE7CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

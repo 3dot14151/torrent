@@ -6,7 +6,7 @@ The Ferrymen - One More River To Cross (2022) [FLAC|Lossless|tracks + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739118.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Comeback Kid - Heavy Steps (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739109.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Toundra - 6 Albums (2009-2022) [FLAC|Lossless|tracks + .cue] <Post-Rock, Post-Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739000.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738809.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738806.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Planeswalker - Tales Of Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738800.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Between the Buried and Me - Automata I,II (2018) 2xCD, EP [FLAC|Lossless|tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738495.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Ecliptic Sunset - Sinister Temperance (2015) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738493.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Feedback Force - Break the Automation (2022) [FLAC|Lossless|WEB-DL|tracks] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738490.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Between The Buried And Me - Colors II (2021) [FLAC|Lossless|tracks + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738486.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Ravager - The Third Attack (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738160.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Pupil Slicer - Mirrors (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737833.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737821.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737806.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Ethereal Shroud - Trisagion (2021) [FLAC|Lossless|image + .cue] <Black Metal, Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737403.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737330.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Manatark - Chaos Engine (2003) [APE|Lossless|image + .cue] <Black Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737139.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Deadlock - Manifesto (2008) [FLAC|Lossless|image + .cue] <Melodic Death Metal, M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737138.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Insania - V (Praeparatus Supervivet) (2021) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736931.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Pyramaze - Epitaph (2020) [FLAC|Lossless|image + .cue] <Power Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736925.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - A Maximum Tribute To Pantera (2022) Compilation, Promo [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736908.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Powerhead - Curse Of Stone (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736424.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Marchello - Destiny (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736422.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Mangod Inc. - Near Life Experience (2007) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735750.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ The Gates of Slumber - The Gates of Slumber (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735460.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Manegarm - Vargaresa: The Beginning (2004) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735304.jpg" />
 </div>
 
 

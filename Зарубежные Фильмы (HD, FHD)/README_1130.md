@@ -1,55 +1,3 @@
-###  Публикация: 124631   (26328) от 27.02.2025
-
-Целитель Адамс / Patch Adams (1998) HD DVDRemux [VC-1/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с Целителем Адамсом - доктором, который резко отличается от своих чопорных и важных коллег. Адамс совершил невероятное открытие в современной медицине. Оказывается, лучшим лекарством от любых болезней является смех. И доктор Адамс готов сделать всё возможное, чтобы заставить своих пациентов, как, впрочем, и зрителей этой прекрасной картины, смеяться (   Читать дальше...   )Жанр: комедия, драмаРежиссер: Том ШэдьякАктеры: Робин Уильямс, Дэниэл Лондон, Моника Поттер, Филип Сеймур ХоффманБоб Гантон, Йозеф Зоммер, Ирма П. Холл, Фрэнсис Ли МакКейн, Харви Преснелл, Даниелла КунПеревод: двухголосый закадровыйПродолжительность: 01:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5969C351D405D8A5D93B4B6FA282C2AAB5E0A31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508951   (26327) от 27.02.2025
-
-Евротур / EuroTrip (2004) BDRemux [H.264/1080p] [Theatrical Cut]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Выпускнику школы Скотту Томасу нужна помощь в изучении немецкого языка, поэтому он знакомится с жителем Германии по имени Майк и начинает с ним дружескую переписку. Причём Скотт абсолютно уверен, что Майк — это парень, и делится с ним своими переживаниями и проблемами, которые возникают у него с девушкой. Но в конце концов Скотт узнаёт, что Майк, точнее Мике — это (   Читать дальше...   )Производство: США, Чехия / Blue Sea Productions, DreamWorks PicturesЖанр: Комедия, ПриключенияРежиссер: Джефф Шаффер, Алек Берг, Дэвид МэнделАктеры: Скотт Мехловиц, Джейкоб Питтс, Кристин Крук, Кэти Мейлс, Ниел Исхаков, Мишель Трахтенберг, Трэвис Уэстер, Мэтт Дэймон, Дж. Адамс, Кристофер БейрдПеревод: Дублированный, Многоголосый, АвторскийСубтитры: Русские (Forced, Full: R5 + megogo), АнглийскиеПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDAC96CA3153898EE68140B587F62727DDFCD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782198   (26302) от 27.02.2025
 
 След киллера / Damaged (2024) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26302.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26236.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26179.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26161.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26074.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25982.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25951.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25923.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25911.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25851.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25802.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ P.S. Я люблю тебя / P.S. I Love You (2007) BDRip [H.265/1080p] [10-bit
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25764.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25690.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25671.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25575.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25510.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25446.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25379.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25377.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25374.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25367.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25359.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25297.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25283.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:617A4CF11DDA57BC14FAD7BC2AF21A697CD99D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242503   (25255) от 09.03.2025
+
+Женский день в гриль-баре «Эмерсон» / Lady Day at Emerson's Bar & Grill (2016) DVB [H.264/1080i-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25255.jpg" />
+</div>
+
+
+###  Подробнее
+
+1959 год. В захудалом баре Филадельфии Билли Холидей за четыре месяца до смерти даёт одно из своих последних выступлений , в котором сплетаются как грустные, так и весёлые воспоминания. В телевизионной версии мюзикла Одра Макдональд в образе Билли Холидей исполняет песни: "God Bless the Child", "Say No To This", "Crazy He Calls Me"и (   Читать дальше...   )Производство: США / Two Hands Entertainment,NuttHouse Moving Pictures CompanyЖанр: Драма, Биография, МузыкаРежиссер: Лонни ПрайсАктеры: Одра МакДональд, Шелтон Бектон, Джордж Фармер, Clayton Craddock, Рокси, Дебра Кроу, Дэвид Майкл СефалуПеревод: ОтсутствуетСубтитры: Русский, неотключаемыеПродолжительность: 01:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB31068AFCCF78890F2324B69D43506B5A2C2C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784225   (25237) от 09.03.2025
+
+Секретный агент / Unlocked (2017) BDRip [H.265/1080p] [10-bit] [US Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она - секретный агент мирового уровня. На этот раз её задача – предотвратить биологическую атаку на Лондон. Вовлечённая в большую шпионскую игру, она неизбежно сталкивается с миром двойных стандартов, паранойи, безнаказанности и предательства. Вокруг так много друзей, но кому из них на самом деле можно доверять? И кто из них тот неуловимый «крот», которого она должна (   Читать дальше...   )Производство: Чехия, Швейцария, Великобритания, США, Франция / Bloom, Czech Anglo Productions, Di Bonaventura Pictures, Grindstone Entertainment Group, Lip Sync Productions, Polyphony DigitalЖанр: боевик, триллерРежиссер: Майкл АптедАктеры: Нуми Рапас, Орландо Блум, Тони Коллетт, Джон Малкович, Майкл Дуглас, Мэттью Марш, Макрам Хури, Брайан Каспе, Филип Броди, Тосин КоулПеревод: дублированный (официальный)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, SDH, SDH-Colored)Продолжительность: 01:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D763E47A5FF9F65E12991C2475CEF55CAA774DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

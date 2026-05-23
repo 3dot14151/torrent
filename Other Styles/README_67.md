@@ -6,7 +6,7 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698462.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698242.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thomas Newman - Finding Dory / В поисках Дори (Original Motion Pictu
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698122.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен пр
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697914.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697766.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697761.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ OST - Mick Gordon - DOOM (2016) [MP3|320 кб/с] <Electronic / Progressive Meta
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697694.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_697360.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Peru - Constellations (1989) [FLAC|Lossless|tracks + .cue] <New Age, Synth-pop>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696991.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696942.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696931.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Sverre Knut Johansen - Secret Space Program (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696872.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696795.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Tranc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696585.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696534.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - The Nice Guys / Славные парни (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696528.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696412.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695124.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Majestica - In the Midst of Stars (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_694837.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694834.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Jupiter Panic - Moments of Nostalgia (2016) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_694833.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694820.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694708.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694697.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694558.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694554.jpg" />
 </div>
 
 

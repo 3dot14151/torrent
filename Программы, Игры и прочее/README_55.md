@@ -1,59 +1,3 @@
-###  Публикация: 1526270   (738748) от 23.01.2022
-
-GuitarTab - Tabs and chords v3.8.7 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Guitartab является просмотрщиком / проигрывателем, который обеспечивает доступ к более чем 800000 свободных вкладок.
-Он включает в себя вкладку GuitarPro, вкладки гитары, бас вкладку, аккорды и вкладку Drum. Дополнительно там можно найти информацию о найденных треков и исполнителей через Last Fm.Тип издания: Пиратка (Pro)Релиз состоялся: 6 января 2022 г.Разработчик: GT1 AppsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156210B8FEED9D3C97521AEC12D722BDB13B2349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526876   (737761) от 26.01.2022
-
-40+ Психологических Тестов v1.6.38 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Весьма хорошая подборка недурственных тестов, способных приблизить вас к подлинному пониманию собственной личности или провести анализ состояний психики и сознания ваших знакомых. Доступны тесты на IQ. Несколько мягких цветовых схем. Подробные результаты тестирования.
-- Больше 40 психологических тестов.
-- Тесты Интеллекта: IQ
-- Тесты с картинками(   Читать дальше...   )Тип издания: Пиратка (получен Pro)Релиз состоялся: 24.12.2021Разработчик: MuraDevПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1295D5173F54A6CF9E439FCCBDA9E63479FC7036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527257   (737343) от 27.01.2022
 
 MotoScan для BMW мотоциклов v1.83 [Ru/Multi]
@@ -62,7 +6,7 @@ MotoScan для BMW мотоциклов v1.83 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737343.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ AlfaOBD v2.2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737292.jpg" />
 </div>
 
 
@@ -114,7 +58,7 @@ bimmer-tool expert v3.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736885.jpg" />
 </div>
 
 
@@ -140,7 +84,7 @@ TorrServe v1.1.83_4/ v1.1.76_9 (клиент+сервер) [Ru] (обновля�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736491.jpg" />
 </div>
 
 
@@ -166,7 +110,7 @@ KitchenTimer v4.5.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735832.jpg" />
 </div>
 
 
@@ -193,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735618.jpg" />
 </div>
 
 
@@ -219,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735122.jpg" />
 </div>
 
 
@@ -245,7 +189,7 @@ Harmony v4.0 [Ru/Multi] - расслабляющие мелодии (обнов�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734728.jpg" />
 </div>
 
 
@@ -271,7 +215,7 @@ Space Pinball: Ретро пинбол v1.1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733934.jpg" />
 </div>
 
 
@@ -300,7 +244,7 @@ Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732915.jpg" />
 </div>
 
 
@@ -326,7 +270,7 @@ Librain v1.1.11 [Ru/Multi] - развитие памяти и внимания (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732863.jpg" />
 </div>
 
 
@@ -352,7 +296,7 @@ Mind Diary Journal / Дневник для самоанализа и самор�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732640.jpg" />
 </div>
 
 
@@ -378,7 +322,7 @@ Princess coloring book v2.6.5 [En/Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732501.jpg" />
 </div>
 
 
@@ -404,7 +348,7 @@ Animal Coloring Book v2.6.5 [En/Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732475.jpg" />
 </div>
 
 
@@ -430,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732392.jpg" />
 </div>
 
 
@@ -456,7 +400,7 @@ Lanos (Daewoo/ZAZ/Chevrolet) v1.0.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731744.jpg" />
 </div>
 
 
@@ -485,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731623.jpg" />
 </div>
 
 
@@ -513,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731603.jpg" />
 </div>
 
 
@@ -540,7 +484,7 @@ Music Theory Companion v2.6.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730660.jpg" />
 </div>
 
 
@@ -566,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729568.jpg" />
 </div>
 
 
@@ -592,7 +536,7 @@ Bluetooth Scanner v1.2.2 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729567.jpg" />
 </div>
 
 
@@ -619,7 +563,7 @@ Snapseed 2.17.0.150426010 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729362.jpg" />
 </div>
 
 
@@ -647,7 +591,7 @@ My Android Tools Pro 1.3.7.2  [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729208.jpg" />
 </div>
 
 
@@ -676,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728914.jpg" />
 </div>
 
 
@@ -687,6 +631,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CAD6C0D4CC98600A29EFECDA73932C4E19F49B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530492   (728802) от 11.02.2022
+
+Фенрир для ВКонтакте v2.77 [Ru/En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кастомный ВК клиент Фенрир для андроид. Поддерживает прослушивание музыки,
+Подсказка стикеров, истории, аудио каталог и т.д.Тип издания: OriginalРелиз состоялся: 10 февраля 2022 г.Разработчик: fenrir_lintПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19651605AB02624487A660A404BA2ADE9CEAAB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530572   (728695) от 11.02.2022
+
+Erectile Dysfunction Cure Yoga v6.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему вы должны использовать Йога для лечения ЭД - держать эрекцию надолго?
+1. Чувствуете ли вы себя меньше мужчиной, неадекватным, тревожным, стрессовым и избегаете своего партнера?
+2. Вы паникуете во время полового акта и бежите из этой ситуации?
+3. Вы устали от низкой уверенности и нуждаетесь в постоянном решении?(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 2 февраля 2022 г.Разработчик: Dr. Zio - Yoga TeacherПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5261956A68E510E109564014DD88E65DC4D4603C
 ```
 
 https://mybot314.ru/tekegram_catalog/

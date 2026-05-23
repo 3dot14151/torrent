@@ -1,58 +1,3 @@
-###  Публикация: 1465667   (1018918) от 27.04.2021
-
-Sunnytrack v6.2.2 [Ru] – Положение солнца, Тени, Золотой Час
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-☀️ Вы придаете большое значение фотографированию идеально освещенных фотосцен? 📷 Будучи отличным фотографом, вы никогда больше не пропустите оптимальные световые ситуации. Солнечная трасса дает Вам возможность точно спланировать положение солнца и Blue Hour/dusk 🌃 для Ваших сцен. Независимо от того, идет ли речь о фотографии пейзажей (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 12 апреля 2021 г.Разработчик: Plan the sunПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35958EB53A66162F24AF8B600CD72E20DE78EB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077352   (1018882) от 27.04.2021
-
-Songsterr Guitar Tabs & Chords v3.2.5 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Songsterr — приложение для просмотра и разучивания табов и аккордов музыки ваших любимых исполнителей. Приобретая его, вы получаете более 500.000 интерактивных табулатур для гитары, баса и барабанов с возможностью проигрывания.
-Табулатуры
-• Реалистичный звук. Высококачественные инструментальные сэмплы.
-• Отдельные дорожки для каждого инструмента (гитары, баса, барабанов, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 26 апреля 2021 г.Разработчик: SongsterrПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5456A316D9C93A3EF7931D64E7782FDECA5523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466193   (1018760) от 28.04.2021
 
 НАКС v2 [Ru]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018760.jpg" />
 </div>
 
 
@@ -89,7 +34,7 @@ PROстройку+ Строительный калькулятор v1.8.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018743.jpg" />
 </div>
 
 
@@ -118,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018742.jpg" />
 </div>
 
 
@@ -144,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018738.jpg" />
 </div>
 
 
@@ -170,7 +115,7 @@ ChipTip v3.0 [Ru] - резьбы, скорость резания, посадк�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018736.jpg" />
 </div>
 
 
@@ -197,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018719.jpg" />
 </div>
 
 
@@ -226,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018679.jpg" />
 </div>
 
 
@@ -255,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018675.jpg" />
 </div>
 
 
@@ -281,7 +226,7 @@ ReaderPro - UNLIMIT v1.12.7.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018398.jpg" />
 </div>
 
 
@@ -307,7 +252,7 @@ Guitar Pro v1.6.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018332.jpg" />
 </div>
 
 
@@ -334,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018311.jpg" />
 </div>
 
 
@@ -363,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018234.jpg" />
 </div>
 
 
@@ -392,7 +337,7 @@ Mojo v1.2.15 [Ru/Multi] - Создавайте Stories (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018177.jpg" />
 </div>
 
 
@@ -421,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018051.jpg" />
 </div>
 
 
@@ -447,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017976.jpg" />
 </div>
 
 
@@ -473,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017914.jpg" />
 </div>
 
 
@@ -499,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017897.jpg" />
 </div>
 
 
@@ -525,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017857.jpg" />
 </div>
 
 
@@ -554,7 +499,7 @@ SketchCut PRO v3.9.45 [Ru/Multi] - Раскрой под рукой
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017817.jpg" />
 </div>
 
 
@@ -581,7 +526,7 @@ Classic Notes + App Box 1.0.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017727.jpg" />
 </div>
 
 
@@ -607,7 +552,7 @@ Voicella v0.75 [Ru] - создание видео субтитров автом�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017721.jpg" />
 </div>
 
 
@@ -633,7 +578,7 @@ VIP electronics v1.0.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017712.jpg" />
 </div>
 
 
@@ -659,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017705.jpg" />
 </div>
 
 
@@ -688,7 +633,7 @@ Podcast Republic v21.5.4R [Ru] - Podcast Player & Podcast App
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017573.jpg" />
 </div>
 
 
@@ -699,6 +644,58 @@ Podcast Republic - одна из самых мощных платформ под
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA949214DB079D5C940DC4F37B3C85668F3C1C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467823   (1017549) от 05.05.2021
+
+Electrohelper: EE Toolbox Pro v2.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Electrohelper - это приложение, идеально подходящее для студентов, изучающих электротехнику и электронику, а также для любителей / энтузиастов электроники. Это поможет вам быстро найти информацию об электронных компонентах. Вы также можете выполнять расчеты схем с помощью приложения, оно содержит подробную информацию о компонентах электроники и общих электронных (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 16 февраля 2021 г.Разработчик: Anas AbubakarПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE17DE31E0D56E75527AB266B8D82239F30D718E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467898   (1017544) от 05.05.2021
+
+Electronic toolbox Pro v5.1.15 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение представляет собой набор основных электронных калькуляторов. Он подходит для любителей, инженеров-электронщиков или профессионалов.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 24 апреля 2021 г.Разработчик: Peter HoПоддерживаемая ОС: AndroidЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA63432A2374CC4C553B137516361360B2AE3FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

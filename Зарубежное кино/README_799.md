@@ -1,57 +1,3 @@
-###  Публикация: 1027808   (692566) от 21.06.2016
-
-Анаркали / Anarkali (2015) DVDRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Он был молод и хулиганист, но, в общем, вел вполне богемный образ жизни в рядах военно-морского флота Индии. Она была совсем юна и очаровательна свежестью утренней росы. Любовь, что началась с маленькой искорки, разгорелась ярким пламенем и не погасла, несмотря на 11 лет разлуки. Он искал ее повсюду, пока однажды поиски не привели его в Каваратти - небольшое поселение (   Читать дальше...   )Производство: ИндияЖанр: ДрамаРежиссер: СачиАктеры: Притхвирадж Сукумаран, Биджу Менон, Кабир Беди, Приял ГорПеревод: Любительский (двухголосый)Язык субтитров: нетПродолжительность: 02:46:34Реклама: рекламы нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108E53BBDFBC35B96B163331C6315A331D72F777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211987   (692537) от 21.06.2010
-
-День, когда Земля остановилась / The Day the Earth Stood Still (2008) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В разгар холодной войны в Вашингтоне совершает посадку летающая тарелка: в ней прибывают посланник Клаату и его могучий робот Горт, делегированные федерацией планет, чтобы поставить народам Земли ультиматум о прекращении ядерных испытаний.
-
-Запаниковавшие военные открывают по космолету огонь и ранят посланника. Клаату осознает, что единственный способ договориться (   Читать дальше...   )Жанр: Фантастика, Триллер, ДрамаРежиссер: Скотт Дерриксон.Актеры: Киану Ривз, Дженнифер Коннелли, Кэти Бейтс, Джейден Смит, Джон Клиз, Джон Хэмм, Кайл Чандлер, Роберт Нэппер, Джеймс Хонг, Джон Ротмен и др.Продолжительность: 01:43:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 674231   (692414) от 30.06.2013
 
 Падение Олимпа / Olympus Has Fallen (2013) BDRip [H.264]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692414.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692410.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692217.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692140.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692136.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692133.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692132.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692126.jpg" />
 </div>
 
 
@@ -270,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692123.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692120.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692094.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692080.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692079.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692077.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692074.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692056.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691999.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691992.jpg" />
 </div>
 
 
@@ -532,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691990.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691988.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691978.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691928.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691922.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691921.jpg" />
 </div>
 
 
@@ -676,6 +622,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E940ACC224F6CAA987208F0FF09CC0D5775AB491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400528   (691898) от 19.08.2020
+
+Большие надежды / Great Expectations (1998) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда юный Финн впервые увидел прекрасную Эстеллу, сердце его разбилось. Несмотря на предсказание, гласящее о том, что страсть к Эстелле не принесет ему ничего хорошего, Финн поклялся завоевать прекрасную девушку. Годы спустя, стараниями таинственного благодетеля, молодой художник Финн оказывается в Нью-Йорке, где опять встречает свою неразделенную любовь. Но в тот (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Art Linson ProductionsЖанр: Драма, мелодрамаРежиссер: Альфонсо КуаронАктеры: Итан Хоук, Гвинет Пэлтроу, Хэнк Азария, Крис Купер, Энн Бэнкрофт, Роберт Де Ниро, Джош Мостел, Ким Диккенс, Нелл Кэмпбелл, Гэбриел МаннПеревод: Профессиональный многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCEE1E730F2EECA03DF54416E297BCEE9340691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288947   (691832) от 13.03.2019
+
+Предельная глубина / Submerged (2005) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Коди — самый независимый агент по борьбе с терроризмом — борется за жизнь глубоко в морской пучине. Борется не только со стихией, но и с предательством.
+Еще совсем недавно он был узником военной тюрьмы. Его освободили по распоряжению Президента США для выполнения особо важного задания. Он должен выявить и уничтожить убийц посла США в одной из стран мира.
+Но (   Читать дальше...   )Производство: США, Великобритания, Болгария / Millennium Films, Emmett/Furla/Oasis Films (EFO Films), Luminosity MediaЖанр: Боевик, ТриллерРежиссер: Энтони ХикоксАктеры: Стивен Сигал, Кристин Адамс, Уильям Хоуп, Ник Бримбл, Винни Джонс, Элисон Кинг, П.Х. Мориарти, Гэри Дэниелс, Росс МакКолл, Стивен ТейлорПеревод: Многоголосый, АвторскийСубтитры: Русские (full), Английские (full)Продолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2DA569A79FFEB9E2AEF2EFBCD44A9D4D718F1D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

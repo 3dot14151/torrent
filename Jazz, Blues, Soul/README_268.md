@@ -6,7 +6,7 @@ Romain Pilon - Copper (2018) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523702.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jimmy Smith - The Classic Verve Albums Collection (1962 - 1964) 4CD, 2019, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523543.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jazz Sabbath - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523490.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Reinhard Flatischler - Schinore (1987) /Puls Productions/[APE|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523343.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Hurricane Ruth - Born On The River (2014) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523341.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Charlie Rouse - Epistrophy (1988) /1997, 32 Jazz/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523340.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Alune Wade & Harold Lopez-Nussa - Havana -Paris- Dakar (2015) [FLAC|tracks|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523339.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Concerto for Jazz Band & Symphony Orchestra - Liebermann, Stravinsky, Ellington 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523338.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ The Stella Vees - Don't Tell Me Your Name (2015) [MP3|320 кб/с]<Chicago & Wes
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523336.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Aysha - Take Me Higher (2015) [MP3|320 кб/с]<Smooth Jazz, R&B>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523331.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Jools Holland - Finding The Keys. The Best Of (2011) [MP3|320 kbps]<Blues, Jazz,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523060.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Errol Rackipov Group - Distant Dreams (2017) OA2 Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523033.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Geof Bradfield - African Flowers (2010) Origin Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523031.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Paul Anka - Rock Swings (2005) [MP3|320 kbps]<Swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522938.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Digging Roots - Zhawenim (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522773.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Avishai Cohen - Big Vicious (2020) [FLAC|Lossless|tracks + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522697.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ G. Love & Special Sauce - Philadelphia Mississippi (2022) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522661.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Supersonic Blues Machine - Voodoo Nation (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522660.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Supersonic Blues Machine - Voodoo Nation (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522652.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Janiva Magness - Hard to Kill (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522584.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Big Papa and the TCB - Go Big! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522582.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Matt Lomeo - When You Call (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522581.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Eric's Bluesband - Rolling Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522580.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Steve Smith & Vital Information - Fiafiaga (Celebration) (1988) /Columbia/ [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522575.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Gabriele Mirabassi, Nando Di Modugno, Pierluigi Balducci - Amori Sospesi (2015) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522574.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Peter Erskine - Peter Erskine (1982) /1988, Contemporary Records/ [FLAC|image+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522550.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Tony Anderson's Muskat Ramblers - Most Wanted Dixieland (2005) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300693.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jeff Palmer, John Abercrombie, David Liebman, Adam Nussbaum - Abracadabra (1990)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300684.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ellen McIlwaine - Women In (E)motion (1998) Live [MP3|320 Kbps] <Blues Rock, Reg
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300527.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nighthawks - Citizen Wayne (1998) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300525.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Grainne Duffy - Grainne Duffy Live (2015) Live[MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300521.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Albert Collins, Robert Cray, Johnny Copeland - Showdown! (1985) Remastered, 2011
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300515.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Joanne Shaw Taylor - Wild (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300316.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Piano Bar Restaurant and Cafe Moody Jazz (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300164.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Sextet Of Orchestra U.S.A. Under The Direction Of Michael Zwerin - Mack The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299441.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lenny Breau - Last Sessions (1988) Genes Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299135.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Count Basie & His Orchestra - Basie's Bag (of Swing) 1947 - 1959 (2007) 3CD, IMC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299126.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Billie Holiday - Lady In Satin: The Centennial Edition (1957-1958) 3CD, 2015, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299086.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Adrien Moignard - Between Clouds (2012) [FLAC|Lossless]<Swing, Guitar Jazz, Loun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_298936.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Diana Ross - Diamond Diana: The Legacy Collection (2017) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298884.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Stephane Wrembel - Dreamer Of Dreams (2014) Water Is Life Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298869.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Stephane Wrembel - The Django Experiment I (2017) Water Is Life Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298861.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Van Morrison - Three Chords And The Truth (2019) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298836.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ AHA! Quintet - Freespace (2012) [FLAC|Lossless]<Hard Bop, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_298822.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Robin Barrett & Coyote Kings - Howl (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298807.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Joe Bonamassa - Live At The Sydney Opera House (2019) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298746.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Jazz Sax Lounge Collection, Romantic Love Songs Academy, Jazz Erotic Lounge Coll
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298480.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Terry Pollard - Terry Pollard (1955) Remaster, 2014, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298311.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Sonny Rollins - Horn Culture (1973) 1992, Fantasy[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298221.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Paris Jazz Big Band - Mediterraneo (2002) Cristal Production[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298219.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Mel Torme and The Marty Paich Dek-Tette - The 1956 Torme-Paich Legendary Session
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298217.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Mongo Santamaria - Mongo At Montreux (1971) 2012, Atlantic/Warner Japan/WEA/Rhin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298216.jpg" />
 </div>
 
 

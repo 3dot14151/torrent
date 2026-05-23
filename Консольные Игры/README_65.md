@@ -1,107 +1,3 @@
-###  Публикация: 1814972   (5514) от 28.08.2025
-
-Sea of Stars (2023) [Switch] [EUR] 19.0.1, Atmosphere 1.9.0 [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Sea of Stars расскажет историю двух детей солнцестояния: Лунной монахини и Танцора солнечного клинка. Им предстоит объединить силы солнца и луны, чтобы овладеть магией затмения. Только с её помощью можно справиться с монстрами, созданными злым алхимиком Флэшмансером.Тип издания: LicenseРазработчик: Sabotage StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9097B0757402DE7DF787268D0F59A5F274C2AEC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814994   (5513) от 28.08.2025
-
-Animal Well (2024) [Switch] [EUR] 19.0.1, Atmosphere 1.9.1 [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вылупитесь из своего цветка и погрузитесь в прекрасный, но местами пугающий мир Animal Well, пиксельного чуда, полного замысловатых звуковых и визуальных решений. Встречайте живых существ, больших и малых, добрых и зловещих, открывая нестандартные улучшения и разгадывая секреты колодца. Это поистине уникальный опыт, который может заставить вас смеяться — от страха (   Читать дальше...   )Тип издания: LicenseРазработчик: Shared MemoryЖанр: Экшены, Инди, ПлатформерыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B590584AC0D563404A6D6C80E03BA10C23F113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815317   (5342) от 29.08.2025
-
-Super Bomberman R 2 (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Последний выпуск серии игр о партийных битвах SUPER BOMBERMAN R! С новыми приключениями и режимами игры, он имеет самый большой объем контента в истории серии! Помимо хорошо известных режимов "Стандарт", "Гран-при" и "Битва 64", добавлен новый режим битвы под названием "Замок", в котором игроки делятся на сторону Атаки и сторону (   Читать дальше...   )Тип издания: LicenseРазработчик: Konami, HexaDrive Inc.Жанр: Экшены, Казуальные игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B55FC884C767C3D8588D7041AB842DC30578CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815487   (5232) от 30.08.2025
-
-Outer Wilds: Archaeologist Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в космическую программу! Вы - новобранец Outer Wilds Ventures, начатой недавно программы космических исследований, которая призвана найти ответы на загадки странной, непрестанно меняющейся солнечной системы.Тип издания: LicenseРазработчик: Annapurna InteractiveЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09DE8E93C36A70778132E6762A007EF5CDD4C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815503   (5211) от 30.08.2025
 
 Dredge: Complete Edition (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License] [Ru/Multi]
@@ -110,7 +6,7 @@ Dredge: Complete Edition (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5211.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Switch] [EUR] 18.0.1, Atmo
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5204.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Stray (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5196.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Have A Nice Death (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.5.1 [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5190.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ World of Goo 2 (2024) [Switch] [EUR] 18.0.1, Atmosphere 1.7.1 [License] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5186.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ Storyteller (2023) [Switch] [EUR] 16.0.3, Atmosphere 1.5.4 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5166.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Pentiment (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5159.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ Hollow Knight (2018) [Switch] [USA] 20.1.5 [NSZ] [License / DLC / 1.4.3.2b] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3688.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ Hollow Knight: Silksong (2025) [Switch] [USA] 20.1.5, Atmosphere 1.9.4 [License]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_876.jpg" />
 </div>
 
 

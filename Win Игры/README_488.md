@@ -1,29 +1,3 @@
-###  Публикация: 1763947   (35291) от 04.12.2024
-
-2089 - Space Divided (2024) [Ru/Multi] (1.0.0) Repack Let'sРlay
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-2089 - Space Divided - классическая научно-фантастическая стратегия в реальном времени от немецкой команды разработчиков, в которой вы собираете ресурсы, строите свою базу, обучаете войска и уничтожаете противников с помощью тактического мастерства. Путешествуйте по чужим мирам за свою фракцию и сражайтесь за господство. Будьте умнее своих противников и обеспечьте (   Читать дальше...   )Тип издания: RepackРазработчик: CoastGames GmbHЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263AD522CD15CA9FB2128C700082A307D4B67AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717857   (35282) от 04.12.2024
 
 South Park: Snow Day! (2024) [Multi] (1.0.6/dlc) License GOG
@@ -32,7 +6,7 @@ South Park: Snow Day! (2024) [Multi] (1.0.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35282.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Left 4 Dead (2008) [Ru/Multi] (1.0.4.5) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35276.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35269.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.25849S/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35263.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Icarus (2021) [Ru/Multi] (2.2.31.130582/dlc) Repack seleZen [Complete the Set]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35257.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.6.49/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35239.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Roboquest (2020) [Ru/Multi] (1.5.0-280) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35226.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35199.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35198.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16557524/dlc) Repack Decepticon [20th Anniv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35189.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35185.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35182.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.248.905/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35173.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack dixen18 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35172.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Build #80) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35153.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Lorn's Lure (2024) [Ru/Multi] (Build 16415308) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35149.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35140.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2891297/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35112.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35067.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (Reika Update) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35054.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35049.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Golf Peaks (2018) [Ru/Multi] (3.60) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35048.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35043.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35039.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35029.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F5CD001FA7CE007DB90643E743BB12B2B1756F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764229   (34993) от 06.12.2024
+
+inbento (2019) [Ru/Multi] (2.51) License GOG
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очаровательная игра, сочетающая в себе все три составляющие. В этой игре вам нужно разложить различные закуски в коробки для бенто, следуя рецептам, показанным на экране. Игра проста в освоении, но сложна в освоении, поскольку вам придется использовать логику и творческий подход, чтобы расставить еду в нужных местах. В игре более 120 уровней, каждый из которых отличается (   Читать дальше...   )Тип издания: LicenseРазработчик: AfterburnЖанр: Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8966ADD524F703BE31244C29B279DBB37192E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

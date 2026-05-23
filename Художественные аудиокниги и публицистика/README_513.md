@@ -1,83 +1,3 @@
-###  Публикация: 932739   (508169) от 30.08.2015
-
-Филипп  Ванденберг | Беглая монахиня (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Средневековая Германия. Магдалена готовилась принять постриг, но, увидев, как монахини нарушают святые заповеди, бежит из монастыря и… находит свою судьбу среди бродячих актеров. С первого взгляда она полюбила канатоходца Рудольфо. Вскоре девушка узнала, что он хранитель древних «Книг Премудрости», скрывающих тайну философского камня, сокровищ тамплиеров, египетских (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 15:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB2F8C5798DD4203A93ABBC2F1D1948CB9FC44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932791   (508152) от 30.08.2015
-
-Сергей  Макаров | Полигон призрак (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Москве убит немецкий шпион, успевший послать незадолго до гибели шифровку в Абвер о секретном полигоне, на котором русские испытывают сверхразрушительную бомбу. Эта операция — лишь часть хитроумной игры советской контрразведки СМЕРШ. Ловушка для Абвера подготовлена. Закрыть выход из нее должен майор СМЕРШа Владимир Коготь со своей спецгруппой, состоящей из боевых (   Читать дальше...   )Жанр: Шпионский детективПродолжительность: 11:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6669872A7C74C026125BE5807F4896DB22E334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932911   (508053) от 30.08.2015
-
-Джеймс Хедли Чейз | Что лучше денег? (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Джефф Гордон спасает Римму Маршалл от её разъярённого дружка с ножом. Он хочет сделать из неё певицу, но из этого ничего не выходит. Не того она склада, да ещё и наркоманка со стажем. Невольно став свидетелем убийства охранника при неудачной попытке ограбления кассы киностудии, он сам становится обвинённым в этом преступлении и скрывается.
-
-Другие названия романа:"Сильнее (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD931BE6983F5CE8406781DEBE99DDB499BB225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932722   (508048) от 30.08.2015
 
 Роальд  Даль | Мой дядюшка Освальд (2015) [MP3, Михаил Прокопов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508048.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507994.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507993.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507992.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507990.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507989.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507986.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507980.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507979.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507977.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507906.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507893.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507892.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507759.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507700.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507687.jpg" />
 </div>
 
 
@@ -506,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507461.jpg" />
 </div>
 
 
@@ -532,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507232.jpg" />
 </div>
 
 
@@ -561,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507227.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507120.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506945.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506910.jpg" />
 </div>
 
 
@@ -666,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506890.jpg" />
 </div>
 
 
@@ -679,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:196EE336136E7AF83FDF1EF2E319050C4436E7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316242   (506830) от 25.07.2019
+
+Надежда Попова | Конгрегация 4 | Ведущий в погибель (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба переменчива и непредсказуема. Откомандированный в Аусбург следователь первого ранга Курт Гессе даже предположить не мог, что вместо этого окажется в Ульме. В городе, где не любят Конгрегацию. В городе, где страх потерять прибыль куда сильнее, чем страх Божий. В городе, где ночные улицы смертельно опасны. И именно здесь Курта ждет новое расследование, к которому (   Читать дальше...   )Жанр: Фэнтези, Детективная фантастикаПродолжительность: 29:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC77D3BABBC3AF625FF872CA3B9B98CF171DFBE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316306   (506828) от 25.07.2019
+
+Иар Эльтеррус | Гнев императора. Дальний путь (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элианская империя мало что могла противопоставить высокоразвитым цивилизациям, которые вышли в Большой Космос много веков назад, разве что – свою магию. Но именно магия настораживала тех, кто привык полагаться исключительно на технологии. А если потенциального противника нельзя понять, его следует уничтожить. Просто так, на всякий случай. Правда, большая политика (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 12:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EF40123F2F1931E5659C957D53D2411E3E105B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316408   (506817) от 25.07.2019
+
+Вячеслав Шалыгин | Странствия безногого. Космос! [Книга 1] (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сверхсекретное задание майора разведки Федора Сбондина и финансовый кризис космического «волка» капитана Зигфрида Безногого настолько сближают этих разных людей, что в дальнейшей жизни им уже друг без друга не обойтись. Теперь они вместе будут мешать олигарху Злюхину разорять Родину, вместе готовиться к отражению бастурман-бастманчского нашествия, вместе спасать (   Читать дальше...   )Жанр: Юмористическое фэнтезиПродолжительность: 05:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45287CA751A3FCB1CE2C081A638CE0974BC11909
 ```
 
 https://mybot314.ru/tekegram_catalog/

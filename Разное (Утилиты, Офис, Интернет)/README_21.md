@@ -6,7 +6,7 @@ FileLocator Pro 8.5 Build 2868 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309362.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Stardock IconPackager 5.10.032 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308190.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Falcon Cursor 6 Colors - Набор курсоров [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307009.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PIDKey Lite 1.64.0 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306957.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306648.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CD/DVD shot 3.5.0.1 (x86-x64) [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304839.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Advanced Tokens Manager 3.3 [Eng]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304072.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Arcsoft WebCam Companion 4.0.0.374 Retail [Multi/Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302332.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Recover Keys Enterprise 11.0.4.233 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296581.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ PCStitch 10.00.023 RePack + Portable by Tyran [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293603.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ MOBILedit! Enterprise 8.7.1.21224 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293108.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ WinDjView 2.1 RePack (& Portable) by Trovel [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293075.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Apowersoft Screen Recorder Pro 2.4.1.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291313.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ USBboot Installer++ 1.9 DC 05.12.2016 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291213.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Movavi Screen Capture Pro 10.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290814.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft Product Keys 2.6.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283926.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ QDictionary 1.6 + 76 словарей RePack by вовава [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280021.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Product Key Explorer 4.2.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279056.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Prog Finder 2.39 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277188.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ FBReader 0.12.10 0.12.10 [Мультиязычный (русский прису�
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276780.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ NextUp TextAloud 3.0.103 + European Voice Engines (18 Engines) [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273171.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Take Command 25.00.24 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271435.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Spybot Anti-Beacon for Windows 10 1.6 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269794.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ TechSmith Camtasia 26.0.0 Build 13551 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261328.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ WinCatalog 2024.15.0.1116 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260800.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Office Installer & Office Installer+ 1.33 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257832.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Atomic Owl (2025) [En] (1.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060129.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Exotica 2: Pet Shop Simulator (2026) [Ru/Multi] (1.0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060127.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Avowed (2025) [Ru/Multi] (2.0.0.0/dlc) Repack HardwareMining [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060123.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Disciples: Domination (2026) [Ru/Multi] (1.5.0.3413/dlc) Repack Decepticon [Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060119.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 22154679/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060084.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ My Cafe Manager Simulator (2026) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060031.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Reigns: The Witcher (2026) [Ru/Multi] (1.0.3617) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060001.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Book Smugglers (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060000.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Other s [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059991.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.3.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059990.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Onirism (2025) [Ru/Multi] (Build 2213289) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059989.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.6.2/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059988.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Planet of Lana II (2) (2026) [Ru/Multi] (1.0.13/1.0.14/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059987.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059986.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059985.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.06) Repack HardwareMining
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059984.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack sel
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059983.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack HardwareMini
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059982.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Neva (2024) [Ru/Multi] (Build 21964472/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059980.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (1.0.6-1239687/dlc) License
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059979.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Planet of Lana II (2) (2026) [Ru/Multi] (1.0.13/1.0.14/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059978.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Planet of Lana II (2) (2026) [Ru/Multi] (1.0.13) Repack dixen18
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059977.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Planet of Lana II (2) (2026) [Ru/Multi] (1.0.13/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059976.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Wicked Seed (2026) [En] (Build 21603000) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059975.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (Build 15643690/dlc) Repack HardwareM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059959.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (Build 21633477) Repa
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059954.jpg" />
 </div>
 
 

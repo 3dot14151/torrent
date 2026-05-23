@@ -6,7 +6,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938867.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938864.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938769.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938673.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938455.jpg" />
 </div>
 
 
@@ -128,68 +128,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 283903   (938422) от 18.01.2011
-
-Александр Солженицын | Двести лет вместе (1795 - 1995) Часть II. [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть труда Александра Исаевича Солженицына. Она охватывает период революций и советское время.  Эта книга может перевернуть ваши представления о сосуществовании двух наций - евреев и русских.
-
-"Искренно стараюсь понять обе стороны. Для этого – погружаюсь в события, а не в полемику. Стремлюсь показать. Вступаю в споры лишь в тех неотклонимых случаях, где справедливость покрыта наслоениями неправды. Смею ожидать, что книга не будет встречена гневом крайних и непримиримых, а наоборот, сослужит взаимному согласию.
-Я надеюсь найти доброжелательных собеседников и в евреях, и в русских.
-Автор понимает свою конечную задачу так: посильно разглядеть для будущего взаимодоступные и добрые пути русско-еврейских отношений. "
-А. И. СолженицынЖанр: История
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A4DA71F4D5644094AEB6D6BD6B64FDFB603824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283893   (938413) от 18.01.2011
-
-Александр Солженицын | Двести лет вместе.(1795 - 1995). Часть I. [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Книга Александра Исаевича Солженицына «Двести лет вместе» — это попытка рассмотрения такого большого и интересного явления, как сосуществование двух народов — русского и еврейского — на протяжении двух веков российской истории.
-
-"Искренно стараюсь понять обе стороны. Для этого – погружаюсь в события, а не в полемику. Стремлюсь показать. Вступаю в споры лишь в тех неотклонимых случаях, где справедливость покрыта наслоениями неправды. Смею ожидать, что книга не будет встречена гневом крайних и непримиримых, а наоборот, сослужит взаимному согласию.
-Я надеюсь найти доброжелательных собеседников и в евреях, и в русских.
-Автор понимает свою конечную задачу так: посильно разглядеть для будущего взаимодоступные и добрые пути русско-еврейских отношений. "
-А. И. СолженицынЖанр: История
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60739F3754304A102505C9F5787B52B7F37CC0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092462   (938398) от 12.01.2017
 
 Андрей Белянин | Казак в раю (2005) [MP3]
@@ -198,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938398.jpg" />
 </div>
 
 
@@ -224,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938295.jpg" />
 </div>
 
 
@@ -250,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938274.jpg" />
 </div>
 
 
@@ -276,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938201.jpg" />
 </div>
 
 
@@ -302,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938015.jpg" />
 </div>
 
 
@@ -329,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937951.jpg" />
 </div>
 
 
@@ -355,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937938.jpg" />
 </div>
 
 
@@ -381,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937872.jpg" />
 </div>
 
 
@@ -407,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937853.jpg" />
 </div>
 
 
@@ -433,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937723.jpg" />
 </div>
 
 
@@ -459,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937651.jpg" />
 </div>
 
 
@@ -485,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937339.jpg" />
 </div>
 
 
@@ -511,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937333.jpg" />
 </div>
 
 
@@ -537,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937323.jpg" />
 </div>
 
 
@@ -565,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937285.jpg" />
 </div>
 
 
@@ -592,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937263.jpg" />
 </div>
 
 
@@ -619,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937255.jpg" />
 </div>
 
 
@@ -645,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937252.jpg" />
 </div>
 
 
@@ -673,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937241.jpg" />
 </div>
 
 
@@ -684,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7E80BB772BF3C08A8A2E97F15BBCFFCC3BEB776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093057   (937234) от 13.01.2017
+
+Александр Етоев | Бегство в Египет. Эксперт по вдохам и выдохам. Пещное действо (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937234.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аннотации к печатному изданию "Бегства в Египет" написано так: "Книга Александра Етоева повествует о всевозможных бегствах, полетах и прочих неестественных проявлениях человеческого характера, без которых жизнь человека была бы сухой и скучной, как пальма в привокзальном буфете. Александр Етоев рассказывает странные сказки. Иногда даже более странные, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 06:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE888170FC93B780B43A4A22A5769DEF2E921CA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092692   (937122) от 13.01.2017
+
+Олег Борисов |  Доченька. Десант своих не бросает (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все не так, как кажется. Забыты честь и совесть, деньги и корпоративные интересы сплелись в запутанный клубок, похоронив под собой правду о «несчастном случае». Приятели превращаются во врагов, обыденные события порождают лавину неприятностей, грозя похоронить каждого, кто осмелится встать на пути инопланетных спецслужб. И только близкие друзья, верные данному слову (   Читать дальше...   )Жанр: Космическая фантастикаПродолжительность: 13:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D2E67D8F8DF4FA1549191D5AD92D8927236C76
 ```
 
 https://mybot314.ru/tekegram_catalog/

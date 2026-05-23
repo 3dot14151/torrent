@@ -6,7 +6,7 @@ Auslogics BoostSpeed 11.2.0.4 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170134.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EaseUS Data Recovery Wizard Technician 15.8.1.0 Portable by FC Portables [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170131.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ HiBit Uninstaller 3.1.70 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170129.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ PC Cleaner Pro 9.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170123.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Audition 2020 13.0.1.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170120.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ LibreOffice 7.2.4.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170116.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Foxit PDF Reader 12.1.0.15250 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170106.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Data Guardian 6 v.6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170092.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ CopyQ 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170089.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Librarian Pro 6 v6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170086.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Screens 4 v4.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170084.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rainmeter 4.5.6 Build 3573 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170082.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Acrobat Pro DC 2019.021.20058 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170081.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ CaptureGRID 4 v4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170076.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MacPilot 12.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170071.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Money Pro - Personal Finance 2.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170070.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ WinNTSetup 5.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170068.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PopChar X 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170062.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AirRadar 6 v6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170056.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Epic Pen Pro 3.12.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170055.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ MEDUZA - Live @ Selected Sessions, Iceland (2020-11-20) [MP3|320 Kbps] <House, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170054.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Luminar Neo 1.15.0.12363 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170050.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170049.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ SoundSource 5.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170046.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ eMail Address Extractor 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170045.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ HiBit Startup Manager 2.6.20 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170033.jpg" />
 </div>
 
 

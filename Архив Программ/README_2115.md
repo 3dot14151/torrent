@@ -6,7 +6,7 @@ DefenderKiller 11.4 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63263.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6800 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63260.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ashampoo UnInstaller 14.00.12 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63241.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WifiInfoView 2.93 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63240.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Office Installer 1.03 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63229.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Reboot Restore Rx Professional 12.5 Build 2709703329 RePack by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63224.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AIDA64 Engineer Edition 7.20.6800 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63223.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ GoldWave 6.80 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63221.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Qalculate! 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63220.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Icecream Screen Recorder Pro 7.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63219.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6800 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63217.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WinSCP 6.3.2 Build 14890 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63196.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FinePrint 11.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63195.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.7 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63189.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ FinePrint 11.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63187.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ WinScan2PDF 8.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63186.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.7 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63185.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ pdfFactory Pro 8.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63174.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ K-Lite Codec Pack Update 18.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63172.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ PdfFactory Std & Pro 8.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63167.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Draw.io 24.0.4+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63164.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63160.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CCleaner 6.22.10977 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63156.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4170 (Updated March 2024) by FaTaL [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63154.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3296]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63152.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Reg Organizer 9.41 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63120.jpg" />
 </div>
 
 

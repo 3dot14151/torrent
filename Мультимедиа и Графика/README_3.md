@@ -1,82 +1,3 @@
-###  Публикация: 1869177   (1067780) от 04.05.2026
-
-Shutter Encoder 20.1 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Shutter Encoder — это бесплатный видеоконвертер и редактор с открытым исходным кодом, обладающий возможностями пакетной обработки, расширенными параметрами кодирования и удобным пользовательским интерфейсом.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84B858E92A7D1BE1C399458DA70C7CA69C59F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868752   (1067758) от 02.05.2026
-
-FotoSketcher Studio 4.20 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FotoSketcher Studio - это приемница FotoSketcher с обновлённым дизайном, — простая и небольшая программа, созданная любителем-программистом из французского города Лиона для работы с фотографиями и различными изображениями.
-FotoSketcher поможет вам автоматически конвертировать ваши цифровые фотографии в произведения искусства. Если вы хотите превратить портрет, фотографии (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445EA280DE73CC18074EDFD0AB57585A081E0C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868805   (1067724) от 02.05.2026
-
-iZotope RX 12 Audio Editor Advanced 12.0.0.1410 Portable by 7997 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-iZotope RX 12 Audio Editor Advanced — это профессиональное решение для восстановления, очистки и детальной обработки аудиоматериала. Программа широко используется в постпродакшене, музыкальной индустрии, радиовещании и кино благодаря мощным алгоритмам спектрального анализа и интеллектуальной обработке звука. RX позволяет устранять шумы, искажения, щелчки, реверберацию (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3C95742F4592E204FE928AB8591CA525761D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868825   (1067710) от 02.05.2026
 
 X Radio Stream Finder 2.1 Portable [En]
@@ -85,7 +6,7 @@ X Radio Stream Finder 2.1 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067710.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ Shotcut 26.4.30 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067685.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ Ocenaudio 3.18.2 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067684.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ Photo Supreme 2026.2.3.9005 RePack (& Portable) by elchupacabra [Multi]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067670.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ Kdenlive 26.04.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067658.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ Cockos REAPER 7.69 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067656.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ XnView MP 1.11.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067643.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ Blackmagic Design DaVinci Resolve Studio 21.0 Build 28 beta 2 Portable by 7997 [
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067632.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ n-Track Studio Suite 10.3.0.10791 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067589.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ Artifact Interactive Garden Planner 3.8.85 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067561.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ LeafView 4.1.6 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067552.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ reaConverter Pro 8.0.218 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067462.jpg" />
 </div>
 
 
@@ -400,7 +321,7 @@ Adobe Photoshop 2025 26.11.5.177 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067441.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ Adobe Photoshop 2025 26.11.5.177 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067440.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ RarmaRadio Pro 2.77.9 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067410.jpg" />
 </div>
 
 
@@ -478,7 +399,7 @@ X AAC Encoder 1.1 Portable [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067393.jpg" />
 </div>
 
 
@@ -504,7 +425,7 @@ Adobe Photoshop 2026 27.6.0.11 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067378.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ Adobe Photoshop 2026 27.6.0.11 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067372.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ Adobe Photoshop 2026 27.6.0.11 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067371.jpg" />
 </div>
 
 
@@ -582,7 +503,7 @@ Topaz Photo 1.5.1 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067365.jpg" />
 </div>
 
 
@@ -608,7 +529,7 @@ Perfectly Clear WorkBench 5.1.0.3204 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067357.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ Kdenlive 26.04.0 + Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067334.jpg" />
 </div>
 
 
@@ -661,7 +582,7 @@ Fast Video Cutter Joiner 7.0.8 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067325.jpg" />
 </div>
 
 
@@ -672,6 +593,84 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F17A9BBB9B862780893639D8AFB8CF407F6E4610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868211   (1067304) от 29.04.2026
+
+MuseScore 4.6.5 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067304.jpg" />
+</div>
+
+
+###  Подробнее
+
+MuseScore — это бесплатный нотный редактор с открытым исходным кодом для создания, редактирования и воспроизведения музыкальных партитур. Программа позволяет набирать ноты любой сложности, автоматически создавать партитуры, а также выводить их в формате PDF для печати или публикации.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A884D4F20C2E6F8DD0F8D1A43A62FD2CB57F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868213   (1067303) от 29.04.2026
+
+Wondershare UniConverter 17.3.5.562 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896C8F0A7160C88A85EEC63E3E098455E2B3021D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868224   (1067297) от 29.04.2026
+
+Adobe Photoshop 2025 26.11.5.177 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2025 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4D1E21CBD6C0EF8CFA8028BCB6C7985C086F00
 ```
 
 https://mybot314.ru/tekegram_catalog/

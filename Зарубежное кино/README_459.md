@@ -1,56 +1,3 @@
-###  Публикация: 875068   (857545) от 06.03.2015
-
-Я знаю, что вы сделали прошлым летом / I Know What You Did Last Summer (1997) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Компания выпускников весело провела вечер на берегу моря. Возвращаясь на машине домой, они сбивают непонятно откуда взявшегося человека. Решив, что он мертв, и не желая лишних неприятностей, они сбрасывают тело в море.
-А ровно через год получают письмо… Кто-то знает их тайну. Кто-то знает, что они натворили прошлым летом!Производство: США / Columbia Pictures Corporation, Mandalay Entertainment, Summer Knowledge LLCЖанр: Ужасы, Триллер, ДетективРежиссер: Джим ГиллеспиАктеры: Дженнифер Лав Хьюитт, Сара Мишель Геллар, Райан Филипп, Фредди Принц мл., Мьюз Уотсон, Бриджит Уилсон, Энн Хеч, Джонни Галэки, Стюарт Грир, Дж. Дон ФергюсонПеревод: Многоголосый закадровый, авторскийЯзык субтитров: ОтсутствуютПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3996141F1AAA33735235E5D3977C58B8956CE60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498360   (857526) от 26.09.2021
-
-Ночная прогулка / Night Walk (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Американец-атеист Фрэнк влюбился в арабскую девушку Сару и решил сделать ей предложение в ее родном городе. Однако коррумпированные исламские полицейские схватили влюблённых и потребовали взятку за то, чтобы выпустить их на свободу, убили Сару, а всю вину свалили на Фрэнка. В тюрьме Фрэнк проходит путь духовного перерождения под влиянием своего сокамерника-мусульманина. (   Читать дальше...   )Производство: США / Lena River productions, Alexander Media, Ole EntertainmentЖанр: Боевик, криминалРежиссер: Азиз ТазиАктеры: Шон Стоун, Сара Алами, Микки Рурк, Эрик Робертс, Лауни Муид, Рикко Росс, Ричард Тайсон, Луис Мэндилор, Патрик Килпатрик, Джеймс КохПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 01:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE9D24FBEA891C9A85C8A13F188E3E57265B7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498371   (857516) от 26.09.2021
 
 Я создан для тебя / Ich bin dein Mensch / I'm Your Man (2021) BDRip [H.265] [10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857516.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857515.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857509.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857507.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857503.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857438.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857420.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857412.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857348.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857312.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857300.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857257.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857251.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857250.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857249.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857240.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857179.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857166.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857158.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857147.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857146.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857082.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857075.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857072.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34F03508C2D59552C3124919FEC4B3B484B057F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000450   (857068) от 26.03.2016
+
+Невыносимая жестокость / Intolerable Cruelty (2003) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857068.jpg" />
+</div>
+
+
+###  Подробнее
+
+У знаменитого адвоката Майлза Масси есть все — слава, деньги, благодарная клиентура и брачный контракт, названный в его честь. Но Майлз чувствует, что ему не хватает поединка с достойным врагом. Судьба сводит его с соблазнительной Мэрилин Рексрот, брачной аферисткой, которая собирается развестись с его клиентом и при этом значительно пополнить свой банковский счет. (   Читать дальше...   )Производство: США, Alphaville Films, Imagine Entertainment, Mike Zoss Productions, Universal PicturesЖанр: Мелодрама, комедия, криминал, экранизацияРежиссер: Джоэл Коэн, Итан КоэнАктеры: Джордж Клуни, Кэтрин Зета-Джонс, Джеффри Раш, Седрик «Развлекатель», Эдвард Херрманн, Пол Адельштейн, Ричард Дженкинс, Билли Боб Торнтон, Джулия Даффи, Джонатан ХэдариПеревод: Дублированный, Авторский (одноголосый, закадровый)Язык субтитров: Русский, украинский, английскийПродолжительность: 01:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E277BD933679AA2A0E86FA9CC012728B3B1BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000781   (857065) от 26.03.2016
+
+Мохаве / Mojave (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857065.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о художнике, который, чтобы пережить личный кризис, отправляется в пустыню. Там он встречает своего двойника - жестокого убийцу. С этого момента главный герой с суицидальных мыслей переключается на поиск возможностей выжить.Производство: СШАЖанр: ТриллерРежиссер: Уильям МонахэнАктеры: Оскар Айзек, Гаррет Хедлунд, Марк Уолберг, Уолтон Гоггинс, Хейли Магнус, Мэтт Джонс, Даня Рамирес, Фрэн Кренц, Кристофер Нейман, Луиз БургуанПеревод: Любительский двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB89D84D996A341AFE96C7A6B175A1497FD7242
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Benjamin Herman featuring Daniel von Piekartz - Trouble (2014) Dox Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263535.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Art Farmer with Joe Henderson - Yama (1979) 2017, King Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263531.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Herbie Hancock - Dancin' Grooves (1999) SME Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263521.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ George Benson - Pacific Fire (1983) Japan, 2017 [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263479.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Seal - Standards (2017) Japan SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263396.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Farmers Market - Slav to the Rhythm (2012) [FLAC|Lossless|tracks + .cue] <Jazz R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263302.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Radare - Der Endless Dream (2019) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Expe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263296.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stephane Grappelli - Live 1992 (2002) Disques Dreyfus [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263257.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ David Ian - Vintage Christmas Trio (2017) Prescott Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263252.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mike Moreno - 3 For 3 (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263247.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Daniel Chia - In The Moment (2017) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263212.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Esperanza Spalding - Exposure & Undeveloped (2017) 2CD, Concord Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263180.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Djabe & Steve Hackett - Life Is A Journey: The Sardinia Tapes (2017) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263159.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Chris Lightcap - SuperBigmouth (2019) Pyroclastic Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262948.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Nat Adderley Quintet - Blue Autumn 1983 (1992) Evidence [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262947.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Blues & Lonesome (The Music That Inspired The Rolling Stones) (2017) 2CD [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262882.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ralph Moore - Round Trip (1985) 1987, Reservoir [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262846.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ralph Moore - Images (1989) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262845.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Les McCann - Live at Montreux (1972) 2014, Warner [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262833.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Charlie Haden & Antonio Forcione - Heartplay (2006) Naim Label [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262807.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Konstantin Klashtorni - Kool & Klean (Volume VII) (2017) [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262755.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Milt Jackson - Four Classic Albums Plus 1954 - 1957 (2009) 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262636.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Peter Green’s Fleetwood Mac - Live At The BBC (1967-71,1995) (2019) 2CD [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262586.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Ralph Moore - Furthermore (1990) Landmark Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262536.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262534.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Toots Thielemans - Collage (1980) 2017, Sony Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262528.jpg" />
 </div>
 
 

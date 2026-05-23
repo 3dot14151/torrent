@@ -6,7 +6,7 @@ Dagoba - 7 Альбомов (2003-2017) [MP3|320 кб/с]<Groove Metal, Industri
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474137.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Korpiklaani - Live At Masters Of Rock (2017) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474025.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lacrimosa - Testimonium (2017) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473645.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Omega Diatribe - Metanoia (2020) [MP3|320 Kbps] <Progressive Metal, Groove Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473198.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Oceans of Slumber - Oceans of Slumber (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473063.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Holy Force - Holy Force (2011) [MP3|320 kbps]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472706.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tyranny - Aeons In Tectonic Interment (2015) [MP3|320 кб/с]<Funeral Doom Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471546.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Zakk Sabbath - Vertigo (2020) [MP3|320 Kbps] <Heavy, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470679.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Epica - The Holographic Principle (2016) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470613.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Exilia - Purity (2015) [MP3|320 кб/с]<Nu Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469145.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) 2CD [MP3|320 кб/с]
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468962.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Abated Mass of Flesh - Коллекция: 2-CD (2020) [MP3|320 Kbps] <Brutal De
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468735.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Skepticism - Ordeal (2015) [MP3|320 кб/с]<Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467190.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467036.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bruce Dickinson - 6 Album (1990-2005) [MP3|320 Kbps] <Rock, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465878.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hanging Garden - Blackout Whiteout (2015) [MP3|320 кб/с]<Post-Metal, Doom/Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464887.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rammstein - In Amerika (2015) live [MP3|320 кб/с]<Industrial Metal, NDH>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464052.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Haunted - Strength In Numbers (2017) [MP3|320 Kbps] <Thrash Metal, Groove Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463591.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Korpiklaani - Kulkija (2018) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461328.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Septicflesh - Codex Omega (2017) Deluxe Edition [MP3|320 Kbps] <Symphonic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461191.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pro-Pain - Voice Of Rebellion (2015) Deluxe Edition [MP3|320 кб/с]<Hardcore, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460053.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sonata Arctica - The Ninth Hour (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459386.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mastodon - Medium Rarities (2020) [MP3|320 Kbps] <Groove Metal, Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458306.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Messiah - Fracmont (2020) [MP3|320 Kbps] <Death Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458304.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Skeletal Remains - The Entombment Of Chaos (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458301.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Red Rum - Booze And Glory (2015) [MP3|320 кб/с]<Epic Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458099.jpg" />
 </div>
 
 

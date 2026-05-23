@@ -1,55 +1,3 @@
-###  Публикация: 1451877   (1027990) от 04.03.2021
-
-Заклинание / Spell (2020) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий нью-йоркский адвокат Маркус узнаёт о кончине отца, с которым много лет не общался. Вместе с семьёй — женой и двумя детьми-подростками — он на собственном небольшом самолёте отправляется на похороны в Кентукки, но где-то над горами Аппалачи попадает в грозу и терпит крушение. Раненый Маркус приходит в себя в доме пожилой женщины Элоиз. Она утверждает, (   Читать дальше...   )Производство: США / LINK Entertainment, MC8 Entertainment, Paramount PicturesЖанр: УжасыРежиссер: Марк ТондерайАктеры: Омари Хардвик, Лоретта Дивайн, Лоррэйн Барроуз, Hannah Gonera, Kalifa Burton, Джон Бизли, Тумишо Маша, Steve Mululu, Питер Батлер, Андре ДжейкобсПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), украинские (Full), английские (Full, SDH)Продолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28823CEB11DF7C1B71A74A063FFB139499854A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452226   (1027936) от 05.03.2021
-
-Темур (2018) WEBRip
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм формирует у молодежи любовь к Родине, чувства патриотизма, уважение к своим родителям. В фильме показана большая роль махалли и общества в жизни людей. Основная задача этого фильма призывать всех граждан Республики соблюдать мир и спокойствие, быть бдительными и не безразличными к своей Родине, к происходящим вокруг событиям.Производство: Узбекистан, Казакстан, Киргизия, РоссияЖанр: БоевикРежиссер: Нодир МуминовАктеры: Рустам Саъдуллаев, Бехзод Мухаммадкаримов, Игорь Жижикин, Саят Исембаев, Фархат Абдраимов, Фуркат Файзиев, Рихси Иброхимова, Раъно Зокирова, Борис Гафуров, Маъруф Отажонов, Рахим Гофуров, Шохрух ХамдамовПеревод: ДублированныйЯзык озвучки: Русский, узбекскийСубтитры: ОтсутствуютПродолжительность: 01:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2EE902616FD8D5584CA03C8A53BEB07B30489E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452168   (1027915) от 05.03.2021
 
 Жертва / Sacrifice (2020) WEB-DL [H.264/1080p-LQ] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027915.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027901.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027895.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027887.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027885.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027875.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027874.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027869.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027867.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027865.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027861.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027860.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027859.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027854.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027848.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027837.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027833.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027830.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027828.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027826.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027822.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027818.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027816.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027805.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B16F6A2DAA069CB0F79509B97263C0AF899FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452075   (1027803) от 05.03.2021
+
+Человек без гравитации / L'uomo senza gravita (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оскар рождается ночью в больнице маленького городка, и сразу становится ясно, что он — необычный ребенок: малыш не подчиняется закону всемирного тяготения. Мать и бабушка, боясь за младенца, решают скрыть его суперспособность, и долгие годы он растет в тайне от всех. Но приходит день, когда Оскар решает: мир должен узнать, что он — человек без гравитации.Производство: Италия, Бельгия, Франция / Isaria Productions, Zagora, Climax FilmsЖанр: Фэнтези, драма, комедияРежиссер: Марко БонфантиАктеры: Элио Джермано, Микела Ческон, Елена Котта, Сильвия д’Амико, Винсент Скарито, Pietro Pescara, Jennifer Brokshi, Андреа Пеннакки, Кристина Донадио, Dieter-Michael GrohmannПеревод: Многоголосый профессиональный (iTunes)Субтитры: Английские (отдельно)Продолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882B3FB61A755011571EB49B95FACBA5FAFCCBA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452201   (1027786) от 05.03.2021
+
+Заклинание / Spell (2020) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий нью-йоркский адвокат Маркус узнаёт о кончине отца, с которым много лет не общался. Вместе с семьёй — женой и двумя детьми-подростками — он на собственном небольшом самолёте отправляется на похороны в Кентукки, но где-то над горами Аппалачи попадает в грозу и терпит крушение. Раненый Маркус приходит в себя в доме пожилой женщины Элоиз. Она утверждает, (   Читать дальше...   )Производство: США / LINK Entertainment, MC8 Entertainment, Paramount PicturesЖанр: УжасыРежиссер: Марк ТондерайАктеры: Омари Хардвик, Лоретта Дивайн, Лоррэйн Барроуз, Hannah Gonera, Kalifa Burton, Джон Бизли, Тумишо Маша, Steve Mululu, Питер Батлер, Андре Джейкобс и др.Перевод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Full), английскиеПродолжительность: 01:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0229D19345657534E93B6DDA2EA41BCE9299270D
 ```
 
 https://mybot314.ru/tekegram_catalog/

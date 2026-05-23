@@ -1,29 +1,3 @@
-###  Публикация: 1219486   (712931) от 14.04.2018
-
-Lobotomy Corporation | Monster Management Simulation (2018) [Ru/Multi] (1.0.1.0а) Repack Other s
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В игре «Lobotomy Corporation» вам предстоит возглавить необычную компанию, занимающуюся содержанием SCP-объектов, а, проще говоря, монстров. Делается это для извлечения из них специальной энергии. Ваша задача - построить специальные камеры и содержать самых ужасных монстров. Будьте предельно осторожны, ведь SCP-объекты крайне опасны, каждый обладает своими уникальными (   Читать дальше...   )Тип издания: RepackРазработчик: Project MoonЖанр: Strategy, Simulator, RoguelikeЯзык субтитров: Русский, Английский, Китайский и другиеЯзык интерфейса: Русский, Английский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59E74FEF9867EEB6721715F89FF1EF075EC8401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286391   (712751) от 02.03.2019
 
 The Secret Order 7: Shadow Breach / Тайный Орден 7: Сумрачное зияние (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ The Secret Order 7: Shadow Breach / Тайный Орден 7: Сумрачно�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712751.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.4.0/dlc) Repack Other s [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712734.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Fast & Furious Crossroads (2020) [Ru/Multi] (1.0/dlс) Repack ElAmigos [Digital 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712621.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Fimbul (2019) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712496.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [En] (3.5/dlc) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712491.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.21.26998/dlc) License RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712489.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712413.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Sims 4 (2014) [Ru/Multi] (1.50.67.1020/dlc) Unofficial R.G. Origins [Deluxe 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712396.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Eventide 2: The Sorcerers Mirror /  На закате 2: Зеркало мага
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712345.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Spirits Chronicles: Born in Flames / Хроники Духов: Дитя пла�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712344.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Alien: Isolation (2014) [Ru/En] (1.0u9/dlc) Repack Decepticon [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712325.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Mystery Tales 6: The Hangman Returns /Загадочные истории 6: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712266.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Total War: Rome Remastered (2021) [Ru/Multi] (2.0.5/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712235.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Eventide 2: The Sorcerers Mirror / Зеркало мага (2016) [Ru] (1.0) Rep
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712180.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Phantasmat 8: Mournful Loch / Фантазмат 8: Мрачное озеро (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712173.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Finnish Roller (2017) [En] (1.0/upd4) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712168.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Gold Rush! 2 (2017) [En/De] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712022.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Midnight Calling 2: Jeronimo (2016) [En] (1.0) Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711868.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Diamon Jones: Devils Contract / Даймон Джонс: Дьявольский 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711790.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Virtual Sports (2017) [En] (1.0) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711420.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ I Expect You To Die (2017) [En] (1.0.113008) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711274.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (130418) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711259.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ House of the Dying Sun (2016) [En] (6.08.2016) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711207.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Senran Kagura: Shinovi Versus (2016) [Jp/En] (1.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711196.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Pharaonic (2016) [Ru/Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711114.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Pharaonic, увлекательная трехмерная игра, в кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C46E4418BDEFE52C37ADD46394F24D3A35CE25DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219743   (711112) от 15.04.2018
+
+Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711112.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свежеиспеченной части игрокам вновь предстоит посетить Кокон – небесный мир альтернативного будущего, переживающий не лучшие времена. Эре благополучия и всеобщего процветания под правлением Санктума приходит конец, и вот уже мир рушится на глазах.Тип издания: RepackРазработчик: SQUARE ENIXЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170C91885ED7E7C6066B675B5A54291B7E542BC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

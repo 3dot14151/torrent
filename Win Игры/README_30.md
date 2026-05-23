@@ -6,7 +6,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054512.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Antiques Hunt: Tales of Cobblestone Streets / Охота за антиквари
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054511.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (5738-A) Repack Let'sРlay 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054500.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054464.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sin Spire (2026) [Ru/Multi] (1.0.1) Repack Other s [18+]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054346.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hytale (2026) [Ru/En] (14.01.2026) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054338.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hytale (2026) [Ru/En] (14.01.2026) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054337.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.006/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054312.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (0.8.1.6) Repack Let'
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054296.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sigi - A Fart for Melusina (2017) [Multi] (3.41) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054235.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054175.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (Build 18042732/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054108.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Book of Outcasts (2025) [Ru/Multi] (Build 21576001/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054079.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053992.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053991.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053921.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ StarRupture (2026) [Ru/Multi] (0.1.1 112941-S/dlc) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053920.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.14.02) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053918.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack Pioneer [Pilgrim Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053917.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dead Space (2023) [Ru] (Build 10602756/dlc) Repack HardwareMining [Digital Delux
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053916.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack FitGirl [The One Who 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053915.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Foundation (2019) [Ru/Multi] (1.11.0.11/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053914.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ LORT (2026) [Ru/Multi] (0.5.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053913.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Tennis Elbow 4 (2021) [Ru/Multi] (Build 21506891) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053912.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Tennis Elbow 4 (2021) [Ru/Multi] (1.0a Build 154-2026.1.15) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053911.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (21493729/dlc) Sc
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053861.jpg" />
 </div>
 
 

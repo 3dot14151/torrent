@@ -6,7 +6,7 @@ Ra Ra BOOM (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4576.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rogue Hex (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4570.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4520.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4495.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4488.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Neyyah (2025) [Ru/Multi] (Build 19847679) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4487.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4467.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831_2044-321866/dlc) Repack Decepti
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4466.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28324) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4451.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87547) License GOG [Collect
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4376.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4357.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4352.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831/dlc) Repack FitGirl [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4342.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4302.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4222.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4213.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4171.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Daemon X Machina: Titanic Scion (2025) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4000.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3978.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3928.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Metal Eden (2025) [Ru/Multi] (1.01) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3545.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mortal Sin (2025) [Ru/Multi] (1.0 HF1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3527.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (6.0.0/dlc) License GOG [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3421.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3265.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Adventure of Samsara (2025) [Multi] (1.0.10) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3252.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Shape of Dreams (2025) [Ru/Multi] (build 19939749) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3041.jpg" />
 </div>
 
 

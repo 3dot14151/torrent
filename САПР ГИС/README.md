@@ -7,7 +7,7 @@ GstarCAD Professional 2021 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069539.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ KiCad 10.0.2 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069197.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ KiCad 10.0.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068651.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ KiCad 10.0.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066798.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Autodesk AutoCAD Mechanical 2027 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065598.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AnyLogic Professional 8.9.8 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065031.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Autodesk AutoCAD 2027 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062493.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ KiCad 10.0.0 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062049.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ KiCad 10.0.0 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061809.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Proteus Professional 9.1 SP2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060802.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ JMAG Designer 18.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056423.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AVEVA Process Simulation 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056384.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Siemens Solid Edge 2026.2510 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056234.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Siemens Simcenter Amesim 2404 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055824.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ ESI SimulationX 4.1.1.63427 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055714.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ DS DYMOLA 2023x Refresh 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055499.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052506.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052496.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ InfineonSpice 2025.04.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051422.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ QSPICE 2026.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051392.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Missler Topsolid 7.17.400.000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051381.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ DipTrace 5.2.0.4 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050701.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Altium Designer 26.1.1 Build 7 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050694.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SkyCAD Electrical Pro 1.3.61.23785 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049052.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Altair PSIM 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048994.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Keysight Advanced Design System 2026 Update 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048988.jpg" />
 </div>
 
 

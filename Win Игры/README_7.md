@@ -6,7 +6,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (4.0.0c) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064427.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mistbound / Тумань (2026) [Ru/En] (Build 22477588) Repack Other s [Early A
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064426.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ghost Master Resurrection (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064425.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ai Limit (2025) [Ru/Multi] (Build 22521250/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064424.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.47/dlc) Repack Let'sРlay [Deluxe Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064401.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Wanterlude [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064393.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Endless Space 2 (2017) [Ru/Multi] (1.5.75.2/dlc) License GOG [Definitive Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064387.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Marshmallow All the Way Home (2025) [Multi] (1.0.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064386.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.231) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064385.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Eastern Era (2026) [Ru/Multi] (1.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064305.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eastern Era (2026) [Ru/Multi] (1.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064304.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Scourge / Tai Ương (2024) [Multi] (1.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064303.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ tawarerumono: ZAN 2 (2026) [Multi] (22071867/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064302.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack dixen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064300.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Valor of Man (2026) [Multi] (1.0.0 Build 163) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064265.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.3/dlc) License GOG [Digital Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064255.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.12620) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064187.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Haunted Lands (2026) [Ru/Multi] (1.0.7) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064173.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064172.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (0.51) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064171.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Super Meat Boy 3D (2026) [Ru/Multi] (1.2_34) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063950.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ EverSiege: Untold Ages (2026) [Ru/Multi] (0.2.134369) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063924.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (3.0.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063923.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Easy Delivery Co. (2025) [Ru/Multi] (1.12c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063893.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ War Mongrels (2021) [Ru/Multi] (42052) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063892.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Blossom: The Seed of Life (2026) [Ru/Multi] (1.1.10) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063891.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ J.J. Cale - In Session at the Paradise Studios '1979 (2002) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766170.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Max Raabe & Palast Orchester - Heute Nacht oder Nie (2009) 2xDVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765711.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Axel Rudi Pell - Live on Fire (2013) 2xDVD9 <Hard rock, Melodic heavy metal>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763926.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Axel Rudi Pell - Knight Treasures (Live and More) (2002) 2xDVD9 <Heavy Metal, Ha
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763899.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Chris Norman - THE HITS! From his Smokie and Solo years (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760894.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Erasure - Berlin Live '2017 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759625.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Rainbow - The Definitive Review 1975-1979 (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759344.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Rainbow - The Definitive Review 1979-1997 (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759342.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Annie Lennox - An Evening of Nostalgia with Annie Lennox (2015) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759025.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Iron Maiden - Rock in Rio (2002) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758972.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754303.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Elvis Presley - Aloha From Hawaii (1973) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751642.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Erasure - The Innocents - Live'1988 (2009) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749317.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Lisa Stansfield - Live In Manchester '2014 DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743458.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ John Fogerty - Live at Stagecoach Country Music Festival (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743098.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Lisa Stansfield. Live at Baloise Session (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740685.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ John Mayall And The Bluesbreakers – Jammin' With The Blues Greats '1982 (1983)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731961.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Asia - Symfonia - Live in Bulgaria '2013 (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731845.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ George Michael: Live in London (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731529.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Judas Priest - Epitaph (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_729331.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727988.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Melody Gardot - Live at the Olympia Paris (2015) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727237.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721725.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Lisa Stansfield - Live In Birmingham '1990 (1990) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721393.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Lisa Stansfield - Live At The Royal Albert Hall (1994) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721263.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_715300.jpg" />
 </div>
 
 

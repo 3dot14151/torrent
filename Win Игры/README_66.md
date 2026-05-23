@@ -6,7 +6,7 @@ Edge of Eternity (2021) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011877.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ninja Gaiden Σ (Sigma) (2021) [Multi] (1.0) License CODEX [Master Collection]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011755.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ninja Gaiden Σ (Sigma) 2 (2021) [Multi] (1.0) License CODEX [Master Collection]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011750.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ninja Gaiden 3: Razor's Edge (2021) [Multi] (1.0) License CODEX [Master Collecti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011732.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Demons Age (2017) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011574.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DRIFT21 (2021) [Ru/Multi] (6845677) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011563.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Thief (2014) [Ru/Multi] (1.7) License GOG [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011558.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Secret City 5: Mysterious Collection / Тайный город 5: Загадоч
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011485.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Pacify (2019) [Ru/Multi] (4.24) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011436.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Guilty Gear -Strive- (2021) [Multi] (Build 6841150/dlc) License Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011382.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Vengeance. Lost Love / Возмездие. Потерянная любовь (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011290.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Spirit Legends 5: The Aeon Heart / Легенды Духов 5: Сердце Э�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011289.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Minute of Islands (2021) [Multi] (6616315) License Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011043.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Icewind Dale: Enhanced Edition (2014) [Ru/Multi] (2.6.6.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011031.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ WE ARE FOOTBALL (2021) [Ru/Multi] (1.0h) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010876.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Lumberhill (2021) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010727.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hidden Expedition: A King's Line (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010445.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ World of One (2017) [Ru/Multi] (1.5.0 B22) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010381.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (6877287) License Fairlight
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010239.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Exit From (2021) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010056.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Alekon (2021) [En] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009769.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The Sisters - Party of the Year (2021) [Multi] (1.0) License DOGE
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009767.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Fareo Shadowlands (2021) [Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009764.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Spellcaster University (2021) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009740.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (47726) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009734.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ LEGO Builder's Journey (2021) [Ru/Multi] (1.0) License Fairlight
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009613.jpg" />
 </div>
 
 

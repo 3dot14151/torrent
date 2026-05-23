@@ -6,7 +6,7 @@ iShowU Instant 1.2.9 (Advanced) 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381773.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ SILKYPIX Developer Studio Pro 9E 9.0.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381771.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Andrew Lu - Club Universe Radioshow 049 (08.11.2012) [MP3|320 кб/с]<Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381757.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Dj Extaz & Johnny First - Tear Down the Club (2012) [MP3|320 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381755.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ S.A. - На рожон (2011) [MP3|320 кб/с]<Hip-hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381753.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - Kontor Maximum Trance 3 (2006) [MP3|192 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381752.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381746.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Wondershare Filmora 8.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381701.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Air Explorer Pro 2.4.0 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381697.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Opera 56.0.3051.43 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381695.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CADintosh X 8.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381694.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Complete Internet Repair 5.2.3.3990 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381685.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Planet Trance Vol.1 2CD (2007) [MP3|192 кб/с]<Trance, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381682.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Butterfly - Favorite Colors Episode 057 (10.11.2012) [MP3|320 кб/с]<Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381678.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381675.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Forever Trance Volume Two (2012) [MP3|320 кб/с]<Uplifting Tranc, Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381673.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ leshakenny - Реанимация (2012) [MP3|320 кб/с]<Hip-hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381667.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Air Explorer Pro 2.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381618.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Blue Cat's All Plug-Ins Pack (v.10.2018) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381615.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Air Explorer Pro 2.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381613.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Opera 56.0.3051.43 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381606.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Find Any File (FAF) 2.1.2b4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381602.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Lattice 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381597.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Downie 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381595.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ File Juicer 4.88 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381592.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Driver San Francisco 1.1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_381523.jpg" />
 </div>
 
 

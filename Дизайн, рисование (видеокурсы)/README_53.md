@@ -6,7 +6,7 @@ CGcircuit, Tyler Bay | Houdini For The Artist Modeling I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249780.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CGMA, Adam Swaab | Abstract FX in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249779.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Helloluxx, Rich Nosworthy | Houdini In Bloom (2021) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249765.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Junichiro Horikawa | VEX for Algorithmic Design Part 1-6 (2020-2021) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249751.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CGMA, Ben Keeling | Advanced Substance for Environment Art (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249749.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wingfox, Amit Ginni Patpatia | Intro to Unreal Lighting (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249717.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Rebelway, Sjors De Laat | The Basics of Substance Designer for Realtime FX (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249708.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ hipflask, Fraser Shiers | Houdini Made Easy The Core Essentials (2019) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249695.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Enterclass, Татьяна Каштальян | Нарциссы пастель�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249430.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Unreal Engine, Paulo Souza | Profiling and Optimization in UE4 | Unreal Indie De
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249391.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Epic Games, Wes Bunn | UMG UI Inventory Unreal Engine (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249387.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Vertex, Дмитрий Зиновьев | Основы конструирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248608.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247698.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Udemy, Rob Tuytel | Creating a fir and pine forest in Blender (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247072.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246968.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246942.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246933.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ TOAnimate, Brian Kouhi, Simona Baranovicova, Vladimir Mokhov | Blender Animation
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246889.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246264.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246261.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Gcircuit, Adam Priester | Stylized Skin Growth in Houdini (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246062.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 2 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246035.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Epic Games, Harrison Moore | Paragon Character Texturing Pipeline (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245977.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Uartsy, Ryan Kingslien | Artistic Anatomy in ZBrush (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245940.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Enterclass, Сергей Курбатов | Весна в городе (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245888.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ FXPHD, Jeronimo Maggi | HOU221 – USD and LOPs for Houdini Artists (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245823.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ RUINER (2017) [Ru/Multi] (1.6c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037427.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035605.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033583.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GRIME (2021) [Ru/Multi] (1.11.11/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033576.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.0.1) Repack xatab [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033129.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Jump Force (2019) [Ru/Multi] (2.05/dlc) Repack xatab [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033099.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blue Fire (2021) [Ru/Multi] (3.0.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032812.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Warhammer 40,000: Dakka Squadron (2021) [Ru/En] (153773 PCS) Repack Other s [Fly
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030080.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Cyberia (1994) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026178.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Kosmokrats (2020) [Ru/Multi] (1.2) Repack SpaceX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024838.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Puyo Puyo Tetris 2 (2021) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024300.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WarriOrb (2020) [Ru/Multi] (1.3) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020069.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (3.11) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019384.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hotline Miami (2012) [Ru/Multi] (46452) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019373.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ REDEEMER (2019) [Ru/Multi] (2.2) Repack Other s [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017987.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Pumpkin Jack (2020) [Ru/Multi] (1.4.6) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017176.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017170.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mayhem in Single Valley (2021) [Ru/Multi] (4.0.00) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013443.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ghosts 'n Goblins Resurrection (2021) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013110.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Wing of Darkness (2021) [Multi] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012797.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Last Kids on Earth and the Staff of Doom (2021) [Multi] (1.0) License Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012477.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Guilty Gear -Strive- (2021) [Multi] (Build 6841150/dlc) License Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011382.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Alekon (2021) [En] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009769.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Police Stories (2019) [Ru/Multi] (1.3.2) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007208.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005139.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Intravenous (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004917.jpg" />
 </div>
 
 

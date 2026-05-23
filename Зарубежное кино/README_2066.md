@@ -1,55 +1,3 @@
-###  Публикация: 462194   (80062) от 04.03.2012
-
-Всегда (Только ты) / Ojik geudaeman (O-jik geu-dae-man) / Always (Only You) (2011) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Трогательная история любви между ослепшей в результате аварии девушкой и боксером, который давно ушел из спорта. Их отношения дарят влюбленным долгожданные счастье и покой, но идиллия не может длиться вечно. И ради попытки спасения зрения любимой парень соглашается рискнуть всем, что у него есть…Производство: Корея Южная / HB Entertainment, Showbox/MediaplexЖанр: мелодрама, боевикРежиссер: Сон Иль-гонАктеры: Со Джи-соп, Хан Хё-джу, Юн Джон-хва, Кан Щин-иль, Пак Чхоль-мин, Чо Сон-ха, Чин Гу, О Гван-нок, Ви Сын-бэ, Хан И-джинПеревод: Одноголосый закадровый - Récitant (Svartkatt & Récitant)Субтитры: Отдельным файломПродолжительность: 01:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462346   (80059) от 04.03.2012
-
-Предчувствие / Premonition (2007) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-У каждого в жизни хоть раз было предчувствие беды. Когда просто знаешь, что скоро произойдет что-то плохое. Домохозяйку Линду сейчас как раз охватило такое предчувствие. Некоторое время спустя шериф города сообщает ей, что ее муж погиб в автокатастрофе. Не зная себя от горя и отчаяния, Линда не находит себе места — она не верит, что такое могло произойти. Проснувшись (   Читать дальше...   )Жанр: Мистика, Триллер, ДрамаРежиссер: Меннан ЯпоАктеры: Сандра Буллок, Джулиан МакМэхон, Шайэн МакКлюр, Кортни Тэйлор Бернесс, Ниа Лонг, Марк Маколей, Кейт Неллиган, Ирен Циглер, Филлип ДеВона, Ричи Монтгомери ...Перевод: ДублированныйПродолжительность: 01:36:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461173   (79885) от 03.03.2012
 
 Девушка с татуировкой дракона / The Girl with the Dragon Tattoo (2011) [720p] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79885.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79858.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79842.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79783.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79771.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79756.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79661.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79651.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79581.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79544.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79518.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79511.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79489.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79488.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79418.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79410.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79408.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79298.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79276.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79239.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79229.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79213.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79184.jpg" />
 </div>
 
 
@@ -664,13 +612,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79150.jpg" />
 </div>
 
 
 ###  Подробнее
 
 После того как Мэрибет чудом вырывается из рук безумного маньяка Виктора Кроули, она узнает, что же связывало ее семью с этим страшным человеком. Узнав всю правду, она полна решимости вернуться на болота с целой армией, жестоко отомстить мяснику и вернуть тела своих близких.Жанр: Триллер, Боевик, КомедияРежиссер: Адам ГринАктеры: Даниэль Харрис, Тони Тодд, Кэйн Ходдер, Парри Шен, Том Холланд, R.A. Mihailoff, Ай Бауэн, Алексис Питерс, Эд Экерман, Дэвид Фой, Колтон Данн, Рик МакКаллум, Джон Карл Бюхлер, Кэтрин Фиоре, Эрика Хэмилтон, Мерседес МакНаб, Джолей Фиореванти, Райли Вандербилт, Чарлэйн Девилльер, Сара Агор, Шон Эшмор, Стивен Бартон, Эмма Белл, Маркус Данстэн, Адам Грин, Ллойд Кауфман, (   Читать дальше...   )Перевод: Двуголосый закадровыйПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460201   (79132) от 29.02.2012
+
+Восстание душ: Бунт мертвецов / Shadow: Dead Riot (2006) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из заключенных тюрьмы строгого режима практикует ритуалы черной магии. Это вызывает бунт заключенных и закрытие тюрьмы. Но через двадцать лет тюрьма открывается снова - вместе с населяющими ее призраками. Тень: Восстание мётрвых - это уникальная стилистическая смесь боевика в азиатском стиле, ужастиков о зомби и драмы о женской тюрьме!!!Жанр: Триллер, УжасыРежиссер: Дерек Вэн/ Derek WanАктеры: Тони Тодд, Джеф Аутин,Карла Грин , Нина Ходорук, Майкл Куинлэн и др.Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 01:29:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459271   (79097) от 28.02.2012
+
+Война Богов: Бессмертные / Immortals (2011) [1080p]  BDRip 3D [Горизонтальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одержимый жаждой власти царь Гиперион хочет уничтожить род людской и низвергнуть богов. С помощью Эпирского Лука, сделанного руками бога войны Ареса, он освобождает Титанов от тысячелетнего заточения в горах Тартара. Боги бессильны противостоять безумному царю. Единственная надежда на спасение — герой Тесей, который вступает в неравную войну с Титанами. Боги Олимпа (   Читать дальше...   )Жанр: фэнтези, боевик, драмаАктеры: Генри Кавилл, Стивен Дорфф, Люк Эванс, Изабель Лукас, Келлан Латс, Фрида Пинто, Микки Рурк, Джон Хёрт, Джозеф Морган, Энн Дэй-ДжонсПеревод: Русский дубляжСубтитры: вшитые в видео (надписи, названия)Продолжительность: 01:50:27
 
 ## Скачать торент
 ```bash

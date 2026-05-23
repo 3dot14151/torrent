@@ -6,7 +6,7 @@ Ultimate Marvel vs Capcom 3 (2017) [En] (1.0/upd1) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423455.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WWE 2K Battlegrounds (2020) [Multi] (1.0.3.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422291.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504.1.02) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420345.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Unravel Two (2018) [En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417133.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Starless (2022) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416073.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Human Fall Flat (2016) [Ru/Multi] (1.1.2G) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413577.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Purring Quest (2015) [Ru/Multi] (1.8) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411079.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Galak-Z: The Dimensional (2015) [Multi] (1.01.04/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410913.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409222.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dead Cells (2018) [Ru/Multi] (1.4.9/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408308.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406972.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Audiosurf [Ru/En] (RePack/1.0u31) 2009 | NSIS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406257.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (Repack/1.0.0.0.u.1/2 DLC) 2012 | R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397745.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Viktor (2014) [En] (1.06) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395519.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Dream Of The Blood Moon [En] (L) 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394631.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390715.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390058.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Zombie Driver: Summer of Slaughter / Смертельная гонка: Троп
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387947.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Shu (2016) [Multi] (1.1.0/u1) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386336.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mortal Kombat Trilogy (1996) [En] (1.0hf) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383150.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.0.362/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383148.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (RePack/1.0u1/2 DLC) 2012 | R.G. Shift
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382590.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Revenants [Special Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381939.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ My Memory of Us (2018) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381243.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ X-Morph: Defense (2017) [Ru/Multi] (1.12/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379100.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Valthirian Arc Hero School Story (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379090.jpg" />
 </div>
 
 

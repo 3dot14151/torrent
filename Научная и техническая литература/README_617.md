@@ -1,137 +1,3 @@
-###  Публикация: 1731194   (52801) от 19.06.2024
-
-Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Korean index help you to find words quickly as you learn. 3,000 essential words and phrases for modern life in Korea are at your fingertips with topics covering food and drink, home life, work and school, shopping, sport and leisure, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599524   (52766) от 20.06.2024
-
-Книжная серия | Избранные главы высшей математики для инженеров и студентов втузов [22 книги] (1958 - 1985) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия книг по различным разделам математики для инженеров и учащихся высших технических учебных заведений.
-Позже была переиздана как серия "Вся высшая математика".Жанр: МатематикаИздательство: Физматгиз / НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E72EEF438DB284BD094D8DC698BF896FE6D0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731265   (52746) от 20.06.2024
-
-Фридерике Файль | Кишечный иммунитет. Простые шаги к крепкому здоровью от врача, который не болеет 5 лет (2023) [PDF, EPUB, FB2, FB3, TXT, MOBI, RTF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Доктор Фридерике Файль – специалист по поддержанию здоровья кишечника, магистр в области спорта и укрепления здоровья Флоридского атлантического университета (США).
-Представьте человека, который НИЧЕМ не болеет вот уже пять лет. Невозможно? Вымысел? Вот и нет! Этот человек не просто существует – он написал эту книгу!
-Весь секрет в гармоничной работе кишечника – того (   Читать дальше...   )Жанр: ЗдоровьеПеревод: Юлия КнышИздательство: Бомбора, ЭксмоФормат: PDF, EPUB, FB2, FB3, TXT, MOBI, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60EC89BE3E71A8A678235794CFBD1E90DAD9B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731345   (52708) от 20.06.2024
-
-Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-A combined reference book and workbook covering over 3,000 entries of essential words and phrases to expand your English vocabulary.
-Designed around the most up-to-date theories of language acquisition, English for Everyone: English Vocabulary Builder includes all the words and phrases English learners need to know. Question words, feelings, hairstyles, technology, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4CBE7DC6F2407754A70EDE8986CE7B91DBE39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731300   (52688) от 20.06.2024
-
-Jean-Claude Corbeil, Ariane Archambault | 5 Language Visual Dictionary - English, French, German, Spanish, Italian (2003) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-The quick and intuitive way to learn and recall everyday vocabulary in English, French, German, Spanish, and Italian, this is the only visual dictionary to feature a complete range of objects and scenes from everyday life - showing you what other language dictionaries can only tell you. Clear design and superb illustrations place over 6,000 words ¡n context (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: New York: DK PublishingФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2256CE3DD8C378169A1172AC620FBD342EEB70E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731333   (52664) от 20.06.2024
 
 Angela Wilke, Cheryl Hutty (еditors) | Japanese English visual dictionary (2011) [PDF] [EN]
@@ -140,7 +6,7 @@ Angela Wilke, Cheryl Hutty (еditors) | Japanese English visual dictionary (2011
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52664.jpg" />
 </div>
 
 
@@ -167,7 +33,7 @@ Ed Swick | Easy German Step-by-Step. Second edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52579.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ Rhona Snelling | Speaking: A2 Pre-intermediate (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52384.jpg" />
 </div>
 
 
@@ -222,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52359.jpg" />
 </div>
 
 
@@ -249,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52307.jpg" />
 </div>
 
 
@@ -275,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52293.jpg" />
 </div>
 
 
@@ -301,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52280.jpg" />
 </div>
 
 
@@ -327,7 +193,7 @@ Steven D. Jamar, Lateef Mtima (еditors) | The Cambridge Handbook of Intellectua
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52262.jpg" />
 </div>
 
 
@@ -353,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52159.jpg" />
 </div>
 
 
@@ -380,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52148.jpg" />
 </div>
 
 
@@ -406,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52111.jpg" />
 </div>
 
 
@@ -432,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51851.jpg" />
 </div>
 
 
@@ -458,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51838.jpg" />
 </div>
 
 
@@ -487,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51822.jpg" />
 </div>
 
 
@@ -513,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51690.jpg" />
 </div>
 
 
@@ -539,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51267.jpg" />
 </div>
 
 
@@ -565,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51238.jpg" />
 </div>
 
 
@@ -591,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51204.jpg" />
 </div>
 
 
@@ -618,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51177.jpg" />
 </div>
 
 
@@ -644,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51169.jpg" />
 </div>
 
 
@@ -672,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50988.jpg" />
 </div>
 
 
@@ -683,6 +549,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E9127E4D8FFF48A8176DED68577A0D144CB581C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734833   (50956) от 05.07.2024
+
+А.Ф. Никифоров, В.Б. Уваров | Специальные функции математической физики (1984) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классические ортогональные полиномы, сферические и гипергеометрические функции, а также функции Бесселя рассматриваются с единой точки зрения как частные решения возникающего во многих задачах математической физики и квантовой механики дифференциального уравнения определенного тина. Для решений этого уравнения с помощью обобщения формулы Родрига найдено интегральное (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAC5CD41B4D84DFF674F8CFF609175657B419FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735182   (50888) от 06.07.2024
+
+А.Б. Власов | Электроника. Аналоговые элементы и узлы электронной аппаратуры (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены материалы, связанные с проблемами строения, принципами работы аналоговых элементов и узлов разнообразной электронной аппаратуры. Включены начальные сведения о силовой преобразовательной технике, в которой используются узлы аналоговой электроники.
+Для учащихся технических специальностей вузов, колледжей, в учебных планах которых предусмотрено изучение (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E72E810906D090570751A125766A67AB4122878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735138   (50879) от 06.07.2024
+
+В.Г. Захахатнов, В.М. Попов, В.А. Афонькина | Технические средства автоматизации (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит материал, предназначенный для первичного ознакомления с техническими средствами автоматизации, такими как датчики, регулирующие и исполнительные устройства. В пособии изложены физические принципы работы чувствительных элементов датчиков (сенсоров) и общие вопросы их применения. Рассматриваются принципы работы исполнительных механизмов и регуляторов. (   Читать дальше...   )Жанр: Электроника
+b]Формат:Издательство: ЛаньКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF15F662911844641F6D8D7E17D393E610C9F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735287   (50775) от 07.07.2024
+
+Е.А. Рубцов, О.М. Шикавко | Авиационные радиоэлектронные системы и комплексы и основы их применения (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены основные характеристики бортовых радиоэлектронных систем и комплексов: радиовысотомеров, самолетных ответчиков систем вторичной радиолокации, бортовых радиолокационных станций, бортовых систем предупреждения близости земли, бортового навигационно-посадочного оборудования, доплеровских измерителей скорости и угла сноса, спутниковых навигационных систем, (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289626737EE1FF7F88C8C583716D26BDEE3B4351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735475   (50689) от 08.07.2024
+
+J.W. Rohen, C. Yokochi | Anatomy: A Photographic Atlas. Еighth edition (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Featuring outstanding full-color photographs of actual cadaver dissections with accompanying schematic drawings and diagnostic images, this proven Atlas depicts anatomic structures more realistically than illustrations in traditional atlases. Chapters are organized by region in the order of a typical dissection with each chapter presenting topographical anatomical (   Читать дальше...   )Жанр: учебное пособие, атласЯзык: английскийИздательство: Wolters KluwerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88420B462F1436CF8E2EBC1DB8C1C721FAC3C4E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

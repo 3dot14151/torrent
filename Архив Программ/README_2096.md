@@ -6,7 +6,7 @@ avast! Rescue CD v.1.0.3 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83999.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Endels 1.00 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83993.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Winstep Nexus v.12.2 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83985.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ PhotoInstrument 5.5.553 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83927.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ QipShot 1.40 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83896.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83802.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Transform Windows Mountain Lion[Web Installer] 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83786.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Windows 7x86 Ultimate UralSOFT v.3.6.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83756.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Kaspersky World 1.3.2.102 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83714.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Speedsoft - MAZ Sound Tools - VSampler v3.5.2 x86  by TEAM H2O (VSTi, DXi, STADA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83695.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Mozilla Firefox 12.0 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83648.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ SSDlife Pro 2.2.42 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83604.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Sexy Girl - Темы для Windows 7 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83598.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Mathworks Matlab R2012a [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83596.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Sony Picture Motion Browser update to 5.8 5.8.01 [русский, английс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83584.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ SkyMonk 1.71 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83582.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Windows Live Essentials 2011 15.4.3555.308 (Offline-Installer) [Русский/�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83578.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 16.03.2012
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83572.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Sothink SWF Easy 6.6.546 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83551.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ The KMPlayer 3.2.0.13 Final + Portable by PortableAppZ + Skins [Мульти, е
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83519.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Transform Windows 7 to Noroz Persian New Year 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83510.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Trojan Remover 6.8.3.2601 от 19.03.2012 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83503.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83486.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Orbit Downloader 4.1.0.5 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83467.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Kaspersky World 1.3.2.101 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83413.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Microsoft.Windows.7.AIO.SP1.x86.Integrated.March.2012.Russian - CtrlSoft (Rus) (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83374.jpg" />
 </div>
 
 

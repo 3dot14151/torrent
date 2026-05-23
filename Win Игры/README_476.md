@@ -1,29 +1,3 @@
-###  Публикация: 1758110   (38748) от 31.10.2024
-
-Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В мире Subnautica ваше судно потерпело крушение в океанической местности, и в ней есть всего одна прямая линия - вниз, ко дну. Пейзажи вокруг вас озаряются солнцем, коралловые рифы красиво переливаются под солнцем, пока вы медленно тонете в сторону бесконечной темноты пространства. Исследование огромного открытого мира позволяет не только окунуться под толщу воды (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758067   (38745) от 31.10.2024
 
 Sofie: The Echoes (2024) [Ru/Multi] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38745.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38731.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38728.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38725.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38724.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38675.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) Repack Wante
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38671.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38669.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Resident Evil: Operation Raccoon City (2012) [Ru/Multi] (Build 10887/dlc) Repack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38658.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Scene Razor 1911
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38655.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38654.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38653.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38652.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38650.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38649.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Shadows of the Damned: Hella Remastered (2024) [Multi] (Build 15991776) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38648.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38642.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.105/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38627.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38620.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38600.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38572.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.40/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38558.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ WWE 2K24 (2024) [Multi] (1.22/dlc) Scene Rune [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38557.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Scene Run
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38552.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38550.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1B2AB65532BEF825AC69EBAF605AF695BF5D605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758355   (38547) от 02.11.2024
+
+Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.0) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир, где граница между реальностью и фантазией стирается! Симулятор Квадробера предлагает уникальное приключение в шкуре виртуального зверя, сочетающего в себе черты собаки, лисы или кошки. Почувствуй себя в шкурке животного, которым ты хочешь быть, будь то кошечка, собачка или лисичка-сестричка.Тип издания: RepackРазработчик: PropilGamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C48427C0F2B566AB481A7193F316F81EE22212
 ```
 
 https://mybot314.ru/tekegram_catalog/

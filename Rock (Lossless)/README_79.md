@@ -6,7 +6,7 @@ Downlouders - Arca (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576655.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - British Mod Sounds Of the 1960s (2022) 4 x CD, Compilation, Limited Edition
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575569.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Def Leppard - Diamond Star Halos (2022) Limited Edition [FLAC|Lossless|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575455.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Roger Waters - Amused To Death (1992) /Remastered 2015/ [FLAC|tracks+.cue]<Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575193.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jake Chisholm - No More Sorrow (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574923.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Satisfied Drive - Live (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574802.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Christina Skjolberg - Come And Get It (2014) [FLAC|Lossless|image + .cue] <Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574792.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Universal Hippies - Mother Nature Blues (2017) [FLAC|Lossless|image + .cue] <Ins
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574352.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Cross - Opus Eleven (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Cross
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574017.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eagles - Greatest Hits (2011)2CD Compilation/2011,Warner Music Group[FLAC|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573520.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Panic Room - Skin (2012) [FLAC|Lossless]<Progressive Rock, Crossover Prog, Femal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_573396.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Root Cellar Xtract - Lonesome Miles (2019) [FLAC|Lossless|tracks + .cue] <Countr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573097.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Royal Southern Brotherhood - The Royal Gospel (2016) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572989.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Kalaban - Don't panic (1990) [FLAC|Lossless|image + .cue] <Symphonic Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572987.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572952.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Donnie Iris - The Best Of Donnie Iris (2001) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572942.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Eric Gales - A Night on the Sunset Strip (2016) [FLAC|Lossless|image + .cue] <Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572829.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Pooh - 1981-1984 (2011) [FLAC|Lossless|image + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572685.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ally Venable Band - No Glass Shoe (2016) [FLAC|Lossless|image + .cue] <Blues-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572595.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Audio's Audiophile Vol.17 - In Concert (2001) Compilation, Live [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572568.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Jonathan Cain - Arise (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572527.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Jon Bon Jovi - Destination Anywhere (1997) Japanese Edition, 1999 [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572349.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ The Moody Marsden Band - Never Turn Our Back On The Blues (1992) Live [APE|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571746.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Kelly Richey & Kelly Richey Band - 13 альбомов (1994 - 2016) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571054.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Rob Moratti - Transcendent (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571053.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ The Grandmothers - A Mother Of An Anthology (1993) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571030.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1380752   (831119) от 04.05.2020
-
-VA - Enigmatic (2020) [MP3|320 Kbps] <New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-1.Antaeus - Kyrie (Ambient Mix) (4:45)
-2.Deep Forest - Deep Forest (5:33)
-3.Lesiem - Funamentum (4:45)
-4.Enigma - Sadness Part I (4:20)(   Читать дальше...   )Жанр: New AgeПродолжительность: 07:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFE8EB44D15432463F37D52E7DCE812248ECD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005896   (831071) от 10.04.2016
 
 VA - Minimal Pump The Beat (2016) [MP3|320 кб/с] <Minimal Techno, Minimal House>
@@ -35,7 +6,7 @@ VA - Minimal Pump The Beat (2016) [MP3|320 кб/с] <Minimal Techno, Minimal Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831071.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Kontor Top of the Clubs 2016.2 (2016) [MP3|320 кб/с] <Funky, Club House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831062.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Metallica - The Best of the Best (2017) 2CD [MP3|320 Kbps] <Thrash Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830989.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Automatic Express Promo Focus (Promotion) (2016) [MP3|192-320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830921.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830920.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Lounge Balearic Relax Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830919.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Second Breath - Unknown Bands Vol.8 (2016) [MP3|64 - 320 кб/с] <Alt.Meta
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830918.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Happy Hardcore Top 20 (2016) [MP3|320 кб/с] <Hardcore, Rave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830917.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Alterportal HITS 16 Vol. 91 - March (2016) [MP3|128-320 кб/с] <Alternati
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830907.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Deep Tech House Session (2020) [MP3|320 Kbps] <Deep, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830849.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Vocal Dance House (2020) [MP3|320 Kbps] <Vocal House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830848.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Lifestyle Jazz Vintage Sound (2016) [MP3|320 кб/с] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830816.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Laid Back Evening: Acoustic Guitar (2016) [MP3|320 кб/с] <Downtempo, Chi
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830811.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Жажда скорости (2016) [MP3|320 кб/с] <Pop, Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830810.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - NEW от Виталия72  (2) (2020) [MP3|256 Kbps] <Поп, Дансе>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830767.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Золотая Сотка весны №2 (2016) [MP3|128-320 кб/с] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830738.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Музыка дороги Сборник русского шансона 3 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830730.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Country Music Ballads (2016) [MP3|320 кб/с] <Country, Folk Rock, Rock Bl
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830719.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - The Blues In My Flat (2016) [MP3|320 кб/с] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830628.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Sting - 25 Best Songs (2014) [MP3|256 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830576.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Legends of Metal (2016) [MP3|320 кб/с] <Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830556.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Best Rock at all times (2016) [MP3|128-320 кб/с] <Rock, Glam Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830483.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Hair Force One (2014-2015) [MP3|320 кб/с]<Hard'n'Heavy, Glam Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830348.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830202.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Beautiful World Of Trance (2017) [MP3|320 Kbps] <Progressive Trance, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830153.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Beautiful World Of Trance (2017) [MP3|320 Kbps] <Progressive Trance, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75AE7D296A9BCF115E18E84F8A199C3F6F1C749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114844   (830061) от 16.03.2017
+
+VA - Brutal Style Workout Music (2017) [MP3|320 Kbps] <Electro, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830061.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buben - My Oxygen
+002. MadMal, Rokka Animal - Brutal Style (Original Mix)
+003. Electro Jack - Funktup
+004. Kill Eat Ratz - Goosebumps (Original Mix)(   Читать дальше...   )Жанр: Electro, Tech HouseПродолжительность: 08:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BA92964213A33CD665F4DE31A4F616CCAB2062
 ```
 
 https://mybot314.ru/tekegram_catalog/

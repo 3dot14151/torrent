@@ -6,7 +6,7 @@ LDPlayer 9.0.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204067.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Luminar Neo 1.6.2.10871 (Repack & Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204045.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Display Driver Uninstaller 18.0.6.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203982.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SanDisk (Western Digital) SSD Dashboard 4.0.2.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203981.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FurMark 1.36.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203979.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 13.01.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203967.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Windows 11 Debloater 1.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203962.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ TechSmith Snagit 2023.0.3 Build 25088 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203960.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.0.0 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203955.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WinTools.net Premium 23.9.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203954.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ QuickMemoryTestOK 4.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203945.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Phase One Capture One 23 Enterprise 16.0.2.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203943.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Aiseesoft Video Converter Ultimate 10.7.26 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203942.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Firefox Browser 117.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203939.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MSI Kombustor 4.1.27.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203932.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Adobe Acrobat Pro 2022.003.20310 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203926.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Auslogics BoostSpeed 13.0.0.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203916.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ GPU Caps Viewer 1.61.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203911.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VirtualBox 7.0.6 Build 155176 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203910.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Glarysoft Malware Hunter PRO 1.171.0.789 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203909.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203897.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Optimizer 15.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203896.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Brave Browser 1.47.171 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203888.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ WinCatalog 2024.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203885.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ CCleaner 6.08.10255 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203884.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Fort Firewall 3.9.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203882.jpg" />
 </div>
 
 

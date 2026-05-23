@@ -1,29 +1,3 @@
-###  Публикация: 1373414   (880094) от 06.04.2020
-
-Fairy Godmother Stories: Cinderella / Истории Крёстной Феи: Золушка (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Сказочное королевство захлестнула волна преступности. Неуловимый грабитель банков всё время уходит прямо из-под носа полиции, оставляя на месте преступления лишь одну улику - хрустальную туфельку. Какого же было их удивление, когда такую же туфельку они обнаружили в доме Крёстной Феи. Отправляйтесь в Сказочное королевство и выясните, кто скрывается под маской преступницы!Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B14316C79E930CC1FEF04A36CC4D7DE99B88CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373330   (879830) от 06.04.2020
 
 Braveland (2014) [Ru/Multi] (1.4.0.19) License GOG
@@ -32,7 +6,7 @@ Braveland (2014) [Ru/Multi] (1.4.0.19) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879830.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Braveland Wizard (2014) [Ru/Multi] (1.1.4.14) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879762.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Braveland Pirate (2015) [Ru/Multi] (1.1.1.10) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879745.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879711.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879637.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879390.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ ClusterTruck (2016) [En] (1.1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879387.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Holy Potatoes! A Weapon Shop?! (2015) [En/Jp] (1.0.8.9828/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879379.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Halfway (2014) [En] (1.2.9) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879268.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879262.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879146.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879143.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Blacklight: Retribution (2012) [Ru/En] (1.1.12) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878751.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd 3) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878687.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Highrisers (2021) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878601.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ RISK™: Factions (2011) [En/Multi] (1.0) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878518.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878512.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878455.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Daemon X Machina (2020) [Multi] (1.0.1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877972.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Alm
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877549.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877535.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Farming Simulator 17 (2016) [Ru] (1.4.2/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877534.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Royal Envoy 3 (2014) [Ru] Unofficial [Collector's Edition / Коллекцион
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877462.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Farm to Fork  / С грядки на стол (2014) [Ru] Unofficial [Collector'
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877456.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876581.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46F3F7D7542EB2771672B0AD996E26BBB51062C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765371   (876323) от 11.03.2014
+
+Mind Snares: Alice's Journey (2014) [En] Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаясь домой молодая женщина, при загадочных обстоятельствах, попадает в ужасную в автомобильную аварию. Очнувшись Алиса обнаружила себя запертой в заброшенной таинственной больнице. Помогите Алисе выбраться из интригующих, запутанных лабиринтов собственного сознания и понять, что за чудовищное создание в капюшоне управляет ее мыслями и действиями? Вам предстоит путешествие через загадочные и удивительные миры, чтобы помочь Алисе вернуться к любимому мужу Джеку и дочке Мэгги!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: World-LooMЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D878397F2664493714766DCBE1098479C51EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

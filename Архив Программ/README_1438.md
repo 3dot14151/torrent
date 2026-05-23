@@ -6,7 +6,7 @@ Mozilla Firefox 50.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306319.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Burning Studio 18.0.0.54 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306314.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Notepad++ 7.2.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306307.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Opera 72.0.3815.211 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306163.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vivaldi 3.4.2066.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306161.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Glary Disk Cleaner 5.0.1.224 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306160.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Firefox Browser 82.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306155.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Google Chrome 86.0.4240.193 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306145.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ O&O Defrag Professional 20.0 Build 457 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306100.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NVIDIA GeForce Desktop 376.09 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306099.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Product Keys 2.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306088.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Tanida Demo Builder 11.0.17.0 RePack (& Portable) by 78Sergey-Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306081.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ MediBang Paint Pro 25.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306034.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Google Chrome 86.0.4240.193 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306031.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Bat! Professional 9.3.0.1 RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306029.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Balabolka 2.15.0.757 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306027.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Opera 72.0.3815.320 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306023.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Resource Hacker 4.5.30 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305990.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ FabFilter - Total Bundle 10.11.2016 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305980.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ TechSmith Camtasia Studio 9.0.1 Build 1422 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305978.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Multiscatter 1.3.6.10 for 3ds Max 2010-2017 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305971.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Avast Clear 20.9.5758.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305945.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ The Bat! Professional 9.3.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305928.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ IObit Driver Booster Pro 8.1.0.252  RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305925.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Cyberduck 7.7.0 Build 33744 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305918.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Movavi Video Editor Plus 21.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305788.jpg" />
 </div>
 
 

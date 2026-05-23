@@ -6,7 +6,7 @@ Export for iTunes 3.1.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520734.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Davinci Resolve Studio 18.0 Beta 5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520675.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Meg Myers - Make A Shadow (2014) [AAC|256 кб/с]<Indie Rock>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520575.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Soulver 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520417.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520304.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Elmedia Video Player Pro 6.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520250.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Corel Painter 2016 (15.0.0.689) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520204.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Integrity Plus 12.3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519844.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Disk Clean Pro 6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519779.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ EdgeView 3 v3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519777.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Steinberg Dorico 4 v4.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519771.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Adobe Substance 3D Sampler 3.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519769.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Luminar Neo 1.1.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519719.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hands Off! 2.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519432.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ CleanMyMac 3.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519135.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Cisdem ContactsMate 6 v6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518873.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Screegle - Clean Screen Sharing 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518872.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Allavsoft Video Downloader Converter 3.24.8.8216 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518856.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Rectangle Pro 2.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518854.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Grids for Instagram 8.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518792.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ App Cleaner & Uninstaller Pro 7.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518725.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Adobe Substance 3D Painter 8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518719.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Pixelmator Pro 2.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518716.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Batman Arkham City Lockdown [4.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518677.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Fidelia 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518467.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ A Better Finder Rename 10.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518429.jpg" />
 </div>
 
 

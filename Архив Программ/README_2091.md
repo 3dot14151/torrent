@@ -6,7 +6,7 @@ Weather Clock 4.4 Repack [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87262.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kaspersky World 1.3.4.100 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87257.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Gadgets for windows 7 Chameleon Pack- Glass Gadgets [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87248.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87241.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Sony Sound Forge Pro 10.0c Build 491 + Dolby Digital AC-3 Pro  + Noise Reduction
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87240.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Softlim EstimaKit 2011 1.0.1.1584 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87210.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Dr.WEB CureIt! 6.00.16 (07-04-2012) [русский / английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87151.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 (2012-04-07) [русский / а�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87112.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87089.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Corel VideoStudio Pro X5 15.0.0.258 RePack by MKN [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87088.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Kaspersky Internet Security 2012 (BOX)  [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87084.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Carbon Boot by Core-2 v.7.4.12 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87072.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87066.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87057.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VKontakteDJ 3.43 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87022.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ COMODO Programs Manager 2.0.0.3 Beta [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86976.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ KURO FOR WINDOWS 7 BY AARON A ARTS dcd [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86974.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ MKVToolnix 5.5.0 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86950.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adobe Flash Player 11.3.300.214 Beta 1 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86890.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Advanced Woman Calendar 4.2 (2011) [Многоязычный (русский п�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86882.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ DriverPack KDFX DRV v2.0 (2012 год) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86877.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ WinKit (Windows 7 Toolkit) 1.4.0.15 Final Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86864.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Kolor Panotour Pro v1.8.0.400 Final + Portable [2012,ML\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86859.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Kaspersky Internet Security 2013 (Technology Preview)Beta 13.0.0.3011 [Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86831.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Salfeld Child Control 2012 12.401.0.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86781.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Kaspersky World 1.3.4.98 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86773.jpg" />
 </div>
 
 

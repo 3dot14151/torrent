@@ -1,29 +1,3 @@
-###  Публикация: 1775934   (5728) от 27.08.2025
-
-Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Хаос и отчаяние распространились по всему Королевству Исимеральд. Его отчаянные жители кричат, молясь богам о помощи. Но сила, с которой они сталкиваются, - не просто нашествие нежити, или демоническая атака... Нечто гораздо более зловещее, гораздо более первобытное. Алчность. Black Geyser: Couriers of Darkness - это изометрическая ролевая игра в реальном времени (   Читать дальше...   )Тип издания: RepackРазработчик: GrapeOcean TechnologiesЖанр: RPG, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125C84678784D9E843CFDAA61A9824ACF4D4CFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814935   (5697) от 27.08.2025
 
 Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
@@ -32,7 +6,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5697.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Grim Chronicles: Superior Sorcery / Мрачные летописи: Высше�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5689.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5685.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Nordhold (2025) [Ru/Multi] (1.1.05/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5642.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5635.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5632.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Enemy Front (2014) [Ru/Multi] (1.0/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5628.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5624.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Space Adventure Cobra - The Awakening (2025) [Multi] (0.01.35/dlc) Repack Let's�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5620.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Forgotten Realms: Demon Stone (2025) [Ru/Multi] (BuildID 19330718) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5618.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Herdling (2025) [Ru/Multi] (1.2.3.p) Repack Let'sРlay [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5611.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5601.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5598.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5594.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Artis Impact (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5593.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5591.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Forever Skies (2023) [Ru/Multi] (1.3/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5586.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.1.3/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5577.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.10.3) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5576.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Relic Hunters Legend (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5574.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (build 18840735) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5568.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5554.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.11) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5553.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5551.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ A Little to the Left (2022) [Multi] (3.5.10/dlc) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5525.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ A Little to the Left (2022) [Multi] (3.5.10/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DFD2F7C9BC302C027A596539D54B7D8056E35BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815035   (5519) от 28.08.2025
+
+Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инди-платформер - Rage in Peace - это увлекательное путешествие в мир приключений одного существа - Тимми Малину, который обзавелся странной мечтой. Весь мир вокруг вас - это параноидальный хаос, внутри которого не сойти с ума - большая удача. Тимми хочет умереть спящим в собственной пижаме в своей постели, чтобы его никто не окружал. Драмы он тоже не хочет.Тип издания: LicenseРазработчик: Rolling Glory JamЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Французский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FCA8302AF50220B972352C85F6FBC512DF3048
 ```
 
 https://mybot314.ru/tekegram_catalog/

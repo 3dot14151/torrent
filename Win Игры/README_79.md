@@ -1,30 +1,3 @@
-###  Публикация: 621351   (962367) от 20.02.2013
-
-Tom Clancy's H.A.W.X. 2 [En] (L) 2010 | TiNYiSO
-
->>Win Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярного симулятора полетов, в котором представлено еще больше всяческой современной и футуристической технически. В игре вы увидите F-35, бомбы с лазерным наведением и много другого. Полетать предстоит над Москвой, Персидским заливом, Арктикой и Индийским океаном.
-Tom Clancy's H.A.W.X. 2 дает возможность поучаствовать в ближних воздушных баталиях, ночных бомбардировках и нанесении тихих ударов при использовании беспилотных летательных аппаратов. Также вам предстоит совершать взлеты и посадки на базы и авианосцы, а во время некоторых миссий даже дозаправляться прямо в полете.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Simulation / Flight Combat / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB17F11100A7538E240A3A69230E7C7BDF3CC43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 277342   (962320) от 01.01.2011
 
 [Patch 1.1] Star Wars: The Force Unleashed II [Multi6/Ru] 2010 | Fairlight
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962320.jpg" />
 </div>
 
 
@@ -67,7 +40,7 @@ The Bug Butcher (2016) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961871.jpg" />
 </div>
 
 
@@ -93,7 +66,7 @@ Immortal Love 7: Stone Beauty (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961845.jpg" />
 </div>
 
 
@@ -119,7 +92,7 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961718.jpg" />
 </div>
 
 
@@ -145,7 +118,7 @@ Train Sim World 2020 (2018) [Ru/Multi] (1.0/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961709.jpg" />
 </div>
 
 
@@ -171,7 +144,7 @@ Orcs Must Die: Game of The Year Edition [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961087.jpg" />
 </div>
 
 
@@ -198,7 +171,7 @@ The Tiny Bang Story / История крошечного взрыва [Ru/En/Pl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961081.jpg" />
 </div>
 
 
@@ -224,7 +197,7 @@ Highborn [En] (Repack) 2013 | FANISO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961070.jpg" />
 </div>
 
 
@@ -251,7 +224,7 @@ Terminator Salvation The Video Game (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960612.jpg" />
 </div>
 
 
@@ -277,7 +250,7 @@ Zombie Night Terror (2016) [Ru/Multi] (1.4.4) License GOG [Special Edition] (о�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960277.jpg" />
 </div>
 
 
@@ -303,7 +276,7 @@ Phenomenon. City of Cyan / Феномен. Лазурный город (2012) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959294.jpg" />
 </div>
 
 
@@ -329,7 +302,7 @@ Bonfire Stories 3: Manifest Horror (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959258.jpg" />
 </div>
 
 
@@ -355,7 +328,7 @@ Immortal Love 7: Stone Beauty / Бессмертная любовь 7: Каме�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959256.jpg" />
 </div>
 
 
@@ -381,7 +354,7 @@ Florence (2020) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959069.jpg" />
 </div>
 
 
@@ -407,7 +380,7 @@ Nikopol: Secrets of The Immortals [En/Multi5] (L) 2008 | PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958449.jpg" />
 </div>
 
 
@@ -433,7 +406,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) SteamRip Let'sРlay [The Complete Adve
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958134.jpg" />
 </div>
 
 
@@ -459,7 +432,7 @@ BADLAND (2015) [Ru/Multi] (Build 27.01.2016) SteamRip Let'sРlay [Game of the Ye
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958096.jpg" />
 </div>
 
 
@@ -486,7 +459,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) Repack Other s [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957769.jpg" />
 </div>
 
 
@@ -512,7 +485,7 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное короле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956858.jpg" />
 </div>
 
 
@@ -538,7 +511,7 @@ Immortal Love 7: Stone Beauty / Бессмертная любовь 7: Нетл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956855.jpg" />
 </div>
 
 
@@ -564,7 +537,7 @@ Train Sim World: 2020 Edition (2018) [Ru/Multi] (1.0.0.550/dlc) Repack xatab [Di
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956598.jpg" />
 </div>
 
 
@@ -590,7 +563,7 @@ Kentucky Route Zero Act I [En] (Repack) 2013 | COGENT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956447.jpg" />
 </div>
 
 
@@ -616,7 +589,7 @@ The Bridge [En/Multi10] (L) 2013 | FANiSO
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956338.jpg" />
 </div>
 
 
@@ -646,7 +619,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.0.5с-2.0.8fix) License GOG [Patches]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955212.jpg" />
 </div>
 
 
@@ -672,7 +645,7 @@ WARSAW (2019) [Ru/Multi] (Build 103) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955126.jpg" />
 </div>
 
 
@@ -683,6 +656,32 @@ WARSAW – это увлекательная тактическая RPG на у�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23F1692BC4F637D613C5FDA2C6716EAC0DF6DE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088975   (954945) от 01.01.2017
+
+Timber! The Logging Experts (2016) [En/De] (1.0) License PROPHET
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timber! The Logging Experts — симулятор лесозаготовок.Тип издания: LicenseРазработчик: Stonehill GamesЖанр: Simulator, 3DЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0EFA3CA32A9A2399B1E5DED9687469B680AB033
 ```
 
 https://mybot314.ru/tekegram_catalog/

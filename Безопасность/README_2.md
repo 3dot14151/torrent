@@ -6,7 +6,7 @@ Jetico BestCrypt 9.04.0.0 RePack by elchupacabra [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956707.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Elcomsoft Wireless Security Auditor 7.12.538 Professional Edition [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904545.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Panda Dome 21.00.00 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888609.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Password Depot 14.0.5 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888070.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Norton AntiVirus 22.20.2.57 [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887929.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Norton 360 22.20.2.57 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887920.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dr.Web Security Space 12.0.4.8300 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874206.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Norton Security 22.21.8.62 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872461.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Ashampoo AntiVirus 2016 1.3.0 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867326.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Avast Business Security 17.2.2517 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851391.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Comodo Uninstaller 2.0.0.3 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822205.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ESET NOD32 Smart Security Premium 15.0.16.0 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818909.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Avira Antivirus Pro 2018 15.0.34.17 [Ru/En]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818512.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Microsoft Forefront Threat Management Gateway 2010 [Eng] [Оригинальны
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806457.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ashampoo Privacy Protector 1.1.3.107 RePack by вовава [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796136.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ IObit Protected Folder Pro 1.3 [Multi/Ru] (акция Comss)
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789606.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ SUPERAntiSpyware Professional 6.0.1258 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759373.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Hekasoft PassKeeper 0.23 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751494.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Auslogics Anti-Malware 1.21.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737760.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Kaspersky 21.5.11.384 Standard (Technical Release) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737213.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Zemana AntiMalware Premium 3.2.15 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736540.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Microsoft Forefront Endpoint Protection 2010 4.10.209.0 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651621.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Microsoft System Center 2012 R2 Endpoint Protection Service Pack 1 (SP1) 4.10.20
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651597.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ ZoneAlarm Free Firewall 2019 15.4.260.17960 [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636782.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Spybot - Search & Destroy 2.6.46.0 Portable by PortableApps [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627008.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Comodo Cloud Antivirus 1.12.421630.537 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610713.jpg" />
 </div>
 
 

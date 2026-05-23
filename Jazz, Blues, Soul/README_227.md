@@ -6,7 +6,7 @@ Novi Singers - Novi sing Chopin (1995) [FLAC|tracks+.cue]<Vocal Jazz, Classical>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607235.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pete Gage - Left Over Blues (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607225.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Blue Gators - Amazing Blue (2015) [MP3|320 кб/с]<Funky Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607148.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Les Double Six Meets Quincy Jones (1960 - 1962) 2016, Sony Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607059.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gigi Gryce & Clifford Brown Sextet - Jazz Time Paris (1953) 2016, Sony Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607058.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tony Bennett - Les Jazz RTL - Profession Crooner (2012) 2CD [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607047.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Caro Emerald - Live In London (2014) [MP3|320 кб/с]<Jazz, Pop, Big Band, Elec
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607000.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Buddy Guy - The Blues Is Alive and Well (2018) [FLAC|Lossless|image + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606961.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ana & Milton Popovic - Blue Room (2015) [FLAC|image+.cue]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606930.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tom Harrell - First Impressions: Debussy And Ravel Project (2015) HighNote [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606924.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ George Adams & Don Pullen Quartet - Live At Montmartre (1985) Remaster, 2015, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606902.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Three Sounds - Black Orchid (1962) Remaster, 2015, Universal[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606899.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Reels - Reelin' (2008) [MP3|320 Kbps] <Blues Rock, Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606796.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Johnny Hodges - The Complete Verve Johnny Hodges Small Group Sessions (1956 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606272.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Phil Woods - A Jazz Life (1956-1988) 1992, Philology [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605820.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Johnny Colon - Keeping It Real (2007) Johnny Colon [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605819.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Larry Coryell's 11th House - Seven Secrets (2016) Savoy Jazz [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605754.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Salvo Blues Band - Salvo Blues Band (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605749.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lacey Rawlins - Hit List (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605436.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Miss Marcy & Her Texas Sugardaddy's - Deep Ellum (2015) [MP3|320 кб/с]<Texas 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605367.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Stan Getz - The Best Of Two Worlds featuring Joao Gilberto (1975) 2016, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605173.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Blue Mitchell - A Sure Thing (1962) 1994, OJC[FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605151.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Wee Willie Walker - If Nothing Ever Changes (2015) [MP3|320 кб/с]<Blues Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605114.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Johnny Hodges Quintet - Buenos Aires Blues & The Eleventh Hour (1962, 1963) 2009
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605063.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ George Thorogood & The Destroyers - Icon (2013) Compilation [MP3|245~289 Kbps (V
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604916.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ruby Braff & Dick Hyman - America, The Beautiful (2002) Arbors Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604835.jpg" />
 </div>
 
 

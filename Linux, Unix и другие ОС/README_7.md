@@ -1,33 +1,3 @@
-###  Публикация: 651019   (841481) от 01.05.2013
-
-JonDo 0.9.42 (Анонимный доступ в сети) [x86] (DVD, CD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вышел корректирующий релиз дистрибутива JonDo  - 0.9.42
-
-Jondo Live-CD / DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. JonDoBrowser предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail для электронной почты, Pidgin для анонимного обмена мгновенными сообщениями и чатов. Медиа-плеер сохраняет  анонимность метаданных.  Присутствует Toolkit для очистки документов и изображений и многие другие приложения содержащиеся на CD/ DVD частью Live-CD.
-
-Версия DVD содержит дополнительное программное обеспечение: I2P и GNUnet, LibreOffice.org, GIMP, Bluegriffon для разработки веб-сайта, Calibre для электронных книг и некоторые другие инструменты.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 650938   (841466) от 01.05.2013
 
 Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86] (4xDVD)
@@ -36,7 +6,7 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841466.jpg" />
 </div>
 
 
@@ -64,7 +34,7 @@ Debian GNU/Linux 8.4.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841386.jpg" />
 </div>
 
 
@@ -90,7 +60,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839988.jpg" />
 </div>
 
 
@@ -116,7 +86,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839538.jpg" />
 </div>
 
 
@@ -142,7 +112,7 @@ Korora  Linux (ex. Kororaa) 18 [x86, x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837788.jpg" />
 </div>
 
 
@@ -170,7 +140,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836433.jpg" />
 </div>
 
 
@@ -196,7 +166,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836327.jpg" />
 </div>
 
 
@@ -222,7 +192,7 @@ Red Hat Enterprise Linux 8.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834399.jpg" />
 </div>
 
 
@@ -248,7 +218,7 @@ Debian GNU/Linux 7.0.0 Live [i386] (2xDVD, 4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832902.jpg" />
 </div>
 
 
@@ -276,7 +246,7 @@ Debian GNU/Linux 7.0.0 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832585.jpg" />
 </div>
 
 
@@ -306,7 +276,7 @@ Debian GNU/Linux 7.0.0 [i386] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832510.jpg" />
 </div>
 
 
@@ -336,7 +306,7 @@ DoudouLinux (Rus, Eng). Linux для детей от 2-х лет. 2013.2 [i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832479.jpg" />
 </div>
 
 
@@ -366,7 +336,7 @@ OSGeo-Live 10.0 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831250.jpg" />
 </div>
 
 
@@ -392,7 +362,7 @@ Debian GNU/Linux 7.0.0 (DVD N4-N10) [i386] (7xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830608.jpg" />
 </div>
 
 
@@ -422,7 +392,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828029.jpg" />
 </div>
 
 
@@ -448,7 +418,7 @@ Manjaro Linux 0.8.5.2 (Arch + XFCE) [i686, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827287.jpg" />
 </div>
 
 
@@ -476,7 +446,7 @@ Manjaro Linux 0.8.5.2 (Arch + openbox, net) [i686, x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827280.jpg" />
 </div>
 
 
@@ -504,7 +474,7 @@ AV Linux 2016 (Мультимедийная рабочая станция на �
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826518.jpg" />
 </div>
 
 
@@ -530,7 +500,7 @@ Debian Edu - Skolelinux 11.1.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826404.jpg" />
 </div>
 
 
@@ -556,7 +526,7 @@ Parrot Security OS 4.9 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825928.jpg" />
 </div>
 
 
@@ -582,7 +552,7 @@ CrunchBang 11 Waldorf (Легкий дистрибутив) [i486, i686, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825078.jpg" />
 </div>
 
 
@@ -610,7 +580,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824630.jpg" />
 </div>
 
 
@@ -636,7 +606,7 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820510.jpg" />
 </div>
 
 
@@ -664,7 +634,7 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820505.jpg" />
 </div>
 
 
@@ -692,7 +662,7 @@ Slackware 14.2 RC2 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818995.jpg" />
 </div>
 
 
@@ -705,6 +675,36 @@ Slackware Linux — один из старейших дистрибутивов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFFB25968188A4130BC695E895BCD749FC98683B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656136   (817961) от 14.05.2013
+
+Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [i686] (3xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пару недель после предыдущего релиза вышел баг-фикс релиз - Manjaro Linux 0.8.5.2 с разными рабочими окружениями, дистрибутива основанного на Arch Linux. Продолжена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений. В дистрибутив включено окружения рабочего стола openbox. В дистрибутив включены: MATE 1.6, Cinnamon 1.7 и KDE 4.10.2.  Это community edition дистрибутива
+
+Включены некоторые новые пакеты, ядро версии 3.8.5-1; systemd 198; X.Org Server 1.14.0; включена поддержка пропреитарных драйверов для AMD и NVIDIA. Также внесены многочисленные изменения в другие пакеты.Опытные пользователи оценят такие новые для Manjaro возможности, как Unified Extensible Firmware Interface (EFI), B-Tree File System (btrfs), поддержку RAID.
+
+Присутствует графический инсталлятор, что отличает дистрибутив от предыдущей версии 0.8.4
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

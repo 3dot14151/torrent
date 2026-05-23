@@ -6,7 +6,7 @@ NGW: Голодное нападение / Striker (2007) HDTVRip [H.264/720p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272974.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271443.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Лики Власти / Icons of Power (2006) HDTV [H.264/1080i-LQ] (фил�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271433.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Династия дельфинов / Dolphin Dynasty (2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270890.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Американская мафия изнутри / Inside the American Mob
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270404.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ National Geographic. Американская мафия изнутри / Inside
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270394.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Невероятное путешествие Хаббла / Hubble's Amazin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269992.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Марсоход Curiosity / Curiosity. Life of a Mars Rover (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269980.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG. Место жительства - Марс (Заселение Марса) /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269153.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Чудища морей. Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268744.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: С точки зрения науки: Апокалипсис каменно
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267985.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW. Дикая природа Средиземноморья: Последни�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267757.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: Дикие места Африки. Битва полов / Africa's Wild S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267725.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG. Экстремальный Китай. Подземный Ханжонг / E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267722.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW: Изгои среди животных (Животные-разбойник
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267716.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265725.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG: Последняя львица / The Last Lioness (2009) HDTVRip 720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265631.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: История о нас с Морганом Фрименом / The Story of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265583.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG: Охотники за вирусами / Virus Hunters (2008) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265578.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG: Известная Вселенная. У Пределов Познания 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265525.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ National Geographic: Острова. Галапагосы / Islands. Galapagos (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265524.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG: ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263060.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262439.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. Настоящие Красные хвосты / The Real Red Tails (2024) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260921.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG. Ангкор-Ват. Жемчужина Древней Азии / Glories Of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258512.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NG: Титаник: Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255834.jpg" />
 </div>
 
 

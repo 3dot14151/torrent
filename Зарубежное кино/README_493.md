@@ -1,55 +1,3 @@
-###  Публикация: 1499343   (839809) от 07.10.2021
-
-Дождь / Baran (2001) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм о тяжелой жизни рабочих-гастарбайтеров, нелегально приезжающих в Иран на заработки, показанная глазами семнадцатилетнего юноши Латифа. Это красивая и романтическая история любви. Искреннее чувство меняет жизнь инфантильного молодого человека.Производство: ИранЖанр: Драма, мелодрамаРежиссер: Маджид МаджидиАктеры: Хуссейн Абедини, Zahra Bahrami, Мухаммад Амир Наджи,     Хосейн Махджуб, Аббас Рахими, Gholam Ali Bakhshi, Jafar Tawakoli, Yadollah Hedayati, Parviz Larijani, Mahmoud BehrazniaПеревод: Одноголосый любительский (viktor_2838)Субтитры: русскиеПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8FA4B03C34F7066908AC7537CCF73C676B05E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004264   (839766) от 05.04.2016
-
-Последний полёт / Le dernier vol (2009) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодая летчица Мари, строптивая и отважная, отправляется на поиски своего любимого, который исчез в районе Сахары, пытаясь совершить рекордный перелет из Лондона в Кейптаун. Ее неожиданный прилет резко меняет жизнь «верблюжьего» корпуса, заброшенного так далеко от родной Франции, которого сейчас заботят волнения, вызванные восстанием туарегов. Капитан Антуан, у (   Читать дальше...   )Производство: ФранцияЖанр: Драма, Мелодрама, ПриключенияРежиссер: Карим ДридиАктеры: Марион Котийяр, Гийом Кане, Свонн Арло, Гийом Марке, Фридерик Эпо, Михаэль Вандер-Мерен, Сванн Арло, Роберт ХоэнПеревод: Профессиональный (двухголосый закадровый) (студия NLS)Субтитры: ОтсутствуютПродолжительность: 01:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F44FB64E916D123702845595C4B3A95EC7D7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499509   (839711) от 07.10.2021
 
 Цвет рая / Цвет Бога / Rang-e khoda / The Color of Paradise (1999) DVD5 [Custom]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839711.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839708.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839694.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839690.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839658.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839649.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839643.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839640.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839616.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839586.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839547.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839542.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839540.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839528.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839522.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839521.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839519.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839477.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839472.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839469.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839467.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839463.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839462.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839427.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38599E09D7C0EDD32148985C2BB93B6D286C8094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004087   (839426) от 05.04.2016
+
+Мистер Холмс / Mr. Holmes (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие развернется в 1947 году, а речь в фильме пойдет об отошедшем от дел Шерлоке Холмсе, живущем в сонной деревушке в Сассексе вместе с горничной миссис Манро и сыном, который занимается сыском в качестве хобби. Несмотря на уединенный образ жизни, знаменитому сыщику с Бейкер-стрит по-прежнему не дает покоя тайна так и нераскрытого 50 лет назад дела.Производство: Великобритания, СШАЖанр: Драма, криминал, детективРежиссер: Билл КондонАктеры: Иэн МакКеллен, Лора Линни, Майло Паркер, Хироюки Санада, Хэтти Морахэн, Патрик Кеннеди, Роджер Аллам, Филип Дэвис, Фрэнсис де ла Тур, Чарльз Мэддокс, Такако Акаши, Джон Сешнс, Майкл Калкин, Дэвид Фокс, Оливер Девоти, Майк Бернсайд, Николас Роу, Сэм Колсон, Фрэнсис Барбер, Гермиона КорфилдПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27704F1C8D110D3177CF1DCDB74EAE7EBC726262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004154   (839422) от 05.04.2016
+
+Огненный город: Последние дни / Fire City: End of Days (2015) HDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вин, разочарованный демон, тайно живет с другими из своего рода в мире людей. По воле случая, он встает перед принудительным выбором, спасти своих братьев или невинного человека-девушку и этим может нарушить хрупкое равновесие между людьми и демонами, которое может привести к войне.Производство: США / Hghland Film GroupЖанр: Ужасы, Фэнтези, ТриллерРежиссер: Том Вудрафф мл.Актеры: Тобиаш Элинек, Даниэль Чакран, Кили Сэвитт, Кимберли Лееманс, Эрик Эдвардс, Саймон Сорреллс, Пеле Кизи, Брионн Дэвис, Деррик Л МакМиллон, Кристин МинтерПеревод: Одноголосый закадровый, любительский (Хихидок)Субтитры: ОтсутствуютПродолжительность: 01:39:32Реклама: Без рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50934741233B11A7F0F55808A91EBD4140A81914
 ```
 
 https://mybot314.ru/tekegram_catalog/

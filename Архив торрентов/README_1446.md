@@ -6,7 +6,7 @@ Privacy Eraser Free 5.2 Build 3611 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725084.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Glary Utilities Pro 5.147.0.173 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725078.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Text Editor Pro 9.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725066.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Windows 10 Core Technical Preview 10.0.10061 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725063.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ubuntu MATE 15.04 Vivid Vervet [i386, amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725057.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ubuntu GNOME 15.04 Vivid Vervet [x86, amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725050.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Reg Organizer 8.50 RePack & Portable by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724998.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Balabolka 2.15.0.750 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724987.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ OCCT 6.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724986.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Internet Download Manager 6.38 Build 2 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724982.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Waterfox Current / Classic 2020.07.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724981.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724978.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724976.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ FSMonitor 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724971.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Ubuntu 15.04 Vivid Vervet [i386, amd64] 2xDVD, 2xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724970.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Microsoft Windows 10 Single Language Technical Preview 10.0.10061 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724967.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Apple iWork: Keynote 6.5.3, Numbers 3.5.3 & Pages 5.5.3 (upd 21.04.2015) [Multi/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724954.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10061 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724953.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10061 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724952.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724917.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - VS (mixed by Mike Koglin) (2006) [MP3|320 Kbps] <Trance, Progressive Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724915.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724913.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Mario Piu - Vision (2003) 2CD [MP3|320 Kbps] <Trance, Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724912.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ MacFamilyTree 8 v8.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724907.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Media Player Classic Home Cinema 1.7.16 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724902.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Soft Organizer Pro 8.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724855.jpg" />
 </div>
 
 

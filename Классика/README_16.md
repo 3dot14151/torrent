@@ -6,7 +6,7 @@ Antonio Lucio Vivaldi-Concerti per mandolini: Europa Galante, conductor Fabio Bi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821520.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Essential Classical Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821233.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821213.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Cla
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820525.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical,
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820522.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сr
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820518.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Arnold Schoenberg - Gurrelieder [2 SACDs] (2007) [DSD 5.1, 2.0 1bit/2822,4kHz | 
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820472.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Alfred Schnittke - Concerto Grosso no. 4 = Symphony no. 5, Pianissimo (Jarvi - G
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819312.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ The Florestan Trio - Schubert. Piano Trio No 2 In E Flat Major, D929 (2002) [FLA
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819161.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Kaori Muraji - Plays Bach (2008) [APE|Lossless|image + .cue] <Classical, guitar>
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819154.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Schubert, Schumann - Wanderer Fantasy, D.760;  Fantasie, Op.17 (Orlando Jopling,
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818787.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Joep Beving - Solipsism (2015) [MP3|320 кб/с] <Modern Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817315.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Edvin Marton & Vienna Strauss Symphony Orchestra - Rock Symphony (2016) [MP3|320
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817162.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Antonio Lucio Vivaldi- Concerti con molti strumenti: Europa Galante, conductor F
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815839.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Alfred Schnittke - String Quartets nos. 1-3 (The Tale Quartet) (1990) [FLAC|Loss
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815357.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Paganini - 24 Caprices for solo violin (Itzhak Perlman) (2000) [FLAC|Lossless|tr
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815103.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Paganini - 24 Caprices for solo violin (Itzhak Perlman) (2000) [MP3|320 кб/с]
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815101.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Royal Philharmonic Orchestra - The Royal Philharmonic Orchestra Does ABBA (2019)
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814933.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Tina Guo - Game On! (2017) [FLAC|Lossless|image + .cue] <Classical Crossover, So
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811067.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Maria Kotrotsou - Silence (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, New A
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809846.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Johannes Brahms - Cello Sonatas (Mstislav Rostropovich , Rudolf Serkin) (1990) [
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809654.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Alexander Korneyev,  Alexander Bakhchiev - J. S. Bach: Sonatas for Flute and Har
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809652.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ J. S. Bach: Complete Flute Sonatas; Complete Viola da Gamba Sonatas (1993) 2CD [
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809552.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Ensemble Organum (Marcel Pеrеs) - Дискография (1984-2012) [APE/FLAC
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807741.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ VA - Piano Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumenta
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806301.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ VA - Great Romantic Piano Favorites (The World's Most Beautiful Melodies) (1997)
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806179.jpg" />
 </div>
 
 

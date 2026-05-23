@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 23 Public Beta 1 (x64) Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21481.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Freemake Video Converter 4.1.13.205 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21458.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ qBittorrent 5.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21457.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Xfer Records - Serum 2 2.0.16 VSTi 3, AAX (x64) Rev2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21455.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ HDCleaner 2.090 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21448.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ XnView MP 1.8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21441.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Subtitle Edit 4.0.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21438.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ TweakPower 2.072 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21435.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ QOwnNotes 25.4.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21425.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ XYplorer 27.00.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21423.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ OCCT 14.0.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21415.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Open Server 6.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21384.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ UniFab 3.0.1.3 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21352.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AAF Family DCH Audio Realtek 10.11.9815.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21347.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21342.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ OCCT 14.0.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21341.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Scaler Music - Scaler 3 v1.0.5 Standalone, VSTi, VSTi 3, AAX (x64) Update Only [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21334.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Wondershare UniConverter 16.4.1.192 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21330.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ FinePrint 12.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21279.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ AIMP 5.40 Build 2673 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21277.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VirtualBox 7.1.8 Build 168469 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21266.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Adobe Acrobat Pro 2025.001.20458 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21264.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ PdfFactory Std & Pro 9.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21254.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Vivaldi 7.3.3635.11 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21252.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Sandboxie 5.70.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21241.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Sandboxie plus 1.15.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21236.jpg" />
 </div>
 
 

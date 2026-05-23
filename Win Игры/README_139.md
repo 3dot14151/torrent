@@ -1,29 +1,3 @@
-###  Публикация: 1013861   (777060) от 05.05.2016
-
-Chicku (2016) [En] (1.05) License HI2U
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Chicku это суровый и бескомпромиссный платформер, в котором игроку надо спастись с фермы Баррингтон. Пилы, шипы и несметное число смертельных ловушек стоят между Вами и вашей целью, спасением сородичей и победой над Доктором Баррингтоном.Тип издания: LicenseРазработчик: Gatling Goat StudiosЖанр: Arcade (Action, Platformer), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CECC251F1A9297193786EEDA30DAA60DE2DEFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010872   (777059) от 05.05.2016
 
 Otem's Defiance (2016) [En/Sp] (2.1.0.0) License CODEX
@@ -32,7 +6,7 @@ Otem's Defiance (2016) [En/Sp] (2.1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777059.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Jack Nicklaus Perfect Golf (2016) [En] (1.4.0.1) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777054.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Vortex: The Gateway (2016) [Ru/Multi] (1.1520) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777051.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Senran Kagura Peach Beach Splash (2018) [Multi] (1.00) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776998.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Enchanted Kingdom 3: Fog Of Rivershire / Зачарованное Королев
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776752.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Demolish & Build 2018 (2018) [Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776671.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Pyre (2017) [Ru/Multi] (1.50257) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776663.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Hyposphere (2016) [En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776651.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ UTOPIA 9 - A Volatile Vacation (2016) [En] (1.0 u23) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776641.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Beggar's Ride (2016) [En/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776639.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Fear Effect Sedna (2018) [En/Fra/Ge] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776632.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ I’m Lost (2018) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776625.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Skyshine's BEDLAM Redux! (2015) [En] (3.10) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776603.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Mystery of the Ancients 5: Mud Water Creek (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776438.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Sea of Lies 5: Beneath the Surface (2016) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776402.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Sea of Lies 6: Leviathan Reef (2016) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776365.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Kathy Rain (2016) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776355.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ ABZU (2016) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776307.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lost Horizon 2 (2015) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776238.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776038.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SkyKeepers (2017) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775977.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Soul Axiom (2016) [En] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775958.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Transistor (2014) [Ru/Multi] (1.49815) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775930.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775919.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Fragments of Him (2016) [En] (1.20) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775906.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Fragments of Him (2016) [En] (1.20) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B00F8BF9C0C45EBF62A80D849FC0971E3CA68C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212552   (775699) от 12.03.2018
+
+Witches Legacy: 11 Rise of the Ancient / Наследие Ведьм: 11 Возрождение Древних (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивое продолжение мистической серии игр Witches Legacy. Тысячи лет назад древние воины одержали победу над демоном, пожелавшим власти над всем миром. Однако в живых остался только один из победителей. Долгие века длился его вечный сон - до тех пор, пока не появился демон Эзар. Теперь древнему воину вместе с Джеком и Анабель предстоит остановить Эзара и спасти (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF128DD42A70B278E19879A8B4EB86D76FB1A884
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Shadow of Intent - Elegy (2022) [MP3|320 Kbps] <Symphonic Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748230.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fit For An Autopsy - Oh What the Future Holds (2022) [MP3|320 Kbps] <Deathcore /
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748228.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stratovarius - Best Of (2016) 2CD, Remastered [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748200.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Architects - All Our Gods Have Abandoned Us (2016) [MP3|320 кб/с] <Metalcore,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747961.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Realms Of Vision - Through All Unknown (2018) [MP3|320 кб/с]<Stoner Metal, Pr
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747927.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Derketa - In Death We Meet (2012) Not On Label [MP3|320 Kbps] <Metal, Doom Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747926.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Primordial - 2 релиза (2018) [MP3|320 Kbps] <Folk Metal, Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747925.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Kamelot - Phantom Divine (Shadow Empire) (2018) Single [MP3|320 Kbps] <Symphonic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747854.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Afterlife Symphony - Lympha (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747851.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Madder Mortem - Marrow (2018) [MP3|320 Kbps] <Metal, Alt.Metal, Avantgarde>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746973.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Madder Mortem - Red in Tooth and Claw (2016) Dark Essence Records [MP3|320 Kbps]
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746970.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Enterprise Earth - 4 альбома + 2 EP + 2 сингла (2014-2022) [MP3|320
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746271.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Blizzen - Genesis Reversed (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745528.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ The Lightbringer of Sweden - Rise of the Beast (2020) [MP3|320 Kbps] <Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745507.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Suicidal Angels - Division of Blood (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745467.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Death Angel - The Evil Divide (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745466.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ U.D.O. and Das Musikkorps Der Bundeswehr - We Are One (2020) [MP3|320 Kbps] <Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745356.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Flotsam and Jetsam - The End of Chaos (2019) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745328.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Lacuna Coil - Delirium (2016) [MP3|320 кб/с] <Gothic Metal, Alternative Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745128.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Astralion - Outlaw (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743948.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Deja Vu - Ejected (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743879.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wings Of Destiny - Kings Of Terror (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742451.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Tremonti - A Dying Machine (2018) Single [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742279.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Avantasia - Moonglow (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742225.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Kamelot - The Shadow Theory (2018) Deluxe Bonus Version [MP3|320 Kbps] <Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742121.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Caliban - Elements (2018) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742059.jpg" />
 </div>
 
 

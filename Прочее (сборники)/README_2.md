@@ -6,7 +6,7 @@ VA - No name compilation part 58 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057917.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - No name compilation part 56 remixes (2026) [MP3|320 Kbps] <Italodisco, Ital
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057896.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - No name compilation part 55 Relaxing Smooth Neo Soul Vibe (2026) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057738.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Music News For Forum vol.162 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057599.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ai - No name compilation part 53 Assorted Ballads (2026) [MP3|320 Kbps] <Ballads
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057448.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - No name compilation part 52 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057303.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - No name compilation part 54 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057249.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - No name compilation part 51 Assorted (2026) [MP3|320 Kbps] <Electronic, Eur
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057154.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - No name compilation part 49 Assorted (2026) [MP3|320 Kbps] <Electronic, Eur
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057037.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - No name compilation part 50 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056960.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - ЕвроХит Топ 40 Europa Plus 13.02.2026 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056629.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ai - No name compilation part 48 Soulful Ballad (2026) [MP3|320 Kbps] <Soulful B
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056159.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ai - Russian Covers Part 4 (2026) [MP3|192 - 320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056157.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - National Pop Dance Music Vol.128 (2026) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056149.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - No name compilation part 47 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055621.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Music News For Forum vol.161 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055457.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Music News For Forum vol.160 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055204.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - No name compilation part 46 Assorted (2026) [MP3|320 Kbps] <Italodisco, Ita
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055158.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Music News For Forum vol.159 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054403.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054262.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054160.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ai - No name compilation part 46 Slow Pop Rock Ballad (2026) [MP3|320 Kbps] <Slo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053988.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - No name compilation part 45 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053987.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - No name compilation part 44 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053986.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Music News For Forum vol.158 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053841.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Music News For Forum vol.157 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053157.jpg" />
 </div>
 
 

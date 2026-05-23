@@ -1,29 +1,3 @@
-###  Публикация: 624449   (460891) от 11.09.2018
-
-Тайна туринской плащаницы / The Mysterious Man Of The Shroud (1997) SATRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Туринская плащаница была увлекательным и спорным источником тайн на протяжении столетий, она - наиболее изучаемая ткань в истории. Неужели это материя, в которую облекли тело Иисуса Христа сразу же после его распятия, или это подделка, созданная сотни лет спустя? Фильм подробно исследует этот вопрос; в нем представлены интервью со многими исследователями, для которых (   Читать дальше...   )Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE858EDCA404FAC088094B80095C4D3F4459CD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513478   (460765) от 11.09.2018
 
 Discovery: Встреча с инопланетянами. Прибытие / Alien Encounters. The Arrival (2012) SATRip
@@ -32,7 +6,7 @@ Discovery: Встреча с инопланетянами. Прибытие / Al
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460765.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459496.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ NG: Тайны святых ковчегов / Mysteries of the Holy Arks (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459171.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ National Geographic. Тайны святых ковчегов / Mysteries of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459091.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ NG: Взгляд изнутри: Северная Корея - династия 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458969.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458964.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Discovery: Встреча с инопланетянами. Сигнал / Alien 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458838.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458751.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ NG. Акула-молот: в поисках рекордсмена / World's Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457435.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457270.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ NG:Больше, чем тираннозавр / Bigger Than T.Rex (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457239.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Discovery: Наука магии / The Magic of Science (2013) HDTVRip (1-9 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457168.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ NG: Реальные "Злые птицы" / Real Angry Birds (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457159.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457139.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457017.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ NG. Легенда о хрустальном черепе / Legend of the Crysta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456831.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ History Channel. Династия Трампов / Biography: The Trump Dynasty 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456441.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ BBC: Выдающиеся женщины ХХ столетия. Амелия Э�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455393.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ BBC: Нацизм: Предостережение истории (1999) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454979.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454781.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ NG: Взгляд изнутри: Северная Корея - тогда и с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454733.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ NGW: Удивительные летучие мыши / Incredible Bats (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454684.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454675.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ NG. Мафия. Тото Риина / Mafia Confidential. Toto Riina (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454640.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ BBC. Загадки квантовой физики / The Secrets of Quantum Phy
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454311.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ BBC. Загадки квантовой физики / The Secrets of Quantum Phy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:776D55520C6685569A2ED212937538605F685633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704972   (453852) от 28.09.2013
+
+NG: Международный аэропорт Дубай. Серия 2 / Ultimate Airport Dubai (2013) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менее 55 лет назад на месте Международного аэропорта Дубая была огромная пустыня. Но сегодня это мекка международных воздушных перевозок. Это третий по загруженности аэропорт в мире для пассажиров международных рейсов, он принимает 344 000 рейсов, 57 млн. пассажиров и 2000 тысяч тонн грузов в год. Канал National Geographic покажет закулисную жизнь трех международных (   Читать дальше...   )Жанр: Документальный, научно-познавательныйПеревод: Одноголосый закадровыйПродолжительность: ~ 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E256155478B64C909243CFC909572E2D40A6D7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

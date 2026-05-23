@@ -6,7 +6,7 @@ Grow Home (2015) [Ru/Multi] (5.3.02/upd3) Repack Valdeni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618718.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LEGO The Lord of the Rings (2012) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618695.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Caveblazers (2017) [En] (1.4.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618452.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615072.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [En/Ru] (4.3.0b10.18.10) Repack R.G. Ga
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613726.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mortal Kombat X / Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613529.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Hong Kong Massacre (2019) [En] (1.04) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613013.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612547.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Rogue Stormers (2016) [Ru/En] (1.0 build 34) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611525.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611356.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Enter the Gungeon (2016) [Ru/Multi] (2.1.6/dlc) License GOG [Collector`s Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611353.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Nine Parchments (2017) [Ru/Multi] (1.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610255.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sonic Adventure 2 (2012) [Ru/En] (1.0) Rip X-NET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610168.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ God's Trigger (2019) [Ru/Multi] (1.1.58505) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608045.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608044.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The LEGO Movie 2 Videogame (2019) [Ru/Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607896.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ I am Weapon: Revival (2016) [Ru/En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606062.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ I am Weapon: Revival (2016) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605914.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Portal Dilogy / Дилогия [Ru/En] (RePack) 2007/2011 | R.G. Shift
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605035.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Anarcute (2016) [En] (1.0) Repack Elektra
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604764.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ SEUM: Speedrunners from Hell (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604573.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Unravel (2016) [Multi] (1.0.0) License STEAMPUNKS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604176.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Westboro (2017) [Ru/Multi] (1.00) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604171.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Unravel (2016) [Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604158.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/En] (1.07.00/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603790.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603637.jpg" />
 </div>
 
 

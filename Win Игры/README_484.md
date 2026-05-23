@@ -1,29 +1,3 @@
-###  Публикация: 1761973   (36368) от 23.11.2024
-
-Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бионик Таня получила задание от своего создателя, доктора Эрве, найти и спасти исследовательскую команду, пропавшую без вести в джунглях Горациевых островов, где загадочная карпасская энергия превращает местных животных и растения в агрессивных мутантов.Тип издания: SceneРазработчик: Dark Pigeon GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, Английский, Китайский (Упрощенный)Язык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B4DC6246071731FEB7C442B0EE3BFC55A580BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746628   (36337) от 24.11.2024
 
 CarX Street (2024) [Ru/En] (1.2.1/dlc) Scene Rune
@@ -32,7 +6,7 @@ CarX Street (2024) [Ru/En] (1.2.1/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36337.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Strategic Command: World War I (2019) [Multi] (1.15.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36328.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Strategic Command WWII: World at War (2018) [Multi] (1.20.00) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36327.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Vaporum (2017) [Ru/Multi] (Patch 15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36324.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36321.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ PO'ed: Definitive Edition (2024) [Multi] (1.0.594) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36312.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36304.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Last Plague: Blight (2024) [Ru/Multi] (0.9.8) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36296.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Deathbound (2024) [Ru/Multi] (1.1.8f1) Scene Tenoke [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36290.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36287.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05/dlc) Repack dixen18 [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36285.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1.0.0/dlc) Repack FitGirl [The Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36283.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack seleZen [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36272.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36268.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Karate Survivor (2024) [Ru/Multi] (1.0.2.239/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36264.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Sam & Max: Save the World (2020) [Ru/Multi] (2.0.0) License GOG [Remastered]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36230.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36227.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Journey of AutUmn (2024) [Multi] (1.12) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36224.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36212.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36209.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36207.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36205.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Albatroz (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36199.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Sam & Max: Beyond Time and Space (2021) [Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36180.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36178.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:032FD1565C320C9653252EF736D0F4E6E3AA7699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762413   (36165) от 25.11.2024
+
+Wilmot's Warehouse (2019) [En] (1.0) License GOG
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wilmot's Warehouse – довольно сложная игра-головоломка, созданная для того, чтобы игрок применил интеллект и тренировал его, пытаясь преодолеть все трудности, оставленные разработчиками на пути к финальной сцене. Особого интереса добавляет тот факт, что игра поддерживает локальный мультиплеер для совместного времяпрепровождения двух друзей (как минимум один должен (   Читать дальше...   )Тип издания: LicenseРазработчик: Hollow Ponds, Richard HoggЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4CE7EC35ECC1E18363570FA8087C6D9F6B3D58
 ```
 
 https://mybot314.ru/tekegram_catalog/

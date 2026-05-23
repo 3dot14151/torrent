@@ -1,57 +1,3 @@
-###  Публикация: 1219087   (715517) от 13.04.2018
-
-Весь этот мир / Everything, Everything (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что, если ты не можешь коснуться ни единого предмета из внешнего мира? Тебе не сделать ни единого глотка свежего воздуха, и ни один луч солнца не согреет твоего лица… а соседский мальчишка никогда не поцелует тебя.
-Невероятная история любви Мэдди, умной, любознательной восемнадцатилетней девушки с богатым воображением, которая из-за болезни не может выйти за пределы (   Читать дальше...   )Производство: СШАЖанр: драма, мелодрамаРежиссер: Стелла Меги / Stella MeghieАктеры: Амандла Стенберг, Ник Дж. Робинсон, Аника Нони Роуз, Ана де ла Регера, Тэйлор Хиксон, Данубе Эрмосильо, Дэн Пэйн, Фиона Лоуи, Сэйдж Броклбэнк, Роберт Лоуренсон, Питер Бенсон, Франсуаза ЙипПеревод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные)Продолжительность: 01:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D89853BC13D7B43952BE05CBC763228D06E47B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219084   (715515) от 13.04.2018
-
-Весь этот мир / Everything, Everything (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что, если ты не можешь коснуться ни единого предмета из внешнего мира? Тебе не сделать ни единого глотка свежего воздуха, и ни один луч солнца не согреет твоего лица… а соседский мальчишка никогда не поцелует тебя.
-Невероятная история любви Мэдди, умной, любознательной восемнадцатилетней девушки с богатым воображением, которая из-за болезни не может выйти за пределы (   Читать дальше...   )Производство: СШАЖанр: драма, мелодрамаРежиссер: Стелла Меги / Stella MeghieАктеры: Амандла Стенберг, Ник Дж. Робинсон, Аника Нони Роуз, Ана де ла Регера, Тэйлор Хиксон, Данубе Эрмосильо, Дэн Пэйн, Фиона Лоуи, Сэйдж Броклбэнк, Роберт Лоуренсон, Питер Бенсон, Франсуаза ЙипПеревод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные), английские (полные, SDH, SDH цветные)Продолжительность: 01:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A447F3EAED387C860C9DED9609ABC00198B9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219098   (715348) от 13.04.2018
 
 Игра Джералда / Gerald's Game (2017) WEBRip [H.264] [MVO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715348.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_715329.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715298.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715283.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715281.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715272.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715266.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715230.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715221.jpg" />
 </div>
 
 
@@ -296,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715141.jpg" />
 </div>
 
 
@@ -322,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715117.jpg" />
 </div>
 
 
@@ -348,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715063.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715059.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715057.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715055.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715017.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714969.jpg" />
 </div>
 
 
@@ -504,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714962.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714956.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714953.jpg" />
 </div>
 
 
@@ -582,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_714907.jpg" />
 </div>
 
 
@@ -608,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_714859.jpg" />
 </div>
 
 
@@ -636,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714797.jpg" />
 </div>
 
 
@@ -662,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714781.jpg" />
 </div>
 
 
@@ -673,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E160B2876C0DAB56A851E27BC0DE91BF419AE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397837   (714765) от 07.08.2020
+
+С меня хватит / Enough (2002) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь официантки Слим коренным образом меняется, когда она встречает богатого незнакомца Митча. Они влюбляются, женятся, покупают красивый домик и у них рождается дочка. Но восхитительной счастливой новой жизни Слим вскоре приходит конец. Её муж - далеко не совершенство и Слим узнаёт о его изменах. Оскорблённая поведением мужа, Слим пытается убежать от него, а ожесточившийся (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Winkler FilmsЖанр: Триллер, драма, криминалРежиссер: Майкл АптедАктеры: Дженнифер Лопес, Билл Кэмпбелл, Тесса Аллен, Джульетт Льюис, Дэн Футтерман, Ноа Уайли, Фред Уорд, Джанет Кэрролл, Билл Коббс, Кристофер МехерПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FF963A5EDBA97D95F7A937F96992205CAC9853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400830   (714749) от 07.08.2020
+
+Бог смерти / Matar a Dios / Killing God (2017) WEBRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714749.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Нового года супруги Ана и Карлос выясняют отношения - босс Аны прислал ей смс, которое не даёт супругу покоя. Вечером на ужин приезжают брат и отец Карлоса, а после ужина в доме обнаруживается бомжеватого вида карлик, который заявляет, что он является Богом смерти, и человечество к утру прекратит существование. Но собравшейся компании выпадает редкий шанс (   Читать дальше...   )Производство: Испания, ФранцияЖанр: комедия, детектив, фэнтезиРежиссер: Кайе Касас, Альберт ПинтоАктеры: Эдуардо Антунья, Эмилио Гавира, Ициар ,Кастро Борис Руис, Дэвид Парейа, Франсеск Орелья, Anna Martí Casas, Bruna Sala, Макарена Гомес, Bernardo GuglielmettiПеревод: Многоголосый закадровый (Куценко - автор перевода; datynet, Кирилл Адылшин, Galina Vasyukova - голоса)
+Внимание! Присутствует ненормативная лексика!Субтитры: Английские (SDH)Продолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176CCF8A2B21B9DB319526A5B17B74010FE8D1C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

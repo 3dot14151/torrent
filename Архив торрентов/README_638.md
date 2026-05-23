@@ -6,7 +6,7 @@ FixWin 1.2 [рус\англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PowerArchiver 2016 16.00.68 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913177.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VidCoder 1.5.34.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913173.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Photomatix Pro 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913170.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ O&O ShutUp10 1.3.1355 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913163.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Iobit Smart Defrag 4.4.0.849 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913161.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ T-Faktor - Bricksplitter (2010) [MP3|96 - 320 (~179) kbps]<Industrial / Noise / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913122.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Emma - Saro Libera (2011) [1080p] HDRemux
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913119.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Nolwenn Leroy - Juste Pour Me Souvenir (2012) HDTV [H.264/1080i]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913116.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Hioctan - Under Control (2010) [MP3|192 - 320 (~224) kbps]<Dark Electro / Harsh 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913072.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Wise Memory Optimizer 3.45.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913060.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Vomito Negro - Skull & Bones (2010) [MP3|128 - 320 (~216) kbps]<Industrial / EBM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913052.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Discovery: Пятёрка лучших. Землеройная техника. (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913046.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kriminal Minds - Resistance Against (2010) [MP3|128 - 320 (~208)kbps]<Dark Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913043.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ JGSoft RegexBuddy 4.4.1 Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913040.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ TotalFinder 1.7.12 [Mult/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913026.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Say Just Words - 3 альбома (2007 - 2010) [MP3|128 - 320 kbps]<Dark Electr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913021.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Kubuntu 13.04 Raring Ringtail Beta 1 [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913009.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Signal Aout 42 - Vae Victis (2010) [MP3|128 - 320 (~207) kbps]<Industrial / EBM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913008.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Wise Folder Hider Pro 3.32.107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913006.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ SolveigMM Video Splitter 5.2.1602.24 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912994.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Online-кинотеатр 5tv5 v1.0.7 [Ru] - онлайн просмотр фи�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912978.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Midwest Funk: Funk 45s From Tornado Alley (2004) [FLAC, lossless] <Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912967.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Scientific Fermi Linux 5.9 [i386, x86-64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912923.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Allure - Kiss From The Past (The Remix Album) (2013) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912920.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912911.jpg" />
 </div>
 
 

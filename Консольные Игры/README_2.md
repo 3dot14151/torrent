@@ -6,7 +6,7 @@ Country Dance 2 [Wii] [ENG] [NTSC] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996080.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Assassin's Creed: Brotherhood [PS3] [PAL] [Ru/En] [Repack] (2010) | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995968.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Williams Pinball Classics [Wii] [PAL] [Multi 3] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995783.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kung Fu Panda: Legendary Warriors [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995745.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Disney Universe [PS3] [PAL] [ENG] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995721.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Assassin's Creed: Revelations [PS3] [PAL] [Ru/En] [Repack] 2011 | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995714.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Snes9x [SNES] [ENG] (2011)
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995407.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Kega Fusion + BIOS [Консоли Sega 2, 3 и 4 поколений] [ENG] (201
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995405.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Guitar Hero III: Legends of Rock [PS3] [ENG] [PAL] (2007)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995372.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ DMC: Devil May Cry [Xbox 360] [Ru] [Freeboot] (2013)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994586.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ R:Racing Evolution [GameCube] [NTSC] [ENG] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993920.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Eagle One: Harrier Attack - Коллекционная раздача [PS1] [SLE
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993874.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Gladius [GameCube] [NTSC] [ENG] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993307.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ American Chopper 2 Full Throttle [GameCube] [ENG] (2005)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993253.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Onimusha: Dawn Of Dreams [PS2] [RUS, ENG] (2006)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993244.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Phineas and Ferb: Across the 2nd Dimension [PSP] [FullRUS] (2012)
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993180.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Clock Tower 3 [PS2] [RUS] (2003)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992608.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Altered Beast [PS2] [RUS, ENG] (2005)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989955.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Hunter The Reckoning. Wayward [PS2] [RUS] [NTSC] (2003)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989952.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Resident Evil Dead Aim [PS2] [RUS, ENG] (2003)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989913.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Genji: Dawn of the Samurai [PS2] [RUS] [NTSC] (2005)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989901.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Resident Evil Outbreak File#2 [PS2] [RUS] [PAL] (2005)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989844.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Terminator 3 Redemption [PS2] [RUS] [NTSC] (2004)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989839.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Resident Evil Outbreak File#1 [PS2] [RUS] [PAL] (2004)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989834.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Punch-Out!! [Wii] [PAL] [Multi 5] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989552.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Just Dance 2020 (2019) [Switch] [USA] 9.1.0 [NSP] [License / v262144] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988715.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031654.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Go_A - Шум (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031331.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Spring Break 2023: Country Hits (2023) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031194.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Sina Vodjani - Священный Будда (1998) Правительство �
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031010.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ The Harmony Group - Spanish Guitar Tribute to Abba (2007) Brisa Records, 2015 [F
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030910.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Gu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030601.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030598.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030590.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030589.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030584.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030581.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030579.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030578.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Harry Holland ‎– Superhits '85 Im Magic Accordion-Sound (1985) [FLAC|Lossles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030576.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Mystera IX (2002) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030509.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Mystera V (2000) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030508.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - The Best Of Mystera (2001) 2 CD [OGG Vorbis|480 Kbps] <New Age, Synth-pop, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030497.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Markus Klepper - Akkordeon Classics (2000) [FLAC|Lossless|image + .cue] <Classic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030410.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030401.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA – Exotic Guitars From The Clovis Vaults - Including "World Wide Hits" (2010
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030379.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030368.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ The Royal Philharmonic Orchestra - Hits Of Elton John - The Ballads (1991) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030366.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030362.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Norrie Paramor and His Orchestra - 2 альбома (1998) Compilation [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030361.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Ins
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030357.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Romantic Guitar (1995) Compilation, Unofficial Release [FLAC|Lossless|image
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030354.jpg" />
 </div>
 
 

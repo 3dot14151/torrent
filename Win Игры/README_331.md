@@ -1,29 +1,3 @@
-###  Публикация: 1602572   (204407) от 06.01.2023
-
-The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-The friends of Ringo Ishikawa – это сплав из RPG, beat 'em up и симулятора жизни. В игре двухмерная пиксельная графика. Камера сбоку расположена. Инди-проект может похвастаться большой свободой действий, системой социального взаимодействия, живущим по расписанию открытым миром и сменой времени суток. Тайтл изобилует большим количеством механик и не ведет пользователя (   Читать дальше...   )Тип издания: LicenseРазработчик: yeoЖанр: Экшны, Ролевая игра, ФайтингЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7608F9318BCD895F77339461882A2DC85A0B041E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602671   (204382) от 06.01.2023
 
 Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
@@ -32,7 +6,7 @@ Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204382.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ FixFox (2022) [En] (402_c39e385a) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204362.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204094.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204048.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204000.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ There Is No Light (2022) [Ru/Multi] (1.1.7.1 ) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203989.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Antivine (2022) [Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203872.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ PixARK (2019) [Ru/Multi] (1.151/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203797.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.1.0.56) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203785.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ World Championship Boxing Manager 2 (2023) [Multi] (0.12.6.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203676.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203305.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Automobilista 2 (2020) [Multi] (1.4.5.2.2247/dlc) License FLT [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203250.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ City Legends 3: Ghost of Misty Hill / Городские легенды 3: Пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203249.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Solstice (2021) [En] (1.0.1) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203221.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203196.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203090.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203058.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202840.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dwarven Skykeep (2022) [Ru/Multi] (50015) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202833.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tahira: Echoes of the Astral Empire (2016) [En] (1.1.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202820.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dealer's Life 2 (2022) [Ru/Multi] (W75/1.26) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202783.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202742.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Loretta (2023) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202595.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Out Zone (2023) [Multi] (23) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202589.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202582.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Hike Isle предлагает игрокам отправиться в путе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5EDE0FD4E677979426E5C636753BD637CB76FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613728   (202573) от 19.02.2023
+
+Secret Agent HD (2021) [En] (1.0.5) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переиздание классической игры. Основным нововведением стало улучшение графики, визуальных эффектов и текстур окружения, юнитов и объектов. Пользователь берёт управление над агентом 006 и проведет его через множественные смертельно опасные территории. Предстоит пройти аркадные испытания и решить десятки головоломок. HD версия включает дополнительный Эпизод, открывающий (   Читать дальше...   )Тип издания: LicenseРазработчик: Emberheart GamesЖанр: Экшны, Аркада, ПлатформерЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D520EDA5D761E88737DEF61AB64F7EF9361908C
 ```
 
 https://mybot314.ru/tekegram_catalog/

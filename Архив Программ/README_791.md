@@ -6,7 +6,7 @@ IObit Malware Fighter PRO 6.6.1.5153 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_648284.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Windows Login Unlocker 1.5 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648278.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Ant Download Manager PRO 1.4.6 Build 41215 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648254.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Total Uninstall 6.20.0 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648246.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ AMD Radeon Software Adrenalin Edition 18.5.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648245.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ LaunchBox Premium 7.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648235.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ The Bat! Voyager 8.3.0.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648232.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ BitDefender Antivirus Free Edition 1.0.18.1039 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648215.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Movavi Video Suite 18.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648190.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Adobe Media Encoder CC 2019 13.1.173 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648180.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Rufus 3.5 (Build 1497) Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648172.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ ACDSee Photo Studio Ultimate 2019 12.1.1.1668 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648162.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Core Temp 1.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648149.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ NVIDIA GeForce Desktop 397.93 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648137.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Movavi Photo Editor 5.5.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648136.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ MAGIX Vegas Pro 15.0 Build 361 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648129.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ KeePass Password Safe  2.36 + Portable  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648042.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Marmoset Toolbag 3.02 (х64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647953.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Tor Browser Bundle 7.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647944.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Dropbox 3.6.6 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647682.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ K-Lite Codec Pack Update 12.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647649.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Junkware Removal Tool 6.8.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647538.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ XMedia Recode 3.2.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647536.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Leawo Music Recorder 1.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647535.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ jv16 PowerTools X 4.0.0.1495 Final RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647533.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ WinToUSB Enterprise 3.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647492.jpg" />
 </div>
 
 

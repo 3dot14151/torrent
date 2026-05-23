@@ -1,29 +1,3 @@
-###  Публикация: 1602671   (204382) от 06.01.2023
-
-Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Broken Pieces - приключенческая игра, сюжет которой вдохновлен многочисленными психологическими триллерами. События разворачиваются в одной из прибрежных деревень, застрявших во времени. В роли главной героини Элизы необходимо собирать по крупицам часть истории, выясняя загадку этого мистического побережья. Почему местные жители переживают одну эпоху снова и снова?Тип издания: LicenseРазработчик: Elseware Experience, Benoit Dereau, Mael VignauxЖанр: Приключение, Головоломка, МистикаЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAFF2EDDEC5757C9300CA1B62DF63A1E7881F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604350   (204094) от 13.01.2023
 
 Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
@@ -32,7 +6,7 @@ Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204094.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204048.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204000.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ PixARK (2019) [Ru/Multi] (1.151/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203797.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203267.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203228.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203090.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Loretta (2023) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202595.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202582.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202442.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202441.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Jenny LeClue - Detectivu (2019) [Ru/Multi] (2.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202440.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Midnight Scenes: The Highway (2020) [Ru/Multi] (1.27a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202384.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Remorse: The List (2022) [Multi] (1.1.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202295.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Undead Wilderness: Survival (2023) [Ru/Multi] (0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202282.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202246.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202244.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Unto The End (2020) [Ru/Multi] (1.61) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202243.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202219.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Wreck (2023) [Multi] (1.0.0) License GOG [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202177.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ FAR: Lone Sails (2018) [Ru/Multi] (1.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202176.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201765.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ A Building Full of Cats (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200943.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Failure Drill (2023) [En] (0.9.4.0) Scene Tenoke [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200933.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Outcast 1.1 (1999) [Multi] (18970) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200730.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Outcast 1.1 - переиздание приключенческого экшен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0815DFD92FEF4C2918DB59F327432E72F638D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623318   (200513) от 01.04.2023
+
+Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнечные ветры обдувают ваше лицо, когда мистические силы проталкивают величественный галеон сквозь атмосферу в эфир пространства Реальности. Выглянув за пределы палубы, вы будете потрясены красотой удаляющейся планеты Торил, родины Забытых Королевств. "Корабль начеку!" - кричит наблюдатель. Ужасный силуэт "улитки" - военного корабля неоги - (   Читать дальше...   )Тип издания: LicenseРазработчик: CybertechЖанр: Ролевая игра, ПриключениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEFFEB117C65913D8FFC6EB339C87826DCFD891
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ ON1 Photo RAW 2021.5 15.5.1.10747 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008117.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008115.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mailbird Pro 2.9.34.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008061.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movie Thumbnails Maker 2 v3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008036.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Deflection 5.13.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008031.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Pixelmator Classic 3.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008028.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ DjVu Reader Pro 2.5.6 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008023.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ OnyX 3.9.7 for macOS Big Sur 11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008021.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Glary Utilities Pro 5.169.0.195 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008018.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ K-Lite Codec Pack Update 16.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008016.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Freemake Video Converter 4.1.13.28 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008013.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Balabolka 2.15.0.790 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008001.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Cockos - REAPER 6.30 (x86/x64) RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007996.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sublime Text 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007994.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Notepad++ 8.1.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007993.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ RainViewer: Метео Радары и Прогноз Погоды 2.7.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007985.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ RAR Extractor - WinRAR ZIP 7Z (vip) 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007981.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Multi Commander Full Edition 11.2 Build 2795 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007971.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Baseus GM01 20190911 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007967.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Edge of Eternity (2021) [Ru/Multi] (1.0.2/dlc) License GOG [Digital Deluxe Editi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007924.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Timemator 2 v2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007920.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Notebooks – Write and Organize 2 v2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007918.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Joyoshare UltFix 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007915.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ GeoGebra 6.0.651.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007910.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ DaisyDisk 4.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007908.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ KeyCue 9.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007905.jpg" />
 </div>
 
 

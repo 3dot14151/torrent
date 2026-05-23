@@ -6,7 +6,7 @@ Process Lasso Pro 8.9.8.58 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359214.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RadioMaximus 2.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359161.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Telegram Desktop 1.8.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359150.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Visual Studio 2022 Enterprise 17.3.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359124.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Visual Studio 2022 Professional 17.3.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359118.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AMD Radeon Software Crimson Edition 16.11.3 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359110.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ashampoo Snap 9.0.3 DC 08.11.2016 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359095.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cumulative Update KB3198585 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358990.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Cumulative Update KB3200970 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358984.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Icecream PDF Split & Merge PRO 3.30 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358978.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Panda Protection 18.00.00 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358977.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Loaris Trojan Remover 3.0.66.201 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358897.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Macrorit Data Wiper 4.3.7 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358896.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Bulk Crap Uninstaller 4.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358893.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cockos - REAPER 5.961 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358890.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Loaris Trojan Remover 3.0.66.201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358888.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Skype 7.30.32.103 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358865.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Cumulative Update KB3198586 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358864.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Google Chrome 54.0.2840.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358857.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ CoolUtils Total Mail Converter 5.1.0.206 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358847.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Google Chrome 54.0.2840.99 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358840.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Display Driver Uninstaller 18.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358763.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Serif Affinity Designer 1.7.3.481 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358762.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ MKVToolNix 28.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358752.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Overloud - BREVERB 2 2.1.10 VST, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358749.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Complete Internet Repair 5.2.3.4002 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358747.jpg" />
 </div>
 
 

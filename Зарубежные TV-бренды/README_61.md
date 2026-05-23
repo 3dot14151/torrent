@@ -1,29 +1,3 @@
-###  Публикация: 913509   (604787) от 29.06.2015
-
-Animal Planet. Загадочные животные острова Джао / The Secret Creatures of Jao (2009) HDTVRip [H.264/720p-LQ] [Серии 1-7 из 7]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Ботсване, в самом сердце дельты реки Окаванго, в окружении паводковых вод, лежит райский остров Джао. Смешение суши и трясины, которое питает своих обитателей, при этом удерживая их в заточении. Это волшебное место, где обитают редкие, загадочные и таинственные существа, благодаря которым мы можем заглянуть в их скрытый мир. Каждый день приносит им новые сложности: (   Читать дальше...   )Производство: ЮАР, Aquavision TV ProductionsТелекомпания: Animal PlanetЖанр: ДокументальныйРежиссер: Питер ЛамбертиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FFB467B04EFA3FB98947794AF4CB428AA8F2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297307   (604642) от 21.04.2019
 
 History Channel. Подлинная история / What Really Happened (2008) HDTVRip (1-6 серия из 6)
@@ -32,7 +6,7 @@ History Channel. Подлинная история / What Really Happened (2008)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604642.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ History Channel. Подлинная история / What Really Happened (2008)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604637.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Discovery: Невероятные бассейны / Insane Pools Off the Deep E
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604236.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604129.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603842.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Discovery. Чудо на Гудзоне / Miracle of the Hudson Plane Crash (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603413.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Discovery. Москиты / Mosquito (2017) HDTVRip [H.264/720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603403.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC: Восхождение женщины / The Ascent of Woman (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603177.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NG: Амазония: наизловещий ритуал / Search for the Amazo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603152.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603071.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Discovery: Вся жизнь - завод / Factory city (2011) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602875.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ BBC: Век природы / The Age of Nature (2020) HDTVRip [H.264/720p] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602868.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602637.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Animal Planet: Живой или вымерший. В поисках сумча�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602625.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ BBC: Одна жизнь / One Life (2011) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602479.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602450.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ BBC: Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602245.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Discovery: Как устроена Земля / How the Earth Works (2013) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602236.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602142.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601858.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601658.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Discovery. Почему пал Древний Египет? / Why Ancient Egypt 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601565.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601216.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Discovery. Природа человека / Human Nature (2012) SATRip [Сер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601139.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599930.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F1DF0EA8A2C3359FAFA0122C8A75FFF90E559BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232380   (599925) от 24.06.2018
+
+NGW: Гризли Аляски бросают вызов. Осада белыми медведями / Alaska's Grizzly Gauntlet (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалист по выживанию Лес Страуд совершает путешествие к городу Кактовик на острове Бартер, который является домом для эскимосов-инупиатов, а также для белых медведей.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кэйси БрамелсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE11D3DD0251287A3B4D3405F91EB2BBC3FD2CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

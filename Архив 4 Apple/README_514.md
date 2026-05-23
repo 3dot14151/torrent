@@ -6,7 +6,7 @@ AirFoil+Airfoil Satellite 5.10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238945.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ExpanDrive 7 v7.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238929.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cascadea 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238921.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Myary 2.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238912.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Amadine 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238900.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Crescendo Masters 6.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238898.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ QuickLens 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238891.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ DJ Mix Pads 2 - Remix Version 5.5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238868.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Logic Pro X 10.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238852.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Squeezer 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238849.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ djay - DJ App & AI Mixer 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238841.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Aiseesoft Mac FoneLab for Android 5.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238825.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Desktop Stickers 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238818.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ CloudMounter 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238814.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Millumin 4.16.e [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238812.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ TinkerTool System 6 v6.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238810.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Live Wallpaper & Themes 4K Pro 16.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238809.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FSNotes 4 v4.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238808.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ A Better Finder Attributes 7 v7.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238798.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Nova 11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238797.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Dash 6.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238776.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ SecuritySpy 5.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238771.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Blocs 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238756.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PowerPhotos 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238738.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Wondershare Recoverit 9.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238737.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Capture One 23 Pro 16.1.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238679.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1589306   (190218) от 09.11.2022
-
-Сетчатка / Retina (2017) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Эйприл Уотсон, безработная девушка, соглашается принять участие в научном исследовании таблеток от тревоги. Каждому участнику за неделю проекта платится 2500$. Побочный эффект таблеток - эффект обычного снотворного. Или нет?Производство: США / CGF FilmsЖанр: триллер, драмаРежиссер: Карлос ФеррерАктеры: Линдсэй Горансон, Гэри Суонсон, Рон Хакстон, Йен Темпл, Джошуа Дженкс, Джаред Слэйд Голдман, Amber Bogdewiecz, Jamie Fedorko, Yves Claude, Кристин ГонсалесПеревод: Дублированный (Plan B)Язык озвучки: русский, английскийСубтитры: английские (отдельным файлом)Продолжительность: 01:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB59ACBC462A1098D3451F0EB8629133619FE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589398   (190200) от 09.11.2022
-
-Двойной обман Мадлен Коллинз / Madeleine Collins (2021) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Она живет на две страны, у нее два имени, два любовника, два сына во Франции и дочь в Швейцарии. Из-за роковой случайности часть тайного становится явным. Запутавшись в паутине лжи, она рискует не только своей жизнью.Производство: Франция, Бельгия, Швейцария / BE TV, Canal+Жанр: триллер, драмаРежиссер: Антуан БарроАктеры: Виржини Эфира, Ким Гутьеррес, Бруно Саломон, Жаклин Биссет, Франсуа Ростен, Лоис Бенгерель, Thomas Gioria, Валери Донзелли, Надав Лапид, Натали БутфоПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51193602B1ECFA8BF842F397471B88A1E10B8E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589421   (190192) от 09.11.2022
 
 Орландо / Orlando (1992) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190192.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190164.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190160.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190132.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190130.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190126.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190124.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190120.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190119.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190105.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190104.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190103.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190102.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190100.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190098.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190097.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190095.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190090.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190089.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190077.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190040.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190035.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190013.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ Air. Большой прыжок / Air (2023) BDRip [H.264/720p-LQ] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190011.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ Air. Большой прыжок / Air (2023) BDRip [H.264/720p-LQ] [MVO]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9999E9691A84B4C588B73C7781BC1388BE8D5559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589566   (190005) от 10.11.2022
+
+Надежда / Nadzieja / Hope (2007) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень по имени Фрэнсис записывает на видеокамеру, как всеми уважаемый историк искусств крадет из церкви бесценную картину. Фрэнсис начинает шантажировать похитителя, но мотивы его поведения не поддаются законам логики: молодого человека не интересуют деньги. Он требует, чтобы произведение искусства было возвращено на свое прежнее место. Принципиальность (   Читать дальше...   )Производство: Польша, Германия / Hessischer Rundfunk (HR), Pandora Filmproduktion GmbHЖанр: боевик, драма, детективРежиссер: Станислав МухаАктеры: Рафаль Фудалей, Камила Баар, Войцех Пшоняк, Збигнев Запасевич, Збигнев Замаховский, Гжегож Артман, Ежи Треля, Ян Фрыч, Лилит Муха, Доминика ОсталовскаПеревод: Одноголосый любительский (Олег Воротилин)Язык озвучки: русский, польскийСубтитры: русские (отдельно)Продолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139A07DA6AAA1523CEB2070A982CBB17943AAF18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659194   (190003) от 11.09.2023
+
+Фабельманы / The Fabelmans (2022) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Джерси, начало 1950-х. Впервые в жизни оказавшись в кинотеатре и увидев на экране крушение поезда, маленький Сэмми Фабельман был так впечатлён, что чуть не сломал дорогую игрушечную железную дорогу, когда пытался воспроизвести аварию. В терапевтических целях мама предлагает мальчику заснять игрушечную катастрофу на 8-миллиметровую камеру. Так детское хобби и (   Читать дальше...   )Производство: США, Индия / Amblin Entertainment, Reliance EntertainmentЖанр: драмаРежиссер: Стивен СпилбергАктеры: Гэбриел ЛаБелль, Мишель Уильямс, Пол Дано, Сет Роген, Джулия Баттерз, Джадд Хёрш, Дженни Берлин, Робин Бартлетт, Матео Зорян, Кили КарстенПеревод: Дублированный (Iyuno-SDI Group), Профессиональный многоголосый (Цікава Ідея)Язык озвучки: Русский, УкраинскийСубтитры: отсутствуютПродолжительность: 02:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68DB2E16155407C731AA0E9EE17FEB39E142DE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

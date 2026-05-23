@@ -1,29 +1,3 @@
-###  Публикация: 921023   (577238) от 24.07.2015
-
-Discovery: Ледяное золото / Ice Cold Gold (2013) SATRip (1 сезон: 1-6 серии из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Льды Гренландии - завораживающе красивы и исключительно опасны! Но кто знает, может быть за ними скрываются золотые горы?Телекомпания: Discovery ChannelЖанр: ДокументальныйРежиссер: Синтия А. ПалермоПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6748ED3B7AFF67778BBED2490EA402035F16A2EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915736   (577182) от 24.07.2015
 
 Discovery. Дом для авто / House of Cars (2014) HDTVRip [Серия 1-4] [Обновляемая]
@@ -32,7 +6,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTVRip [Серия 1-4
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577182.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2014) HDTVRip (2 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577178.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTV [H.264/720p] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577174.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577115.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Discovery: Безопасность границ: США (сериия 1-11 из
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576914.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576896.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC: Мир природы: Снежный Барс / BBC: Natural World: Snow L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576761.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC: Борьба за жизнь / Fight for Life (2007) 3хDVD5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576673.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ BBC: Разум человека (Лабиринты мозга) / The Human Min
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576643.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Discovery Channel: Battlefield / Поля сражений (2005) TvRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576624.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Discovery: История изобретений, Промышленные от�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576605.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Discovery: Доисторические хроники. Даллас / Prehistor
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576423.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Animal Planet. Дикая Франция (10 серий из 10) / Wild France (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576220.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576000.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ NGW: Хищник в раю. Прибрежные убийцы / Predator in Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575995.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ NGW. Королевство обезьян: Брат против брата / K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575987.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ BBC. Большое австралийское приключение (Викт�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575910.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Animal Planet: В дикие края с Эваном. Приключения Н
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575860.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ NGW: По следам мифических чудовищ. Монгольски
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575784.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575743.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575741.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575623.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Discovery: Стальные мышцы / American Muscle (2014) HDTVRip (Вып�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575379.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575191.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575186.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1934651FE0EFC6C5CD80E916D5FA8D1544C505F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841824   (575086) от 25.07.2015
+
+Discovery: Двойники Земли / Alien planet Earths (2014) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575086.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 лет назад казалось, что во Вселенной есть только одна планета, способная поддерживать жизнь. Сегодня мнение астрономов изменилось. Мы расскажем о поисках близнеца Земли.Жанр: Документальный, научно-популярныйПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF966D19842D143CAFAD19C97599B80E9A47046
 ```
 
 https://mybot314.ru/tekegram_catalog/

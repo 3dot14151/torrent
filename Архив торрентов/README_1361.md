@@ -6,7 +6,7 @@ VueScan Pro 9.5.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745386.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CocCoc 55.2.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745385.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RapidWeaver 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745383.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pixelmator 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745381.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ QQ Browser 9.4.8030.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745380.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AnyMP4 Video Converter Ultimate 7.0.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745379.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SQL Dynamite 1.9.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745377.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745376.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Leibo 6.0.112.11768 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745373.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745372.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ MediaHuman YouTube Downloader 3.9.9.41 (1507) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745371.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Pepakura Designer 4.1.7a RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745370.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ TweakPower 1.103 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745366.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Luminar 4.3.0.6160 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745364.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ ABViewer Enterprise 14.1.0.74 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745363.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Nagi no Asukara | Безоблачное Завтра [2013, TV, 26 ep] BDRip 10
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745362.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ pCloud Drive 3.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745309.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ OziBox Sync 2.1.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745302.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ MEGA Sync Client 2.9.4 (d887a) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745301.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Replay Media Catcher 6.0.1.27 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745298.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ AOL Shield 1.0.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745297.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Maxthon Cloud Browser 4.9.3.500 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745296.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mozilla Firefox Quantum ESR 60.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745264.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ DMG Audio – Plugins Bundle (2019.2) VST, VST3, AAX, RTAS (x86/x64) RePack by V
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745260.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Opera 58.0.3135.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745246.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Synapse Audio - DUNE 3.0.5 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745234.jpg" />
 </div>
 
 

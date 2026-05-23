@@ -6,7 +6,7 @@ Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746432.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Victor Vran (2015) [Ru/Multi] (2.07.20190131/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746087.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Two Worlds - Epic Edition / Два Мира (2008) [Ru/Multi] (1.7) License PROP
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745926.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Crowntakers - Undead Undertakings (2015) [Ru/Multi] (1.0) SteamRip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744430.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Final Fantasy IX / Final Fantasy 9 (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744351.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pharaonic (2016) [En/Es] (1.0 u1) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742922.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kenshi (2018) [Ru/Multi] (1.0.50) Repack xatab (обновляемая)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742354.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Darkwood (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741863.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru/Multi] (1.0.0.2/dlc) Repack R.G. Cataly
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741616.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740489.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Monster Hunter World: Iceborne (2020) [Ru/Multi] (1.0) License PARADOX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739633.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737676.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bloody Spell (2022) [Multi] (1.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735276.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Monster Hunter: World (2018) (14.00.00/dlc) [Ru/Multi] Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734104.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Xuan-Yuan Sword VII (2020) [Ru/Multi] (1.26/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733009.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Reverie Knights Tactics (2022) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733003.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mary Skelter 2 (2022) [En] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732999.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731270.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730469.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Cornerstone: The Song of Tyrim (2016) [En] (3.1.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729164.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Disciples III Дилогия [Ru] (Lossless Repack) 2009-2010 | R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729068.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728096.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Diablo + Hellfire (L) [En] 1996/1997
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727948.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.0.8) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725454.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725453.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724762.jpg" />
 </div>
 
 

@@ -1,185 +1,3 @@
-###  Публикация: 1844602   (1050059) от 27.12.2025
-
-VLC Media Player 3.0.23 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-VLC Media Player - представляет собой мощный медиацентр-проигрыватель все в одном. Одной из особенностей является возможность проигрывания практически любого типа потокового видео. Умеет также конвертировать и захватывать видео. Есть возможность установки видео в качестве обоев рабочего стола. Может быть использован в качестве сервера для трансляции потока по протоколам (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CC884C9668DAE55085E001741CDC4F5387F680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844127   (1049893) от 24.12.2025
-
-PotPlayer 251222 (1.7.22755) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098656EB297EBE4C55061EAC5CD378C11820DD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843514   (1049337) от 20.12.2025
-
-CyberLink PowerDVD Ultra 24.0.1105.62 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Испытайте домашний кинотеатр в лучшем виде. Самый универсальный медиаплеер Blu-ray, 8K и 4K HDR для Windows. Встречайте последний медиаплеер, который вам когда-либо понадобится. CyberLink PowerDVD Ultra 24 — идеальное решение для любого медиаформата. От улучшенного воспроизведения аудио и видео до интуитивно понятных организационных инструментов — вы можете управлять (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7258F48B6F82E6D96940B522C0AD66D1F8C4B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843517   (1049335) от 20.12.2025
-
-CyberLink PowerDVD Ultra 24.0.1105.62 (x64) RePack by TheBig [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Испытайте домашний кинотеатр в лучшем виде. Самый универсальный медиаплеер Blu-ray, 8K и 4K HDR для Windows. Встречайте последний медиаплеер, который вам когда-либо понадобится. CyberLink PowerDVD Ultra 24 — идеальное решение для любого медиаформата. От улучшенного воспроизведения аудио и видео до интуитивно понятных организационных инструментов — вы можете управлять (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCDCAB8649E2AC5B47B3D2CBCD6F481DB34A761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843086   (1048960) от 18.12.2025
-
-Zoom Player MAX 22.0.0 Build 2200 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Zoom Player - мощный, гибкий и настраиваемый DVD/Blu-ray и медиа плеер для операционных систем Windows. Проигрывает DIVX, MP3, MPA, WAV, WMA, ASF, ASX, AVI, DAT, MPG, MPEG, VOB, WM, WMV. Поддерживает плейлисты, управление горячими клавишами и из командной строки, полноэкранный режим работы, маcштабирование широкоэкранного фильма для удаления полос снизу и сверху (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19ED96A4674D9C5C771A6BF96753090EB2E00222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841255   (1047826) от 10.12.2025
-
-Media Player Classic Home Cinema (MPC-HC) 2.5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2625732E4E568B54D0C1A649B97D6583CE9EE679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841002   (1047652) от 08.12.2025
-
-JRiver Media Center 35.0.27 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-JRiver Media Center — мощный мультимедийный центр, объединяющий в себе работу с музыкой, видео и фотографиями. Проигрывает большинство популярных аудио и видео форматов, включая MP3, аудио CD (поддерживает CDDB) и DVD, может преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты (убирая при этом помехи и шумы), а также создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796CC8936E53C035EC2A8CBAD81B72924D0F668D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840428   (1047244) от 05.12.2025
 
 K-Lite Codec Pack 19.3.5 Mega/Full/Standard/Basic [En]
@@ -188,7 +6,7 @@ K-Lite Codec Pack 19.3.5 Mega/Full/Standard/Basic [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047244.jpg" />
 </div>
 
 
@@ -214,7 +32,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.6.0 RePack (& Portable) by KpoJIuK
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047206.jpg" />
 </div>
 
 
@@ -240,7 +58,7 @@ PotPlayer 251201 (1.7.22746) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046938.jpg" />
 </div>
 
 
@@ -266,7 +84,7 @@ BS.Player Pro 2.76 Build 1090 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037620.jpg" />
 </div>
 
 
@@ -292,7 +110,7 @@ Light Alloy 4.11.2 Build 3340 Final + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017467.jpg" />
 </div>
 
 
@@ -318,7 +136,7 @@ Audio Comparer 1.0.901 Rus
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987211.jpg" />
 </div>
 
 
@@ -345,7 +163,7 @@ QuickTime Pro 7.7.9.80.95 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979775.jpg" />
 </div>
 
 
@@ -371,7 +189,7 @@ DVDFab Player Ultra 6.0.0.9 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959077.jpg" />
 </div>
 
 
@@ -397,7 +215,7 @@ SAM CoDeC & DeCoDeR Pack 2017 6.12 [Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905971.jpg" />
 </div>
 
 
@@ -423,7 +241,7 @@ VLC Media Player 3.0.22 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824258.jpg" />
 </div>
 
 
@@ -449,7 +267,7 @@ GoPro VR Player 2.2.0 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823824.jpg" />
 </div>
 
 
@@ -477,7 +295,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.7.13 Final + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799703.jpg" />
 </div>
 
 
@@ -503,7 +321,7 @@ Soft4Boost AMPlayer 5.7.1.315 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793287.jpg" />
 </div>
 
 
@@ -529,7 +347,7 @@ Aurora Blu-ray Media Player 2.19.4.3289 RePack by вовава [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788460.jpg" />
 </div>
 
 
@@ -555,7 +373,7 @@ Zoom Player MAX 14.1 Build 1410 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785202.jpg" />
 </div>
 
 
@@ -581,7 +399,7 @@ SopCast 4.1.0 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760504.jpg" />
 </div>
 
 
@@ -607,7 +425,7 @@ VideoSolo Blu-ray Player 1.0.18 RePack by вовава [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737724.jpg" />
 </div>
 
 
@@ -633,7 +451,7 @@ CyberLink PowerDVD 16.0.1713.60 VL Corporate | Corporate BD [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725449.jpg" />
 </div>
 
 
@@ -659,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723026.jpg" />
 </div>
 
 
@@ -670,6 +488,191 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE3B147535B8662EC89B01182A9805D748D9CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218491   (723016) от 09.04.2018
+
+Tipard Blu-ray Player 6.2.12 RePack by вовава [Ru/En]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard Blu-Ray Player отличный видеоплеер для воспроизведения Blu-Ray-видео и различных видеофайлов . Программа понимает разные типы Blu-Ray, папки, ISO-образы дисков, Full-HD 1080P-видео и другие популярные аудио-видео форматы, включая MP4, MXF, MTS, MKV, AVI, FLV, MPEG, MP3 и т.д. Плеер сочетает в себе мощные функции воспроизведения и отличное качество картинки. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EC79720D65AC5C1358EDB357B7CD203A39B6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218485   (723011) от 09.04.2018
+
+AnyMP4 Blu-ray Player 6.3.16 RePack by вовава [Ru/En]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723011.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Blu-ray Player - комфортный проигрыватель Blu-ray дисков, папок и ISO образов, поддерживает просмотр Full HD форматов: MP4, FLV, MTS, WKV, TRP, MXF, MPEG, M2TS и других популярных, ну а также многоканального звука, обход региональных защит, содержит ряд стандартных функций: сменные скины, проигрывание графики, маркировка и закладки, эффекты и настройка на (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5947FE70BE5CADB0D9810A25B4601C5102D256FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030080   (675789) от 29.06.2016
+
+Leawo Blu-ray Player 1.9.3.5 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leawo Blu-ray Player - это всё в одном профессиональный медиа-плеер для просмотра HD фильмов, с поддержкой Blu-ray/DVD/HD, FullHD 1080P видео и DTS5.1 аудио. Проигрывает все виды Blu-Ray и DVD дисков различных стран и регионов без потери качества. Так-же простой в использовании интерфейс программы предложит различные параметры, такие как: полноэкранное воспроизведение, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6582EF7382294BE767F59CFD97E33DDAEC9A8638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509864   (671774) от 13.06.2012
+
+CoreAVC 3.0.1 Professional Edition [Английский]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671774.jpg" />
+</div>
+
+
+###  Подробнее
+
+CoreAVC - это H.264 видео декодер, созданный, базируется на MPEG-4 стандарте, который используется в Blu-ray и High Definition DVD (HD-DVD). Данный декодер считается одним из лучших в мире H.264 видео декодеров. Эффективность CoreAVC заключается в программном подходе к декодированию, он не полагается на аппаратные средства ПК для увеличения производительности при (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904918   (652781) от 04.06.2015
+
+J.River Media Center 20.0.113 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652781.jpg" />
+</div>
+
+
+###  Подробнее
+
+J.River Media Center - комфортный по функционалу мультимедийный центр развлечений, объединяет в себе работу с музыкой, видео и фотографиями. При помощи J.River Media Center вы сможете на компьютере управлять всеми подключенными к нему мультимедиа-устройствами. Проигрывает множество популярных аудио и видео форматов, включая MP3, аудио CD и DVD, может преобразовывать (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CD6521867645F89D7D41646195D2C3405D477C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141657   (648142) от 11.06.2017
+
+Wise Video Player 1.15.28 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Video Player представляет собой простое и быстрое программное обеспечение,
+которое позволяет воспроизводить все форматы видео, включить Blue-Ray видео.
+Кроме того, Wise Video Player-это аудио плеер, который позволяет воспроизводить все форматы аудио,
+включают в себя аудио сжатия без потерь. Он также поддерживает файл субтитров,(   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91351F016BAECB579523F23CF95859A09602461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035483   (628183) от 16.07.2016
+
+DVDFab Media Player 3.0.0.0 Final [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628183.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab Media Player - мультимедийный плеер для Windows, способный качественно проигрывать видео различных форматов. Многие используют его для просмотра Blu-ray дисков, тоже самое относится к DVD носителям. DVDFab Media Player не только проигрывает Blu-Ray, DVD диски и другие видео файлы во всех форматах, но и воспроизводит Blu-Ray папки, файлы ISO-образов, как 2D, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85A259A961A6EFF6FB7A855B75626883559B4E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

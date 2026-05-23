@@ -6,7 +6,7 @@ Dropzone 4 Pro 4.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Permute 3 v.3.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173502.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DirEqual 5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173498.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Dropshare 5 v.5.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173496.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ A Better Finder Rename 12.01 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173494.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Native SQLite Manager 1.26.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173493.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ DockView 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173486.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Dash 7.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173482.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Downie 4 v.4.6.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173470.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Skype 8.106.0.210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173457.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SwitchResX 4.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173388.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Monkey's Audio 10.25 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173384.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Perfectly Clear WorkBench 4.6.0.2607 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173381.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Chromium 118.0.5993.71 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173379.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Brave Browser 1.59.117 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173377.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ CudaText 1.200.0.1 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173372.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ LibreWolf 118.0.2-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173367.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MusicBrainz Picard 2.10 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173364.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ PortableApps.com Platform 26.2.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173363.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ XMind Pro 2023 23.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173360.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Icecream Video Editor Pro 3.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173359.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Topaz Photo AI 2.0.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173354.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ FanControl V172 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173344.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ DNS Changer 2.1.10 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173343.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ ImgDrive 2.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173339.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Calibre 6.28.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173337.jpg" />
 </div>
 
 

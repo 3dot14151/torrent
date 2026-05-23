@@ -6,7 +6,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v3.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736365.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ mp3DirectCut 2.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736360.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Auslogics Windows Slimmer 3.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736357.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736332.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MediaHuman YouTube Downloader 3.9.9.68 (2801) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736330.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ EyeScream - Noir (2014) [FLAC|Lossless|WEB-DL]<IDM, Experimental, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736310.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Foxit Reader 11.2.1.53537 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736293.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Windows Update Blocker 1.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736252.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Zver Windows 10 Enterprise LTSC x64 v.2022.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736250.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Adobe Illustrator 2022 26.0.3.778 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736246.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ DuplicateViewer 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736236.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Scrutiny 9 v9.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736235.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ CopyClip 2 v2.9.98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736226.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Transfer 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736225.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ FinalShot 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736224.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ AnyTrans for iOS 8.7.0.20200713 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736200.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Nebulosity 4.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736196.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736194.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Sensei 1.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736191.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PhoneRescue for Android 3.7.0.20200722 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736188.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ AnyTrans for Android 7 v7.3.0 (build 20200722) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736157.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ The Bat! Voyager 9.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736115.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Kerish Doctor 2020 4.80 [DC 21.07.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736108.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Windows 10 Manager 3.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736080.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Hetman Partition Recovery 3.1 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736075.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ BELOFF [dp] 2020.07.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736074.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1326963   (380320) от 22.09.2019
-
-Стражи Галактики / Guardians of the Galaxy (2014) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Отважному путешественнику Питеру Квиллу попадает в руки таинственный артефакт, принадлежащий могущественному и безжалостному злодею Ронану, строящему коварные планы по захвату Вселенной. Питер оказывается в центре межгалактической охоты, где жертва — он сам.
-Единственный способ спасти свою жизнь — объединиться с четверкой нелюдимых изгоев: воинственным енотом по (   Читать дальше...   )Производство: США / Marvel Studios, Moving Pictures CompanyЖанр: Фантастика, Боевик, Приключения, КомедияРежиссер: Джеймс ГаннАктеры: Крис Пратт, Зои Салдана, Дэйв Батиста, Брэдли Купер, Вин Дизель, Ли Пейс, Майкл Рукер, Карен Гиллан, Гленн Клоуз, Джимон Хонсу, Джон С. Райлли, Бенисио Дель Торо, Лора ХэддокПеревод: Дублированный, Многоголосый, Авторский, ОдноголосыйСубтитры: Русские (full, forced), Английские (full, SDH), Украинские (forced)Продолжительность: 02:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036F726DF62057109ECD037E509E9EEA3DF6D8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414893   (380308) от 10.10.2020
-
-Сила стихии / Force of Nature (2020) UHD BDRemux [H.265/2160p] [4K, SDR, 10-bit] [Unrated Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На Пуэрто-Рико надвигается сильнейший ураган, поэтому к полицейскому Кардийо приставлена новая напарница Джесс и выдано задание эвакуировать население. Вызов на конфликт в продуктовом магазине приводит копов в почти пустой жилой дом, где обнаруживается нежелающий покидать уютное кресло бывший полицейский Рэй, а теперь - просто упрямый пенсионер. Пока Кардийо с его (   Читать дальше...   )Производство: США / Emmett/Furla Films, FON Film Production, Force of Nature FilmЖанр: Боевик, криминалРежиссер: Майкл ПолишАктеры: Эмиль Хирш, Кейт Босворт, Мэл Гибсон, Стефани Кайо, Дэвид Зайас, Уильям Кэтлетт, Хорхе Луис Рамос, Джоксан Рамос, Блас Сьен Диас, Тайлер Джон ОлсонПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD20EDBBABC8CD30F442B0B405747FB30E07B89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414793   (380305) от 10.10.2020
 
 Порнолоджи, или Милашка как ты / A Nice Girl Like You (2020) WEB-DL [H.264/1080p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380305.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380299.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380257.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380256.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380252.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380243.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380181.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380175.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380132.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380131.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380118.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380090.jpg" />
 </div>
 
 
@@ -378,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380001.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379972.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_379841.jpg" />
 </div>
 
 
@@ -458,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379828.jpg" />
 </div>
 
 
@@ -484,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379817.jpg" />
 </div>
 
 
@@ -510,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379797.jpg" />
 </div>
 
 
@@ -537,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379790.jpg" />
 </div>
 
 
@@ -563,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379712.jpg" />
 </div>
 
 
@@ -589,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379707.jpg" />
 </div>
 
 
@@ -616,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379694.jpg" />
 </div>
 
 
@@ -644,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379569.jpg" />
 </div>
 
 
@@ -670,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379566.jpg" />
 </div>
 
 
@@ -682,6 +629,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79B1BC52666846F8343667590D359D2D295A9C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720324   (379487) от 08.11.2013
+
+Месть блондинки / La Vengeance d'une blonde (1994) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устроившись на работу ведущим вечерних выпусков новостей популярного коммерческого канала, тележурналист Жерар Бреа быстро «пошел в гору». Что неудивительно — ведь новая начальница Жерара Мари-Анж Де Ля Бом становится «по совместительству» его любовницей! Рейтинги передачи Жерара поднимаются назапредельную высоту.
+Но это совсем не радует его жену Корин, узнавшую (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Жанно ШваркАктеры: Кристиан Клавье, Мари-Анн Шазель, Клементин Селарье, Тьерри Лермитт, Анни Корди, Марк Де Йонге, Филипп Хорсан, Анджело Инфанти, Антуан Дюлери, Франк де ла ПерсоннПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 01:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CEA191D5DAB8D2D16D21574567D0E6050A71F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948992   (379460) от 22.10.2015
+
+Врата тьмы / Pay the Ghost  (2015) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует древнее поверье, что раз в год, на Хэллоуин, открываются врата между миром живых и миром мертвых. В этот день зло практически всесильно...
+Во время ночного праздничного парада в Нью-Йорке у профессора Майка Кола бесследно пропадает его маленький сын. Полиции не удается найти ребенка, однако после собственного расследования отец узнает, что некое мощное (   Читать дальше...   )Производство: Канада, Voltage Films, Midnight Kitchen ProductionsЖанр: ужасы, триллерРежиссер: Ули ЭдельАктеры: Николас Кейдж, Сара Уэйн Кэллис, Вероника Феррес, Лайрик Бент, Лорен Битти, Кэли Хантер, Джек Фултон, Стивен МакХэтти, Сюзанна Хоффман, Хуан Карлос Велис, Марк Ирвингсен, Лайам БаклПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285A0E3832958539B383023F69E4CAE4B7AE7DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

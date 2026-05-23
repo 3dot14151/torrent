@@ -1,29 +1,3 @@
-###  Публикация: 1094613   (928527) от 18.01.2017
-
-Dead Effect 2 (2016) [Ru/En] (170 106.1208) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Dead Effect 2 – научно-фантастический шутер, продолжение космической франшизы Dead Effect, от первого лица с элементами ролевой игры. Уничтожайте врагов, прокачивайте своего персонажа, кооперируйтесь с друзьями, чтобы спасти корабль ЗКК "Меридиан" от монстров, зомби и найти дорогу домой.Тип издания: LicenseРазработчик: BadFly Interactive, a.s.Жанр: Action (Shooter, Space), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FAA162F1CA9DA73425F107C194BDD95D618D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094611   (928515) от 18.01.2017
 
 DiRT Showdown (2012) [Ru/Multi] (1.2) License PROPHET
@@ -32,7 +6,7 @@ DiRT Showdown (2012) [Ru/Multi] (1.2) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928515.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Witcher Adventure Game (2014) [Ru/En] (1.2.3) Repack R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928446.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Witcher Adventure Game (2014) [Ru/Multi] (1.2.3) SteamRip Let'sРlay
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928445.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Zheros (2016) [En/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928435.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Bionic Commando (2009) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928419.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ She Remembered Caterpillars (2017) [Ru/Multi] (1.0) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928413.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack R.G. Механик
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928409.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Torn Tales (2017) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928408.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Siegecraft Commander (2017) [En] (1.2.3962) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928405.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ New York Mysteries: Secrets of the Mafia / Загадки Нью-Йорка: С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928249.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927185.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Pesadelo Regressao (2016) [En] (1.4.2) Repack bosenok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927182.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927175.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Paranormal Files 7: Ghost Chapter / Паранормальные явления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926782.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Murder by Numbers (2020) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926756.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Else Heart.Break() / elseHeartBreak (2015) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926750.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Seed of Life (2021) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926642.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Go Home Dinosaurs! [En] (Repack) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926071.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ A Boy and His Blob (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925623.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925516.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks / Сказки лагун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925392.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Crown of the Empire 2: Around the World / Корона империи 2: Вок�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925181.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925159.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Fragile (2020) [Ru/Multi] (Build 5896114) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925080.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord (2013) [Ru/Multi] (1.1.2)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923998.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord - это захватыв
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BA164B88F9ED44BA9F6F5EA27719FCF7AFD7799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095575   (923993) от 21.01.2017
+
+Yesterday Origins (2016) [Ru/Multi] (1.0/u7) SteamRip Let'sPlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя новейшее приключение от Pendulo Studios, создателей серии Runaway! 1481. Юного Джона унижают и публично тащат по улице. Он обвинен в колдовстве испанской инквизицией и брошен в тюрьму, где его подвергнут пыткам. Позже с ним произойдет алхимическая трансмутация, благодаря которой он обретет бессмертие.Тип издания: SteamRipРазработчик: Pendulo StudiosЖанр: Violent, AdventureЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84815534D313BD34CB2DB8D5CDF5859F14985F37
 ```
 
 https://mybot314.ru/tekegram_catalog/

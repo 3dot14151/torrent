@@ -6,7 +6,7 @@ Zoner Photo Studio X 19.2309.2.504 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163392.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vivaldi 6.4.3160.41 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163388.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 8.107.0.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163374.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wondershare PDFelement 10.1.5.2527 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163369.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MiniTool Partition Wizard Technician 11.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163365.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 96.0.4664.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163352.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MarsEdit 4 v4.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163333.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Website Watchman 2.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163329.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AudKit Spotify Music Converter for Mac 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163324.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Timemator 2 v2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163322.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Display Maid 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163317.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ableton - Live Suite 10.1.6 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163316.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ iconStiX 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163312.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ OfficeSuite + PDF & HD + Modificstions & Addons 11.10.39034 Mod by Mihz, Alex004
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163308.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NeoOffice 2017.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163307.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Topaz Gigapixel AI 4.4.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163304.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163299.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ K-Lite Codec Pack Update 17.9.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163289.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ PowerPhotos 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163283.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ DRmare Music Converter for Spotify 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163276.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Viwizard Spotify Music Converter for Mac 2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163269.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163268.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ iVI Video Converter 4 v4.740 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163263.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ RAW Power 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163259.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ScreenFlow 9 v9.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163254.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Movavi Video Suite 22.0.1 [DC 09.12.2021] RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163253.jpg" />
 </div>
 
 

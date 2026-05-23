@@ -1,29 +1,3 @@
-###  Публикация: 1793953   (20091) от 27.04.2025
-
-Avorion (2020) [Ru/Multi] (2.5.7/dlc) Repack Pioneer
-
->>Win Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Avorion (Аворион) - игра-песочница, где ты будешь проводить все своё время в огромном космическом пространстве. Все вокруг полностью неизведанное и таит в себе тысячи секретов. Все приключение ты сможешь проходить вместе с другими пользователями, так как игра предоставила нам режим мультиплеера. Более того, здесь ты сможешь построить свой собственный, уникальный (   Читать дальше...   )Тип издания: RepackРазработчик: BoxelwareЖанр: Экшены, Инди, СимуляторыЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3A01863859E7E815444BBADBEB4B827B3B2CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794033   (20083) от 27.04.2025
 
 In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
@@ -32,7 +6,7 @@ In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20083.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Medieval Blacksmith (2024) [Ru/Multi] (1.6.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20078.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.2) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20068.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Necesse (2019) [Ru/Multi] (0.32.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20063.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dark City 10: Barcelona / Мрачный город 10: Барселона (2025
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20062.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ SpellRogue (2024) [Ru/Multi] (1.0.0b70/dlc) Repack FitGirl [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20053.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tempest Rising (2025) [Ru/Multi] (1.1.1+43856/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20040.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.42.46611) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20039.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tetris Forever (2024) [Multi] (1.06) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20037.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20031.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Hero's Hour (2022) [Ru/Multi] (2.8.1b/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20030.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Night Slashers: Remake (2024) [Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20025.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20021.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20014.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.b314.r63560/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20009.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20005.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20002.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Viking Frontiers (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20001.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2011.010.003.007.006/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19999.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19990.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19989.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Last Man Survivor (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19987.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19986.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19985.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19984.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FEDE632A4D7E338B572F7FD6E9AAA8D29FE72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794235   (19982) от 28.04.2025
+
+Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад людей начала косить болезнь. Поселения, которые продержались все это время, по неясным причинам начинают рушиться одно за другим. Выжившие бегут от новой опасности. Вы - один из них, и вам предстоит найти свой путь в жизни… любой ценой. Survivalist: Invisible Strain - симулятор управления колонией в открытом мире, действие которого происходит в зомби-апокалипсисе, (   Читать дальше...   )Тип издания: RepackРазработчик: BobЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD4018BB053CE322E7908C224FA8481674963F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

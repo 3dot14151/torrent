@@ -6,7 +6,7 @@ Avast Secure Browser 66.2.567.181 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610573.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Maxthon Browser 5.2.3.3000 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610572.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Waterfox 56.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610568.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ PrivaZer 3.0.48 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610567.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ CCleaner Free | Professional | Business | Technician 5.07.5261 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610550.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AMD Radeon Software Adrenalin Edition 18.6.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610519.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ WinCatalog 2015 15.1 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610499.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ System Ninja 3.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610498.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ReviverSoft PC Reviver 2.0.4.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610481.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610440.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ FarStone TotalRecovery Pro 10.5.3 Build 20150508 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610408.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Maxthon Cloud Browser 4.4.6.1000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610407.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ummy Video Downloader 1.4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610402.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GenArts Sapphire Plugin 8.11 CE RePack by Team VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610397.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Prelude CC 2015 (v4.0) RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610392.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ CrystalDiskMark 6.0.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610351.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610349.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Acme CAD Converter 2016 8.7.0.1440 RePack (& Portable) by AlekseyPopovv [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610308.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Adobe Flash Professional CC 2015 15.0.0.173 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610306.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Hex Editor Neo free 6.12.00.5406 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610296.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ ValhallaDSP - ValhallaDelay 1.0.1v3 VST, VST3, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610267.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Avast Secure Browser 73.0.1270.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610233.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Geek Uninstaller 1.4.5 Build 136 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610230.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ StartIsBack++ 2.6.4 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610217.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Adobe Flash Professional CC 2015 (v15.0) RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610180.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Adobe Dreamweaver CC 2015 (v16.0) x86-x64 RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610175.jpg" />
 </div>
 
 

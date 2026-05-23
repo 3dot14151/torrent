@@ -1,110 +1,3 @@
-###  Публикация: 507031   (684878) от 07.06.2012
-
-[Wii] Madagascar 3 [Eng][NTSC][2012]
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Любимые герои возвращаются в новой игре Madagascar 3: The Videogame  Wii и теперь хотят вернуться обратно в свой любимый зоопарк в Нью-Йорке. Единственное решение к которому они пришли – примкнуть к бродячему цирку, в надежде
-что он когда-нибудь доедет и до Нью-Йорка. Масса веселых заданий, увлекательные мини-игры и
-совместное прохождение заданий любимыми героями – что еще нужно?Разработчик: Monkey Bar GamesЖанр: action, adventureЯзык интерфейса: EngФормат: Образ в формате WBFS инструкция здесь!!!.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14205D20CD4A78307A4679F928287B7F7BE3157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134990   (684487) от 17.05.2017
-
-Handball 16, Handball 17 (2015-2016) [PS3] [EUR] 4.76, 4.80 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Используйте реальные гандбольные движения и тактики в Handball 17, лучшем гандбольном симуляторе из когда-либо созданных. В игре представлены 82 официальных команды самых престижных лиг Европы: LIDL STARLIGUE и PROLIGUE во Франции, DKB Handball Bundesliga и 2. Handball-Bundesliga в Германии и Liga ASOBAL в Испании. Handball 17 включает полностью переработанное управление, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eko SoftwareЖанр: Sport, HandballЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615BC5F15042C05362BDC58EC797DDC86D651DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404100   (683872) от 23.08.2020
-
-Skullgirls: 2nd Encore (2019) [Switch] [USA] 9.1.0 [NSZ] [Unofficial / 1.0.3] [Ru/En]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Созданный небольшой командой разработчиков файтинг Skullgirls отсылает к различным проектам прошлого и настоящего. Фанаты жанра легко увидят здесь некоторые идеи Marvel vs Capcom и BlazeBlue, BioShock. Студии Lab Zero Games удалось достичь главного - создать доступную, но при этом глубокую игровую механику. Нарисованные от руки герои и декорации наделяют Skullgirls (   Читать дальше...   )Тип издания: UnofficialРазработчик: Reverge LabsЖанр: Файтинг, АркадаЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B113FAC308AA9FEBBD85647A770E39AA884C3DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403986   (683871) от 23.08.2020
-
-Samurai Jack: Battle Through Time (2020) [Switch] [USA] 10.1.0 [NSP] [License / 1.0.3] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Станьте самураем Джеком — воином всех времен. Путешествуйте во времени в этом новом приключении от создателей мультсериала «Самурай Джек», посещайте знакомые места, овладейте различными видами оружия и навыками, улучшайте свои боевые умения, а также объединяйтесь с верными союзниками, сражайтесь со знакомыми врагами и положите конец злому правлению Аку.
-Samurai Jack: (   Читать дальше...   )Тип издания: LicenseРазработчик: Soleil LtdЖанр: Экшн, 3D-платформер, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0259BC78255270D7208E7BD1CB3AF086612B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029246   (683769) от 25.06.2016
 
 Faery: Legends Of Avalon (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
@@ -113,7 +6,7 @@ Faery: Legends Of Avalon (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683769.jpg" />
 </div>
 
 
@@ -139,7 +32,7 @@ Under Siege (2011) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.03] [M
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683754.jpg" />
 </div>
 
 
@@ -166,7 +59,7 @@ Tokyo Mirage Sessions #FE (2016) [WiiU] [ЕUR] 5.3.2 [Loadiine GX2] [License] [E
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681771.jpg" />
 </div>
 
 
@@ -192,7 +85,7 @@ Guilty Gear Xrd -REVELATOR- (2016) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681645.jpg" />
 </div>
 
 
@@ -218,7 +111,7 @@ Lego Star Wars: The Force Awakens (2016) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679763.jpg" />
 </div>
 
 
@@ -244,7 +137,7 @@ Boogie SuperStar [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678125.jpg" />
 </div>
 
 
@@ -270,7 +163,7 @@ A Boy and His Blob (2016) [PS3] [EUR] 4.21 [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677969.jpg" />
 </div>
 
 
@@ -296,7 +189,7 @@ Resident Evil 0 HD Remaster (2016) [PS3] [JAP] 4.21 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677775.jpg" />
 </div>
 
 
@@ -322,7 +215,7 @@ Catherine (2011) [PS3] [EUR] 4.82 [HAN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676744.jpg" />
 </div>
 
 
@@ -348,7 +241,7 @@ Mighty No. 9 (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675893.jpg" />
 </div>
 
 
@@ -374,7 +267,7 @@ Sonic Boom: Rise of Lyric (2014) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675702.jpg" />
 </div>
 
 
@@ -400,7 +293,7 @@ Trinity Universe (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669905.jpg" />
 </div>
 
 
@@ -428,7 +321,7 @@ A Boy and His Blob (2016) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669891.jpg" />
 </div>
 
 
@@ -454,7 +347,7 @@ Cabela's African Adventures (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669888.jpg" />
 </div>
 
 
@@ -480,7 +373,7 @@ The Walking Dead: Survival Instinct (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Li
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669760.jpg" />
 </div>
 
 
@@ -507,7 +400,7 @@ Hungry Shark World (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668979.jpg" />
 </div>
 
 
@@ -533,7 +426,7 @@ Battleship: The Video Game (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667951.jpg" />
 </div>
 
 
@@ -559,7 +452,7 @@ Castle Crashers (2008) [Xbox360] [Region Free] 13599 [FreeBoot / JTAG] [XBLA] [E
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660601.jpg" />
 </div>
 
 
@@ -585,7 +478,7 @@ Marsupilami Hoobadventure (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Mul
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659944.jpg" />
 </div>
 
 
@@ -612,7 +505,7 @@ My Friend Peppa Pig / Моя подружка Свинка Пеппа (2021) [PS
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659935.jpg" />
 </div>
 
 
@@ -638,7 +531,7 @@ Project CARS 3 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657051.jpg" />
 </div>
 
 
@@ -664,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656310.jpg" />
 </div>
 
 
@@ -675,6 +568,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86C3DF1F69C856E5339C5CF488AA95B0FC70FF5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514804   (656306) от 25.06.2012
+
+[Xbox360] Brave: The Video Game [ENG] (XGD2) (RegionFree) [+KINECT] (2012)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брось вызов судьбе и испытай свое сердце, отправившись в путешествие с принцессой Меридой и ее друзьями, чтобы снять проклятье и спасти королевство!
+
+Главная героиня игры и мультфильма Disney/Pixar «Храбрая сердцем» — дочь короля Шотландии Фергюса и королевы Элинор, искусная лучница Мерида. Девушка выбирает свой путь в жизни самостоятельно, и однажды, отказавшись следовать древним традициям, бросает вызов могущественным шотландским кланам и их предводителям: нескладному лорду МакГаффину, угрюмому лорду Макинтошу и сварливому лорду Дингволлу. Неосторожные поступки Мериды грозят повергнуть королевство в хаос, и тогда она отправляется за советом к эксцентричной отшельнице. Однако та, вместо того, чтобы помочь, накладывает на девушку весьма опасное заклятье… Преодолеть могущественное волшебство будет очень непросто, и юной принцессе придется полагаться лишь на собственную храбрость.Тип издания: ЛицензияРазработчик: Disney Interactive StudiosЖанр: Action / AdventureЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C5532F7E482D229B971CF16F12886738C7182D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515778   (655156) от 26.06.2012
+
+[Wii] The Amazing Spider-Man [Multi 3][PAL][2012]
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игроку предстоит перевоплотиться в Питера Паркера, паренька, которого укусил радиоактивный паук. Вы обретёте нечеловеческую силу, ловкость и способность бегать по стенам. В общем, судьба предрешена: надеваете яркий костюм, маску и отправляетесь вершить уличное правосудие. Известно, что игровая история начнётся с того момента, которым закончится фильм.Разработчик: BeenoxЖанр: action, adventureЯзык интерфейса: Multi 3 (EN, FR, ES)Формат: Образ в формате WBFS инструкция здесь!!!.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF471AFE5D4448A6DFEECD37B1AAB8B873AF81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435314   (654640) от 28.03.2022
+
+DOOM Eternal (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.23 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хватай мощное оружие и отправляйся разносить в клочья новых и хорошо знакомых демонов, заполонивших неизведанные миры Doom Eternal. Прорывайся сквозь измерения и сокрушай всё на своём пути с невероятной силой и скоростью. Демоны разбегаются по сторонам, черти прячутся в котлах – тяжёлая поступь Палача Рока слышна даже в аду, где импам и ревенантам снятся кошмары (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action, ShooterЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D131C6E1295E7662C1F5E6330C95D6367EB65C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139517   (654485) от 07.06.2017
+
+Dead Nation + Road of Devastation DLC (2014) [PSVita] [EUR] 3.60 [HENkaku] [PSN] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654485.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dead Nation вас ждет встреча с огромными полчищами зловещих живых мертвецов. Сюжет игры повествует о распространении по планете неизвестного смертельного вируса, превращающего людей в ужасных зомби. Мир в опасности. По улицам, залитым кровью и усыпанным трупами, бродят толпы ненасытных мертвецов. Вся надежда на вас. Вы один из тех немногих, кто обладает иммунитетом (   Читать дальше...   )Тип издания: PSNРазработчик: Housemarque, Climax StudiosЖанр: Action, Shoot-'Em-Up.Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7B164FB370A1E05CF20C6A9C0C584153FDD0E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

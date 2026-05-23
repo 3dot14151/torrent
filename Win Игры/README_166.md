@@ -1,29 +1,3 @@
-###  Публикация: 1287275   (704700) от 06.03.2019
-
-The Occupation (2019) [Ru/Multi] (1.02) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-The Occupation — это захватывающий триллер от первого лица с элементами симулятора детектива, в котором вы отправитесь прямиком в 24 октября 1987 г., на северо-запад Англии.  Вы — журналист в изменчивом реалистичном мире, в котором люди реагируют на каждое ваше действие, а время, становится злейшим врагом.Тип издания: RepackРазработчик: White Paper GamesЖанр: Adventure (Detective), Stealth, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6146FEB1E8FF3ACC270CDC402CA77A2B6933C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208788   (704696) от 06.03.2019
 
 Past Cure (2018) [Ru/Multi] (1.0/upd3) License CODEX
@@ -32,7 +6,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704696.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Eternity: The Last Unicorn (2019) [Ru/Multi] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704692.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.08/dlc) Repack xatab [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704686.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Monark (2022) [Multi] (1.00/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704644.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ SIFU (2022) [Ru/Multi] (1.5.3.369/dlc) Repack Other s [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704643.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Harrowed Halls: Lakeview Lane / Обитель Страданий: Лейквь�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704538.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Queen's Quest 3: End of Dawn / Королевский квест 3: Конец �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704470.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Enchanted Kingdom: A Dark Seed / Зачарованное Королевство
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704403.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.02) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704376.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.3.5/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704095.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) Repack =nemos= [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703977.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.1) Repack Covfefe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703973.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Station (2018) [En] (B1.53.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703970.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ All Walls Must Fall - A Tech-Noir Tactics Game (2018) [En/Pt] (1.1.0649) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703876.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The King of Fighters XIV (2017) [Multi] (1.19) License CODEX [Steam Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703874.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Enchanted Kingdom 5: Descent of the Elders (2019) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703461.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Paranormal Files 4: Hook Man's Legend / Паранормальные явлен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703384.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Armello (2015) [Ru/Multi] (2.0/dlc) License RELOADED [Collector's Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703236.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703000.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Eternity: The Last Unicorn (2019) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702943.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0/upd2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702851.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Armello (2015) [Ru/Multi] (2.0/dlc) Repack Other s [Collector's Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702850.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702843.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Ruin of the Reckless (2017) [En/Fr] (1.0.1b) License GOG [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702287.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ys VI: The Ark of Napishtim (2015) [En] (13.04.2018) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702204.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ys VI: The Ark of Napishtim (2015) [En] (13.04.2018) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2F74A4C81616184F32FE6DC34EADD4FA37CB10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220609   (702203) от 20.04.2018
+
+For The King (2017) [Ru/Multi] (1.0.7724) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютерный игровой проект For The King в переводе означает «за короля!». По жанру он – кооперативный стратегический рогалик, созданием которого занималась студия Iron Oak Games.Тип издания: LicenseРазработчик: IronOak GamesЖанр: Strategy, Roguelike, ActionЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882D7075277FADA432D3247CDA16BC8E259C4CB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

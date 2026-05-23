@@ -6,7 +6,7 @@ Hatred (2015) [Ru/Multi] (1.6) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483180.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Monster Boy and the Cursed Kingdom (2019) [Ru/Multi] (1.0_rc4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478723.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.14) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478720.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Galactic Junkers (2022) [Multi] (1.0.1.0) License FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478323.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Super ComboMan (2017) [Ru/Multi] (1.04) License PLAZA [Smash Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477846.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Escapists 2 (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477686.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Distrust (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477583.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Distrust (2017) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477574.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Office Freakout (2016) [En] (0.9.0 Release) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476650.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Goo Saga - HD Edition (2016) [Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476645.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Masterplan (2015) [En/De] (1.1.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474917.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Insanely Twisted Shadow Planet (2012) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474915.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ LASTFIGHT (2016) [Ru/Multi] (1.02) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474493.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Zombotron (2019) [Ru/En] (1.2.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472861.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cannon Brawl (2014) [En] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470532.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Assault Android Cactus (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463791.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Unravel Two (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458821.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Unravel Two (2018) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458698.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NARUTO Ultimate Ninja STORM Dilogy (2017) [En] (1.0/1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458609.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Death Point (2017) [Ru/En] (1.0) Repack Covfefe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458461.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Brave: The Video Game / Храбрая сердцем [Ru/En] (RePack/1.0.0.3) 2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457027.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Iron Brigade + DLC [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456862.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mines of Mars (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456402.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Unravel Two (2018) [En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456388.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Death Point (2017) [Ru/En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456254.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Brave: The Video Game / Храбрая сердцем [Ru] (RePack/1.0) 2012 | A
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454395.jpg" />
 </div>
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1194419   (155596) от 25.12.2017
-
-Антон Леонтьев | Танцующая с дьяволом (2017) [MP3, Ирина Воробьёва]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Успешная бизнес-леди Лариса Марыгина осматривала новый офис, который собиралась приобрести ее компания, и неожиданно наткнулась на странную комнату. Когда бронированную дверь вскрыли, в помещении обнаружились вещи, принадлежащие жертвам маньяка-убийцы. Лариса сразу поняла это, ведь много лет назад трагедия коснулась и ее семьи. Женщина до сих пор мучительно переживала, (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 09:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B666881448110D65C098C6C97AAD42A032F89BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676739   (155588) от 14.11.2023
-
-Омар Хайям | Рубаи (2008) [MP3, Альберт Филозов, Егор Бероев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Спорщик с Богом, бесстрашный ум, чуждый иллюзий, учёный, и в стихе стремящийся к точной формуле, к афоризму, – таков Хайям, астроном и математик. Каждое четверостишие – уравнение. Учёный по-новому комбинирует известные ему величины, стремясь найти Неизвестное. Точность, немногословность, отсутствие случайного, симметрия формы – всё это роднит рубаи Хайяма с математической (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияПеревод: Герман ПлисецкийИздательство: СиДиКомПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120392BC6265BBE216A6BE5D054979712FCC4074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518457   (155556) от 19.12.2021
-
-Антон Чехов | Шалость (2021) [MP3, Hemming Estorsky]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Шалость» — первый сборник юмористических рассказов А. П. Чехова, подготовленный в 1882 году. Состоял из 12 рассказов, но так и не был издан.
-
-Рассказы были написаны ещё в «пору литературного ученичества». Известны два экземпляра сборника, но без титульных листов, последних страниц и оглавления. Для этого издания братом писателя и художником Н. П. Чеховым были выполнены (   Читать дальше...   )Жанр: ЮморПродолжительность: 02:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD62C9FF752E05F267301238CD2E8225301F141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600751   (155481) от 28.12.2022
 
 Лоран Гунель | Бог всегда путешествует инкогнито (2022) [MP3, Станислав Федорчук]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155481.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155446.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155343.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155312.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155279.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155260.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155199.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155102.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155038.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155031.jpg" />
 </div>
 
 
@@ -353,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155024.jpg" />
 </div>
 
 
@@ -381,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155015.jpg" />
 </div>
 
 
@@ -407,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155005.jpg" />
 </div>
 
 
@@ -434,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154972.jpg" />
 </div>
 
 
@@ -460,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154933.jpg" />
 </div>
 
 
@@ -486,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154881.jpg" />
 </div>
 
 
@@ -512,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154845.jpg" />
 </div>
 
 
@@ -538,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154832.jpg" />
 </div>
 
 
@@ -565,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154765.jpg" />
 </div>
 
 
@@ -591,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154754.jpg" />
 </div>
 
 
@@ -617,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154742.jpg" />
 </div>
 
 
@@ -643,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154739.jpg" />
 </div>
 
 
@@ -671,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154729.jpg" />
 </div>
 
 
@@ -684,6 +604,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3621C14941B23B55AE07F95A78916DCD0EBB1C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085083   (154712) от 23.12.2016
+
+Генри Миллер | Дьявол в раю (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154712.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дьявол в раю» (1957 г.) — последняя книга трилогии под названием «Большой Сур и апельсины Иеронима Босха» — дает нам представление о позднем Миллере. Сюжетно она вполне самостоятельна и связана с двумя другими только местом действия. И если те представляют собой дневниковые записи, размышления, наблюдения и эссе, посвященные разным сторонам окружения писателя (в (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 05:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A230A95409BE298E5010975304EA839402B5B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433986   (154700) от 22.12.2020
+
+Франк Хеллер | Убийство на Кейзерграхт. Рассказы (2020) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший рецепт от хандры и тревоги – ироничные, интеллектуальные и оригинальные детективы Франка Хеллера. Погрузитесь в водоворот таинственных и загадочных событий вместе с аудиокнигой «Убийство на Кейзерграхт и другие рассказы», и вы не сможете остановиться, пока не дослушаете ее до конца. Замысловатые детективные истории, увлекательные приключения и таинственные (   Читать дальше...   )Жанр: ДетективПродолжительность: 03:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C1FF5A556E8AC678D8A8F1CA94DFE5D2344C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194618   (154685) от 25.12.2017
+
+Дэн Браун | Роберт Лэнгдон (Книга 5). Происхождение (2017) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154685.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора бестселлеров, которые взорвали книжный рынок, – Дэна Брауна! Книга, которую ждали во всем мире! Книга, которую обсуждают миллионы!
+Роберт Лэнгдон прибывает в музей Гуггенхайма в Бильбао по приглашению друга Эдмонда Кирша. Этим вечером Кирш собирается «перевернуть все современные научные представления о мире», дав ответ на два главных вопроса, волнующих (   Читать дальше...   )Жанр: ТриллерПродолжительность: 16:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188DA94B4A7DCACB9AA1A443BE7FCA65ACCD83AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

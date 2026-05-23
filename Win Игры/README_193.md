@@ -1,29 +1,3 @@
-###  Публикация: 1036401   (620311) от 20.07.2016
-
-I am Setsuna (2016) [En/Ja] (1.0) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-I Am Setsuna расскажет трогательную и печальную историю молодой женщины по имени Сецуна (Setsuna). Она покидает свой родной дом, чтобы отправиться в путешествие в далекую страну. Ей предстоит столкнуться с суровыми испытаниями и пойти на жертвы, чтобы спасти свой народ...Тип издания: RepackРазработчик: Tokyo RPG FactoryЖанр: RPG (Japanese-style), 3DЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB933831524A1D21311CC4F6ED0D64BB13E5B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036253   (620309) от 20.07.2016
 
 Aliens: Colonial Marines (2013) [Ru/En] (1.0.210.751923/upd1.4.0/dlc) Repack nemos
@@ -32,7 +6,7 @@ Aliens: Colonial Marines (2013) [Ru/En] (1.0.210.751923/upd1.4.0/dlc) Repack nem
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620309.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Grim Facade 6: Hidden Sins (2015) [En] Unofficial [Collector's Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620242.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Deck of Ashes (2019) [Ru/Multi] (1016730) Repack xatab
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620220.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) Repack R.G.Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620080.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Weedcraft (2019) [Ru/Multi] (1.02) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620078.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ SUNLESS SKIES (2019) [En] (1.2.1.2) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619943.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (1.62662/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619792.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Ominous Objects 2: Phantom Reflection / Зловещие вещи 2: Иллюз�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619702.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NASCAR '15 [Patch] (2015) (upd2) Official CODEX
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619620.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Citadels (2013) [Ru/Multi] License FAIRLIGHT
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619414.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Super Meat Boy (2010) [Ru/Multi] Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619396.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ Bayonetta (2017) [Ru/Multi] (1.01) Repack ivandubskoj
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619359.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619296.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ NASCAR '15 (2015) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619199.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ Subject 13 (2015) [Multi] (1.2) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619188.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ Grow Home (2015) [Ru/Multi] (5.3.02/upd3) Repack Valdeni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618718.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ LEGO The Lord of the Rings (2012) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618695.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ Old Clockmaker's Riddle {0.1.20} (P) [Ru] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618535.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ Caveblazers (2017) [En] (1.4.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618452.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ Space Hulk: Deathwing (2018) [Ru/En] (2.42/dlc) Repack Mizantrop1337 [Enhanced E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618375.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ We Happy Few (2018) [Ru/Multi] (1.7.79954/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618363.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ Final Cut 6: Fade to Black / Последний дубль 6: Затемнени
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617972.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ Christmas Stories 5: The Gift of the Magi / Рождественские ист�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617878.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Car Detailing Simulator (2022) [Ru/Multi] (1.000.27/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617773.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ F1 2016 (2016) [Ru/Multi] (1.8/dlc) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617648.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ F1 2016, официальная видеоигра 2016 FIA FORMULA ONE WORLD CH
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD191B3D5D3BC4D7AF4A9D2C87829158BBAAA24C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146108   (617587) от 27.06.2017
+
+F1 2016 (2016) [Ru/Multi] (1.8/dlc) Repack xatab
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617587.jpg" />
+</div>
+
+
+###  Подробнее
+
+F1 2016, официальная видеоигра 2016 FIA FORMULA ONE WORLD CHAMPIONSHIP, содержит полный календарь сезона 2016, 21 трассу, 22 водителей и 11 команд. Насладитесь захватывающими моментами в карьере гонщика FORMULA ONE, также участвуя в закулисных сделках и разработке автомобилей. Это испытание продолжительностью в 10 сезонов. Проложите путь к победе и станьте чемпионом.Тип издания: RepackРазработчик: CodemastersЖанр: Sport, Racing, SimulatorЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B47E09C7866464D732305E580E4DCA4D24FA50B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

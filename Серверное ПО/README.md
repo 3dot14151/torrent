@@ -7,7 +7,7 @@ EJ Technologies Perfino 4.3 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064865.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ ORF Fusion 5.5.1 registered [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039740.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Microsoft SQL Server 2012 11.0.7001.0 (Service Pack 4) [Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032806.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Microsoft SQL Server 2022 16.0.1000.6 (RTM) + CU2 + SSMS [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029545.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Microsoft Exchange Server 2016 (Cumulative Update 15) [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956607.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Microsoft SQL Server 2019 15.0.2000.5 (RTM) [Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947546.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Microsoft Lync Server 2013 MSDN 5.0.8308.0 [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929609.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ SAP Advantage Database Server 12.00.0.0 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765858.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Skype for Business Server 2015 x64 MSDN 6.0.9319.0 [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689064.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Microsoft Office Online Server 2016 (Updated March 2017) [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622984.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Microsoft Exchange Server 2016 (Cumulative Update 6) [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615798.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Microsoft System Center 2016 (RTM) [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608966.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ HP Service Pack for ProLiant 2022.03.0 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592725.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Microsoft SQL Server 2014 12.0.5000.0 (Service Pack 2) [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582121.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Microsoft SQL Server 2019 15.0.2000.5 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580768.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Endels 1.71 [Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564250.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ MySQL Installer 5.6.26 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557231.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Microsoft SQL Server 2014 12.0.2000.8 (x64) [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517983.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Project Server 2013 with SP1 64-Bit [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390224.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Microsoft SQL Server 2017 14.0.1000.169 (RTM) [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373561.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Microsoft SQL Server 2012 Express with Advanced Services + Service Pack 1 (x86 �
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_356839.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Microsoft SQL Server 2016 13.0.4001.0 (Service Pack 1) [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319829.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Microsoft SQL Server 2012 11.0.6020.0 (Service Pack 3) - Оригинальны�
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296303.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Microsoft SQL Server 2012 11.0.6020.0 (Service Pack 3) - Оригинальны�
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285036.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Microsoft Exchange Server 2010 Service Pack 2 [ENG]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277843.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Microsoft® SQL Server® 2012 Express с пакетом обновления 1 (
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267261.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1722589   (56804) от 12.05.2024
-
-Mists of Noyah (2022) [Multi] (1.0.2) Scene Razor1911
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Игрок оказывается в заброшенной крепости, которую разрушили вследствие войны в Mists of Noyah. Геймеру предстоит заняться исследованием близлежащих территорий, чтобы восстановить форт, где скрыто много опасностей. Пиксельная адвенчура предполагает поиск обитателей крепости, которым удалось спастись, артефактов и сражения с демонами ночью. Потеря здания означает проигрыш. (   Читать дальше...   )Тип издания: SceneРазработчик: PyxeraliaЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E08C87B0BAFBF185163BCB0DB6411FA4539F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617403   (56752) от 13.05.2024
 
 Clive 'N' Wrench (2023) [Multi] (Patch 1.1) License GOG
@@ -32,7 +6,7 @@ Clive 'N' Wrench (2023) [Multi] (Patch 1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56752.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Legend of Heroes: Trails of Cold Steel IV (2021) [Multi] (1.2.1/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56731.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Captain Goose (2023) [Ru/En] (1.0) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56698.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56615.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Bloody Heaven 2 (2024) [Multi] (0.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56597.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Gift (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56590.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56569.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56523.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Undead Inc. (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56521.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ruindog (2024) [Ru/Multi] (1.0.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56497.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Braid (2024) [Multi] (0.444) Repack FitGirl [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56493.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Little Kitty, Big City (2024) [Multi] (1.24.5.8_3487) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56484.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56472.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Astro Pig (2024) [Multi] (1.1.5) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56471.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56387.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Poltergeist Watcher (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56359.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56331.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Soviet Soldier / История советского Солдата (2024) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56327.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56311.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Astral Ascent (2023) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56306.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ A Highland Song (2023) [En] (1.2.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56302.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56293.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Echoes of the Plum Grove (2024) [Multi] (1.0.1.0s) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56280.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Whispered Secrets 15: Cruise of Misfortune (2024) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56268.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ We Need To Go Deeper (2019) [En] (1.6.5.g) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56260.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ We Need To Go Deeper - это игра в жанрах симулятор, ин�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E4ECDF84FB632EB490A53FC803BC4440BF57DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646693   (56223) от 18.05.2024
+
+Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56223.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Mass Effect: Andromeda вы окажетесь в галактике Андромеды, далеко за пределами Млечного Пути. Там придется сражаться на враждебной территории, где пришельцы - мы. Возьмите на себя роль Следопыта и возглавьте отряд опытных исследователей. Вас ждет захватывающая история с множеством вариантов развития. Это - новая глава в истории человечества, и только от выбора (   Читать дальше...   )Тип издания: RepackРазработчик: BioWareЖанр: Экшены, RPG, ШутерыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DA08291001B9F654A7F3701A0C76BEE205C28C
 ```
 
 https://mybot314.ru/tekegram_catalog/

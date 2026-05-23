@@ -6,7 +6,7 @@ Mozilla Firefox 46.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863045.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Files Inspector Pro 3.10 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862981.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Firefox Browser 92.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862978.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Opera 79.0.4143.50 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862976.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mozilla FireFox 92.0.1.7935 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862973.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ GIMP 2.10.28 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862969.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Paint.NET 4.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862966.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AutoRuns 14.02 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862965.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Chromodo Browser 48.12.18.248 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862944.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ EagleGet 2.0.4.20 Stable Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862914.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.16 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862874.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ oCam 370.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862820.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ DevID Agent 4.37 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862812.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PDF24 Creator 8.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862809.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Extreme Picture Finder 3.33.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862804.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Comodo Dragon 48.12.18.249 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862777.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ReGen - KeyCode 1.4.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862772.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ FileZilla 3.16.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862770.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Password Safe 3.38.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862768.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Microsoft Windows and Office ISO Download Tool 4.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862718.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ USDownloader 1.3.5.9 Portable (23.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862675.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Autorun Organizer 2.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862665.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ UltraUXThemePatcher 3.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862593.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Internet Download Accelerator Pro 6.12.1.1545 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862586.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ FlipBuilder Flip PDF 4.3.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862544.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Daum PotPlayer 1.6.59347 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862532.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1075124   (322603) от 21.11.2016
-
-Armello: The Usurpers (2015) [Ru/Multi] (1.00) License TiNYiSO
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Armello – красочная пошаговая стратегия с элементами RPG и использованием карт, действие которой разворачивается в фэнтезийном королевстве Армелло, населенном антропоморфными созданиями. Когда король поддался влиянию темной силы, представители различных кланов начали соревноваться за трон.Тип издания: LicenseРазработчик: League of GeeksЖанр: Logic (Board,Classic), 3D, Isometric, StrategyЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391A98370F2FAEBF29992B155ACBAC519A44F549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247385   (322543) от 09.10.2022
 
 A Hat in Time (2017) [Ru/Multi] (59270/dlc) License GOG
@@ -32,7 +6,7 @@ A Hat in Time (2017) [Ru/Multi] (59270/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322543.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mutant Football League (2018) [En] (1.8.0/dlc) License GOG [Dynasty Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322541.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ EARTH DEFENSE FORCE: IRON RAIN (2019) [Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322362.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинград
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322191.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Invisible, Inc. - Contingency Plan (2015) [En] (1.0/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321098.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320896.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dofus / Дофус (2005) [Ru] (2.31.1.99445) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320895.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mystery Tales 12: Art and Souls (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320648.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ True Fear: Forsaken Souls Part 2 / Реальный ужас: Души прок�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320631.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License RELOADED [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320616.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ de Blob (2017) [Multi] (0.28b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320600.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Other Half (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320447.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (24034) SteamRip R.G. Игроман�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320278.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ MouseCraft (2014) [Ru/Multi] (1.20) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320251.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ HuniePop (2015) [En] (1.2.0) License GOG [Deluxe Edition] [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320248.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320214.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320186.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320144.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320042.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320036.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Sherlock Holmes: Crimes and Punishments (2014) [Ru] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319870.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319845.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319303.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Asterix & Obelix XXL: Romastered (2020) [Multi] (1.0.29) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319182.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Surface 8: Return to Another World (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319131.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Surface 8: Return to Another World (2015) [En] Unofficial [Collector's Edition /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D115443706F193AAFE2CD8E2691104D37B5432C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959153   (319126) от 23.11.2015
+
+Eventide: Slavic Fable (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный отель находится в парке наследия, где обитают славянские мифические существа. Известный ботаник получает тревожное сообщение от своей бабушки, которая является смотрителем таинственной болотистой местности. Здесь действуют законы магии и обитают существа из фольклора. Нужно сохранить исчезающие виды растений - но это самая малая из проблем, которую нужно (   Читать дальше...   )Тип издания: UnofficialРазработчик: House of Fables и Artifex MundiЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB109F3039667452B2FBE56FBE23D3E54486546C
 ```
 
 https://mybot314.ru/tekegram_catalog/

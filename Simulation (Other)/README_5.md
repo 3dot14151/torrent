@@ -6,7 +6,7 @@ Train Mechanic Simulator 2017 (2017) [Ru/Multi] (1.0.16) License HI2U
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812556.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WolfQuest (2015) [En] (2.7.1p3a) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811062.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ X-Plane 11 (2017) [Ru/Multi] (1.0.110025) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800940.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SkateBIRD (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797392.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Robo Vacuum Simulator (2021) [En] (4.26.2.0) License DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796630.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pro Fishing Simulator (2018) [Ru/Multi] (1.1) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792799.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Motorcycle Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.12) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788734.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Fishing Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788408.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Alpine - The Simulation Game (2021) [Multi] (1.0.0) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787778.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787274.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fishing Sim World (2018) [Ru] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786915.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ZiL Truck RallyCross (2017) [En] (1.0) License TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785851.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Game Dev Tycoon (2013) [Ru/Multi] (1.5.28) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785512.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784266.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Airport Madness 3D: Volume 2 (2017) [En] (1.123) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780032.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ SYMMETRY (2018) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780013.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Demolish & Build 2018 (2018) [Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776671.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ABZU (2016) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776307.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Seamulator 2009 / Большая Регата. Морской симулятор
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775064.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Block'hood (2017) [Ru/Multi] (1.1.25) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774029.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.1/dlc) License PLAZA [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773911.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Slay the Spire (2019) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772529.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Britannic: Patroness of the Mediterranean (2020) [En] (1.0.85) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772492.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.20.53319/dlc) Repack xatab (обновл
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769132.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Rolling Line (2018) [En] (3.7.5) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769017.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Pure Farming 2018 (2018) [Ru/En] (1.1/dlc) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768796.jpg" />
 </div>
 
 

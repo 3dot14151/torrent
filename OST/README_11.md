@@ -6,7 +6,7 @@ Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar in
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642606.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642004.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641624.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Miss Congeniality / Мисс Конгениальность (1-2 части) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639259.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639111.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637313.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637218.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - 101 Movie Songs (5CD) (2012) [MP3|181-288 кб/с]<Pop, Rock>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635472.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634298.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Quentin Tarantino's - Inglourious Basterds / Бесславные ублюдки
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631127.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ James Newton Howard - Snow White & The Huntsman / Белоснежка И Охо
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631113.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630511.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Prog
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630095.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628613.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627138.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626624.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626580.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626241.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624720.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624662.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624583.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617387.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612029.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Hans Zimmer - The Dark Knight Rises / Тёмный Рыцарь: Возрожд�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611046.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ Lorne Balfe - Terminator Genisys (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610490.jpg" />
 </div>
 
 
@@ -779,7 +779,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607330.jpg" />
 </div>
 
 

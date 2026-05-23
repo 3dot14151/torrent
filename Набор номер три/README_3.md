@@ -1,57 +1,3 @@
-###  Публикация: 1859842   (1061501) от 19.03.2026
-
-Сторонние клиенты Telegram в 2026 году - что выбрать и где подвох
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Одни версии дают больше приватности и удобства, другие обещают слишком много. Разбираем, где реальные преимущества, а где уже тревожные компромиссы.У Telegram давно есть не только официальная программа. Вокруг мессенджера вырос целый набор сторонних клиентов: одни аккуратно допиливают привычную оболочку, другие добавляют спорные функции вроде скрытого чтения и истории (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859846   (1061339) от 19.03.2026
-
-В РФ начали ограничивать домашний интернет. Речь не про белые списки ...
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Провайдер «Дом.ру» начал тестировать замедление проводного интернета у пользователей с избыточным расходом трафика.
- Это не первый подобный случай и, вероятно, не последний.Что случилось?
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859493   (1061260) от 16.03.2026
 
 "Битва за битвой" стал лучшим фильмом по версии "Оскара"
@@ -60,39 +6,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061260.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Фильм "Битва за битвой" режиссера Пола Томаса Андерсона стал обладателем "Оскара" в номинации "Лучший фильм".Церемония вручения наград 98-й премии американской киноакадемии прошла в Лос-Анджелесе в ночь на понедельник по московскому времени.Среди претендентов на награду в данной номинации были представлены "Гамнет" Хлои Чжао, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859566   (1061201) от 17.03.2026
-
-Вышел мессенджер Columba, который работает без интернета
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-На фоне постоянных блокировок в сети завирусился новый мессенджер под названием Columba. Он обещает оставаться на связи даже при полном отсутствии интернета, так как использует сетевой протокол Reticulum, позволяющий устройствам соединяться напрямую и создавать собственную mesh-сеть. (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061106.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060839.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack seleZen [Premi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060827.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060792.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060791.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060655.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060523.jpg" />
 </div>
 
 
@@ -294,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060428.jpg" />
 </div>
 
 
@@ -320,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060340.jpg" />
 </div>
 
 
@@ -346,7 +266,7 @@ Telegram стал самым популярным мессенджером в Р
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060231.jpg" />
 </div>
 
 
@@ -373,7 +293,7 @@ Enigma - Discography (1990-2008) [mp3|320 kbps]<Enigmatic / New Age>
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060176.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060083.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059934.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059763.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059617.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059545.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059449.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059400.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ Windows 11 резко стала популярной
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059296.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059264.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ NASA радикально поменяла Artemis, чтобы не проигр
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059212.jpg" />
 </div>
 
 
@@ -666,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059152.jpg" />
 </div>
 
 
@@ -677,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6224394CA15155B906B125E75ACD45283D168F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856461   (1059116) от 02.03.2026
+
+Минцифры потратило 3 млрд рублей на строительство объектов связи там, где связь уже была
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти 3 млрд рублей, направленные Минцифры России на строительство объектов связи в 2025 году по программе устранения цифрового неравенства (УЦН), израсходовали без должной необходимости. К таким выводам пришла Счётная палата по итогам проверки использования средств федерального бюджета, выделенных на универсальные услуги связи. Об этом на заседании IT-комитета Госудумы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856275   (1058962) от 01.03.2026
+
+В России раскрыли, когда страна станет независима от глобального интернета
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия достигнет независимости от глобального интернета к 2028 году, сообщили "Газете.Ru" в пресс-службе Российской ассоциации электронных коммуникаций [РАЭК]."Импортозамещение программного обеспечения и оборудования получит дополнительный импульс: по прогнозам, реестр отечественного ПО к 2028 году может насчитывать до 30 тысяч наименований, а доля (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856417   (1058959) от 02.03.2026
+
+В Индонезии проявили интерес к подключению к мессенджеру Max
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индонезии было бы целесообразно рассмотреть возможность подключения к российскому мессенджеру Max в качестве альтернативной цифровой платформы наряду с уже доминирующими сервисами, завил РИА Новости аналитик Центра стратегических и международных исследований Индонезии Исриад Иман."С учетом высокой зависимости Индонезии от ограниченного числа иностранных мессенджеров, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

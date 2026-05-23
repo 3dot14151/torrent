@@ -1,29 +1,3 @@
-###  Публикация: 1743830   (46424) от 18.08.2024
-
-Hidden Through Time 2: Discovery (2024) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Hidden Through Time 2: Discovery - спокойная приятная игра о поиске предметов, где вам предстоит найти тайные сокровища в интерактивных пейзажах, нарисованных вручную. Разожгите искру вдохновения, откройте в себе художника и поделитесь созданными в редакторе шедеврами со всем миром! Погрузитесь в захватывающую атмосферу трех ярких эпох: изящного века викторианской (   Читать дальше...   )Тип издания: SceneРазработчик: RoguesideЖанр: Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28596AD8019E4F93E14B0DE12914D6613133A386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743825   (46421) от 18.08.2024
 
 Arco (2024) [En] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ Arco (2024) [En] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46421.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Just Crow Things / Вредные вороны (2024) [Ru/Multi] (1.0) Scene Ten
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46408.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Berserk Boy (2024) [Ru/Multi] (1.06) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46386.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Regiments (2022) [Ru/Multi] (1.4.0S.1609/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46376.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Abathor (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46345.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Shoulders of Giants: Ultimate (2024) [Multi] (1.9.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46343.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ X Invader (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46315.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Batman: Arkham Asylum (2010) [Ru/En] (1.1) Repack Decepticon [Game of the Year E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46265.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ ICARUS (2021) [Ru/Multi] (2.2.16.125988/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46246.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46245.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Decepticon [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46240.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lifeless Planet (2014) [Ru/Multi] (4.6.7.12281826) Repack Other s [Premier Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46236.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Among the Sleep (2017) [Ru/Multi] (3.1.0.41) Repack Other s [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46217.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Hero's Adventure: Road to Passion (2023) [Multi] (1.2.0813b65/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46216.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Crush House (2024) [Multi] (1.1.9679) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46215.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Tokyo Coffee: Grinding in the Pandemic (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46212.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Bathhouse (2024) [Multi] (1.03) Scene Tenoke [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46208.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Voidness - Lidar Horror Survival Game (2023) [En] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46207.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ UFO Taxi (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46139.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ PARANOID (2023) [Ru/Multi] (10138) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46137.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ In Woods (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46132.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Capes (2024) [Ru/Multi] (1.2.0.0/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46058.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Old School RPG (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46030.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46022.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Delearnia: Fractions of Hope (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46000.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Delearnia: Fractions of Hope - это сюжетная приключенчес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33C683F1B725BAE7922DD8884FDF5FB170714E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744485   (45988) от 22.08.2024
+
+Nightmare Side: The Game (2023) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightmare Side: The Game – как вы смотрите на то, чтобы погрузится с головой в настоящий индонезийский хоррор? В таком случае приготовьтесь посетить радиостанцию, в Бандунге. И ни в коем случае не слушайте ее в одиночку, если, конечно, не хотите пригласить тьму! Еще с 1997 году на радиошоу возникла Nightmare Side и транслируется по сей день. Где рассказываются действительно (   Читать дальше...   )Тип издания: RepackРазработчик: Hige StudioЖанр: Приключенческие игрыЯзык озвучки: ИндонезийскийЯзык субтитров: Английский, ИндонезийскийЯзык интерфейса: Английский, Индонезийский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C7B96E7F6989635A7105CCBD2A90F30DAD7EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

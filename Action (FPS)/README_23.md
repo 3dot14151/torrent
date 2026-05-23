@@ -6,7 +6,7 @@ Ziggurat (2014) [Ru/Multi] (1.0 upd12) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514638.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Quake III Arena (1999) [En] (1.32c) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513547.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alien Rage: Unlimited (2013) [Ru/En] (1.0.9084.0/upd6) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512490.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Battlefield Hardline (2015) [Ru/En] (1.07.15.00/dlc) Repack YelloSOFT [Digital D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512486.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511155.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ eXtinction / Тотальное истребление [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509064.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508618.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Turok [RUS/ENG] 2008 | R.G. Catalyst (VelArt) [Rip]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503453.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.05/dlc) Repack Other s [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501168.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ The Ball / The Ball: Оружие мертвых [Ru] (RePack/1.0.6698.0) 2010 |
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496900.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Uventa (2018) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495351.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Battlestrike: Force of Resistance / Партизаны Второй мирово
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494534.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Condemned: Criminal Origins (2006) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493319.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Arma 3 (2013) [Ru/Multi] (1.94.145.977/dlc) License CODEX [Apex Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492271.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490377.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Typical Nightmare (2018) [Ru/Multi] (1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489460.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Behind These Eyes (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485679.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Thief: Trilogy [Ru/En] (RePack) 1998 - 2004 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484140.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2009) [En] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483639.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Clive Barker's Jericho [Ru/En] (RePack) 2007 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482021.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482009.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Watch This! (2016) [Ru/En] (4.10.4) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480832.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Invention 2 (2016) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480695.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Singularity (2010) [Ru] (1.1) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479466.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477849.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Singularity [Ru/En] (RePack/1.1.0.507821) 2010 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477814.jpg" />
 </div>
 
 

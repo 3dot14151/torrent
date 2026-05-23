@@ -1,29 +1,3 @@
-###  Публикация: 1575024   (378582) от 08.09.2022
-
-BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) BDRip [H.264/1080p] (серии 1-5 из 5)
-
->>След.
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда-то мы думали, что наша Земля уникальна, но теперь мы обнаружили тысячи чужих планет. И это лишь часть существующих миров. Во Вселенной больше звезд, чем песчинок на любой планете Солнечной системы. Среди всей этой необъятности Млечный Путь, наше Солнце и Земля являются домом для единственной известной жизни во Вселенной. Этот пятисерийный фильм перенесет нас (   Читать дальше...   )Производство: Великобритания, США, BBC Studios, NOVAЖанр: документальный, научно-популярный, космосРежиссер: Поппи Пиннок, Клементин Читем, Кейт СелльПеревод: двуголосый профессиональный (СВ-Дубль)Субтитры: русскиеПродолжительность: 5x ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EF40506E09ADF1C2757B4FD92C0A27B7987490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327146   (378358) от 23.09.2019
 
 BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [H.264]
@@ -32,7 +6,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378358.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377379.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377373.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC: Цивилизация / Civilisation (1969) BDRip [H.264/720p-LQ] (Сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372647.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC. В краю муссонов: Народы муссонов / Wonders of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372586.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC: Как преуспеть ... / How to Get Ahead (2014) HDTVRip [H.264/720p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371468.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC: Океанская одиссея / BBC: Deep Ocean (2006) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368330.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ BBC: Голубая планета (Голубая бездна) / The Blue Plan
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366431.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ BBC: Авиакатастрофа в Мюнхене / The Munich Air Disaster (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366049.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365203.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364802.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362461.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359969.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357673.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356141.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ BBC: Мари Тюссо. Восковая легенда / Madame Tussaud: A Le
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353700.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ BBC:Атлантика: Самый необузданный океан на Зе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352889.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Thi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349706.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349700.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346588.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343842.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343119.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342922.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341638.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341002.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:543F4948A7551DEE317ACE848B8642E33533A417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257995   (340511) от 28.10.2018
+
+BBC: Дикая природа Новой Зеландии / Wild New Zealand (New Zealand: Earth's Mythical Islands) (2016) BDRemux [H.264/1080p] [серии 1-3 из 3]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далеко-далеко в Тихом океане лежит страна, отрезанная от остального мира еще со времен динозавров. После 80 миллионов лет изоляции природа пошла своим путем. В этом затерянном мире жизнь играет по другим правилам: пингвины живут в лесу, попугаи купаются в снегу, а вокруг бродят хищники из доисторических времен. Их жизнями управляют самые мощные силы на планете Земля. (   Читать дальше...   )Производство: Великобритания, Германия, BBC Natural History Unit (NHU), NDR Naturfilm, Studio Hamburg DocLightsЖанр: Документальный, природа, флора, фаунаРежиссер: Марк Флауэрс, Роберт Моргенштерн, Ник ИстонПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 3 х 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E556C1F4DB060EABEEB36196FE0F7DA55EA5C9D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1049272   (541595) от 06.09.2016
-
-Citadel (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Citadel - это кооперативная инди игра на выживание с rogue-like элементами, вдохновленная фильмом "Куб".Тип издания: RepackРазработчик: Magisterion, 3DeverЖанр: Action, 3D, 3rd Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99F00FD07C332196D00B70D7DE953421E282A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925365   (541212) от 06.08.2015
 
 Kronville: Stolen Dreams (2015) [En] Unofficial
@@ -32,7 +6,7 @@ Kronville: Stolen Dreams (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541212.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540383.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Morphopolis (2014) [En] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540350.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Nightmares from the Deep: The Cursed Heart (2012) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540346.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Blood Waves (2018) [Ru/En] (0.7) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540090.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dream (2015) [Ru/Multi] (1.0.8767.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539772.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06/dlc) Repack Other s [Gold Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539672.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Xpand Rally Xtreme [Ru] (RePack) 2007 | Skorp1oN
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539596.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Draugen (2019) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539423.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.2.100) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539419.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Zodiac Prophecies. The Serpent Bearer / Пророчество Зодиака. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538944.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Slain: Back From Hell (2016) [En] (5.3.6.15686141) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538565.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Ziggurat (2014) [Ru/Multi] (31.07.2017) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538476.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Enigmatis 3: The Shadow of Karkhala (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538301.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Cursed House 5 / Проклятый дом 5 (2018) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538291.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538201.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Battlezone: Combat Commander (2018) [En/Ge/Fr] (2.0.180) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538195.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Fear for Sale 6: Endless Voyage / Страх на продажу 6: Призра
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538022.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Labyrinths of the World 9: Lost Island / Лабиринты мира 9: Зате
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537928.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Midnight Mysteries 4: Haunted Houdini / Тайны прошлого 4: Зага�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537926.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Don't Escape: 4 Days to Survive (2019) [En] (1.0.1) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537798.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537666.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Prototype Дилогия [Ru/En] (RePack) 2009-2012 | VANSIK
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537635.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Whispered Secrets 4: Golden Silence (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537195.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Shadowplay 2. Whispers of the Past Collectors Edition (2017) [En] (1.0) Unoffici
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537071.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Shadowplay 2. Whispers of the Past Collectors Edition (2017) [En] (1.0) Unoffici
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F49A0BF31AC8CC26EFB9057877D5A9D2EB46205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155069   (537069) от 01.08.2017
+
+Myths of the World 11: The Black Sun (2017) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной мистической серии игр Myths of the World. На этот раз в городе начались беспорядки из-за ожившей статуи гигантской ящерицы, которая теперь способна превращать людей в камень. Командор вашего родного города пропал без вести, и вас призвали провести расследование. Странное создание перед исчезновением превратило вашего отца в камень. Это гонка (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5D674C2158867BC702E0E34829E7CA2D02E1E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

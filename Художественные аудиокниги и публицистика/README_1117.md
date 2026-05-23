@@ -1,83 +1,3 @@
-###  Публикация: 1813890   (6436) от 22.08.2025
-
-Александр Тенгриханов | Режиссер Советского Союза. (Книги 1-8). (2023-2025) [MP3, Алексей Воскобойников, Мирослав Велесов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Возможно ли снять такой фильм, который не будет уступать современным, но сделать это в 1966 году? Волей провидения или высших сил Алексей Мещеряков оказался в прошлом. За окном 1966 год и совершенно иная жизнь. Более того, у него теперь есть семья и дети. А еще перед нашим героем стоит задача снять популярный фильм не хуже, чем у современников. Сможет ли Алексей (   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: ЛитРесПродолжительность: 79:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2F5C2206DB3C6E6BAF6B55CA19AF33E935171D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813766   (6433) от 22.08.2025
-
-Роман Злотников, Даниил Калинин | Князь Фёдор. Злая Русь 2. (Книга 3). Меч Тамерлана (2025) [MP3, Макс Радман]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лето 1382 года. Зимний удар русичей обернулся полным успехом - и теперь уже Тохтамыш боится за свою столицу. В Сарае ждут ответного удара ушкуйников!
-Но Тохтамыш стал ханом с помощью эмира Тамерлана... А развивая Туран, Темир-Аксак имеет свои цели на севере - и потому раз за разом помогает ставленнику-чингизиду в его войнах.
-Вот и теперь хан Тохтамыш бежал в Самарканд (   Читать дальше...   )Жанр: Фантастика, попаданцы, боевикИздательство: АСТПродолжительность: 07:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D81A635DF7BBDD519FA2FBAF530F2A8A45734A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813880   (6430) от 22.08.2025
-
-Алексей Осадчук | Последняя жизнь (Книга 7). Закон силы (2025) [MP3, Влад Римский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В седьмой книге Макс Ренар все ближе к цели. У него уже достаточно войска, чтобы контролировать свои новые земли. Но герой просчитывает будущее и понимает, что если не остановить войска Золотого Льва, которые окружили остатки армии герцога де Клемона, то легионы неприятеля двинутся дальше. Лучше ударить сейчас и уничтожить угрозу. Слушайте новую аудиокнигу цикла!Жанр: Фэнтези, приключения, попаданцыИздательство: 1С-ПаблишингПродолжительность: 07:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D0195C412FC78766C5C93D64F5B150D7F2461D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813896   (6429) от 22.08.2025
 
 Маргит Сандему | Сага о людях льда. (Книги 1-25). (2020-2025) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6429.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6428.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6427.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6424.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6423.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6421.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6418.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6417.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6412.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6411.jpg" />
 </div>
 
 
@@ -352,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6410.jpg" />
 </div>
 
 
@@ -378,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6408.jpg" />
 </div>
 
 
@@ -404,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6407.jpg" />
 </div>
 
 
@@ -432,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6405.jpg" />
 </div>
 
 
@@ -459,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6403.jpg" />
 </div>
 
 
@@ -485,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6402.jpg" />
 </div>
 
 
@@ -511,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6401.jpg" />
 </div>
 
 
@@ -538,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6400.jpg" />
 </div>
 
 
@@ -564,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6398.jpg" />
 </div>
 
 
@@ -590,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6393.jpg" />
 </div>
 
 
@@ -617,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6391.jpg" />
 </div>
 
 
@@ -643,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6306.jpg" />
 </div>
 
 
@@ -669,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6303.jpg" />
 </div>
 
 
@@ -680,6 +600,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7446E91893C27EF0C537E006AAED2E27683F969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814201   (6290) от 23.08.2025
+
+Исаак Бабель | Как это делалось в Одессе (Радиоспектакль) (2006) [MP3, Евгений Князев, Лев Дуров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исаак Эммануилович Бабель (1894–1940) – писатель, журналист и драматург, известный своими «Одесскими рассказами» и сборником «Конармия».
+А вы таки знаете, что тот самый Максим Горький дал Исааку Бабелю  дельный совет «идти в люди и набираться жизненных впечатлений», и он их очень даже прилично набрался? И его одесские рассказы, откуда, между нами, мы и почерпнули (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: СиДиКомПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16C6D8B70F0A7A65B79346C042A08523CE22545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814174   (6289) от 23.08.2025
+
+Дмитрий Ра | Имперский вор (Книга 2) (2025) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я – старший инквизитор Ордена по Контролю за Божественной Деятельностью. Я попал в ловушку, но смог сбежать, переродившись в отдалённом мире. Напоследок даже украл нечто ценное. Вот только рано или поздно враги найдут меня, чтобы забрать своё и закончить дело… Время против меня. Мир, в который я попал, оказался даже опаснее, чем те, кто преследует меня. Единственные (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 08:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A751F3857D3A4C0A0BB7CBCBE736C9257D2ED3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814203   (6287) от 23.08.2025
+
+Исаак Бабель | Одесские рассказы (2006) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Предлагаем вашему вниманию аудиокнигу с произведениями Исаака Эммануиловича Бабеля (1894–1940) – русского писателя, недооценённого своим временем. Причудливое своеобразие его таланта смогли осознать критики и читатели, уже прошедшие сквозь горнило российской истории XX века. «Он ни на кого не был похож, и никто не мог походить на него», (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 06:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E5BA6A94602D1271AFFD96DEDEF42563E91C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

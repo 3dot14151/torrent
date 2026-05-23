@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607938.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Smart Defrag Pro 5.2.0.854 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607934.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HDCleaner 2.026 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607819.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Photoshop Lightroom CC 2015.6.1 (6.6.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607778.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HyperSnap 7.17.00 [Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607728.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ScrollNavigator 5.7.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607715.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Stellarium 0.90.0.9601 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607712.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Apple Safari 5.0.1 (7533.17.8) [Многоязычный (в т.ч. Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607691.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607685.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ CoolUtils Total Doc Converter 5.1.0.167 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607625.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Display Driver Uninstaller 17.0.6.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607607.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ O&O DiskImage Professional 17.4 Build 471 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607565.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ EarthView 6.17.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607546.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ NETGATE Registry Cleaner 4.0.305.0 + RePack + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607504.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Beyond Compare Pro 4.4.2.26348 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607451.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ K-Lite Codec Pack 13.3.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607354.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ EZ CD Audio Converter 6.0.8.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607353.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607346.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ O&O SafeErase 5 Professional Edition 5.8 Build 899 (x86/x64) + Portable by fishe
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607340.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Gtopala SIW (System Information for Windows) 2017 7.3.0629a Technician Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607276.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Foxit Reader 8.3.1.21155 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607273.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ RemDisk&DOC 07.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607158.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Dropbox 3.6.8 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607139.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ GPU Caps Viewer 1.24.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607087.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Boilsoft Video Joiner 6.57.12 / Video Splitter 6.34.10 [Eng+Rus] + Portable by B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607075.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Arturia - V Collection 2012 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607066.jpg" />
 </div>
 
 

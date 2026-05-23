@@ -6,7 +6,7 @@ Win Movie Maker 2024 9.9.9.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62770.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Image Uploader 1.4.0 Build 5136 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62762.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ungoogled Chromium 122.0.6261.111-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62761.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lucky Patcher 11.2.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62760.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wondershare Recoverit for Mac 12.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62759.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TikTok 33.8.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.29 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62749.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62740.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ OCCT 12.1.17 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62739.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Unlocker 1.0.1 Portable by Eject [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62738.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WinRAR 7.00 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62734.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (17.03.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62704.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ CorelDRAW Technical Suite 2024 25.0.0.230 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62699.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ ASUS GPU Tweak III 1.7.5.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62672.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Office Installer & Office Installer+ 1.06 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62663.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Adobe Photoshop Express 13.1.372 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62655.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ FanControl V184 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62653.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ DesktopDigitalClock 5.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62652.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ AIDA64 2.00 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62647.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Shazam 14.16.0-240308 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62646.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MiniOS (все редакции) v3.3.3 [amd64, i386] 10xCD [RU]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62600.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Spotify 1.2.32.997 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62592.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Chromium-Gost 122.0.6261.128 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62588.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AOMEI Backupper Technician Plus 7.3.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62581.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ TikTok 33.9.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.30 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62563.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Topaz Gigapixel AI 7.0.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62556.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Oracle Linux 9.3 [x64] 3xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62555.jpg" />
 </div>
 
 

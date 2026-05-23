@@ -1,29 +1,3 @@
-###  Публикация: 1838068   (257752) от 20.11.2025
-
-Intravenous 2 (2024) [Ru/Multi] (1.4.6HF2/dlc) Repack Necros
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Intravenous 2 - это уникальное сочетание тактического геймплея и увлекательного повествования. Добро пожаловать в мир Intravenous 2. Здесь вы возьмете на себя роль Шона и Стива - необычного дуэта с единой миссией: спасти свои жизни, разобравшись с противниками. Ваши решения определят ваш путь в этом мире олдскульных стелс экшнов, жестких тактических перестрелок и (   Читать дальше...   )Тип издания: RepackРазработчик: Explosive Squat GamesЖанр: Экшены, Приключенческие игры, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF3502A601EBE0EA4719C2CD972239F7C41093C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838075   (257749) от 20.11.2025
 
 Wall World 2 (2025) [Ru/Multi] (1.0.8.351) Repack Let'sРlay
@@ -32,7 +6,7 @@ Wall World 2 (2025) [Ru/Multi] (1.0.8.351) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257749.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Planet Crafter (2024) [Ru/Multi] (1.609/dlc) Repack Necros [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257748.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257746.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Wan
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257695.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ F-19 Stealth Fighter (1988) [En] (435.04) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257642.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257626.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257623.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257620.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Peglin (2024) [Ru/Multi] (1.1.23) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257619.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Europa Universalis V (2025) [Ru/Multi] (1.0.6/dlc) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257617.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.4.0#840/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257615.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257614.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257599.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Barotrauma (2023) [Ru/Multi] (1.10.7.2/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257529.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ CarX Street (2024) [Ru/Multi] (1.9.1/dlc) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257506.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20708995) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257499.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257498.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ How To Frazzle Out A Neighbor Tycoon's Vacation  / Как достать сос�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257331.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Amazing Adventures 5: Riddle of the Two Knights (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257242.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Resident Evil: Operation Raccoon City + 6 DLC [Ru] (RePack/1.2.1803.128u1) 2012 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257081.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Star Wars: XJedi Academy (P) [En] 2010
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257028.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Top Secret Finders / СверхОсобый СпецОтдел (P) [Ru] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256992.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Inspector Magnusson: Murder on the Titanic / Инспектор Магнуссо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256977.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ STAR WARS: Squadrons (2020) [Ru/Multi] (1.0.10.39591) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256824.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Supermarket Simulator (2025) [Ru/Multi] (1.1.7) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256823.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Supermarket Simulator (2025) [Ru/Multi] (1.1.7) Repack Necros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:860BFBD080EA2DA6BC536ABD471E70D1B9B9F579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837259   (256820) от 15.11.2025
+
+Zoochosis (2024) [Ru/Multi] (2.2.3) Repack Necros
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoochosis - это бодикам хоррор-симулятор. Ты - ночной смотритель зоопарка. Определи зараженных животных-мутантов, изготовь вакцину и вылечи их. Успеешь ли ты спасти их всех и выжить?Тип издания: RepackРазработчик: ClapperheadsЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3514D5A5402733C62182F01E9FFB18A80B00135
 ```
 
 https://mybot314.ru/tekegram_catalog/

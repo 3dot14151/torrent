@@ -1,29 +1,3 @@
-###  Публикация: 1095575   (923993) от 21.01.2017
-
-Yesterday Origins (2016) [Ru/Multi] (1.0/u7) SteamRip Let'sPlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя новейшее приключение от Pendulo Studios, создателей серии Runaway! 1481. Юного Джона унижают и публично тащат по улице. Он обвинен в колдовстве испанской инквизицией и брошен в тюрьму, где его подвергнут пыткам. Позже с ним произойдет алхимическая трансмутация, благодаря которой он обретет бессмертие.Тип издания: SteamRipРазработчик: Pendulo StudiosЖанр: Violent, AdventureЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84815534D313BD34CB2DB8D5CDF5859F14985F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095637   (923968) от 21.01.2017
 
 Gardens Inc. 3: A Bridal Pursuit Collector's Edition / Все в сад 3. Свадебная гонка. Коллекционное издание (2015) [Ru] (1.0) Unofficial
@@ -32,7 +6,7 @@ Gardens Inc. 3: A Bridal Pursuit Collector's Edition / Все в сад 3. Св�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923968.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923851.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Shantae: Half-Genie Hero (2016) [Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923847.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Endless Legend (2014) [Multi] (1.5.12/dlc) SteamRip R.G. Игроманы [Emper
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923833.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Guild of Dungeoneering (2015) [En] (1.06) SteamRip Let'sРlay [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923754.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Street Fighter V (2016) [Ru/Multi] License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923751.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ UFO: Alien Invasion (2007) [Ru/Multi] (2.5) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923736.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Road Fist (2017) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923688.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Stars in Shadow (2017) [En] (010917) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923660.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.6/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923365.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923306.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wonderburg / Вандербур (2009) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922079.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Jewel Keepers: Easter Island / Хранители сокровищ: остров
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921989.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921934.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Hard Reset Redux (2016) [Ru/En] (1.1.3.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921928.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dark City 4: Dublin (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921867.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ DeadTruth: The Dark Path Ahead (2017) [En] (1.0) License PLAZA [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921794.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Devotion (2019) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921603.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.07) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921415.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Entwined. Strings of Deception / Запутанное дело. Нити лжи 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920414.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Uncertain: Episode 1 - The Last Quiet Day / The Uncertain: Эпизод 1 - 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920210.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Quadrant (2015-2017) [Ru/Multi] (1.53) License POSTMORTEM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920156.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.06/dlc) Repack R.G. Механик�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920153.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920113.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_94) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919942.jpg" />
 </div>
 
 
@@ -667,6 +641,33 @@ Greak: Memories of Azur — это сайд-скроллер для одного
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C72ADA065006E48A05E7C5A6C88496C25BF1FB85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289282   (919925) от 30.01.2011
+
+Reel Deal Slots Adventure III World Tour (L) [En] 2011
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игрушка от "Phantom EFX"! Теперь мы попадем на мировой тур! Увидим множество красивых мест, а также новые игровые автоматы, разработанные по новой системе! Так давайте же начнем! Всем удачи!
+.Тип издания: ЛицензияЖанр: 3D / Casino / ArcadeЯзык озвучки: АнлийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

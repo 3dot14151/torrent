@@ -1,29 +1,3 @@
-###  Публикация: 1396392   (746533) от 15.07.2020
-
-Царство мумий / Kingdom of the Mummies (2020) WEB-DL [H.264/1080p] (серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В тени древнейших в мире пирамид группа археологов во главе с доктором Рамаданом Хусейном совершила открытие всей своей жизни, найдя прекрасно сохранившийся погребальный комплекс, скрытый под толщей песка. Этот комплекс, наполненный сокровищами и невероятными находками, способен переписать историю мумификации, открыв перед археологами секреты времен фараонов. Теперь (   Читать дальше...   )Производство: Великобритания, BBC Studios, National Geographic ChannelЖанр: Документальный, история, археология, египтологияРежиссер: Джеймс Лавель, Бьянка ЗамфираПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: Английские, английские (hardsub - на арабскую речь)Продолжительность: 4 x ~00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78292B1B530518023A96723845F552E7D430FAED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524201   (746254) от 14.01.2022
 
 Самый холодный марафон с Джеймсом Крэкнеллом / Coldest Race on Earth with James Cracknell (2011) WEB-DL [H.264/1080p]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746254.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746250.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745900.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NGW: Смертоносная Африка. Побережья / Africa's Deadly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745230.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Discovery. Легендарные места / Legendary Locations (2018) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745168.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Animal Planet: Животный мир Дубая / Wild Dubai (2018) HDTVRip [H
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745154.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745130.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 и
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745124.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743873.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ BBC: История возникновения лекарств / BBC: Pain, Pus
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743450.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743334.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743238.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743216.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ BBC: Тайны тёмной энергии / BBC: The Mysteries of Dark Energy 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743206.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742489.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ BBC: Чудеса живой природы / Nature's Great Events (2005) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742281.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742061.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Discovery: Природа Ближнего Востока / Wildest Middle East 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742029.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Animal Planet: Загадочные животные острова Джао / T
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741938.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ BBC: Мир природы - Горы тропических дождей  / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740912.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740833.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Discovery: Разгневанная планета (Бушующая плане�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740647.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740309.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740094.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739593.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C390AE8396559FF1593805FB8D1BA544A138E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283256   (739591) от 17.02.2019
+
+Animal Planet: Дом для рептилий. Террариум в балийском стиле / Scaled (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: мммПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CD864E0E2AC0452F5E6378B54911F0EC3DC61B
 ```
 
 https://mybot314.ru/tekegram_catalog/

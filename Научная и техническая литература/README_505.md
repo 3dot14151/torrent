@@ -1,135 +1,3 @@
-###  Публикация: 1548175   (237991) от 02.05.2022
-
-Redman Stuart | English Vocabulary in Use. Pre-intermediate and Intermediate (2017) [PDF] [4th Edition: Book with Answers | Including MP3] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Слова, которые нужны вам, чтобы общаться уверенно.
-Словарные статьи и упражнения для изучающих английский язык с уровнем Pre-Intermediate и Intermediate (B1). Книга отлично подходит как для самостоятельного обучения, так и для занятий в классе. Расширяйте свой словарный запас с легкостью, изучая 100 глав, которые содержат доступные толкования слов и тренировочные (   Читать дальше...   )Жанр: ОбразованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203021F76303984FC59CE76F6F670A136904F7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547620   (237985) от 02.05.2022
-
-Antonia Clare, J. J. Wilson | Speak Out 2nd Intermediate (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.Жанр: ОбразованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A47ABB7E077D0A289AE8E26FEAE071E78551A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546890   (237882) от 02.05.2022
-
-Сборник | Изучение иностранных языков по естественному методу [327 книги] (1736-2020) [DJVU, PDF, EPUB] [Дополнительно аудиоматериалы] [EN, DE, FR, ES, IT, RU, LA, GR]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Существует множество методов и методик изучения иностранных языков. Традиционный подход подразумевает изучаение грамматики, выполнение упражнений, переводов, что больше напоминает изучение лингвистики, а не языка. Однако, существует и другой, более естественный (Natural) метод обучения, который иногда еще называется прямым (Direct). Он был разработан около 1900 года, (   Читать дальше...   )Жанр: Учебная, Языкознание, СловариФормат: DJVU, PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859BF3F304A9A3FF4778A8631F6F823319E25993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639837   (237825) от 15.06.2023
-
-М.И. Шахпаронов | Механизмы быстрых процессов в жидкостях (1980) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-В книге излагаются теоретические основы методов изучения кинетики и механизмов быстрых и сверхбыстрых процессов, протекающих в жидкостях. Теоретические положения иллюстрируются примерами.
-Книга содержит ряд оригинальных разработок и приложений.Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0626268E18602EE36077B5F496C8CB7D6005FA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546895   (237672) от 03.05.2022
-
-Сборник | Подборка атласов по истории [171 книга] (1885-2020) [DJVU, PDF, EPUB, JPG, BMP] [RU, EN, PL, BE]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Обширная подборка исторических атласов: от школьных и детских до узкоспециализированных. Атласы посвящены как отдельным историческим эпохам, континентам, странам, так и всей истории мира в целом. Взято с сайта b-ok.cc.Жанр: Карты, атласыФормат: DJVU, PDF, EPUB, JPG, BMP, DOCX, AZW3, CHM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EC82C8B1DB3069617AE21FB9785C254865C223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629018   (237526) от 28.04.2023
 
 Николаас Витсен | Северная и Восточная Тартария, включающая области, расположенные в северной и восточной частях Европы и Азии [3 тома + CD] (2010) [PDF, DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237526.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237513.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237474.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237468.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237380.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237316.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237235.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Upper-Intermediat
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237161.jpg" />
 </div>
 
 
@@ -348,7 +216,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Elementary (2017)
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237084.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236819.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Pre-intermediate (2015) [PDF] [Stude
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236740.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Advanced Plus (2019) [PDF] [Student'
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236721.jpg" />
 </div>
 
 
@@ -456,7 +324,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Starter (2015) [PDF] [Student's book
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236703.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Elementary (2015) [PDF] [Student's b
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236686.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236013.jpg" />
 </div>
 
 
@@ -538,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235961.jpg" />
 </div>
 
 
@@ -567,7 +435,7 @@ Leigh Neville | The SAS 1983–2014 (2016) [EPUB, PDF] [Elite #211] [EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235408.jpg" />
 </div>
 
 
@@ -593,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235341.jpg" />
 </div>
 
 
@@ -619,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235309.jpg" />
 </div>
 
 
@@ -646,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235165.jpg" />
 </div>
 
 
@@ -675,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235076.jpg" />
 </div>
 
 
@@ -686,6 +554,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B595391593AF186A07DD20E43DA0799E05D26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631998   (234915) от 12.05.2023
+
+Павел Прыгунов | Психологическое обеспечение специальных операций. Ролевое поведение (2003) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана практическим психологом, имеющим значительный опыт работы в органах внутренних дел. Автором сделана попытка раскрыть особенности психологического обеспечения оперативно-розыскной деятельности сотрудников милиции при непосредственном участии штатного психолога. Книга будет полезна студентам - будущим юристам и психологам, а также всем, кто намерен применить (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8BB7C0D86B031144D103675DBF810C83E33C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643020   (234910) от 30.06.2023
+
+Л. А. Новицкий, И. Г. Кожевников | Теплофизические свойства материалов при низких температурах. Справочник (2 издание) (1982) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234910.jpg" />
+</div>
+
+
+###  Подробнее
+
+В справочнике приведены основные теплофизические характеристики конструкционных и специальных металлов и сплавов, оптических, полупроводниковых, строительных, теплоизоляционных и других материалов, применяемых в машино- и приборостроении, криогенной технике, для диапазона температур от  до 300 К. Во второе издание внесено много новых данных как по металлическим (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E07BD27327A0C5269416BB555A284B653A3CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632819   (234889) от 12.05.2023
+
+Т.С. Громыко | Электрические аппараты. Лабораторный практикум (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит рекомендации по выполнению практических и лабораторных работ по учебной дисциплине «Электрические аппараты». Выполнение практических и лабораторных работ содействует углубленному изучению учащимися учебной дисциплины, формированию практических навыков сборки электрических схем для проверки и настройки аппаратов, испытания схем, использования (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB684C40A845258294FC7A0550264F923B79EA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632868   (234819) от 12.05.2023
+
+В.Ю. Кара-Ушанов | SQL - язык реляционных баз данных (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие предназначено для студентов, изучающих в дисциплинах «Базы данных» и «Управление данными» языковые и программные средства создания баз данных и манипулирования данными.
+Рассматривается реляционная модель данных. Приводятся содержательные определения основных понятий из области проектирования реляционных баз данных. Язык SQL изучается на примере версии (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6135102A866D3984B1D7A765A4FCDE79589319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643336   (234716) от 01.07.2023
+
+М.И. Деркач, Ю.Е. Обжерин | Математические олимпиады студентов технических вузов (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234716.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебное пособие включены задачи, которые предлагались на заключительном этапе олимпиады по математике среди студентов технических, экономических и сельскохозяйственных вузов, проводившемся в 2005-2013 годах в Севастопольском национальном техническом университете. Все задачи снабжены ответами и решениями. По уровню сложности задачи варьируются от доступных для широкого (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4BE45923EAE2745002E5B80AC3862B43A48D38
 ```
 
 https://mybot314.ru/tekegram_catalog/

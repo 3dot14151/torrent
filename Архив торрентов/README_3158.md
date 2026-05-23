@@ -6,7 +6,7 @@ MAGIX SOUND FORGE Audio Studio 16.1.0.47 (x86/x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352056.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rainmeter 4.5.15 Build 3678 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352043.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v10.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352042.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Path Finder 8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351998.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ QuickRes 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351992.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Tweak Photos 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351991.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ iVI Video Converter 4 v4.620 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351990.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ ProPresenter 6 v6.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351988.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Comodo Dragon 69.0.3497.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351987.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Essencia Vol.2 (Compiled By Digital-X) (2018) [MP3|320 Kbps] <Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351985.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Blasted Note (2018) [MP3|320 Kbps] <Psytrance >
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351984.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ California Sunshine - Bicycle Tune (2018) [MP3|320 Kbps] <Psytrance, Progressive
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351983.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Comedy Woman (04.10.2019) WEB-DLRip (сезон 9, выпуск 5)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351969.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351905.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351903.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ WM Recorder 16.7.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351899.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Grids for Instagram 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351890.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Paint.NET 4.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351889.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Things 3.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351882.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ iZotope - Ozone 9 Advanced 9.0.1 STANDALONE, VST, VST3, AAX (x64) RePack by R2R 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351876.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Teorex Inpaint 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351871.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ akaEasyMoney 1.0.3 Portable [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351836.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Stand Up (2016.11.13) SATRip (сезон 5, выпуск 6)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351822.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VideoPad Professional 4.48 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351821.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Blue Cat's All Plug-Ins Pack (v.2018.10.2) VST, VST3, RTAS, AAX RePack by VR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351816.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Mirror for LG TV 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351815.jpg" />
 </div>
 
 

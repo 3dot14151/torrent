@@ -1,55 +1,3 @@
-###  Публикация: 1252385   (408914) от 05.10.2018
-
-Невероятные приключения Факира / The Extraordinary Journey of the Fakir (2018) BDRip [H.264/1080p] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если любовь не стучится в дверь, самое время поискать её на другом конце света. Когда нашел — не потерять. А если потерял — вернуть любой ценой. Пускай для этого придется путешествовать в шкафу, на лодке, на воздушном шаре или даже в чемодане. Мумбаи-Париж-Лондон-Рим — если у чувств нет границ, то и бизнес-класс им не нужен.Производство: Франция, США, Бельгия, Сингапур, Индия / Brio Films, Scope PicturesЖанр: Комедия, ПриключенияРежиссер: Кен СкоттАктеры: Дхануш, Беренис Бежо, Эрин Мориарти, Баркхад Абди, Жерар Жюньо, Бен Миллер, Абель Жафри, Сара-Джинн Лабросс, Кай Грейданус, Амрута СентПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28964D7C4FC4A663B1148999D3AA8839ECDBCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252370   (408913) от 05.10.2018
-
-Аризона / Arizona (2018) BDRip [H.264/1080p] [MVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кесси, агент по продаже недвижимости и мать-одиночка, пытается справиться с жилищным кризисом 2009 года. Ситуация только ухудшается, когда в ее жизнь врывается недовольный клиент Сонни, чьи действия приносят только разрушение и смерть.Производство: США / Imperative Entertainment, Rough House PicturesЖанр: триллер, комедия, криминалРежиссер: Джонатан УотсонАктеры: Кэйтлин Олсон, Сет Роген, Элизабет Гиллис, Розмари ДеУитт, Дэнни МакБрайд, Люк Уилсон, Дэвид Алан Грир, Джейд Каммерман, Лолли Соренсон, Трэвис ХаммерПеревод: многоголосый закадровый (HDrezka Studio)Субтитры: АнглийскиеПродолжительность: 01:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D98370EBA2C467EFC1EE5DBBBB6B1E61C05E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252420   (408906) от 05.10.2018
 
 Темный рыцарь / The Dark Knight (2008) BDRip [H.265/1080p-LQ] [10-bit] [IMAX]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408906.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408902.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408898.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408614.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408528.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408525.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408517.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408515.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408462.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408421.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408420.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408419.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408416.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408415.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408407.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408339.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408317.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408301.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408298.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408288.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408283.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408276.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408188.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408088.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8EC7376AE580BC9DD15517F66DF86F120ABB46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407644   (408082) от 04.10.2020
+
+Выскочка / Election (1999) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая война развернулась между самой активной и нахальной ученицей школы Харвер Хай Трэйси Флик и ее учителем Джимом МакАлистером. Выскочка Трэйси хочет во что бы то ни стало быть избранной президентом школьного совета, а мистер МакАлистер, зная вероломный и склочный характер Флик, готов пойти на все, чтобы этого не случилось. К сожалению, мистер МакАлистер даже (   Читать дальше...   )Производство: США / Bona Fide Productions, MTV Films, Paramount PicturesЖанр: Драма, мелодрама, комедияРежиссер: Александр ПэйнАктеры: Мэттью Бродерик, Риз Уизерспун, Крис Клейн, Джессика Кэмпбелл, Марк Харелик, Фил Ривз, Молли Хэйгэн, Дэлани Дрисколл, Коллин Кэмп, Мэтт Мэллой, Джанин Джексон, Холмс Осборн, Фрэнки ИнграссиаПеревод: Профессиональный двухголосый, профессиональный многоголосыйСубтитры: Русские, английские, французские, испанские, португальские, ивритПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257E5DD799EDDC8804710CCB9D59D5E68DF57183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413511   (408080) от 04.10.2020
+
+Госфорд парк / Gosford Park (2001) BDRip [H.264/1080p] [Remastered]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408080.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пасмурный ноябрьский день 1932 года в имении сэра Уильяма МакКордала, поместьи "Госфорд Парк", собираются гости: родственники и друзья, аристократы и знаменитости. Посетители сэра Уильяма намереваются провести несколько дней, наслаждаясь роскошью жилища, отдав привычную дань изысканному чревоугодию и великосветским ритуалам. Все готово к очередному шикарному (   Читать дальше...   )Производство: США, Великобритания, Италия, Capitol Films, Chicagofilms, Film Council, Medusa Produzione, Sandcastle 5 Productions, USA FilmsЖанр: детектив, драма, комедия, криминалРежиссер: Роберт ОлтменАктеры: Келли Макдоналд, Эмили Уотсон, Кристин Скотт Томас, Майкл Гэмбон, Клайв Оуэн, Хелен Миррен, Райан Филипп, Мэгги Смит, Ричард Э. Грант, Айлин АткинсПеревод: Многоголосый профессиональный, двухголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C9CAA95F206BE4C1B156120B6BF81EE96016F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

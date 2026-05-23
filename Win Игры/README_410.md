@@ -1,29 +1,3 @@
-###  Публикация: 1710779   (61538) от 28.03.2024
-
-Raw Metal (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Проникните в центр горнодобывающего предприятия чужой планеты, чтобы спасти оборудование и противостоять нечестной транснациональной корпорации. Используйте инструменты и технику по максимуму в напряженных миссиях с применением маскировки и кинжала, оттачивая свои боевые способности в стремительных сражениях в этой современной ролевой игре, ориентированной на скрытность. (   Читать дальше...   )Тип издания: RepackРазработчик: Team CrucibleЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BC3321B59AECAAE0D01B183749B25395AAD794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711291   (61470) от 29.03.2024
 
 The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack Other s [Digital Deluxe Edition]
@@ -32,7 +6,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack Other s [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61470.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61442.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ ONE PIECE: PIRATE WARRIORS 4 (2020) [Ru/Multi] (1.0.8.0/dlc) Scene Rune [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61440.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Silverwood Bay: An Eleanor Grey Mystery (2024) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61388.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61370.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ STAR WARS: Battlefront Classic Collection (2024) [Ru/Multi] (20240319/dlc) Repac
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61367.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Strange Horticulture (2022) [Ru/Multi] (1.1.26) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61359.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ STAR WARS: Dark Forces Remaster (2024) [Ru/En] (1.0.1308.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61352.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61342.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61340.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ CD 2: Trap Master (2024) [Ru/Multi] (13869660) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61330.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61304.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61303.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61295.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Chef Life: A Restaurant Simulator (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61284.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61280.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Scene SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61276.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ PJ Masks Power Heroes: Mighty Alliance (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61273.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Three Kingdoms Zhao Yun (2024) [Multi] (1.1.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61263.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack FitGirl [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61242.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (2.7.6/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61238.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61236.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61228.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Immortal Mayor (2023) [Multi] (1.0.14/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61221.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61218.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE910330D67C883EDF9A3C846E815C8989317A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711792   (61214) от 31.03.2024
+
+Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outcast - A New Beginning – это продолжение знаменитого экшена, который фактически положил начало приключенческим играм с открытым миром. Прошло около 20 лет с момента выхода первой части, но изменения получили только графическая составляющая и сюжет. Разработчики постарались вложить максимум в развитие все той же вселенной и уникального мира, дополняя его и совершенствуя.Тип издания: RepackРазработчик: Appeal StudiosЖанр: Action, Adventure, RPG, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
 ```
 
 https://mybot314.ru/tekegram_catalog/

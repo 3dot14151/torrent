@@ -6,7 +6,7 @@ Opera 69.0.3686.77 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746762.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 84.0.4147.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746755.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 84.0.4147.89 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746750.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Android Studio 4.0.1 Build #AI-193.6911.18.40.6626763 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746649.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Foundry Modo 14.0v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746646.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Flash Player 32.0.0.403 (Adobe Runtimes AllInOne 14.07.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746643.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Best Service - Halls of Fame 3 Complete Edition 3.1.7 VST, VST3, AAX (x86/x64) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746619.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Auslogics BoostSpeed 10.0.22.0 DC 30.01.2019 RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746543.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746534.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VirtualBox 6.1.12 Build 139181 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746527.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ SideFx Houdini FX 18.0.499 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746526.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ GridinSoft Anti-Malware 4.1.53.4986 RePack & Portable by 9649 (14.07.2020) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746524.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Total Commander 9.51 64bit 32bit VIM 40 Portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746523.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Mozilla FireFox 96.0.1.8048 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746514.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Acoustica Premium Edition 7.3.24 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746508.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Files Inspector Pro 3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746504.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AdwCleaner 5.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746502.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Calibre 3.39.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746422.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Q-Dir 7.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746419.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Adobe Bridge 2020 10.1.1.166 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746418.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Basilisk 2019.02.11 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746414.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ IDPhotoStudio + Portable 2.15.3.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746410.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CorelDRAW Graphics Suite 2020 22.1.0.517 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746402.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ EZ CD Audio Converter 9.5.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746379.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746376.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ FXSound Pro 1.1.13.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746371.jpg" />
 </div>
 
 

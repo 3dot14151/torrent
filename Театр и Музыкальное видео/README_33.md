@@ -1,111 +1,3 @@
-###  Публикация: 302073   (866889) от 01.03.2011
-
-Кипелов - Жить вопреки (Бонус-DVD) (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка / Heavy MetalПродолжительность: интервью: 00:37:53
-фотогалерея: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D8F662B568624635B918850F994158FEC493DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998921   (865722) от 21.03.2016
-
-Сплин - Сигнал Из Космоса (Концерт в ДК им. Горбунова) (02.04.2010) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Группа "Сплин" в представлении не нуждается. Уже легенда, еще не ветераны. В их песнях нет дидактики. Они ничему не учат, не наставляют и не заставляют. Они напрочь лишены морали в общепринятом значении этого слова. Новый материал на каждом концерте. Новый состав - новые люди. В каком настроении выйдет на сцену Александр Васильев - всякий раз неизвестно, (   Читать дальше...   )01. Выхода нет
-02. Шато Марго
-03. Добро пожаловать!
-04. Чердак(   Читать дальше...   )Производство: Первый каналЖанр: Музыка, КонцертРежиссер: Первый каналАктеры: Александр Васильев, Алексей Мещеряков, Дмитрий Кунин, Вадим Сергеев, Николай РостовскийПродолжительность: 01:02:10Реклама: в отдельных кадрах присутствует реклама (бегущая строка)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC926C136D32608A6E5CFFE180A7F2D3B6E3CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645345   (865656) от 18.04.2013
-
-Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro, HouseПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B90B65B3D284017ED3A9B93B23A39308BFAE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645347   (865575) от 18.04.2013
-
-2 Chainz ft. Lil Wayne - Yuck (Uncensored) (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB35F510CB7C5E1D1FFF3C6078CFF11D59F8B300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 189176   (864656) от 04.04.2010
 
 A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
@@ -114,7 +6,7 @@ A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864656.jpg" />
 </div>
 
 
@@ -143,7 +35,7 @@ We Blame The Empire - Updraft (2020) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863867.jpg" />
 </div>
 
 
@@ -169,7 +61,7 @@ Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863763.jpg" />
 </div>
 
 
@@ -196,7 +88,7 @@ Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863761.jpg" />
 </div>
 
 
@@ -225,7 +117,7 @@ Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863609.jpg" />
 </div>
 
 
@@ -254,7 +146,7 @@ Mike Oldfield - Tubular Bells II and III Live (1999) 2*DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863578.jpg" />
 </div>
 
 
@@ -280,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863534.jpg" />
 </div>
 
 
@@ -306,7 +198,7 @@ Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863376.jpg" />
 </div>
 
 
@@ -335,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861819.jpg" />
 </div>
 
 
@@ -361,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861692.jpg" />
 </div>
 
 
@@ -390,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861417.jpg" />
 </div>
 
 
@@ -416,7 +308,7 @@ Caro Emerald - Montreux Jazz Festival 2015 (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860581.jpg" />
 </div>
 
 
@@ -446,7 +338,7 @@ Metallica - The Videos 1989-2004 (2006) DVD9 [ISO]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860545.jpg" />
 </div>
 
 
@@ -476,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860457.jpg" />
 </div>
 
 
@@ -505,7 +397,7 @@ Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Meta
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860380.jpg" />
 </div>
 
 
@@ -534,7 +426,7 @@ Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860370.jpg" />
 </div>
 
 
@@ -563,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860364.jpg" />
 </div>
 
 
@@ -590,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860312.jpg" />
 </div>
 
 
@@ -617,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858545.jpg" />
 </div>
 
 
@@ -643,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858331.jpg" />
 </div>
 
 
@@ -673,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857673.jpg" />
 </div>
 
 
@@ -699,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857505.jpg" />
 </div>
 
 
@@ -713,6 +605,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3D41678E7154DA8528587B52DF4119383AF910B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 873598   (857390) от 06.03.2015
+
+ABBA - The Definitive Collection (1974-1982) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857390.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Waterloo
+2 Ring Ring
+3 Mamma Mia
+4 SOS(   Читать дальше...   )Жанр: Pop, DiscoРежиссер: Лассе Халльстрём, Челль СундвалльПродолжительность: 02:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8D18401F94B87159FDA3C363B79AD463511553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000641   (857298) от 26.03.2016
+
+Квартирник у Маргулиса - Би-2 (2016) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса группа Би-2 . Дата эфира: 06.02.2016.1. Хипстер
+2. И корабль плывет
+3. Варвара
+4. Серебро(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D536FBCCE7733A5193C9914E0A74341D3C9624F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474328   (855893) от 27.09.2021
+
+Status Quo - The Last Night Of The Electrics 2016 (2017) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление британской рок-группы Status Quo в London O2 Arena 11 декабря 2016 года.01. Caroline
+02. The Wanderer
+03. Something Bout You Baby I Like
+04. Rain(   Читать дальше...   )Производство: ВеликобританияЖанр: RockПеревод: Не требуетсяПродолжительность: 01:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A6898AC9B48A96C758040EF2696FB313EDEC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648033   (855438) от 24.04.2013
+
+Sara Tunes - VIP (2013) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95ED03E71A95153E6443E34ECFC838FC4B43C68
 ```
 
 https://mybot314.ru/tekegram_catalog/

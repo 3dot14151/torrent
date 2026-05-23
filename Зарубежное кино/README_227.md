@@ -1,61 +1,3 @@
-###  Публикация: 601467   (998213) от 10.01.2013
-
-Игра Блэка / Black's Game (2012) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм о преступном мире Рейкьявика конца 90-х.Жанр: Триллер, Криминал, БоевикРежиссер: Оскар Тор Аксельссон / Óskar Thór AxelssonАктеры: Toр Kристианссон, Йоханнес Хокур Йоханнессон, Дэймон Янгер, Мария Бирта, Эйидль Эйнарссон, Штейн Аманн Магнуссон, Андри Мар Биргиссон, Бьёрн Фрибирмссон, Свеинн Геирссон, Тростур Лео Гуннарссон, Рунар Фрейр Гисласон и др.Перевод: Одноголосый закадровый |den904| по переводу janettaПродолжительность: 01:45:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600720   (998194) от 10.01.2013
-
-Эрос / Eros (2004) [H.264]DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ведущие режиссеры мирового кино представляют три незабываемые истории об эротике и желании в мире, где любовь безраздельно правит людьми.
-
-"Рука". Юный портной тайно влюблен в прекрасную куртизанку. Пройдет время, неприступная красавица потеряет все, а портной добьется успеха. И однажды случится невероятное...
-
-"Равновесие". Нику не дает покоя вереница странных эротических снов. Он уверен, что знает женщину из своих грез, но, просыпаясь, он не может вспомнить, кто она. Поможет ли ему визит к странному психотерапевту?
-
-"Опасная череда событий". Брак Кристофера и Хлои давно зашел в тупик. Свидание с юной особой становится для Кристофера краткой вспышкой в тумане серой жизни. Он не знает, что однажды Хлои и таинственная незнакомка встретятся...Жанр: Драма, МелодрамаРежиссер: Микеланджело Антониони, Стивен Содерберг, Кар Вай ВонгАктеры: Ли Гонг /Li Gong/, Чен Чанг /Chen Chang/, Роберт Дауни-мл. /Robert Downey Jr./, Алан Аркин /Alan Arkin/, Или Китс /Ele Keats/, Кристофер Буххольц /Christopher BuchholzПеревод: Одноголосый закадровыйПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DE227CFDFF470C2B16725BDD45D542AB389A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601268   (998191) от 10.01.2013
 
 Луковые новости / The Onion Movie (2008) BDRip
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998191.jpg" />
 </div>
 
 
@@ -92,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998182.jpg" />
 </div>
 
 
@@ -118,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998168.jpg" />
 </div>
 
 
@@ -144,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997969.jpg" />
 </div>
 
 
@@ -170,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997967.jpg" />
 </div>
 
 
@@ -196,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997926.jpg" />
 </div>
 
 
@@ -222,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997925.jpg" />
 </div>
 
 
@@ -248,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997811.jpg" />
 </div>
 
 
@@ -274,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997771.jpg" />
 </div>
 
 
@@ -300,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997765.jpg" />
 </div>
 
 
@@ -326,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997764.jpg" />
 </div>
 
 
@@ -355,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997759.jpg" />
 </div>
 
 
@@ -381,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997755.jpg" />
 </div>
 
 
@@ -407,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997750.jpg" />
 </div>
 
 
@@ -433,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997732.jpg" />
 </div>
 
 
@@ -461,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997728.jpg" />
 </div>
 
 
@@ -487,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997716.jpg" />
 </div>
 
 
@@ -513,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997714.jpg" />
 </div>
 
 
@@ -540,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997712.jpg" />
 </div>
 
 
@@ -566,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997692.jpg" />
 </div>
 
 
@@ -592,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997688.jpg" />
 </div>
 
 
@@ -618,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997677.jpg" />
 </div>
 
 
@@ -646,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997670.jpg" />
 </div>
 
 
@@ -672,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997644.jpg" />
 </div>
 
 
@@ -683,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F15D83B532772DF50431E68DF08B438BDADB1061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602233   (997638) от 12.01.2013
+
+Так близко, что можно потрогать / Close Enough to Touch (2002) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Драма, Мелодрама, ЭротикаРежиссер: Джемми СакбертАктеры: Трэйси Райан, Бобби Джонстон, Тоби Миллер, Себастьен Гай, Моника Парент, Райли ДжордонПеревод: Двуголосый закадровыйПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC348EFF21BD0CA0D3D4A11BA18DC6C835FA1ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602775   (997537) от 13.01.2013
+
+Фарфоровая луна / China Moon (1991) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский влюбляется в замужнюю женщину, у которой очень плохие отношения с мужем. Муж изменял ей, оскорблял ее, бил, она дважды пыталась развестись с ним. Наконец-то решилась бесповоротно, и вместе с новым возлюбленным поехала домой за вещами. И тут неожиданно пришел благоверный. Между супругами вспыхнула ссора. Он швырнул ее об стену, она выхватила пистолет и выпустила в мужа две пули. Полицейский вынужден помочь ей избавиться от тела и улик и вскоре уже выступать следователем как бы своего собственного преступления.Жанр: Триллер, МелодрамаРежиссер: Джон БэйлиАктеры: Эд Харрис, Мэделин Стоу, Бенисио Дель Торо, Чарльз Дэнс, Патриция Хили, Тим Пауэлл, Прюитт Тэйлор Винс, Ларри Шулер, Роб Эдвард Моррис, Пол Дэрби ...Перевод: Двуголосый закадровыйЯзык субтитров: английский, испанский, французскийПродолжительность: 01:39:35
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

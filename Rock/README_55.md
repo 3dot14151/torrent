@@ -6,7 +6,7 @@ Power Music Workout - 40 Fit as Funk Workout Tracks (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450640.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Ultimate Driving Songs (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450341.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Porno Wolves - Renegades (2017) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450223.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Beatles - Complete Christmas Collection [Bootleg] (1994) [MP3|192 kbps]<Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449954.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ The xx - Coexist (Japanese Version) (2012) [MP3|320 кб/с]<Indie-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449938.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PreHistoric Animals - 3 Albums (2018-2022) [MP3|320 Kbps] <Alternative Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449681.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Diapasаo - Opus 1 (2006) [MP3|320 кб/с]<Progressive rock, Jazz-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448764.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The Bobby Fuller Four - I Fought the Law / KRLA King of the Wheels (1965) Remast
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448545.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ The Beatles & The Rolling Stones - When Two Legends Collide [BOOTLEG] (1967) [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447705.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Joe Satriani - The Very Best (2010) [MP3|320 kbps]<Рок / Guitar, Instrumental
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447628.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Tramtracks - Then? (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447578.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Mythos - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447488.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Gazpacho - Fireworker (2020) [MP3|320 Kbps] <Progressive Rock, Atmospheric Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447483.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Loa Ride - 2 Relises (2021-2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Doom
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447320.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ El Astronauta - 2 Albums (2021-2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447318.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Stress im Bus - Chruzpe (2022) [MP3|320 Kbps] <Grunge, Stoner, Fuzz, Garage>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447316.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The Bardic Depths - 2 Albums (2020-2022) [MP3|320 Kbps] <Psychedelic Rock, Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447312.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Slowjoint - 6 Relises (2012-2022) [MP3|320 Kbps] <Sludge, Stoner, Doom>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447188.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Smokie - Gold (2020) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447135.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ The Script - Science And Faith (2010) [MP3|224 kbps]<Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445746.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Smokie - Greatest Hits (2006) [MP3|320 кб/с]<Soft-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445682.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Florence And The Machine - Lungs (2009) [MP3|320 kbps]<Pop Rock, Folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445500.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ ESEL - 2 Relises (2020-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445221.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Doctors Rock - 6 альбомов (2011-2013) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445137.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Smokie - Дискография (1975-2010)[MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444329.jpg" />
 </div>
 
 
@@ -766,7 +766,7 @@ Nirvana - Live and Loud (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443987.jpg" />
 </div>
 
 

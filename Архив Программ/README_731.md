@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680560.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft .NET Framework 4.7.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680559.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BELOFF 2018.5 Medium [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680557.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Autodesk Revit 2019 16.0.49.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680546.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Animate CC 2017 (v16.2.0) RUS/ENG Update 3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680540.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Benvista PhotoZoom Pro 7.0.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680532.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mozilla Firefox 53.0.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680531.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4927.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680526.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Firefox Browser 91.7.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680512.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Firefox Browser 98.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680511.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BestReminder v2019.03.18.20 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680442.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WinUtilities Professional Edition 15.52 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680426.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AdwCleaner 6.047 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680421.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6768.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680419.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The KMPlayer 4.2.1.2 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680417.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7181.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680416.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Office 2007 Standard SP3 12.0.6768.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680412.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Microsoft Office 2010 Standard 14.0.7181.5000 SP2 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680411.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FreeFileSync 11.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680396.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FBackup 9.5.525 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680394.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Microsoft.NET 5.0.15 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680386.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ One Commander 3.4.44.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680383.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hard Disk Sentinel Pro 6.00 Build 12540 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680380.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ RisohEditor 5.6.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680379.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Telegram Desktop 1.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680303.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Dashcam Viewer 3.2.2 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680300.jpg" />
 </div>
 
 

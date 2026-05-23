@@ -6,7 +6,7 @@ Advanced SystemCare Pro 13.0.2.170 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304945.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Bat! Professional Edition 8.0.10 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304940.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Foundry NUKE STUDIO + HIERO 11.0 v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304937.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Bat! Professional Edition 8.0.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304936.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Far Manager 3.0 Build 5300 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304840.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ USDownloader 1.3.5.9 Portable (29.11.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304828.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cyberfox 50.0.1 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304821.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Topaz Gigapixel AI 4.4.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304805.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Character Animator CC 2020 3.0.0.276 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304803.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Bridge 2020 10.0.0.124 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304792.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Acrobat Reader DC 2019.021.20049 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304782.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ CCleaner 5.37.6309 Free | Professional |  Business | Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304749.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NVIDIA GeForce/ION 310.70 BETA Desktop + For Notebooks [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304714.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GridinSoft Anti-Malware 4.0.16.236 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304651.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Acrobat Pro DC 2019.008.20080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304645.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Process Lasso Pro 8.9.8.90 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304634.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BurnAware Professional 9.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304627.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SiSoftware Sandra Personal / Enterprise / Business / Engineer / USB Tech Support
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304613.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Adobe Audition CC 2020 13.0.0.519 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304611.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ JetBrains WebStorm 2019.2.3 Build #WS-192.6817.13 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304605.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe Media Encoder 2020 14.0.0.556 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304595.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Photoshop CC 2019 20.0.7 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304581.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe Photoshop CC 2019 v20.0.7.28362 (x64) Repack by SanLex [Multi.Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304576.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe Photoshop Lightroom Classic CC 2019 9.0.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304562.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Ashampoo Burning Studio 12 12.0.3.0 Final RePack (& Portable) by KpoJIuK [MULTi 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304528.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ WinZip Pro 17.0 Build 10283r [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304524.jpg" />
 </div>
 
 

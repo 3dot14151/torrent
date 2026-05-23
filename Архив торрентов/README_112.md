@@ -6,7 +6,7 @@ Michael Ranta - Taiwan Years (2021) [FLAC|Lossless|tracks + .cue] <Modern Classi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028371.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Allavsoft Video Downloader Converter 3.23.3.7730 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028370.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ NAV - Good Intentions (2020) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap, Pop R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028369.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Battery Health 3 v1.0.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028366.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ K-Lite Codec Pack Update 16.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028357.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ WinCatalog 2020.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028346.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Glary Utilities Pro 5.161.0.187 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028343.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VueScan Pro 9.7.49 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028340.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ DirPrintOK 5.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028333.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ MediaHuman YouTube Downloader 3.9.9.52 (0203) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028328.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028323.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Bandicam 5.0.2.1813 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028301.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028291.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028284.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ PullTube 1.6.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028255.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Boxy SVG 3  v3.48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028253.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ DJ KUBA & NEITAN - Live @ Save The Music (2021-02-19) [MP3|320 Kbps] <Electro Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028249.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ AudioSwitcher 3.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028248.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ iBarcoder 3.12.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028247.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Hej Stylus! v3 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028246.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Opera GX 73.0.3856.408 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028228.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Google Chrome 89.0.4389.72 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028213.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ PrivaZer 4.0.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028205.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Google Chrome 89.0.4389.72 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028202.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ PowerISO 7.8 [DC 28.02.2021] RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028175.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ O&O ShutUp10 1.8.1418.309 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028164.jpg" />
 </div>
 
 

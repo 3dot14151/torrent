@@ -6,7 +6,7 @@ Microsoft Windows Embedded 8.1 Enterprise x64 with Update 3 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569510.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 10 Pro-Home + Single Language 10.0.10240 [Ru]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567781.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565935.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows 10 N - Оригинальные образы от Microsoft MS
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565927.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Windows 10 Enterprise 10.0.10240 - Оригинальные образ
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565917.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565915.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x64) WZT [He]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565908.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x86) WZT [He]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562193.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560292.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Windows 10 Pro - Оригинальные образы от Microsoft 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558518.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556764.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Windows 10 10.0.15063.483 Version 1703 (Updated July 2017) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556640.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Windows 10 (74in2) Sergei Strelec x86/x64 1809 (build 17763.557) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553872.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Windows 7 SP1 Ultimate (x86&x64) [Updates V.12] by YelloSOFT [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552092.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Windows 1.0 - 3.2 [Multi/Ru]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550716.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Windows 8.1 RTM x64 x86 by WZOR [English]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544300.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Windows 8.1 RTM x86 by WZOR [Russian]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544290.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 8.1 x86-х64 Single Language by WZT [Russian + English]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541661.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Microsoft Windows 7 Professional N with SP1 (Updated 12.05.2011) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532863.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Microsoft Windows 10.0.19043.1766, Version 21H1 (Updated June 2022) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528598.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Microsoft Windows 10.0.19044.1766, Version 21H2 (Updated June 2022)  - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528584.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Windows Server, Version 20H2 (10.0.19042.1766) (Updated June 2022) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527673.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Microsoft Windows 11 [10.0.22000.739], Version 21H2 (Updated June 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527617.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Recovery USB-flash for Acer Aspire V5-132P / Windows 8 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527123.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Windows 8 - Оригинальные образы от Microsoft MSDN (Russian)
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525778.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Microsoft Windows 7 - Оригинальные образы от Microsoft MSDN 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525777.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Internet Download Manager 6.38 Build 25 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016219.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Folx Pro 5 v5.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016218.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MAGIX Sound Forge Pro 15.0 Build 57 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016211.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.0 Build 11 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016190.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Scrutiny 10 v10.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016173.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Cisdem Duplicate Finder 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016170.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Carbon Copy Cloner 5 v5.1.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016151.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Microsoft Visual Studio 2019 Professional 16.9.5 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016134.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Viber 15.3.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016130.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Microsoft Visual Studio 2019 Community 16.9.5 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016128.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Chromium 90.0.4430.212 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016123.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Capto: Screen Capture & Record 1.2.24 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016120.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Wise Disk Cleaner 10.4.4.794 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016109.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Microsoft Visual Studio 2019 Enterprise 16.9.5 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016085.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ CPU-Z 1.96.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016080.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Windows 10 (v20h2) x64 PRO by KulHunter v3.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016041.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016040.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Adobe Photoshop 2021 22.4.0.195 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016039.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Emurasoft EmEditor Professional 20.7.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015969.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VueScan Pro 9.7.54 + OCR Languages [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015957.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Ashampoo WinOptimizer 19.00.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015954.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ FX Player v2.9.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015934.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Always on Edge 6.1.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015933.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Assistant for Stardew Valley v1.11.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015931.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Windows 10 Manager 3.4.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015930.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Psiphon 3 build 166 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015905.jpg" />
 </div>
 
 

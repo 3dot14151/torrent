@@ -1,29 +1,3 @@
-###  Публикация: 704972   (453852) от 28.09.2013
-
-NG: Международный аэропорт Дубай. Серия 2 / Ultimate Airport Dubai (2013) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Менее 55 лет назад на месте Международного аэропорта Дубая была огромная пустыня. Но сегодня это мекка международных воздушных перевозок. Это третий по загруженности аэропорт в мире для пассажиров международных рейсов, он принимает 344 000 рейсов, 57 млн. пассажиров и 2000 тысяч тонн грузов в год. Канал National Geographic покажет закулисную жизнь трех международных (   Читать дальше...   )Жанр: Документальный, научно-познавательныйПеревод: Одноголосый закадровыйПродолжительность: ~ 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E256155478B64C909243CFC909572E2D40A6D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060220   (453386) от 08.10.2016
 
 Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTVRip
@@ -32,7 +6,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453386.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453376.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Атлантида была здесь / Atlantis: the Evidence (2010) IPTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453244.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Discovery: Плутон: первая встреча / Direct from Pluto-The Fir
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453238.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453163.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ BBC Horizon: В какой Вселенной мы находимся? / Which U
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453102.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ NG: Исследователь 2.0 / Explorer (2015) HDTV [H.264/1080i] (8 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453076.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ NG. Нападение нацистов на США (Атака нацистов
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452648.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ History Channel. Погода, изменившая ход истории / Weat
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452422.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Discovery. Самая странная погода на Земле / Strangest 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452414.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452361.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452350.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2015) HDTVRip (3 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451032.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ National Geographic: Американские транссексуалы / Ameri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450279.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448889.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ NG: Голливудская наука. Чудо машины / Hollywood Scien
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448481.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448476.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ NGW: Национальные парки Америки / America's National Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448320.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ BBC: Каковы размеры Вселенной? / How Big is the Universe? 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448199.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Discovery: Америка: факты и домыслы / America: Facts vs. Fic
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447119.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ BBC. Самые опасные дороги мира / World's Most Dangerous Ro
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446937.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ BBC: Двадцатка самых опасных наркотиков /BBC: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446832.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Discovery: Ангелы и демоны. Факты или домыслы? / Ang
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446641.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ History Channel. Между молотом и наковальней / Forged in
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446073.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445984.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83CAA96E3CF6297F34A66B1966521BD644FDB009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943836   (444918) от 05.10.2015
+
+Discovery: Разрушители легенд. Спецвыпуск: Команда-А / MythBusters. The A-Team Special (2015) SATRip  (Сезон 15, эпизод 03)  [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444918.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464704D34168A067258790252423C86FA05A68A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

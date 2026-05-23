@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226861.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Malwarebytes Anti-Exploit Premium 1.12.1.141 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226854.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XnViewMP 0.94.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226853.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Video Enhance AI 1.7.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226837.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 10 Pro DVD Release by StartSoft 40-41-42 2018 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226825.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ExperienceIndexOK 3.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226821.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AOMEI Partition Assistant Technician Edition 6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226795.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kaspersky Lab Products Remover 1.0.1545 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226762.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226746.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Office 2010 Standard 14.0.7163.5000 SP2 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226722.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WinNc 9.1.0.0 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226719.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WhatsApp 2.2144.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226713.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Office 2007 Standard SP3 12.0.6739.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226707.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ HDCleaner 2.035 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226704.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Destroy Windows 10 Spying 1.6 Build 716 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226692.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Macrorit Data Wiper 6.3.6 Unlimited Edition RePack (& Portable) by TryRooM [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226678.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Far Manager 3.0.5700 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226677.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 31.07.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226675.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ TwistedBrush Pro Studio 19.15 Final + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226637.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Windows 10 (v20h2) x64 PRO by KulHunter v1.3 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226634.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CCleaner 5.74.8198 Technician Edition Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226625.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ WonderFox HD Video Converter Factory Pro 25.6 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226617.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Advanced Installer 9.7 Build 48524 [Multi\Русский]+Portable by punsh
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226588.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v1.3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226583.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ R-Studio Technician 8.17 Build 180955 RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226575.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Far Manager 3.0 build 3000 Stable + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226546.jpg" />
 </div>
 
 

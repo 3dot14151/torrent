@@ -6,7 +6,7 @@ Photo Supreme 5.4.0.2777 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907497.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream Screen Recorder PRO 6.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907489.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 3.0.95 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907482.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907449.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Windows 10 Manager 1.0.9 Final Portable by PortableWares [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907442.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mirillis Action! 4.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907424.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Chromium 80.0.3987.149 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907422.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ GoodSync Enterprise 10.11.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907419.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Soft4Boost Document Converter 6.2.5.435 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907417.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ R-Studio Network Edition 8.13 build 176037 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907408.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ashampoo Anti-Virus 2016 1.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907323.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Corel VideoStudio Pro X9 19.1.0.14 SP1 + Content Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907319.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows 7AIO x86 x64 pe StartSoft 7-2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907315.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe After Effects CC 2016 13.8.0.37 Prerelease [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907308.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ X-Particles для Cinema 4D 2.0.0061 RC RePack by Bezru4ko [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907305.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Windows 10 x86 x64 pe StartSoft 9-2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907286.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ KORG - LegacyCell 1.6.0 STANDALONE, VSTi, AAX (x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907278.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ KORG - Prophecy 1.0.2 STANDALONE, VSTi, AAX (x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907270.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ KORG - ARP ODYSSEY 1.3.0 STANDALONE, VSTi, AAX (x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907265.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ WinCatalog 2019 19.6.0.221 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907206.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Soft4Boost Any Uninstaller 8.7.7.531 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907204.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ MediaInfo 0.7.92 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907203.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907202.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ GPU Caps Viewer 1.44.3.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907200.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ HWiNFO 6.24 Build 4120 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907191.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ R-Wipe & Clean 20.0.2329 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907151.jpg" />
 </div>
 
 

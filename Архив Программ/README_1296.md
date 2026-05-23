@@ -6,7 +6,7 @@ Google Chrome 62.0.3202.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378477.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Uninstall Tool 3.5.3 Build 5563 RePack (& Portable) by elchupaсabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378469.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LibreOffice 5.4.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378467.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sandboxie 5.43.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378416.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WirelessConnectionInfo 1.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378409.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Nmap 7.91 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378404.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Movavi Video Suite 21.0.0 (x64) RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378398.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Lightshot 5.5.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378340.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Total Commander 9.10 RC 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378330.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ USDownloader 1.3.5.9 Portable (02.11.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378312.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ TagScanner 6.0.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378308.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Far Manager 3.0 build 2942 Stable + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_378280.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Auslogics Windows Slimmer 2.5.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378254.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Movavi Video Editor Plus 21.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378250.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MAGIX Vegas Pro 17.0.0.321 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378202.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VMware Workstation 15 Pro 15.5.0 Build 14665864 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378196.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Movavi Video Suite 17.0.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378191.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VirtualBox 5.2.0.118431 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378181.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Q-Dir 6.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378167.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SanDisk SSD Dashboard 3.1.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378131.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Wireshark 3.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378130.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ OBS Studio 26.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378123.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VirtualBox 5.1.30.118389 RePack (& Portable) by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378064.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378042.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Google Chrome 54.0.2840.87 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378039.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Dextronet FastPaste 3.18 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378037.jpg" />
 </div>
 
 

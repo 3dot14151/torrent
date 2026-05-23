@@ -1,55 +1,3 @@
-###  Публикация: 1810097   (64585) от 02.08.2025
-
-Чёрный клановец / BlacKkKlansman (2018) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Внедриться в Ку-Клукс-Клан — задача не из легких, особенно если ты чернокожий. Но целеустремленного полицейского из Колорадо такие мелочи не смущают. Вместе с напарником-евреем он вступает в неравный бой с опаснейшими противниками.Производство: США, Китай / 40 Acres & A Mule Filmworks, Blumhouse ProductionsЖанр: драма, комедия, детектив, криминал, биографияРежиссер: Спайк ЛиАктеры: Алек Болдуин, Джон Дэвид Вашингтон, Исайя Уитлок мл., Роберт Джон Бёрк, Брайан Тарантина, Артур Дж. Наскарелла, Кен Гарито, Фред Уэллер, Адам Драйвер, Майкл Бушеми, Эшли ЭткинсонПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (forced, full), украинские, английские (forced, full, SDH)Продолжительность: 02:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE05B12256E3C158EB435911B7B00E3BC2F0F5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810098   (64564) от 02.08.2025
-
-Чёрный клановец / BlacKkKlansman (2018) WEB-DL [H.265/2160p] [4K, Dolby Vision Profile 5, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Внедриться в Ку-Клукс-Клан — задача не из легких, особенно если ты чернокожий. Но целеустремленного полицейского из Колорадо такие мелочи не смущают. Вместе с напарником-евреем он вступает в неравный бой с опаснейшими противниками.Производство: США, Китай / 40 Acres & A Mule Filmworks, Blumhouse ProductionsЖанр: драма, комедия, детектив, криминал, биографияРежиссер: Спайк ЛиАктеры: Алек Болдуин, Джон Дэвид Вашингтон, Исайя Уитлок мл., Роберт Джон Бёрк, Брайан Тарантина, Артур Дж. Наскарелла, Кен Гарито, Фред Уэллер, Адам Драйвер, Майкл Бушеми, Эшли ЭткинсонПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (forced, full), украинские, английские (forced, full, SDH)Продолжительность: 02:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654C99FFF301CE818D1A0EA5FB1AF887F69B7702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821723   (64514) от 03.10.2025
 
 Дикие места / A Great Divide (2023) WEB-DLRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64514.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64486.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64471.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64295.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64262.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64250.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64246.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64210.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64202.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64180.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64178.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64168.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64164.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64155.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64101.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64098.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64093.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64090.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64021.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64019.jpg" />
 </div>
 
 
@@ -588,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64006.jpg" />
 </div>
 
 
@@ -614,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63988.jpg" />
 </div>
 
 
@@ -640,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63982.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63980.jpg" />
 </div>
 
 
@@ -677,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DE7EB1F9F56902458022C0F578D58FB6C04AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821562   (63979) от 02.10.2025
+
+Воины будущего / Ming yat zin gei / Warriors of Future (2022) WEB-DLRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63979.jpg" />
+</div>
+
+
+###  Подробнее
+
+2055 год. Планета задыхается от загрязнений и глобального потепления, и уже огромные суммы потрачены на систему очистки воздуха Skynet. Внезапно в Гонконге падает метеорит с агрессивной формой жизни, впоследствии названной Пандорой. Питаясь водой, растительный организм невероятно быстро разрастается и разрушает всё на своём пути, но при этом очищает атмосферу. Благодаря (   Читать дальше...   )Производство: Гонконг / One Cool Film Production, Hua Wen Movie Group, Media Asia FilmsЖанр: боевик, фантастикаРежиссер: Нг Юэнь-ФайАктеры: Луис Ку Шон Лау Филип Кюн, Карина Лау, Ник Чун, У Цянь, Цзэ Кван-Хо, Пэнси Чан, Фат Чан, Стив ЧаньПеревод: Многоголосый (Jaskier), многоголосый (MY5 TV)Язык озвучки: Русский, узбекскийСубтитры: Русские, английские (Full, Forced)Продолжительность: 01:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE454A16F0E0B8FBCE3323DB59C9F57ADA3D5D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821578   (63971) от 02.10.2025
+
+Война будущего / The Tomorrow War (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декабрь 2022 года. Во время финала чемпионата мира по футболу в Катаре на поле высаживается десант из будущего. Прибывшие заявляют, что через 30 лет Земля подвергнется инопланетному вторжению, и, если люди настоящего не помогут людям будущего, то человечество прекратит существование. Так начинается принудительная отправка граждан на войну, с которой возвращаются (   Читать дальше...   )Производство: США / Amazon Studios, Lit Entertainment Group, New Republic Pictures, Paramount Pictures,Жанр: фантастика, боевик, ужасыРежиссер: Крис МакКейАктеры: Крис Пратт, Ивонн Страховски, Дж.К. Симмонс, Бетти Гилпин, Сэм Ричардсон, Жасмин Мэтьюз, Эдвин Ходж, Райан Кира Армстронг, Кит Пауэрс, Мэри Линн РайскабПеревод: Дублированный (31 канал) + пара вставок HDRezka, многоголосый (''Favvora Film'')Язык озвучки: Русский, узбекскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D424DCD07343D07286D4567A3BCB0F0F353A36A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

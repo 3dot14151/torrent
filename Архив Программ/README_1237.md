@@ -6,7 +6,7 @@ Mozilla Firefox 16.0 Final [Rus] + Portable by PortableAppZ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_415968.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adguard 7.2.2920.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415929.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MediaHuman YouTube Downloader 3.9.9.46 (2609) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415894.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Athentech Perfectly Clear Complete 3.10.0.1847 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415892.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Icecream Video Editor Pro 2.30 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415890.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AIMP 4.70.2231 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415888.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Any Video Converter Professional 7.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415886.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BlueStacks App Player 4.230.20.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415882.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Skype 8.65.0.76 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415878.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Slimjet 5.0.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415852.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WinUtilities Professional Edition 12.01 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415834.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ MiniTool Partition Wizard Server Editionl 7.6 + Portable by Valx [Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_415745.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ORPALIS PaperScan Professional 3.0.117 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415715.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AIMP 4.70 Build 2231 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415713.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ReviverSoft Driver Reviver 5.34.2.4 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415710.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Wise Folder Hider Pro 4.3.6.195 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415706.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ LDPlayer 4.0.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415705.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ HiBit Uninstaller 2.5.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415702.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ HWiNFO 6.32 Build 4270 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415700.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ ClipGrab 3.5.1 Portable by poni-koni [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415629.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ MKVToolNix 8.5.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415626.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AkelPad 4.9.6 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415617.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Adobe components: Flash Player 19.0.0.226 + AIR 19.0.0.213 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415610.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Kerish Doctor 2020 4.80 [DC 29.09 upd 29.09 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415598.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AIMP 4.70 Build 2230 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415596.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ OBS Studio 26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415585.jpg" />
 </div>
 
 

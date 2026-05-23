@@ -6,7 +6,7 @@ Zakè (Zake) Drone Recordings - Label-pack 8 releases (2020) [FLAC|Lossless|WEB-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178381.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KMSAuto++ Portable 1.7.7 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178373.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ LEX LIVE 10 2022 v.22.10.25 RC FIX 15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178353.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Uninstall Tool 3.7.1 Build 5699 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178349.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ EaseUS Data Recovery Wizard Technician 15.8.1.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178342.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Translate Tab 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178326.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Movavi PDFChef for Mac 2021 v21.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178325.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sandboxie 5.66.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178311.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Calibre 6.28.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178308.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ PDF24 Creator 10.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178304.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Brave Browser 1.58.137 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178292.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Minecraft 1.19.21.01 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178291.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ O&O DiskImage Professional 18.4 Build 322 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178285.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ K-Lite Codec Pack Update 15.9.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178281.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ NIUBI Partition Editor 9.8.0 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178272.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Skype 8.105.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178269.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Q-Dir 11.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178265.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Viber 21.1.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178262.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ NIUBI Partition Editor 9.8.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178256.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Chromium 117.0.5938.150 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178246.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Duplicate File Finder & Remover 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178236.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ LDPlayer 4.0.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178231.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Vivaldi 6.2.3105.58 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178230.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ SLIMUS - Новичок (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178219.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Macrorit Partition Expert 8.0.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178217.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Sigil 1.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178212.jpg" />
 </div>
 
 

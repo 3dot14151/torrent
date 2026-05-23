@@ -1,29 +1,3 @@
-###  Публикация: 1138892   (662034) от 31.05.2017
-
-Royal Detective 4: Borrowed Life / Королевский детектив 4: Жизнь взаймы (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вас вызвали в сонный городок Дорфилд, чтобы расследовать загадочного исчезновения известного местного скульптора. Его жена утверждает, что во всем виноваты “ожившие” статуи, но что происходит на самом деле? Узнайте это пока не стало слишком поздно.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04DF1C4D27AFF487522E51B7D88824BD03747DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138883   (662028) от 31.05.2017
 
 The Forgotten Fairytales. The Spectra World / Утерянные сказания. Спектральный мир (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ The Forgotten Fairytales. The Spectra World / Утерянные сказани�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662028.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Reflections of Life 2: Equilibrium / Отражения жизни: Равнов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661980.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Edge of Reality 2: Lethal Predictions / Край Реальности 2: Сме�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661967.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Haven (2020) [Ru/Multi] (1.1.302/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661895.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661714.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ League of Light 6: The Game / Лига Света 6: Что наша жизнь?
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661713.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Synthetik (2018) [Ru/Multi] (15.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661653.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mad Riders [Ru] (RePack/1.0.1.0) 2012 l Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661110.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Haunted Legends 10: The Black Hawk / Легенды о призраках 10: Ч
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661004.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ridge Racer Unbounded + 4 DLC [Multi6/+] (RePack/1.13) 2012 l Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660926.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660917.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Tokyo 42 (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660916.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Hover : Revolt Of Gamers (2017) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660873.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Perception (2017) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660807.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Moonsouls: Echoes of the Past / Лунные души: Эхо прошлого (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660706.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660609.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Bastard (2018) [Ru/En/De] (1.31) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660603.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Spirit of Revenge 4: Florrys Well / Месть духа 4: Колодец Фло
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660004.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659812.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ AereA (2017) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659806.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Marvel vs. Capcom: Infinite (2017) [Ru/Multi] (1.0/dlc) License PLAZA [Deluxe Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659536.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ EXAELLA (2018) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659534.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Secret Doctrine (2017) [Ru/En/Ch] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658798.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (62662/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658750.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658556.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56481E06840157619BEC706E433F272F0DABBB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139848   (658551) от 03.06.2017
+
+RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури.Тип издания: RepackРазработчик: Tequila Works, QLOCЖанр: Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAEFC829CA39782D717674B4D906B09F7032E28
 ```
 
 https://mybot314.ru/tekegram_catalog/

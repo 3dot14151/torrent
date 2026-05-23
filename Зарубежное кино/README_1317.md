@@ -1,55 +1,3 @@
-###  Публикация: 1176308   (368976) от 22.10.2017
-
-Каратель: Территория войны / Punisher: War Zone (2008) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жесткий, брутальный и беспощадный вершитель порядка Фрэнк Кастл по прозвищу Каратель ведет настоящую войну с миром организованной преступности. Он не знает жалости и компромиссов и собственными руками отправляет плохих парней в ад, либо за железную решетку. Его методы продиктованы местью за убийство его жены и двух маленьких детей, а действия - жаждой справедливости. (   Читать дальше...   )Производство: США, Канада, ГерманияЖанр: Боевик, Криминал, ДетективРежиссер: Лекси АлександрАктеры: Рэй Стивенсон, Доминик Уэст, Даг Хатчинсон, Колин Сэлмон, Вейн Найт, Дэш Майок, Джули Бенц, Stephanie Janusauskas, Марк Камачо, Романо Орзари, Керам Малики-Санчес, Ларри Дэй, Рон Лиа, Tony Calabretta, Т.Дж. Сторм, Carlos Gonzalez-vlo, Дэвид Вадим, Джон Данн-Хилл, Нико Николов, Aubert Pallascio, Френсис Б. ГолдбергПеревод: Многоголосый закадровый, одноголосый авторскийСубтитры: русские (форсированные), английские (полные)Продолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8674782BCE8E04969EE4801E6D4A0F82BC1DAAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069885   (368687) от 06.11.2016
-
-Дорога в рай / Paradise Road (1997) HDTV [H.264/1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Драматическая история, описывающая героизм группы женщин, содержащихся в Японском концентрационном лагере для военнопленных во время Второй мировой войны. Разные женщины из разных стран, говорящие на разных языках, должны объединиться в хор, чтобы создать жизнеутверждающую симфонию человеческих голосов.Производство: США, Австралия, Village Roadshow Pictures, Samson Productions Pty. Ltd., Planet PicturesЖанр: Драма, Военный, ИсторияРежиссер: Брюс БересфордАктеры: Гленн Клоуз, Фрэнсис МакДорманд, Паулин Коллинс, Кейт Бланшетт, Дженнифер Элль, Джулианна Маргулис, Венди Хьюджес, Джоанна тер Стидж, Элизабет Сприггс, Памела Рэйб, Клайд Кусатсу, Стэн Эги, Дэвид Чунг, Сэб Шимоно, Пенни Хэкфорт-ДжонсПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADBFC2240471BEF6187447345FCC884DB335B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070290   (368587) от 06.11.2016
 
 Стальной клинок / Kaththi (2014) WEBRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368587.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368536.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368522.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368452.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368425.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368382.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368365.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368357.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368334.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368252.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368246.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368241.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368236.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368195.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368147.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368135.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368121.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368084.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368082.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368052.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367980.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367979.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367977.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367974.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1FF163BC2B10C5F60C9F7E64D6ABD5A51BA62F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576234   (367972) от 13.09.2022
+
+Горячий отпуск / Azuro (2022) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания друзей наслаждается долгожданным летним отдыхом, неспешно убивая время под раскалённым солнцем между бесконечным морем и статными горами. От скуки ребят спасают только пьянки да гулянки. И им нет дела ни до разгорающегося поблизости пожара, ни до туманящего рассудок зноя. Неожиданно в море появляется яхта, с нее сходит незнакомый мужчина, и их спокойному (   Читать дальше...   )Производство: Франция / Angoa-Agicoa, Tabo Tabo Films, Comic Strip Production, PanameЖанр: драма, комедияРежиссер: Матьё РозеАктеры: Валери Донзелли, Томас Шимека, Нуну Лопеш, Янник Шуара, Майя Санса, Флоранс Луаре, Одилон Обер Хора, Антуан Козан, Роуз Тимберт, Адам БессаПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C0FF06E01861B103C4140EACD5EF19468359EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 406565   (367946) от 04.11.2011
+
+Поцелуй на удачу / Just My Luck (2006) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сексуальная жительница Манхеттена Эшли слывет самой удачливой девчонкой в округе. Однако после случайного поцелуя с одним неудачником, Эшли понимает, что ее удача «повернулась к ней спиной и уплыла к тому парню». И как теперь «отъявленной неудачнице» вернуть свой «счастливый поцелуй»?Жанр: Комедия, МелодрамаРежиссер: Дональд ПитриАктеры: Линдси Лохан, Крис Пайн, Сэмэр Армстронг, Бри Тернер, Фэйзон Лав, Мисси Пайл, Макензи Вега, Карлос Понсе, Том Флетчер, Дэнни ДжонсПеревод: ДублированныйПродолжительность: 01:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D302903F4BD8DF23A92683B035F24E5A5E5572D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

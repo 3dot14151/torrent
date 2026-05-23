@@ -1,29 +1,3 @@
-###  Публикация: 1252786   (407615) от 06.10.2018
-
-Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Digital Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Train Sim World — это симулятор поезда с видом от первого лица, позволяющий управлять мощными реалистичными поездами на самых удивительных железных дорогах мира. Реальные данные используются для точной передачи характеристик, звуков и ощущений поездов, создания реалистичных миссий, движения с круглосуточным расписанием; вы можете отдохнуть в качестве пассажира или (   Читать дальше...   )Тип издания: RepackРазработчик: Dovetail GamesЖанр: Simulator, 3DЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968271A4082C0DDA76391F266ED6064A7A615F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189731   (407576) от 06.10.2018
 
 Bulletstorm (2017) [Ru/Multi] (1.1.41044.0/dlc) Repack R.G. Catalyst [Full Clip Edition]
@@ -32,7 +6,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.41044.0/dlc) Repack R.G. Catalyst [Full Clip 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407576.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Living Legends 10: The Blue Chamber (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407390.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Detectives United 5: Deadly Debt / Лига детективов 5: Смерте
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407376.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Heaven's Vault (2019) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407317.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Devil's Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407279.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Gerda: A Flame in Winter (2022) [Ru/Multi] (1.1.14-00f6b) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407225.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407215.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407214.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Runaway 3: A Twist of Fate (2011) [En] (2.0.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407051.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406972.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Ancestors Legacy (2018) [Ru/Multi] (64724/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406967.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Confrontation / Confrontation: Последняя битва [Ru/En] (RePack/v.1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406471.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Star Wars: The Force Unleashed Dilogy [Ru/En] (Repack) 2009 - 2010 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406457.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Web of Deceit: Black Widow Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406373.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Jigsaw Boom 2 / Пазл Бум 2 [Ru] (P) 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406300.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Audiosurf [Ru/En] (RePack/1.0u31) 2009 | NSIS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406257.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Wanted: Weapons of Fate / Особо опасен: Орудие судьбы [Ru
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406005.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ WRC 3 FIA World Rally Championship [En] (RePack) 2012 l YelloSOFT
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405692.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ R.A.W.: Realms of Ancient War / R.A.W.: Проклятье древних кор
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405660.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405412.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 [Ru/Multi4] (Demo/v
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405367.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ Chivalry: Medieval Warfare [Ru] (Repack) 2012 | R.G Repacker's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405124.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404718.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404532.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ Shadow Wolf Mysteries 3: Cursed Wedding Collector's Edition / Призрачна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404437.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ Shadow Wolf Mysteries 3: Cursed Wedding Collector's Edition / Призрачна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA2AAB33D39EF211A4BB73BCEB9EFC342BE680A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169220   (403871) от 26.09.2017
+
+Dark Realm: Guardian of Flames / Темный мир 4: Хранитель пламени (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной фантастической серии игр Dark Realm. На этот раз игроку будет противостоять могущественный Император Тьмы, но в нашем арсенале тоже найдется пару магических приемчиков! Начавшееся затмение, ознаменовало возвращение одного из самых опасных злодеев всех времен! Королева Валери - одна из последних Властителей Огня и единственная, кто может (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B27DA2EEC7AB8E390CB959819C828CD4808F3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

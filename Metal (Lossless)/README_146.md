@@ -6,7 +6,7 @@ Paraxism - .xism Excursion (1996) EP [WavPack|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492682.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Parthian - Desolation of a Ceaseless Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492680.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Mystic Circle - Drachenblut (1998) [FLAC|Lossless|image + .cue] <Symphonic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492675.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Nightmare - Aeternam (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal, Fe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492603.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Watain - The Agony & Ecstasy Of Watain (2022) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492597.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yакuzа - Wау Оf Тhe Dеаd (2002) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492579.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Sadus - Out for Blood (2006) Enhanced CD Edition [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492090.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Brume d'Automne - Fiers et Victorieux (2005) [APE|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491592.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Cold Earth - Your Misery, My Triumph (2020) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491591.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491488.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Abstrakt Algebra - Abstrakt Algebra (1995) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491487.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Entrails - Rise of the Reaper (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491482.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Dead Warrior - Abismos (2013) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491474.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Fuck Off - Hell on Earth II (Revisited & Faster) (2015) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491472.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Riot City - Burn the Night (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491471.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Andy James - C.S.I.L (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Sh
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491311.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Powerwolf - Best Of The Blessed (2020) 2CD [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491186.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Phylactery - Aeber (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490510.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Enforcer - Live By Fire II (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490437.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Howard Jones (Devil You Know, Light The Torch) - Сollection (2014-2021) 5CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490425.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Wolfheart - Shadow World (2015) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490185.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Fear Factory - Genexus (2015) Japanese Edition [FLAC|image+.cue]<Industrial Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490168.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Rob Zombie - Mondo Sex Head (2012) Compilation & Remixes [FLAC|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490118.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Territory - Killer Instinct (2011) [FLAC|Lossless]<Heavy/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489903.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Rammstein - New Collection (2008) Compilation[FLAC|image + .cue]<Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489392.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Northlane - Alien (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metalcore, I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488870.jpg" />
 </div>
 
 

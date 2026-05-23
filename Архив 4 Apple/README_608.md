@@ -6,7 +6,7 @@ Adguard for Mac 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167457.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare Recoverit 10.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167438.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ EdgeView 4.3.7[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167401.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Allegorithmic Substance Alchemist 2019.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167399.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MWeb Pro 4.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167394.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adguard 2.9.2 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167352.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Magic Disk Cleaner 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167351.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Disk Xray 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167319.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Navicat Premium 16.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167317.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Soulver 3 v.3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167283.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Scrivener 3 v3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167262.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Downie 4 v.4.6.33 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167251.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ CloudMounter 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167186.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VueScan Pro for Mac 9.8.20 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167145.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Permute 3 v3.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167054.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Yate 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167030.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Deliver Express 2.6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167026.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ SQLPro for SQLite 2021.110 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167010.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Deliver 2.6.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167005.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Jettison 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167000.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Ink2Go 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166996.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ UltraCompare 22.00.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166994.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166989.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ System Toolkit 5.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166986.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ SiteSucker 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166976.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Resize Sense - Flexible batch image processing 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166971.jpg" />
 </div>
 
 

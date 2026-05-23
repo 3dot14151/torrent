@@ -6,7 +6,7 @@ Microsoft Office Professional 2003 SP3 (2018.03) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio 8.5 Build 170237 Network Edition RePack (& Portable) by TryRooM  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768795.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comodo Internet Security Premium 10.2.0.6526 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768791.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768790.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6785.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768787.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7194.5000 (2018.03) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768785.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2007 SP3 Standard 12.0.6785.5000 (2018.03) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768784.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Office 2013 SP1 Standard 15.0.5015.1000 (2018.03) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768757.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Soft Organizer 6.07 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768756.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Display Driver Uninstaller 17.0.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768752.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ GPU-Z 1.19.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768750.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Office 2016 Standard 16.0.4666.1000 (2018.03) RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768725.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Scanitto Pro 3.16.1 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768722.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Internet Download Manager 6.28 Build 6 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768716.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4666.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768714.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Cumulative Update KB4015219 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768652.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Cumulative Update KB4015221 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768651.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768647.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Soft Organizer 6.07 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768596.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Universal-dvd 1.0 - Сборка популярных liveCD + Windows XP [Ру�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768578.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_768567.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe components: Flash Player 25.0.0.148 + AIR 25.0.0.134 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768517.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Cumulative Update KB4015217 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768515.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Cumulative Update KB4015583 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768511.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ FileZilla 3.40.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768476.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768455.jpg" />
 </div>
 
 

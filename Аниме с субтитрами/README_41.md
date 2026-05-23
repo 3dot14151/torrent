@@ -6,7 +6,7 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783185.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Arslan Senki: Fuujin Ranbu / The Heroic Legend of Arslan: Dust Storm Dance / С�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783061.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mirai Keisatsu Urashiman | Future Police Urashiman | Урасиман: Поли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783051.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Touken Ranbu: Hanamaru | Дикая пляска мечей: Ханамару [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782940.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mayonaka no Occult Koumuin | Midnight Occult Civil Servants | Оккультны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782189.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sakura Quest | Квест Сакуры [2017, TV, 25] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781699.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sakura Wars the Animation | Shin Sakura Taisen the Animation | Сакура: Н�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780949.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Higashi no Eden Gekijoban I: The King of Eden / Eden of The East the Movie I: Th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780658.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Yoru wa Mijikashi Aruke yo Otome | The Night Is Short, Walk on Girl | Ночь �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780536.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hirune-hime: Shiranai Watashi no Monogatari | Napping Princess | Спящая п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780045.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cardcaptor Sakura: Clear Card Hen - Prologue Sakura to Futatsu no Kuma | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779231.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Tamayura: Sotsugyou Shashin / Тамаюра (фильм) [2015, Movie, 4 из 4
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779192.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ DEVILMAN crybaby | Devilman: Crybaby | Человек-дьявол: Плакса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779049.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Gin no Guardian II | The Silver Guardian 2 | Серебряный страж [Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778930.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ No Game No Life Zero | Нет игры - нет жизни (фильм) [2017, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778925.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Taishou Mebiusline: Chicchai-san | Кроха Тайсё [2017, TV, 12+SP] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778459.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Yuuri!!! on Ice | Юри на льду [2016, TV, 12] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778122.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778103.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Little Witch Academia (2017) | Академия ведьмочек [2017, TV, 25
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778094.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Plastic Memories | Синтетические воспоминания [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776249.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Shinmai Maou no Testament BURST | The Testament of Sister New Devil BURST | За
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776245.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] BDrip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776243.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Kokoro ga Sakebitagatterunda | Kokosake | The Anthem of the Heart | Сердцу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773913.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Tenkuu no Escaflowne / Vision of Escaflowne TV / Видение Эскафлон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773561.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773321.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Buzzer Beater 2 | Забить на последней секунде 2 [2007, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773252.jpg" />
 </div>
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1770640   (31948) от 05.01.2025
-
-Graph Messenger (Telegraph) vT11.5.3 - P11.16.2 Mod by NNN x RBMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Graph Messenger — это продвинутое приложение для обмена сообщениями, созданное с использованием API Telegram, которое предлагает все преимущества Telegram, а также инновационные функции, такие как:
-🚩 Управление несколькими учетными записями: Легко переключайтесь между неограниченным количеством учетных записей без выхода из системы.
-🚩 Менеджер загрузок: (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.01.2025Разработчик: DatabiteПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771203   (31911) от 05.01.2025
-
-Баланс Подорожника (СПб) и Тройки (Москва) v4.1 Mod by Dymonyxx [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет проверить баланс электронных проездных карт Подорожник (СПб) и Тройка (Москва). Достаточно включить в телефоне NFC и поднести к нему карту.Тип издания: Adfree (без рекламы)Релиз состоялся: 05.01.2025Разработчик: Alpaca dreamsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771428   (31824) от 06.01.2025
 
 MiHome v10.0.706 Mod by Vevs [Ru]
@@ -60,7 +6,7 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31824.jpg" />
 </div>
 
 
@@ -89,7 +35,7 @@ Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31799.jpg" />
 </div>
 
 
@@ -117,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31727.jpg" />
 </div>
 
 
@@ -143,7 +89,7 @@ Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31663.jpg" />
 </div>
 
 
@@ -169,7 +115,7 @@ Filmora - Редактор видео с AI v14.4.01 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31641.jpg" />
 </div>
 
 
@@ -195,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31279.jpg" />
 </div>
 
 
@@ -221,7 +167,7 @@ SnapEdit - AI photo editor v7.2.8 Mod by Maximoff⁠ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31267.jpg" />
 </div>
 
 
@@ -247,7 +193,7 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31254.jpg" />
 </div>
 
 
@@ -273,7 +219,7 @@ Background Video Recorder Pro v11.3.59 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31252.jpg" />
 </div>
 
 
@@ -299,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31193.jpg" />
 </div>
 
 
@@ -328,7 +274,7 @@ FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30979.jpg" />
 </div>
 
 
@@ -354,7 +300,7 @@ Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30976.jpg" />
 </div>
 
 
@@ -380,7 +326,7 @@ Gif Me! Camera Pro v1.90 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30937.jpg" />
 </div>
 
 
@@ -407,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30583.jpg" />
 </div>
 
 
@@ -433,7 +379,7 @@ WPS Office + PDF v18.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30543.jpg" />
 </div>
 
 
@@ -459,7 +405,7 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30536.jpg" />
 </div>
 
 
@@ -485,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30524.jpg" />
 </div>
 
 
@@ -514,7 +460,7 @@ English LinDuo HD v5.33.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30518.jpg" />
 </div>
 
 
@@ -540,7 +486,7 @@ AudioBooks v6.0 Plus Mod by smold2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30451.jpg" />
 </div>
 
 
@@ -567,7 +513,7 @@ Garmin: TOPO Great Britain v3 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30424.jpg" />
 </div>
 
 
@@ -595,7 +541,7 @@ Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30407.jpg" />
 </div>
 
 
@@ -621,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30368.jpg" />
 </div>
 
 
@@ -647,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30332.jpg" />
 </div>
 
 
@@ -676,7 +622,7 @@ Art Me: ИИ-художник v5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30246.jpg" />
 </div>
 
 
@@ -688,6 +634,60 @@ Art Me: ИИ-художник v5.4 Mod by PieMods [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F2F5027374573A046AEB0A529AC51F0622414D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774480   (30201) от 21.01.2025
+
+Reviver: Premium v1.0.2 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30201.jpg" />
+</div>
+
+
+###  Подробнее
+
+🦋 «Reviver» — нарративная головоломка о любви и выборе 🦋
+Окунитесь в мир, где каждое, даже самое незначительное, решение меняет жизни. Узнайте, как выборы переплетаются между собой и формируют истории двух людей. Отправьтесь в путешествие сквозь время и откройте для себя, как ваши действия влияют на их судьбы.Тип издания: PaidРелиз состоялся: 16 янв. 2025 г.Разработчик: CottonGameПоддерживаемая ОС: Android 6.0+Жанр: ГоловоломкиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D66829F65E1369DEE1E12DEFFC8FDBFFA3B50CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774726   (30172) от 22.01.2025
+
+Monolith v1.1.12.065 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30172.jpg" />
+</div>
+
+
+###  Подробнее
+
+# # # ЗАХВАТЫВАЮЩАЯ ИСТОРИЯ # # #
+Классическое научно-фантастическое приключение, которое перенесет вас в глубокую историю и мрачную атмосферу, решая логические головоломки. Сопровождайте Тессу Картер и ее говорящего робота, пока она узнает о себе и ищет способ выжить.Тип издания: PaidРелиз состоялся: 23 окт. 2024 г.Разработчик: Animation Arts Creative GmbHПоддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B5C89FC86DCFD1DC0B0C3B5E2D22A75F42081B
 ```
 
 https://mybot314.ru/tekegram_catalog/

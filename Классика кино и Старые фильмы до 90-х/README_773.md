@@ -1,31 +1,3 @@
-###  Публикация: 449558   (75337) от 10.02.2012
-
-Долина / La vallee / The Valley / Obscured by Clouds (1972) [1080p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм о французских хиппи, отправившихся перенимать обычаи и образ жизни туземцев Новой Гвинеи, попутно разыскивая затерянную долину и ища смысл жизни. В центре истории - богатая молодая парижанка (французская актриса Бюль Ожье - блондинка из "Скромного обаяния буржуазии"). Устав от столичной жизни, она отправляется на Новую Гвинею в поисках приключений. Она попадает в мир древних верований, галлюциногенных наркотиков и свободной любви в духе 60-х, выбраться из которого оказывается непросто. Во второй половине фильма много документальных сцен из реальной жизни туземцев Новой Гвинеи, где зритель может понаблюдать их обычаи - это роднит фильм Шредера с "И стал свет” Иоселиани.
-
-Группа Pink Floyd специально написала саундтрек к фильму своего дpуга Шрёдера. Хотя фильм вышел как "La Vallee", пластинка получила название "Obscured by Clouds". Флойдам была предоставлена великолепная студия во Франции (Chateau d'Herouville под Паpижем), которая открывала новые горизонты для творчества. (   Читать дальше...   )Жанр: Драма, Приключения, БоевикРежиссер: Барбет ШредерАктеры: Бюль Ожье, Жан-Пьер Кальфон, Мишель Готар, Валери Лагранж, Моник ЖиродиПеревод: Одноголосый закадровыйПродолжительность: 1:45:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449812   (75291) от 10.02.2012
 
 Ожившая Библия часть 1: Деяния апостолов / Book of Acts (1952) DVDRip
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75291.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75288.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75277.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75163.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75161.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75138.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75095.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74921.jpg" />
 </div>
 
 
@@ -248,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74891.jpg" />
 </div>
 
 
@@ -276,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74524.jpg" />
 </div>
 
 
@@ -302,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74474.jpg" />
 </div>
 
 
@@ -329,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74020.jpg" />
 </div>
 
 
@@ -355,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73901.jpg" />
 </div>
 
 
@@ -381,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73868.jpg" />
 </div>
 
 
@@ -410,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73841.jpg" />
 </div>
 
 
@@ -436,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73808.jpg" />
 </div>
 
 
@@ -463,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73671.jpg" />
 </div>
 
 
@@ -492,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73670.jpg" />
 </div>
 
 
@@ -523,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73663.jpg" />
 </div>
 
 
@@ -549,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73502.jpg" />
 </div>
 
 
@@ -576,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73457.jpg" />
 </div>
 
 
@@ -602,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73420.jpg" />
 </div>
 
 
@@ -628,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73331.jpg" />
 </div>
 
 
@@ -655,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73314.jpg" />
 </div>
 
 
@@ -681,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73260.jpg" />
 </div>
 
 
@@ -692,6 +664,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:461B1DDFA950D9BEAE994C44E74BA66EB81313EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444621   (73254) от 31.01.2012
+
+Проверено - мин нет (1965) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73254.jpg" />
+</div>
+
+
+###  Подробнее
+
+1944 год. Ликует Белград, освобожденный от фашистских захватчиков. Но не знают люди, какая опасность их ожидает. Отступая, гитлеровцы решили взорвать город. На поверхности саперы прощупывают каждый уголок и делают надпись: «Проверено — мин нет». А заминирована глубоко под землей городская канализация. Группе советских и югославских бойцов удается предотвратить взрыв.Жанр: ВоенныйРежиссер: Здравко Велимирович, Юрий ЛысенкоАктеры: Ольга Лысенко, Бранко Плеша, Никола Попович, Миха Балох, Бора Бегович, Ескендыр Умурзаков, Олег Анофриев, Хусейн Чокич, Константин Степанков, Леонид Тарабаринов, Василий Фушич, Елена Лицканович, Г. МарковичПродолжительность: 01:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB7A502DD52E781C52FF32A298931DE5C40BA5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

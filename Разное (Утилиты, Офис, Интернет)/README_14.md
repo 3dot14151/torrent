@@ -6,7 +6,7 @@ triCerat ScrewDrivers 4.7.5.60 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778130.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BlueLife KeyFreeze 1.4 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777396.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ GWX Control Panel 1.7.4.1 Portable by Kopejkin [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775899.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Scan Tailor 0.9.11.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775656.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gilisoft RAMDisk 6.6.0 DC 01.04.16 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775412.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Stardock WindowBlinds 10.74 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774801.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ ScreenPresso Pro 1.8.1.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770467.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Aid4Mail eDiscovery 3.5 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769723.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ oCam 515.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769660.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ addLEDs 1.3.0.5 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768910.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765121.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Reg Converter 1.2 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761274.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Awesome Duplicate Photo Finder 1.2 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758138.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ C-Organizer Professional 6.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751386.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Dexpot 1.6.14 Build 2439 Stable + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751039.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Debut Video Capture Professional 5.07 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747393.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Screenshot Captor 4.29.0 RePack (&Portable) by Kopejkin [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744452.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ HashCheck Shell Extension 2.4.0.55 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742558.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Aml Pages + portable (GAOTD) 9.85 сборка 2773 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740773.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ FontMassive Portable 3.5 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735818.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Free Countdown Timer 5.2.0.0 [Multi/Ru] + Portable
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733945.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ MInstAll Portable-Soft by Bombokot 08.04.2018 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722833.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ ClickTeam Install Creator Pro 2.0.45 Portable by вовава [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718338.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ ColorMania 6.3 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718249.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ DirectX 9.29.1962 (June 2010) [x86/x64] Repacked
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_716746.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Recover PDF Password 4.0.238.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716424.jpg" />
 </div>
 
 

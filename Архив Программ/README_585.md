@@ -6,7 +6,7 @@ Psiphon 3 build 171 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756321.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Mozilla Firefox ESR 52.7.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756227.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mozilla Firefox Quantum 59.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756224.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Stellarium 0.18.0 + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756213.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ RAM Saver Professional 18.3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756112.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VueMinder Ultimate 2018.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756110.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756105.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ IObit Malware Fighter Pro 5.6.0.4462 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756100.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ArcSoft TotalMedia Theatre 3.0.1.175 Platinum SimHD [Eng+Rus] RePack by Nonsys
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_756059.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Soft4Boost Any Audio Grabber 5.9.5.393 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755927.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SlimBrowser 7.00 Build 144 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755921.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Active@ File Recovery v 8.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755861.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Mozilla Firefox 47.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755825.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Easy Disc Burner 4.8.1.363 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755823.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Microsoft Offiсe 2010 Interactive Guide - Визуальный интеракт
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755810.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Soft4Boost Dup File Finder 6.2.3.435 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755745.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Soft4Boost Any Uninstaller 6.9.5.539 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755744.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Soft4Boost Secure Eraser 4.0.3.363 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755733.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Soft4Boost Toolbar Cleaner 4.5.5.297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755732.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755730.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ oCam Screen Recorder 270.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755727.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Soft4Boost Document Converter 4.4.7.335 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755682.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Soft4Boost Any Audio Record 4.9.5.393 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755680.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Soft4Boost AMPlayer 3.8.1.283 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755679.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Soft4Boost Update Checker 6.7.3.333 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755674.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ LibreOffice 5.1.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755617.jpg" />
 </div>
 
 

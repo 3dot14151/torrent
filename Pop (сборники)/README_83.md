@@ -6,7 +6,7 @@ VA - Попсовая лихорадка осени. Сборник 10 (2016) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455297.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Мега хиты хорошего настроения. Сборник 10 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455037.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - German Top 100 Single Charts 30.08.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454800.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Самый Свежак DFM (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454268.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Patricia Kaas - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453564.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Whitney Houston - Good Songs (2015) [MP3|224 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453561.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - 100 пудовый хит. Выпуск 50/50 (2012) [MP3|256 кб/с]<Pop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453446.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Mylene Farmer - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453234.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Русский Свежачок Сезона (2012) [MP3|256 кб/с]<Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453109.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Shazam Хит-парад Russia Top 100 Август (2019) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452204.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Lara Fabian - Good Songs (2015) [MP3|160 кб/с]<Pop, Female vocalists>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451500.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Vanessa Paradis - Good Songs (2015) [MP3|320 кб/с]<Pop, Dance pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451499.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Samantha Fox - Good Songs (2015) [MP3|256 кб/с]<Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451491.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451188.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - К чёрту любовь. Суперсборник хитов (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450984.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - XXXL Клубничка MTV №30 50/50 (2012) [MP3|256 кб/с]<Pop, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450952.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - 80s Respect Magic Liberty (2016) [MP3|128-320 Kbps] <Electro Pop, Eurodance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450618.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Зайцев.нет. Осенний топ №8 (2016) [MP3|256~320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450611.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Demis Roussos - Hits (2016) Presents: Elgujakviso [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450493.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Самые Горячие Хиты Авторадио 50/50 (2012) [MP3|224
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450423.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Mireille Mathieu - Good Songs (2015) [MP3|128 кб/с]<Pop, Female vocalists>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449435.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Schlager Hits Total: Remix Edition (2022) [MP3|320 Kbps] <Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449415.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Turbo дискотека NRJ (2015) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449256.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Популярный драйвовый хитовичок. Часть 5 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449163.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Boney M - Good Songs (2015) [MP3|192 кб/с]<Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449127.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ ABBA - Good Songs (ABBA) [MP3|160 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449118.jpg" />
 </div>
 
 

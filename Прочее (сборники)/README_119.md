@@ -6,7 +6,7 @@ VA - Beatport TOP 100 September (2012) [MP3|320 кб/с]<House, Trance, Techno, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419597.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - No Other Way: Hard Rock Digest (2016) [MP3|320 Kbps] <Alternative, Hard Roc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419341.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - В машине с музыкой Vol.298 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419319.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Club Dance Ambience Vol.164 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419281.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Orient Express (2016) [MP3|320 Kbps] <Arabic, Lounge, Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419216.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - В машине с музыкой Vol.297 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419141.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.01 (2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419076.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Сборник Советского Рока (2012) [MP3|320 кб/с]<Rock,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418508.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Amsterdam Music Festival - The 2015 Compilation (2015) [MP3|320 кб/с]<Tr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418261.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - A Natural Woman (3 CD) (2015) [MP3|320 кб/с]<Pop, Disco, Soul, Rhythm an
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418111.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Зайцев.нет Музыкальные новинки 2 Сентябр�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417764.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - My Favourite Hits of 1960 (3CD) (2015) [MP3|320 кб/с]<Funk, Soul, Rhythm
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417717.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Осенняя супер вечеринка (2012) [MP3|256 кб/с]<Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417488.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Дискотека 80-х, 90-х, 2000-x. Музыка По-Новому п�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417407.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Top 55 Tracks for Cars Vol.14 (2012) [MP3|320 кб/с]<Breaks, House, Tranc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417232.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.03 (2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416836.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Зайцев.нет Лучшие новинки Сентября 2019 [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416220.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Acoustic Lounge (With a Bossa Touch) (2015) [MP3|320 кб/с]<Acoustic, Lou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415998.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Музыкальное свежье русский выпуск 3 (2015) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415850.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Kamasutra Cafe Chillout (2015) [MP3|320 кб/с]<Easy Listening, Lounge, In
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415849.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - 100 Fashion Dance (2015) [MP3|320 кб/с]<Pop, Dance, Eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415838.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - The Very Best Of Pure House Music (2017) [MP3|265-320 Kbps] <Progressive, D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415013.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - Simply Breaks & Beats Vol. 01 (2022) [MP3|320 Kbps] <Grime, 2-Step, Breakbe
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414772.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ VA - The Official UK Top 40 Singles Chart 13.09.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414661.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ VA - Disco Vintage Real Time (2022) CD, Promo Edition, Compilation [MP3|320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414583.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ VA - The Real... Christmas Crooners (2016) [MP3|320 Kbps] <Miscellaneous, Holida
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414458.jpg" />
 </div>
 
 

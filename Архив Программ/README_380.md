@@ -6,7 +6,7 @@ PicturesToExe Deluxe 9.0.2 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852173.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GoldWave 6.27 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852091.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852045.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ TSR Watermark Image Software Pro 3.5.5.6 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852040.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ThunderSoft Flash to Video Converter 2.3.8.0 RePack (& Portable) by 78Sergey-Din
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852038.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ultra Adware Killer 4.2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852037.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tipard Video Converter Ultimate 9.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851987.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Tipard Video Enhancer 1.0.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851985.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tipard All Music Converter 7.1.52 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851971.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Icecream Screen Recorder Pro 4.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851967.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tipard Video Converter Platinum 6.2.38 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851935.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Ummy Video Downloader 1.6.0.2 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851934.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Download Master 6.8.2.1511 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851930.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Xilisoft Video Converter Ultimate 7.8.14 Build 20160322 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851926.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Aiseesoft Audio Converter 6.3.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851923.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ashampoo Photo Recovery 1.0.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851916.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Mp3tag 2.81 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851906.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Panda Protection 18.00.00 DC 26.02.2017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851903.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ PTE AV Studio Pro 10.0.10 Build 6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851881.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Notepad++ 6.9.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851867.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Autorun Organizer 2.21 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851860.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ GeoGebra 6.0.577.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851830.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Vivaldi 3.0.1874.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851827.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Ashampoo Photo Commander 16.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851825.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ MetaProducts Offline Explorer Enterprise 7.1.4452 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851814.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Ummy Video Downloader 1.7.2.7 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851752.jpg" />
 </div>
 
 

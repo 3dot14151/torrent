@@ -6,7 +6,7 @@ Adobe Audition 2023 23.0.0.54 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205008.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe InDesign 2023 18.0.0.312 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205005.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MAGIX Vegas Pro 20.0 Build 214 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205004.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sketch 98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205003.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ExamDiff Pro Master Edition 14.0.1.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204992.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MAGIX Movie Studio 2023 22.0.3.165 Suite (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204991.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ QOwnNotes 23.8.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204985.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Dynamic Island - dynamicSpot 1.71 (200093) Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204983.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Comodo Dragon 114.0.5735.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204982.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Gradient v2.9.70 Mod by KirillCXV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204975.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ YouTube ReVanced Extended 18.32.39 (RVP v2.188.1) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204970.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CamScanner 6.47.6.2308150000 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204968.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BitComet 2.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204966.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204957.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Hard Disk Sentinel PRO 6.01.6 Build 12540 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204941.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Allavsoft Video Downloader Converter 3.25.8.8624 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204937.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204930.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Stats 2.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204913.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Apeaksoft DVD Creator for Mac 1.0.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204911.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ LaunchBar 6 v.6.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204901.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ TechSmith Camtasia 2023 Studio 2023.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204886.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2130]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204869.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Boxy SVG 4.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204868.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Aiseesoft FoneLab for Android 3.2.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204859.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Adguard 7.11.0 (7.11.4078.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204857.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ PDFCreator 5.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204850.jpg" />
 </div>
 
 

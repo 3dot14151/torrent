@@ -1,55 +1,3 @@
-###  Публикация: 1444980   (1027485) от 07.03.2021
-
-Семейка Аддамс / The Addams Family (1991) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Черная комедия о колоритной семейке, обитающей в не менее колоритном доме. Глава семьи, Гомес Аддамс - очень самоуверенный и довольно импульсивный тип, который четверть века тому назад страшно поругался со своим старшим братом Фестером, после чего тот пропал без вести. Все попытки отыскать его были безуспешными. Но вот, однажды на пороге фамильного особняка появляется (   Читать дальше...   )Производство: США / Orion Pictures, Paramount Pictures, Scott Rudin ProductionsЖанр: Фэнтези, комедияРежиссер: Барри ЗонненфельдАктеры: Анжелика Хьюстон, Рауль Хулиа, Кристофер Ллойд, Дэн Хедайя, Элизабет Уилсон, Джудит Мэлина, Карел Стрёйкен, Дэна Айви, Пол Бенедикт, Кристина РиччиПеревод: Многоголосый профессиональный, двуголосый профессиональный, дублированный, авторский, одноголосый любительскийСубтитры: Русские, Английские (SDH)Продолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529EC532162717A6E90061BE2DD0264C4B1D0B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452574   (1027484) от 07.03.2021
-
-Единорог / The Unicorn (2018) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Мэлори и Калеб — нерешительная пара, которая уже четыре года находится в состоянии помолвки. Однажды они отправляется в Палм Спрингс, чтобы отметить двадцатипятилетнюю годовщину брака родителей Мэлори.Там будущие супруги решают отметить юбилей своей помолвки необычным образом - сексом втроём. Но веселое ночное приключение принимает неожиданный оборот и обнажает глубокие (   Читать дальше...   )Производство: США / Beachwood Park FilmsЖанр: КомедияРежиссер: Роберт ШварцманАктеры: Лорен Лапкус, Николас Рутерфорд, Люси Хейл, Бек Беннетт, Дри Хемингуэй, Беверли Д’Анджело, Джон Капелос, Майя Кэзан, Даррел Бритт-Гибсон, Джефф БэрриПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced), английские - отдельными файламиПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B2179B6AC35660A2BC56A733E2A3A665050012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452480   (1027465) от 07.03.2021
 
 Птица в клетке. Заражение / Songbird (2020) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027465.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027460.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027459.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027450.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027444.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027352.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027334.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027328.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027327.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027323.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027322.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027321.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027320.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027309.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027304.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027299.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027290.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027289.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027283.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027281.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027272.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027201.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027196.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027193.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5E1CFF93DD580B95661394D3D8A5BF5A9A590F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445606   (1027167) от 09.03.2021
+
+Идеальный незнакомец / Perfect Stranger (2007) WEB-DLRip [H.264/720p-LQ] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда журналистка Ровена Прайс, занимающаяся расследованием убийства своей подруги, узнает, что к нему может быть причастен влиятельный глава рекламного агентства Харрисон Хилл, она затевает опасную игру вместе со своим помощником Майлзом Хэйли.
+Принимая образы Катарины, машинистки в агентстве Хилла, и Вероники, девушки, с которой Хилл флиртует в Интернете, она плетет (   Читать дальше...   )Производство: США / Revolution Studios, Columbia PicturesЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Джеймс ФоулиАктеры: Холли Берри, Брюс Уиллис, Джованни Рибизи, Ричард Портноу, Гари Дурдан, Флоренция Лозаньо, Никки Эйкокс, Кэтлин Чэлфант, Гордон МакДональд, Дэниэлла Ван ГраасПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B54B91BC34788A10299CF1575EA40B730FCEACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453138   (1027165) от 09.03.2021
+
+Люс / Luce (2019) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люс — улыбчивый чернокожий старшеклассник, звезда школы, гордость учителей и приёмных родителей, десять лет назад усыновивших ребёнка из Эритреи. Но однажды учительница находит в сочинении Люса слишком много симпатии к панафриканскому движению и радикальным политическим лидерам. Теперь все обеспокоены: отличник оказался совсем не таким пай-мальчиком, каким его считали.Производство: США / Altona Filmhaus, Dream Factory GroupЖанр: Драма, детективРежиссер: Джулиус ОнаАктеры: Наоми Уоттс, Октавия Спенсер, Келвин Харрисон, Тим Рот, Норберт Лео Батц, Андреа Банг, Марша Стефани Блейк, Астро, Омар Шарифф Брансон мл., Ной ГейнорПеревод: Дублированный (Netflix)Субтитры: Русские (Forced, Full), украинские, английскиеПродолжительность: 01:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616268F9656FB46B222C56525C881074733D96DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

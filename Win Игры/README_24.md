@@ -6,7 +6,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack seleZen [Qua
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057274.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Comix Zero (2026) [Multi] (0.4.5) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057235.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Diablo II: Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Scene Rune [Infernal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057181.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Let'sРlay [Supporter Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057179.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ THE IRONY (2026) [Multi] (Alpha 0.1.2) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057138.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Warhammer 40,000 Dark Heresy (2026) [Ru/Multi] (0.0.3.507) Repack Let'sРlay [Pl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057076.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7.404.504czj3/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057016.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Other s [Collectors Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057014.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack FitGirl [Collectors Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057013.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack Other s [Anniversary Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057012.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057011.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057010.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057009.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack HardwareMining
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057008.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Anno 1800 (2019) [Ru/Multi] (18.4.1412158/dlc) Repack dixen18 [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057006.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack seleZen [Digital Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057005.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MIO: Memories in Orbit (2026) [Ru/Multi] (r21606) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057004.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Strange Lights (2026) [Ru/Multi] (Build 21829961) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057003.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Strange Lights (2026) [Ru/Multi] (Build 21829961) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057002.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (20251218) Scene Rune [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057001.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Happy Holidays 6: Season of Love / Счастливые праздники 6: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056971.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Crimson Capes (2026) [En] (Rev.22) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056961.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Soda Crisis (2022) [Ru/Multi] (20230301) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056957.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ High On Life 2 (2026) [Multi] (Build 21897943) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056832.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ REANIMAL (2026) [Ru/Multi] (354342/dlc) Repack Let'sРlay [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056830.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Reanimal (2026) [Ru/Multi] (1.0a/dlc) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056774.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1772842   (10715) от 22.07.2025
-
-The Rangers In The South (2025) [Ru/Multi] (3.0.3) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-The Rangers in the South - это пиксельный экшн-рогалик, действие которого происходит в прекрасном мире 2.5D, вдохновленном классикой SNES. Сражайтесь и разрабатывайте уникальную стратегию с сотнями вариантов, чтобы исследовать разные биомы и испытания! Исследуйте нарисованный от руки мир, полный деталей, открывайте секреты и интересные места в игре, которая вознаграждает (   Читать дальше...   )Тип издания: SceneРазработчик: DPA StudiosЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C7228845C99BF5AA434C7784DE1BE9C9F06BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789602   (10710) от 22.07.2025
 
 Inayah - Life after Gods (2025) [Ru/Multi] (1.0.5) License GOG
@@ -32,7 +6,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10710.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1) Repack Necros1404
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10692.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.17) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10669.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.19-38.257/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10656.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10641.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10635.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10590.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dust Raiders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10561.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4528/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10518.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10506.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ to a T (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10474.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10456.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack seleZen [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10455.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10449.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dread: The Cold Case (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10436.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Death Must Die (2023) [En] (0.8.5) Repack Necros1404 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10432.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sears: The Sky Frontier (2023) [Ru/Multi] (EA 0.3.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10408.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Meat Fest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10400.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Paranormal Files 13: Chaos Weekend / Паранормальные явления
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10393.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mini Cozy Room: Lo-Fi (2025) [Ru/Multi] (1.02.04/dlc) Repack FitGirl [All in One
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10379.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Detectives United 8: Vengeance from the Past (2025) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10359.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.5.1.13033) Repack Other s [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10348.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.4.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10337.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Other s [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10334.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10327.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B752FF9BB0041FA91CD909772DCABAD22CF966E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766109   (10326) от 26.07.2025
+
+Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смахните пыль с резака и молота – пора возвращаться к работе, у вас новое задание. Отправляйтесь на новое побережье с самым большим кладбищем кораблей в мире, демонтируйте огромные детали кораблей и соберите тонны драгоценной стали. Засучите рукава, пора вернуться в бизнес. Ship Graveyard Simulator 2 – это продолжение тепло принятой первой части игры, в которой игрок (   Читать дальше...   )Тип издания: RepackРазработчик: Games IncubatorЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E18334BC36AB8DBB9798ABF770BBD588D066D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

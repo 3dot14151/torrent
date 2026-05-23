@@ -6,7 +6,7 @@ New Yankee 10: Under the Genies Thumb / Янки 10: На службе у джи
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028811.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ColdSide (2020) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028760.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.3.27878/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028759.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Arma 3: Apex Edition (2013) [Ru/Multi] (2.02.147284/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028758.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Just Cause 4 (2018) [Ru/Multi] (4110618/dlc) SteamRip =nemos= [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028756.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FEIST (2015) [Ru/Multi] (1.4.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028610.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mini Motor Racing X (2020) [Multi] (1.3.1.2103021500) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028129.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Twin Mind. Murserous Jealousy / Близнецы-детективы. Убийс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028029.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Detectives United 4: Phantoms of the Past / Лига детективов 4: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027879.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Nevertales 10: Faryon (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027701.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ DISTRAINT (2015) [Ru/Multi] (1.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027661.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027427.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ RIDE 4 (2020) [Ru/Multi] (2021.02.08/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027271.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/En] (1.30/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027267.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Iron Harvest (2020) [Ru/En] (1.1.4.2102/dlc) Repack Other s [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027134.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Arizona Derby (2019) [En] (2.0.5 C/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026998.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.0.19584.2) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026988.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adventures of Megara 3: Demeter's Cat-astrophe / Приключения Мега
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026860.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ DYSMANTLE (2020) [En] (0.6.9.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026831.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Star Renegades (2020) [Ru/Multi] (1.3.1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026828.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dark Romance 14: Sleepy Hollow (2021) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026726.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026489.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Pascal's Wager: Definitive Edition (2021) [Ru/Multi] (1.1.1.1000) Repack SpaceX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026475.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dead Age 2 (2021) [Ru/Multi] (1.0.0) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026469.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Pascal's Wager: Definitive Edition (2021) [Ru/Multi] (1.1.1.1000) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026462.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Vampire: The Masquerade - Coteries of New York (2019) [Ru/Multi] (1.0.9) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026299.jpg" />
 </div>
 
 

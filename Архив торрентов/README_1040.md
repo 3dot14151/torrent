@@ -6,7 +6,7 @@ VA - Best Of First 50 (Compiled & Mixed by Stephane Badey & Arrakeen) (2015) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808354.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - We Are Trance Vol. 2 (Mixed by Pierre Pienaar) (2016) [MP3|320 кб/с] <Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808353.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bazzookas - Ska.World (2016) [FLAC|Lossless|WEB-DL|tracks] <Ska, Altertative>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808352.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Affinity Designer 1.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808350.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Blocs 4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808347.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Timeline 3D 5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808339.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Reeder 5 v5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808336.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Boards Of Canada - 9 Альбомов (1996 - 2006) [FLAC|Lossless] <IDM, Downte
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808325.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - CLUBная Жар vol.5 (2011) [MP3|256 kbps]<Club, Dance, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808308.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808293.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ SMPlayer 18.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808291.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808285.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Internet Download Manager 6.30 Build 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808283.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Adguard 2.4.71.789 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808272.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Dropzone 3.5.5 (904) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808236.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Solarstone pres... Pure Trance 4: Expanded (Mixed by Solarstone + Gai Baron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808230.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Side Effects - Package (2016) [MP3|320 кб/с] <Psy-Trance , Progressive Psy-Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808226.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Glary Utilities Pro 5.174.0.202 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808219.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sandboxie 5.53.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808218.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ WinSCP 5.19.4 Build 11829 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808217.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Balabolka 2.15.0.803 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808216.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Scrivener 3 v3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808208.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ TagScanner 6.0.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808164.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Psychedelic Goa Trance - 2018 Top 40 Hits Psychedelic Fullon Trance Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808161.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Meta 1.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808158.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ FreeFileSync 10.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808138.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1565660   (491815) от 24.07.2022
-
-Серый человек / The Gray Man (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда самый опытный оперативник ЦРУ, чья истинная личность никому не известна, случайно раскрывает темные секреты агентства, бывший коллега-психопат назначает награду за его голову, запуская глобальную охоту международных убийц.Производство: США / AGBO, Netflix, Roth FilmsЖанр: боевик, триллерРежиссер: Энтони Руссо, Джо РуссоАктеры: Ана де Армас, Райан Гослинг, Крис Эванс, Джессика Хенвик, Реге-Жан Пейдж, Вагнер Моура, Билли Боб Торнтон, Джулия Баттерз, Элфри Вудард, ДханушПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские (full), английские (full)Продолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A0091B670A3AFA73773D9843E9E2F876453FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243286   (491711) от 27.08.2018
-
-Хакеры / Hackers (1995) BDRip [H.264/720p] [GER Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Развлекаясь манипуляциями в коммерческих сетях, начинающий хакер делает почти невозможное: взламывает защиту секретного компьютера «Гибсон» в корпорации «Эллингсон». При этом он случайно подключается к схеме хищения средств, искусно замаскированной кем-то под компьютерный вирус, действие которого может привести к глобальной экологической катастрофе. Молодой хакер (   Читать дальше...   )Производство: США, Suftley, United ArtistsЖанр: Триллер, Драма, Комедия, КриминалРежиссер: Иэн СофтлиАктеры: Джонни Ли Миллер, Анджелина Джоли, Джесси Брэдфорд, Мэттью Лиллард, Лоуренс Мэйсон, Реноли Сантьяго, Фишер Стивенс, Альберта Уотсон, Даррен Ли, Питер Й. КимПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE674CA62CE854722D256621B86BE621883998AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 409645   (491697) от 13.09.2015
 
 Темная история / Dark Matter (2007) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491697.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491696.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491691.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491680.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491669.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491667.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491655.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491649.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491564.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491553.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491530.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491528.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491527.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491501.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491497.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491494.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491493.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491492.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491415.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [H.265
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491411.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491410.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491394.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491362.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491356.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:620DCD7772A09D3A0C9BD9F61BF9FAB3DECC4F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937079   (491350) от 13.09.2015
+
+Матрица: Революция / The Matrix Revolutions (2003) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491350.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Матрица: Революция» (англ. The Matrix Revolutions) — третий и последний фильм в трилогии «Матрица», снятый Ланой и Эндрю Вачовски. «Революция» вышла 5 ноября 2003 года.
+Фильм является прямым продолжением «Матрицы: Перезагрузки» и повествует о последних часах войны людей и машин, судьбу которой должен решить Избранный — Нео.Производство: Австралия, США / NPV Entertainment, Silver Pictures, Village Roadshow Pictures, Warner Bros. Pictures Co., МОСФИЛЬМ-мастер (дубляж)Жанр: Фантастика, БоевикРежиссер: Энди Вачовски, Лана ВачовскиАктеры: Киану Ривз, Хьюго Уивинг, Кэрри-Энн Мосс, Лоренс Фишбёрн, Хэролд Перрино, Джина Торрес, Джада Пинкетт Смит, Моника Беллуччи, Гарри Дж. Ленникс, Мэри ЭлисПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 02:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6930DDEDC178D80033CEE18BE10F948C5E9317F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243325   (491347) от 27.08.2018
+
+Эскобар / Loving Pablo (2017) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491347.jpg" />
+</div>
+
+
+###  Подробнее
+
+История восхождения Пабло Эскобара — его стремительного пути к миллиардам, могуществу и непростительным преступлениям. Во всесильного наркобарона влюбляется журналистка, чьи мемуары положены в основу фильма.Производство: Испания, Болгария, США, Escobar Films, B2Y EOODЖанр: Биография, драма, криминалРежиссер: Фернандо Леон Де АраноаАктеры: Хавьер Бардем, Пенелопа Крус, Питер Сарсгаард, Жульет Рестрепо, Оскар Хаенада, Фреди Йэт, Рикардо Ниньо, Педро Кальво, Джованни Альварез, Дэвид ВаленсиаПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BE04529E687495A6F5693EFA7DE9A41D5B989D
 ```
 
 https://mybot314.ru/tekegram_catalog/

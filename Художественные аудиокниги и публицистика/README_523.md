@@ -1,84 +1,3 @@
-###  Публикация: 936922   (492389) от 13.09.2015
-
-Вацлав Михальский | Прощеное воскресенье (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Прощеное воскресение» (начало истории в романах «Весна в Карфагене», «Одинокому везде пустыня», «Для радости нужны двое», «Храм согласия») -
-историческая беллетристика, о жизни русских эмигрантов в Африке и их родственников в СССР. Судьбы двух разлученных в детстве сестер. Одна из них, Мария, в годы второй мировой войны в Африке, у кочевых племен. После войны она (   Читать дальше...   )Жанр: РоманПродолжительность: 07:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946BC8E946A07D34F34F5E8F321037F69155B5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936912   (492386) от 13.09.2015
-
-Вячеслав Пальман | Кольцо Сатаны (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга «Кольцо Сатаны» состоит из двух частей: первая «За горами, за долами» повествует о колымских лагерях 30-40-х годов, вторая — «Гонимые» рассказывает о жизни автора на Колыме после освобождения, и опять же о лагерях.
-Герой романа Сергей Морозов — Вячеслав Иванович Пальман. Что он за человек, как жил и работал на Колыме, читатель узнает из этой книги. И не только (   Читать дальше...   )Жанр: РоманПродолжительность: 26:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF41A77674E5C452F76675231F0156B9A638585E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936585   (492377) от 13.09.2015
-
-Альбер  Коэн | Любовь властелина (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Альбер Коэн (фр. Albert Cohen; 16 августа 1895, остров Корфу — 17 октября 1981, Женева) — поэт, писатель и драматург из швейцарской Романдии. Выдвигался на Нобелевскую премию по литературе.
-«Любовь властелина» (1968) — «фреска, запечатлевшая вечное приключение мужчины и женщины» (смертельная любовь, как у Тристана и Изольды), изображает события 1936 года, происходящие (   Читать дальше...   )Жанр: РоманПродолжительность: 29:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9906FBCF03944D0ED23F4E050B102F46C2BCE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054264   (492355) от 20.09.2016
 
 Десмонд Бэгли | Золотой киль (2016) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492355.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492319.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492318.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492312.jpg" />
 </div>
 
 
@@ -195,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492268.jpg" />
 </div>
 
 
@@ -222,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492254.jpg" />
 </div>
 
 
@@ -248,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492201.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492145.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492127.jpg" />
 </div>
 
 
@@ -327,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492119.jpg" />
 </div>
 
 
@@ -353,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492113.jpg" />
 </div>
 
 
@@ -379,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492094.jpg" />
 </div>
 
 
@@ -405,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492037.jpg" />
 </div>
 
 
@@ -431,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492028.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492020.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491906.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491887.jpg" />
 </div>
 
 
@@ -536,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491880.jpg" />
 </div>
 
 
@@ -562,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491874.jpg" />
 </div>
 
 
@@ -588,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491873.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491847.jpg" />
 </div>
 
 
@@ -644,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491664.jpg" />
 </div>
 
 
@@ -670,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491324.jpg" />
 </div>
 
 
@@ -681,6 +600,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F265F40D29AA430EF2685C265E236F118BC857B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404716   (491307) от 26.08.2020
+
+Юрий Нагибин | Павлик (1964) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиопостановка по повести Юрия Нагибина.
+1941 год. Юный Павел направляется на войну в прифронтовую полосу сотрудником фронтовой газеты, основной задачей которой являлась контрпропаганда на немцев, направленная на сдачу в плен солдат Вермахта. Немало испытаний ждет его на этом пути.Жанр: Драма, РадиоспектакльПродолжительность: 01:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928F2392871092B052B96779C9B3B7BC4322B35B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382865   (491155) от 02.09.2011
+
+Александра Маринина | Я умер вчера (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491155.jpg" />
+</div>
+
+
+###  Подробнее
+
+От взрыва в автомобиле погибают два сотрудника телепрограммы «Лицо без грима». Через некоторое время ее ведущий, популярный тележурналист Александр Уханов, узнает, что существует заказ и на его убийство. И заказ сделала его собственная жена. Неожиданно Уханов попадает в поле зрения работников милиции, ведущих следствие по делу об убийстве колдуньи Инессы. Анастасия (   Читать дальше...   )Жанр: ДетективПродолжительность: 19:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD87A9CA727B4D9D99BA9DE4BAE4E667786D8272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404585   (491097) от 26.08.2020
+
+Данил Корецкий | Золушка (Книга 2). Алмазы для Золушки (2020) [MP3, Константин Корольков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман в лучших традициях прозы Корецкого!
+Кира – дочь геолога, открывшего когда-то в джунглях алмазное месторождение, отправляется искать алмазную жилу в составе экспедиции. В этом поиске переплетаются интересы нескольких разведок и опасного авантюриста, а Кира пытается «вычислить» среди участников операции убийцу ее отца. Поход по джунглям опасен и полон приключений. (   Читать дальше...   )Жанр: Шпионские детективыПродолжительность: 10:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58DE9E90D22F70A913E1441A669998C644CBAA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689962.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689960.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689958.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4390.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689946.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ KMS Tools Portable 18.06.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689945.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Avidemux 2.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689938.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Audacity 2.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689928.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 08.2020 by OVGorskiy 1D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689848.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BurnAware Professional 8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689805.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Google Earth Pro 7.3.2.5776 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689794.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mozilla Firefox 38.0.5 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689718.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Vivaldi 1.0.174.8 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689710.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Bat! Professional 6.8.2 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689708.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Total Uninstall Ultimate 6.13.0 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689704.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689701.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Microsoft Windows 7 SP1 Build 7601.24385 with Update March 2019 by adguard [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689698.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689688.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ The Bat! Professional Edition 6.8.2 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689614.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ RegVac Registry Cleaner 5.02.08 + Portable by -= SV =- [Русский (от WYL
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689591.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NOD32 Update Viewer 5.01.0 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689589.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Slimjet 18.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689561.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ MKVToolNix 7.9.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689497.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Start Menu X 5.44 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689493.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ ProgDVB 7.09 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689486.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ uTorrent 3.1.3 Build 27327 Stable (2012) Русский присутствует
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689468.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ WinToUSB 2.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689327.jpg" />
 </div>
 
 

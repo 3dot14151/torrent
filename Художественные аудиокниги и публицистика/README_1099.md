@@ -1,84 +1,3 @@
-###  Публикация: 1811934   (8225) от 12.08.2025
-
-Андрей Шопперт | Колхозное строительство (Книга 7.2). (2024) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-ГГ романа "Колхозное строительство" Пётр Штелле на концерте Вики Цыгановой погибает в результате несчастного случая, вместе с самой певицей. Пётр оказывается в теле Первого секретаря Краснотурьинского горкома КПСС, а Вика - в теле десятилетней сироты, в школе-интернате этого же города.
-Памяти хозяев не осталось. Нужно начинать с чистого листа. А ведь у (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 09:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3253B18817D1014C8131E7C717209BB2105CAF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811948   (8224) от 12.08.2025
-
-Ольга Вечная | Хочу с тобой (2022) [MP3, Татьяна Борисова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-– А что там, праздник какой-то? – Я жую нижнюю губу, стараясь выглядеть соблазнительно. Данил окидывает меня внимательным взглядом, от которого ноги подкашиваются. И сообщает:
-– Старший сын Миронова женится. У него мальчишник.
-– Сын Кулака, что ли? – смеюсь я. – Московский перец, что недавно унаследовал целое состояние? Везет же дуракам. Ты приглашен? Данил кивает (   Читать дальше...   )Жанр: романтическая эротика, современные любовные романы, эротические романыИздательство: ИДДКПродолжительность: 07:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708E1B6BF0DBB1CBD792D74A1D18810B07F8025A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811920   (8223) от 12.08.2025
-
-Андрей Шопперт | Уродина. (Книга 2). Стрела в печень (2025) [MP3, Ярослав Лукашев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Скоро сказка сказывается. А жизнь, она течёт размеренно. Сегодня вторник, завтра среда. И каждый день новые события и каждый день новые испытания. Новые люди. Брехт потихоньку осваивается при дворе Анны Иоанновны.Жанр: Фантастика, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 08:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760D6FE6B79C87C2DA61C42DACCC8E6B70915637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811962   (8222) от 12.08.2025
 
 Денис Старый, Валерий Гуров | Гридень (Книга 2). Поиск пути (2025) [MP3, Дмитрий Кузнецов]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8222.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8221.jpg" />
 </div>
 
 
@@ -143,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8220.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8219.jpg" />
 </div>
 
 
@@ -197,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8217.jpg" />
 </div>
 
 
@@ -223,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8216.jpg" />
 </div>
 
 
@@ -251,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8215.jpg" />
 </div>
 
 
@@ -278,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8214.jpg" />
 </div>
 
 
@@ -304,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8213.jpg" />
 </div>
 
 
@@ -331,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8212.jpg" />
 </div>
 
 
@@ -358,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8211.jpg" />
 </div>
 
 
@@ -385,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8210.jpg" />
 </div>
 
 
@@ -412,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8209.jpg" />
 </div>
 
 
@@ -439,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8208.jpg" />
 </div>
 
 
@@ -468,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8207.jpg" />
 </div>
 
 
@@ -497,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8206.jpg" />
 </div>
 
 
@@ -526,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8205.jpg" />
 </div>
 
 
@@ -552,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8204.jpg" />
 </div>
 
 
@@ -579,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8203.jpg" />
 </div>
 
 
@@ -605,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8202.jpg" />
 </div>
 
 
@@ -631,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8200.jpg" />
 </div>
 
 
@@ -657,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8199.jpg" />
 </div>
 
 
@@ -683,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8197.jpg" />
 </div>
 
 
@@ -695,6 +614,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5646C83CDC8BAC61751653B9C288CAFA17EB54E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812059   (8112) от 13.08.2025
+
+Александра Лисина | Гибрид (Книга 1). Протокол «Наследник» (2025) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каким только образом не попадают люди в другие миры: то их давят грузовики, то сбивают поезда, а то еще что-нибудь этакое случается.
+Мне вот тоже не повезло: опоили, уронили, заставили убиться об асфальт, а потом и вовсе зашвырнули черт знает куда. Сделали, понимаешь, очередного попаданца. Да еще и в тело полудохлого мальчишки запихнули, хотя могли бы отыскать кого-нибудь (   Читать дальше...   )Жанр: Фэнтези, приключения, попаданцыИздательство: ИДДКПродолжительность: 10:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995CE4577A832CE989967C9B2318EC62C1EDA0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812021   (8110) от 13.08.2025
+
+Алексей Губарев | Тайны предтеч. Крушитель (Книга 3). Огнев. Гвардеец (2025) [MP3, Вячеслав Булавин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Огнев прошёл испытание, и теперь ему придётся сдать экзамен, чтобы занять место в элитном отряде гвардии Императора. Хотел бы отказаться, но кто ж позволит.
+Всё начинает идти не по плану в момент прохождения экзамена. Теперь ему и ещё нескольким одаренным предстоит выживать на планете, переполненной зараженными Альфа, без связи с орбитой и поддержки гвардии. (   Читать дальше...   )Жанр: Фантастика, попаданцы, РеалРПГИздательство: ЛитРесПродолжительность: 06:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882937F2136736140A4F265F60FD68CEAD34446B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812003   (8104) от 13.08.2025
+
+Алексей Елисеев | Звёздная Кровь. Изгой. (Книга 1). (2025) [MP3, Aztech (Александр Никитин)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я офицер-техник с борта исследовательского крейсера «Эгир», отправленного со спасательной миссией к неизвестному кораблю, пославшему автоматический сигнал бедствия, а потом переставшему выходить на связь. Что-то пошло не так. Я пришёл в себя, когда мою гибернационную капсулу сбросили в аварийном режиме.
+Так, я оказался на... в... Короче, это не Земля и даже не другая (   Читать дальше...   )Жанр: фантастика, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 05:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037B91982B74D9BF0322A68E3355B5DD4B03A1CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

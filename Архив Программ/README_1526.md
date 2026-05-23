@@ -6,7 +6,7 @@ R-Wipe & Clean 20.0.2398 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255401.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Avast Premium Security 23.3.6058 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255396.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ScrollNavigator 5.15.1 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255376.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinUtilities Professional Edition 15.86 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255367.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PTC Mathcad Prime 9.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255360.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lumion Pro 12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255356.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Illustrator 2023 27.4.1.672 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255324.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Acrobat Pro 2023.001.20143 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255318.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Luxion KeyShot Pro / Enteprise 2023.1 (12.0.0.186) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255291.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5545.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255285.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255280.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2846]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255257.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AnyDesk 7.1.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255251.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ V-Ray 6.10.06 for 3ds Max 2019-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255246.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BurnAware Professional 16.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255239.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Fort Firewall 3.8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255238.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ R-Wipe & Clean 20.0.2400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255230.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Emurasoft EmEditor Professional 22.3.0 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255227.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Kaspersky Small Office Security 8.9 21.9.6.465 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255223.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Foxit PDF Reader 12.1.2.15332 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255222.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ RustDesk 1.1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255221.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mailbird Pro 2.9.74.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255220.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ QOwnNotes 23.4.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255196.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ WinSnap 6.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255194.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Monkey's Audio 10.09 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255192.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255188.jpg" />
 </div>
 
 

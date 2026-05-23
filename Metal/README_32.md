@@ -6,7 +6,7 @@ Mnstrgry - Way Out (2020) [MP3|320 Kbps] <Metalcore, Female Vocal, Prog.Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768994.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pessimist - Holdout (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768556.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Swallow The Sun - When A Shadow Is Forced Into The Light (2019) [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768523.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ She Must Burn - 1 альбом + 1 EP (2015-2017) [MP3|320 Kbps] <Symphonic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768091.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Trollfest - Norwegian Fairytales (2019) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767788.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cecile Monique - Genesis (2018) [MP3|320 Kbps] <Gothic Rock, Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767778.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Fraser Edwards - The Architect (2020) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767709.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Megaherz - 10 Albums, 4 EP, 3 Compilations (1995-2018) [MP3|320 кб/с]<Industr
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767220.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Orso - Primi Piatti (2016) [MP3|320 Kbps] <post-metal, instrumental, experimenta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767197.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Alarum - Circle’s End (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766415.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kenziner - Phoenix (2020) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766368.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Michael Angelo Batio - More Machine Than Man (2020) [MP3|320 Kbps] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766359.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Rivers Of Nihil - Where Owls Know My Name (2018) [MP3|320 Kbps] <Technical Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765758.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Havok - V (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765473.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Poltergeist - Feather of Truth (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765472.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Raven Black - Discography 13 Releases (2016-2021) [MP3|320 Kbps] <Alternative Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765076.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Lost Conduit - Astral (2020) [MP3|320 Kbps] <Metalcore, Progressive>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764696.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Evocatus - Mortem in Deos (2017) [MP3|320 Kbps] <MDM, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764617.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Vektor - Terminal Redux (2016) [MP3|320 Kbps] <Thrash, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764611.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Iron Fire - Among the Dead (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764553.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Calico Jack - Calico Jack (2019) [MP3|320 Kbps] <Pirate Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764545.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Then Comes The Night - Chapter 1 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764432.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Within Temptation - Resist (2019) Extended Deluxe [MP3|320 Kbps] <Alternative Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764226.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ The Crown - Cobra Speed Venom (2018) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763992.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Ravenlight - Project Genesis (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762298.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Skyfall - Sleeping Forest (2020) [MP3|320 Kbps] <Symphonic Metal, Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762290.jpg" />
 </div>
 
 

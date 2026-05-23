@@ -6,7 +6,7 @@ Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324962.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Orchestra Ennio Morricone - Once Upon A Time In The West (1969) /1995, RCA/ [FLA
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323878.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323652.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Yiruma - Blind Film (2014) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323509.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ David Bowie, Reeves Gabrels, Xavier Despas - Omikron: The Dreamers (Omikron: The
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323507.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Olga Stankevich (Ольга Станкевич) - Dreamway (2011) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323498.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Скалолазка и Последний из Седьмой колыбе
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323446.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Loretta Lynn - White Christmas Blue (2016) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323436.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Olga Stankevich (Ольга Станкевич) - Дискография (2010-2
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323363.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Stranger Things / Очень странные дела (Music from the Netf
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323361.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323152.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323050.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - RELAX - Морской бриз - Звуки живой природы в �
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322992.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Игла. Remix (2010) [FLAC|Lossless|image + .cue] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322782.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321528.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cu
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321208.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Midori - A Very Midori Christmas (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321152.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Al Conti - Mystic (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321008.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) +
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320990.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Preludio Italiano - Toccata (2001) [FLAC|Lossless|image + .cue] <Instrumental, P
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320841.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Era - Era (1998) [FLAC|Lossless|image + .cue]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320419.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ennio Morricone - All The Best (2016) [MP3|320 Kbps] <Instrumental, classical, s
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320109.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Two Steps From Hell - Skyworld (2012) [MP3|320 кб/с]<Trailer Music, Epic>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319520.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Eloy Fritsch - The Garden of Emotions (2009) [FLAC|image+.cue]<Electronic, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319371.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Medwyn Goodall - Dreamweaver (2014) [MP3|320 кб/с]<New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319269.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319135.jpg" />
 </div>
 
 

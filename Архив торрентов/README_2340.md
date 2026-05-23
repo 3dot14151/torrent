@@ -6,7 +6,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.53.2083, Speccy 1.32.774) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529887.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ DVDFab 9.2.0.8 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529830.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529829.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Habstrakt - 6 Ep's (2012-2015) [FLAC|tracks|WEB]<Dubstep, BassHouse, Breaks, Rid
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529820.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Brutal Legend (2013) [Multi] (1.0) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529811.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Instant Translate – translator, dictionary, voice 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529772.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Electric Indigo - 5 1 1 5 9 3 (2018) Imbalance Computer Music [FLAC|Lossless|WEB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529771.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ eXcubitors - In Aeternum (2018) [MP3|320 Kbps] <Synthpop, Futurepop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529767.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Icecream Screen Recorder PRO 5.78 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529762.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ O//OO - O//OO (2017) Giegling [FLAC|Lossless|tracks|Vinyl] <Breakbeat, Ambient, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529761.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Chromium 70.0.3518.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529760.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ BurnAware Professional 11.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529759.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ CocCoc 72.4.208 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529757.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ BeatMaker - 808 Bass Module III 3.0.0 VSTi, VSTi3 (x86/x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529755.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Torch Browser 65.0.0.1604 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529753.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ TSR Watermark Image 3.5.9.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529752.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mozilla Firefox 41.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529729.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529726.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ MotoGP. Этап 10/18. Гран-При США Индианаполис. Гон�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529721.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ ExpanDrive 5.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529712.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Soulver 2.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529691.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529676.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Mac Blu-ray Player Pro 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529674.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ EZ CD Audio Converter 7.1.7.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529671.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Infix PDF Editor Pro 7.2.8 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529670.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Soft Organizer 7.27 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529669.jpg" />
 </div>
 
 

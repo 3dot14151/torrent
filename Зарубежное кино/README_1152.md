@@ -1,55 +1,3 @@
-###  Публикация: 1406241   (477347) от 02.09.2020
-
-Товарищ Ким отправляется в полет / Comrade Kim Goes Flying (2012) WEBRip [H.264/720p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Двадцативосьмилетняя Ким Ен Мин работает на шахте и живет в северокорейской деревушке вместе с отцом и бабушкой. Она с самого детства мечтала стать воздушной акробаткой, однако после смерти матери отец убедил ее сосредоточиться на работе в шахте и забыть о своих мечтах. Однако она решила не сдаваться и доказать всем, что может летать.Производство: Бельгия, Великобритания, Корея Северная, Another Dimension of an Idea, Korea Film Export and Import, Koryo GroupЖанр: Комедия, мелодрамаРежиссер: Николас Боннер, Аня Делеман, Ким Гван ХунАктеры: Джонг-сим Хан, Чанг-гук Пак, Ли Ён-хо, Ким Сон-нам, Ан Чанг-Сун, Ри Ик-Сунг, Ким Ун-Юнг, Рю Гонг-ок, Хан Ми-Рюнг, Ким ЧхольПеревод: Многоголосый любительский (Amazing Dubbing)Субтитры: Английские - hardsub (неотключаемые)Продолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0381FD72BEF021D2DB9E01BE167FEC60501F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938984   (477269) от 20.09.2015
-
-Проси меня о чём угодно / Ask Me Anything (2014) WEB-DL [H.264/720p-LQ] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кэти Кэмпенфелт берет годичный перерыв перед колледжем, чтобы найти себя. Все свои приключения и сокровенные тайны она публикует в анонимном блоге. Но в итоге из-под ее бесстрашного повествования начинают проявляться части ее мрачного прошлого…Производство: СШАЖанр: Триллер, драмаРежиссер: Эллисон БернеттАктеры: Бритт Робертсон, Джастин Лонг, Кристиан Слэйтер, Роберт Патрик, Мартин Шин, Молли Хэйгэн, Зулейха Робинсон, Кимберли Уильямс, Макс Карвер, Джиа Мантенья, Шэрон Оми, Макс Хоффман, Беатрис Розен, Кэтрин де Прюм, Лоррэйн ТуссэйнтПеревод: Любительский одноголосый (Алексей Толмачев)Продолжительность: 01:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1C3786CDD916B132AE3CA0BCE3C762A30D7E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730955   (477141) от 19.09.2014
 
 Игры разума / A Beautiful Mind (2001) BDRip [1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477141.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477135.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477131.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477130.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477126.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477123.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477115.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_477113.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477111.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476949.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476938.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476929.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476837.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476820.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476814.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476787.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476786.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476783.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476694.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476663.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476659.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476656.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476647.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476642.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97459C9FA4AE2BC490CD0C7A8A04D78E0794D1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057035   (476640) от 27.09.2016
+
+Нелепая шестёрка / The Ridiculous 6 (2015) WEBRip [H.264/2160p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедийный вестерн расскажет историю мужчины, оставшегося в раннем детстве сиротой и выросшего в племени индейцев апачи, которые его воспитали и выучили в своих традициях и законах. Главный герой по прозвищу «Белый Нож» — преступник, который неожиданно обнаруживает, что не один на свете: у него есть пятеро сводных братьев. Объединившись, они принимают решение отыскать (   Читать дальше...   )Производство: СШАЖанр: Комедия, ВестернРежиссер: Фрэнк КорачиАктеры: Адам Сэндлер, Терри Крюс, Хорхе Гарсиа, Тэйлор Лотнер, Роб Шнайдер, Люк Уилсон, Уилл Форте, Стив Зан, Харви Кейтель, Ник НолтиПеревод: Многоголосый закадровый (профессиональный)Язык субтитров: Английский, Французский, Немецкий, Итальянский, ИспанскийПродолжительность: 01:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D5C4A5C494B3B794772048BE630CE48F9E5919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403320   (476547) от 02.09.2020
+
+Бэтмен навсегда / Batman Forever (1995) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бэтмен продолжает войну со злом. На этот раз ему предстоит биться с двумя объединенными злодеями: бывшим окружным прокурором пострадавшим от кислоты Двуликим и сумасшедшим гением Загадочником. А помогать ему станет юный акробат по имени Робин.Производство: США, Великобритания / Warner Bros., PolyGram Filmed EntertainmentЖанр: фэнтези, боевик, приключенияРежиссер: Джоэл ШумахерАктеры: Вэл Килмер, Томми Ли Джонс, Джим Керри, Николь Кидман, Крис О’Доннелл. Майкл Гоф, Пэт Хингл, Дрю Бэрримор, Деби Мейзар, Элизабет СэндерсПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5859EE7C526A19C015D28609ADE2964D733311
 ```
 
 https://mybot314.ru/tekegram_catalog/

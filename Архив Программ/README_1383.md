@@ -6,7 +6,7 @@ Internet Download Manager 6.25 Build 3 + Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334879.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream Ebook Reader PRO 2.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334876.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Raxco PerfectDisk Professional Bussines 14.0 Build 880 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334872.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Flash Player 19.0.0.245 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334868.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SamDrivers 17.11 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334771.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BELOFF Office 2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334761.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NVIDIA GeForce Desktop 358.91 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334745.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Internet Download Manager 6.25 Build 3 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334742.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Movavi Video Converter 21.0.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334733.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Block auto-update 1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334725.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Android Studio 3.5.1 Build #AI-191.5900203 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334669.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Zoner Photo Studio X 19.2209.2.403 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334569.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ reaConverter Pro 7.744 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334567.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ACDSee Pro 9.1 Build 453 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334564.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 880 RePack by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334563.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Spybot Anti-Beacon for Windows 10 1.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334560.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ ACDSee Pro 9.1 Build 453 (x86) Lite RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334558.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ SamDrivers 15.11 - Сборник драйверов для Windows  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334557.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ ImgDrive 1.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334556.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Don't Sleep 9.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334554.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ DriverPack Solution 15.11 + Драйвер-Паки 15.11.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334553.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Opera GX 91.0.4516.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334548.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Adobe Photoshop Lightroom CC 2015.2.1 (6.2.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334547.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wise Registry Cleaner Pro 10.2.6.686 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334525.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ HWiNFO 7.31 Build 4875 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334523.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Waterfox 56.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334443.jpg" />
 </div>
 
 

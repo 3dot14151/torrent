@@ -1,29 +1,3 @@
-###  Публикация: 1782668   (24660) от 15.03.2025
-
-Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Let'sРlay [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Наша история начинается в одном из уголков Аллраана, представляющем собой переплетение народов, разнообразнейших культур и ценностей. С помощью меча и магических предметов, известных как «рунические линзы», история земли была сформирована на основе альянсов и агрессивных действий проживающих на ней людей, зверолюдей, эльфов и пустынных жителей.Тип издания: RepackРазработчик: Rabbit & Bear StudiosЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD94B95916FFFD6878683FABF97FDFCBD7341DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780184   (24655) от 15.03.2025
 
 Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
@@ -32,7 +6,7 @@ Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24655.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Worldless (2023) [Ru/Multi] (1.3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24653.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24649.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24646.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24641.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24635.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24632.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24629.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24626.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24605.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24536.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24535.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24533.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Montezuma's Revenge (2025) [Multi] (1.15.0) License GOG [Director's Cut]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24523.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.1hf) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24522.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24514.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ My Life: Zoo Vet / Моя жизнь: Ветеринар зоопарка (2025)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24512.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24510.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24505.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Auto Sale Life (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24499.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Wanterlude [Ultimate Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24492.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack FitGirl [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24490.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Test: Reality Check (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24489.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Decepticon [Ultimate Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24463.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24460.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F186A54A7BEC3A5D452BD2CD8CE29E7EF22C7E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785311   (24447) от 17.03.2025
+
+Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remastered Collection]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примерно 25 лет назад Command & Conquer и Red Alert определили вектор развития игр жанра стратегии в реальном времени. Сегодня благодаря стараниям бывших разработчиков из Westwood Studios, которые теперь трудятся в команде Petroglyph, вы можете насладиться переизданием этих шедевров в качестве 4K.Тип издания: RepackРазработчик: Petroglyph, Lemon Sky StudiosЖанр: СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

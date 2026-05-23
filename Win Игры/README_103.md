@@ -1,30 +1,3 @@
-###  Публикация: 1000082   (860294) от 24.03.2016
-
-Way of the Samurai 3 (2016) [En/Multi] (1.0) License RELOADED
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действия в Way of the Samurai 3 разворачиваются в феодальной Японии периода Сенгоку. Главным героем выступает странствующий самурай, прибывший в небольшую провинцию Gishu Amana, которой правит клан Fujimori, свергнувший самураев клана Sakurai.
-Как и в предыдущих частях серии, в Way of the Samurai 3 вам вновь предстоит сделать выбор и присоединиться к одной из противоборствующих (   Читать дальше...   )Тип издания: LicenseРазработчик: ACQUIRE Corp.Жанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5E973C5960A94C877E4DF145865BA394EBE879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376253   (860253) от 17.04.2020
 
 Grim Tales 18: The Generous Gift (2020) [En] (1.0) Unofficial [Collector's Edition]
@@ -33,7 +6,7 @@ Grim Tales 18: The Generous Gift (2020) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860253.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ forma.8 (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860112.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Among the Innocent: A Stricken Tale (2017) [En] (1.004) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860111.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Spirit Legends 5: The Aeon Heart / Легенды о духах 5: Сердце 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859426.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2166) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859350.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ Sable (2021) [En] (3.2.9) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859348.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Black Mirror 3: Final Fear / Черное зеркало 3 (2011) [Ru/Multi] (1.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859242.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ Hitman - Game of the Year Edition (2016) [Ru/Multi] (1.16.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859239.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858852.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Forestry 2017 - The Simulation (2016) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858623.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.1.4215/dlc) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858123.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Radio Commander (2019) [Ru/Multi] (1.122/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858117.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858115.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ Fort Triumph (2020) [Ru/Multi] (1.0) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857990.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857981.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ Tomb Raider: Underworld [Ru/En] (RePack / 1.1) 2008 | R.G. REVOLUTiON
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857720.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857521.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ Addams Family: Mansion Mayhem / Семейка Аддамс: Переполох 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857519.jpg" />
 </div>
 
 
@@ -501,7 +474,7 @@ Spirits of Mystery 6: Family Lies (2016) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857446.jpg" />
 </div>
 
 
@@ -527,7 +500,7 @@ Vampire Legends 3: The Count of New Orleans (2016) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857432.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ Accident (2021) [Ru/Multi] (1.63) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857422.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857419.jpg" />
 </div>
 
 
@@ -605,7 +578,7 @@ Final Cut 5: Fame Fatale / Последний дубль 5. Смертельна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857253.jpg" />
 </div>
 
 
@@ -631,7 +604,7 @@ Myths of the World 7: The Whispering Marsh / Мифы народов мира 7.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857173.jpg" />
 </div>
 
 
@@ -657,7 +630,7 @@ DreadOut: Keepers of The Dark (2016) [En] (1.0.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856963.jpg" />
 </div>
 
 
@@ -670,6 +643,32 @@ DreadOut: Keepers of The Dark (2016) [En] (1.0.1) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046A2B131ED202059E1C7EDC0552CD9773D67F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000629   (856959) от 26.03.2016
+
+Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная особенность Train Fever — встроенная в транспортную стратегию автономная градостроительная игра, которая неподвластна нам. Но не расстраивайтесь — вместо нас ей управляет кремниевый мэр. Небольшие деревни, фермы, поселки, районные центры и мегаполисы находятся во власти искусственного интеллекта. Населяют этот мир различные персонажи. Как это водится, они (   Читать дальше...   )Тип издания: LicenseРазработчик: Urban GamesЖанр: Simulation, Strategy, Economy, TrainsЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870C4497F7A3DDC2A5DBD04EE741F6F6AEB36CC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

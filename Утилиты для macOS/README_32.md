@@ -6,7 +6,7 @@ Adguard 2.5.0.902 release [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376161.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Caramba Switcher 2019.09.16 (beta) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374089.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ World Clock 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373776.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Entropy 1.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373213.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ FSMonitor 1.1 (116) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372542.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Toast Titanium 14.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372058.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Recordam 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370969.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Mirror for Philips TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370967.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Mirror for Panasonic TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370954.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Mirror for Sony TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370827.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Mirror for Samsung TV 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370687.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ KCNcrew Pack 10-15-20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367834.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Disk Expert 2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366055.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ActiveDock 1.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366016.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NVidia Web Driver v.346.03.03f02 (2015) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362351.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Serial 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361204.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Smart Zipper Pro 3.70 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361193.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ WiFi Explorer 2.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360280.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ AppKiller 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357030.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ TotalFinder 1.14.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356666.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Weather Dock 3.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355787.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ KCNcrew Pack 09-15-22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354736.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lingon X 6.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354418.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ TrashMe 2.1.23 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353678.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352198.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Mirror for Sony TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351999.jpg" />
 </div>
 
 

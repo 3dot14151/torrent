@@ -6,7 +6,7 @@ KMPlayer 4.2.2.75 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201263.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PotPlayer 230208 (1.7.21878) (13.03.2023) (x64) Stable RePack (& portable) by el
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201252.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MiniTool Power Data Recovery 11.5 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201251.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Advanced SystemCare Pro 16.3.0.190 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201249.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Torrent Merkle Root Reader (TMRR) 1.1.4g [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201240.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Opera 96.0.4693.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201230.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft  Visual C++ Runtimes AIO v0.68.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201229.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PC HelpSoft Driver Updater 6.3.924 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201226.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Stardock Fences 4.1.1.0 (x64) RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201224.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32502.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201223.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Allavsoft Video Downloader Converter 3.25.6.8475 RePack (& Portable) by TryRooM 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201222.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VMware vCenter Converter Standalone 6.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201219.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft  Visual C++ Runtimes AIO v0.69.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201216.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201215.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ StartAllBack 3.6.3 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201213.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Total Commander 10.52 (15.03.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201210.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ CCleaner 6.10.10347 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201208.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CCleaner 6.10.10347 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201206.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Maplesoft Maple 2023 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201198.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Office Tool Plus 10.0.6.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201191.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ PicPick Free+Pro 7.1.0 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201187.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ StartAllBack 3.6.3 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201173.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ DAEMON Tools Lite 11.1.0.2051 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201152.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Microsoft .Net Framework 14.03.23 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201135.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Windows 11 Manager 1.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201130.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201119.jpg" />
 </div>
 
 

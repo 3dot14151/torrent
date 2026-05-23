@@ -1,29 +1,3 @@
-###  Публикация: 1244359   (481537) от 01.09.2018
-
-Panzer Strategy (2018) [Ru/En] (1.0) License CODEX
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Panzer Strategy - варгейм в сеттинге Второй Мировой Войны, сочетающий классический пошаговый геймплей с современной графикой. Командуйте своей армией и адаптируйте ее к любой боевой задаче, используя широкий выбор оборудования, экипировки и боевых навыков.Тип издания: LicenseРазработчик: Starni GamesЖанр: Straregy (TBS), TacticsЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A4F4FF5CB03CE4D09840FED75E398172CEA49C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244405   (481514) от 01.09.2018
 
 The Messenger (2018) [Ru/Multi] (1.0) Repack Other s
@@ -32,7 +6,7 @@ The Messenger (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481514.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Aerial Destruction (2017) [En] (1.0) License HI2U
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481472.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mighty No. 9 (2015) [En] (Beta 1.0) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481307.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Watch This! (2016) [Ru/En] (4.10.4) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480832.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/dlc/upd2) Repack R.G. Мех�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480830.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Invention 2 (2016) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480695.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ THE UNCLEARNESS (2019) [En] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480590.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Roads of Rome 3: New Generation / Дороги Рима 3: Новое покол
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479970.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Vestaria Saga II: The Sacred Sword of Silvanister (2022) [Multi] (1.13.6) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479965.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Weeping Skies (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479881.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Myths of the World 7: The Whispering Marsh (2015) [En] Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479873.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ League of Light 3: Silent Mountain (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479794.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Where Angels Cry 2: Tears of the Fallen (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479793.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.01.1) SteamRip R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479748.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479633.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Riddles of Fate 2: Into Oblivion / Загадки судьбы: Забвение
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479565.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Riddles of Fate: Wild Hunt / Загадки судьбы: Дикая охота 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479558.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Riddles of Fate 3: Memento Mori / Загадки судьбы. Помни о с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479451.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Maze: Subject 360 / Лабиринт: Объект 360 (2015) [Ru] Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479257.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ghost Files 2: Memory of a Crime (2019) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479231.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ INFRA (2016) [En] (2.0.0) License HI2U [Part 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478924.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Monster Boy and the Cursed Kingdom (2019) [Ru/Multi] (1.0_rc4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478723.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.14) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478720.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Blasphemous (2019) [Ru/Multi] (2.0.27/dlc) Repack Other s [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478517.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Windbound (2020) [Ru/Multi] (1.0.36896.31/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478516.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Windbound – это грандиозное морское приключени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A2A89F8D7042181C8F6627077401DA1D1DABFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382676   (478512) от 01.09.2020
+
+ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обновляемая)
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внимание: ввиду того, что Трудоград продолжает события Atom RPG мы советуем пройти оригинал прежде чем играть в продолжение. Трудоград - пошаговая ролевая игра, действия которой разворачиваются в постапокалиптическом СССР. Игра вдохновлена классическими компьютерными ролевыми играми, такими как Fallout 1-2, Wasteland 1 и Baldur’s Gate. 22 года назад СССР и страны (   Читать дальше...   )Тип издания: RepackРазработчик: AtomTeamЖанр: Ролевые игры, Ранний доступЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79016898B119CC5DAE70BB4B859842AB055E548
 ```
 
 https://mybot314.ru/tekegram_catalog/

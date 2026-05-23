@@ -6,7 +6,7 @@ Paranormal Files 6: The Trap of Truth / Паранормальные явлен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181302.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mystery Case Files 22: Crossfade / За семью печатями 22: Изло
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181298.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Unsolved Case 4: Above the Law / Нераскрытое дело 4: Вне за�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180017.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Halloween Stories 4: Defying Death / Хеллоуинские истории 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179818.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Crossroads 2: Escaping the Dark / Перекресток 2: Побег из ть
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179626.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Christmas Stories 9: The Christmas Tree Forest (2020) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179076.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Halloween Stories 7: Written in Blood (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178150.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Living Legends 8: The Crystal Tear / Живые легенды 8: Хрустал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178115.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Halloween Stories 6: Mark on the Bone / Хеллоуинские истории 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176538.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Christmas Stories 9: The Christmas Tree Forest / Рождественские и
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176299.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Christmas Stories 11: Taxi of Miracles (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176053.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Living Legends 10: The Blue Chamber / Живые легенды 10: Синяя �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175918.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mystery Case Files 24: The Last Resort / За семью печатями 24: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175916.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Christmas Wonderland 10 / Рождество. Страна Чудес 10 (2019) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173742.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Icebound Secrets 2: Soul Hunter / Тайны ледяного мира 2: Охо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173426.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Enchanted Stories 2: PAWisoned Kingdom / Зачарованные Истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173403.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Gloomy Tales 2: One-Way Ticket (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173334.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Paranormal Files: Silent Willow 9 / Паранормальные явления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172056.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Paranormal Files 10: Counterpart (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171885.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Gloomy Tales 2: One-Way Ticket / Мрачные истории 2: Билет в 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171338.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ City of Stories: Stephan's Journey (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170984.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Christmas Spirit 4: Journey Before Christmas (2020) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170695.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Christmas Stories 8: Enchanted Express / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170353.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Christmas Spirit 3: Grimm Tales (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168953.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Strange Investigations 3: Secrets Can Be Deadly / Удивительные ра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168900.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Christmas Stories 11: Taxi of Miracles / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168895.jpg" />
 </div>
 
 

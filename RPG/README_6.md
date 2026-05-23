@@ -6,7 +6,7 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.1.0b) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016623.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nox Archaist (2021) [En] (1.1.4e) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014417.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ark of Artemis (2021) [Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014276.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chrono Trigger (2018) [En] (1.0) License TiNYiSO [Limited Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013447.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mistover (2019) [Multi] (1.0.9a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013445.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.0/dlc) License EMPRESS [Legendary Her
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013417.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mount & Blade: Warband / Mount & Blade. Эпоха турниров (2010) [Ru/M
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013093.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Edge of Eternity (2021) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011877.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Demons Age (2017) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011574.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Icewind Dale: Enhanced Edition (2014) [Ru/Multi] (2.6.6.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011031.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010923.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010915.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010408.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Arx Fatalis (2002) [Ru/Multi] (1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010051.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Fareo Shadowlands (2021) [Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009764.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (181.13.00/dlc) License GOG [Necroman
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009053.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Moonlighter (2018) [Ru/Multi] (1.14.37/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007202.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Bastion (2011) [Ru/Multi] (1.50436) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006556.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Firelight Fantasy: Resistance (2021) [Ru/Multi] (4.25) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006452.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Death's Door (2021) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005875.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Divinity: Dragon Commander (2013) [Ru/En] (1.0.124hf/dlc) License GOG [Imperial 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005237.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004950.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Final Fantasy II (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004921.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Final Fantasy (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004918.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Eldest Souls (2021) [Ru/Multi] (Build 7099613) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004836.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Eastern Exorcist (2021) [Multi] (Build 6990221) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004795.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1737708   (106460) от 20.07.2024
-
-City of Stories 2: The Professor's Secret (2024) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр City of Stories. Адель - простая девушка из крестьянской семьи, которая помогает своему отцу-травнику собирать растения. Но ее страсть к науке не ограничивается только этим. Она мечтает учиться у лучших профессоров и использовать свои знания, чтобы изменить мир к лучшему. Однако в обществе, где от женщин ожидают скромности и подчинения, (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2345B083D20049D646CD04DF95DAF08FF8C26BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737961   (106455) от 20.07.2024
 
 Lifecraft (2024) [En] (0.1.0d8) License GOG [Early Access]
@@ -32,7 +6,7 @@ Lifecraft (2024) [En] (0.1.0d8) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106455.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106145.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Magical Delicacy (2024) [Multi] (1.0) Scene Razor 1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106133.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ A Memoir Blue (2022) [Ru/Multi] (Build 8901003) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106071.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.101/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106069.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Crystal Shard Adventure Bundle (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106045.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Enchantment: Secret Hideaway (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105869.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Enchantment 2: Sun's Tear (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105806.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Fallen Leaf (2024) [En] (1.0.0.1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105736.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105653.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105191.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Human Fall Flat (2016) [Ru/Multi] (20240605) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105156.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104916.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ SWORN (2025) [Ru/Multi] (1.0.1.0.1018/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104914.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104836.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104470.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104469.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104468.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104467.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104459.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.6) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104451.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.13) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104435.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104419.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104418.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104412.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E44E48EE54CF2E302EC18DA5E1C4EEDC4A3F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823003   (104370) от 09.10.2025
+
+Halloween Secrets: The Blood Vow / Секреты Хэллоуина: Клятва крови (2025) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая история хэллоуинских кошмаров. Скучающие друзья жаждут доказать свою храбрость и немного повеселиться в ночь Хэллоуина. Они случайно пробуждают древнее существо, скрывающееся в самом сердце разрушающегося поместья, и их приключение становится смертельно опасным. Тени превращаются в монстров. Кошмары вторгаются в реальный мир. Девушка исчезает на глазах ошеломленных (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2FDA5C21414F71303A6F33302BE27AEDAAF37A
 ```
 
 https://mybot314.ru/tekegram_catalog/

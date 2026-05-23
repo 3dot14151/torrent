@@ -6,7 +6,7 @@ Waterfox Current G4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167744.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Superkey 0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167736.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OnyX 4.1.4 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167728.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Cisco AnyConnect Secure Mobility Client for Mac 4.10.04065 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167726.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Text Editor Pro 12.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167724.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Calibre 5.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167717.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Spotify 1.2.23.1125 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167699.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167697.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v1.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167687.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ YouTube ReVanced Extended 18.40.34 (RVP v2.195.1) Mod by Number one' + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167685.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Finder Windows 1.5.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167683.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ uDock 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167666.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167648.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ CyberLink AudioDirector Ultra 12.1.2326.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167645.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7237.5000 (2019.12) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167640.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Mastering The Mix Collection 2021.12 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167628.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Downie 4 v.4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167618.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Off The Road - OTR Open World Driving v1.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167614.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ BELOFF [dp] 2021.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167612.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ ESET NOD32 Antivirus 11.1.54.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167611.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ OCCT 10.0.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167608.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167599.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Rinly v1.6.0.12 [Ru] - Обрезать аудио, ТикТок рингтон�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167598.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Skynet 2019.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167593.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ M3U Edit 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167591.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167586.jpg" />
 </div>
 
 

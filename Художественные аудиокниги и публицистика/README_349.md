@@ -1,81 +1,3 @@
-###  Публикация: 1526398   (738334) от 24.01.2022
-
-Дем Михайлов | Крест (Книга 3). ПереКРЕСТок одиночества – 3 (2022) [MP3, Петров Никита (Петроник)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой многого добился в этой жизни – и заскучал. Заскучал по временам, когда шёл к цели и каждый прожитый день был наполнен смыслом и борьбой. Что ж, судьба даёт ему возможность снова испытать эти чувства. Правда, в условиях, совсем некомфортных. Герой оказывается в странном месте, где каждый день нужно бороться за жизнь. Где чтобы поесть и согреться – нельзя (   Читать дальше...   )Жанр: Боевая фантастика, Детективная фантастика, ПопаданцыПродолжительность: 11:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8248BB5423A25D8F0BCE03943E8EBF1172BDF0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526793   (738144) от 25.01.2022
-
-Татьяна Устинова | Свиданье с Богом у огня. Разговоры о жизни, любви и самом важном (Сборник рассказов) (2019) [MP3, Анна Каменкова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Татьяна Устинова - известный писатель, телеведущая и интереснейший собеседник. Разговоры о жизни, любви и самом важном - сборник размышлений автора о тех самых простых и сложных вещах, составляющих нашу жизнь. Любовь, отношения в семье, дети, друзья, интересные незабываемые встречи - вот те темы-киты, которые интересны каждому из нас. А нетривиальный взгляд писателя (   Читать дальше...   )Жанр: Биографии и мемуары, Легкая проза, Современная русская литератураПродолжительность: 10:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8665B52F7F338FB60F6B8735E098455A9AF00DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526688   (738132) от 25.01.2022
-
-Бен Элтон | Два брата (2019) [MP3, Владимир Левашев]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 1920 году в роддоме Берлина на свет появляются два младенца, у одного из которых умирает мать. И вторая женщина решает усыновить сироту – так мальчики становятся братьями. Пауль и Отто вместе растут, вместе дружат с одной девочкой, вместе влюбляются в другую. Но к власти приходят нацисты, и жизнь меняется быстро и страшно. Когда в стране важнее всего оказываются (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Александр СафроновПродолжительность: 18:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F181842711B1A192E76A07577B1812335EB58446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374894   (738087) от 25.01.2022
 
 Джек Вэнс | Чудовище на орбите (2022) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738087.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738086.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738085.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738078.jpg" />
 </div>
 
 
@@ -193,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738055.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738040.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738013.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737813.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737563.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737505.jpg" />
 </div>
 
 
@@ -353,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737446.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737339.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737338.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737259.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737254.jpg" />
 </div>
 
 
@@ -487,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737251.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737129.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737006.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736900.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736848.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736811.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736697.jpg" />
 </div>
 
 
@@ -671,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736694.jpg" />
 </div>
 
 
@@ -682,6 +604,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD91E820688FD35C878C615F7160A5D25D71E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 786144   (736680) от 17.05.2014
+
+Эльдар Рязанов, Владимир Моисеенко, Александр Новотоцкий | Старые клячи (2014) [MP3, Светлана Репина]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_736680.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Старые клячи» — киноповесть, литературная основа российского художественного фильма 2000 года, снятого Эльдаром Рязановым.
+История начинается начинается с встречи четырёх подруг, женщин средних лет: профсоюзной активистки, завлаба, железнодорожницы и школьной учительницы, в 1989 году. Сын одной из них, Любы (Лия Ахеджакова), погиб в Афганистане. Подруги поют под (   Читать дальше...   )Жанр: КиноповестьПродолжительность: 04:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529F073102FDEA508A5D464CCFD9F8627145C054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397932   (736613) от 24.07.2020
+
+Виктор Ардов | Рассказы (2011) [MP3, Олег Исаев, Фаина Раневская]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Ефимович Ардов, советский писатель-сатирик, драматург, сценарист, карикатурист.
+Регулярно печатался в сатирических изданиях «Крокодил» и «Красный перец»,  в 1942 году ушёл добровольцем на фронт, в звании майора служил в армейской печати, награждён орденом «Красной Звезды».
+Виктор Ардов — автор большого количества сборников юмористической прозы.
+В этом сборнике (   Читать дальше...   )Жанр: Отечественная проза. ЮморПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3672FBD87716EA2ADC2E837F0F0D08DE963DD3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398096   (736523) от 24.07.2020
+
+Сергей Мусаниф | Больше, чем Физрук (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эм… Сильные продолжают возвышаться, слабые все еще падают, Система по-прежнему жрет всех.
+
+А он – физрук.Жанр: Боевая фантастикаПродолжительность: 08:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CD62650B855C4F5A99BDF0E23A1E8626C50CA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

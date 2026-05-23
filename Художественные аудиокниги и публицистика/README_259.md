@@ -1,84 +1,3 @@
-###  Публикация: 1378746   (844531) от 26.04.2020
-
-Юрий Корчевский | Стрелецкая казна. Вещие сны (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Он ушел из нашего времени на полтысячи лет назад – в героическую и кровавую эпоху становления Московского Царства. Он на собственном опыте убедился в вечной истине: от трона до плахи всего один шаг.
-Помогут ли вещие сны предотвратить покушение на государя и как «попаданцу» уберечь собственную голову от царской «благодарности»?
-Удастся ли ему сберечь стрелецкую казну (   Читать дальше...   )Жанр: Боевая фантастика, историческая фантастика, попаданцыПродолжительность: 10:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8CD64B1206EE7282CF1D4E02A316796E1BE5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111671   (844484) от 07.03.2017
-
-Александр Мазин | Государь (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Великий князь Владимир, Красное Солнышко, Святой Креститель Руси, пришедший к власти по языческому праву, а потом самовластно сбросивший языческих идолов в Днепр. Государь, женившийся на византийской царевне и получивший право на царский (кесарский) титул. Вернее, завоевавший это право не только доблестью верной дружины, но и собственным мечом. Что известно о нем, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 12:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25A2C7A263811B82B12F7D061988F9FF698DA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308949   (844210) от 14.03.2011
-
-Стивен Кинг | Метод дыхания [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В странном клубе собираются странные люди, рассказывающие странные истории. Истории, услышав которые раз, не забудешь больше никогда. Истории о людях, подошедших к краю мрака.
-Много лет назад четверо мальчишек из маленького американского городка отправились в путь на поиски пятого - погибшего. В путь, лежавший через ночь. Через боль. Через страх. В путь, пройдя который, уже не будешь таким, как раньше...Жанр: Мистика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654A62A3934B064032B9ABBC9AB59F4C77AF7859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 877764   (843538) от 14.03.2015
 
 Михаил Веллер | Волобуев, вот вам меч! (2013) [MP3, Михаил Веллер]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843538.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843494.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843485.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843412.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843321.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843312.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843293.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843221.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843220.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843217.jpg" />
 </div>
 
 
@@ -351,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843133.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843126.jpg" />
 </div>
 
 
@@ -404,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843104.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843048.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843046.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843024.jpg" />
 </div>
 
 
@@ -508,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843014.jpg" />
 </div>
 
 
@@ -534,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842985.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842965.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842922.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842813.jpg" />
 </div>
 
 
@@ -643,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842812.jpg" />
 </div>
 
 
@@ -669,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842811.jpg" />
 </div>
 
 
@@ -680,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36DA56DEA5DB78D325DD864F50842B0DED4BBF9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193179   (842776) от 17.04.2010
+
+Фёдор Михайлович Достоевский | Идиот (2007) [MP3, Иннокентий Смоктуновский и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный литературный критик Петр Анненков писал: «Читайте Достоевского, любите Достоевского, - если можете, а не можете, браните Достоевского, но читайте... по возможности только его».
+Над романом «Идиот» Федор Михайлович Достоевский работал в 1867-1868 гг. «Идея романа, - писал он, - моя старинная и любимая, но до того трудная, что я долго не смел браться за нее. (   Читать дальше...   )Жанр: КлассикаИздательство: 1С-Паблишинг, МелодияПродолжительность: 02:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C55B427B490ECE1E2711F7EE72D69FA67681E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500140   (842723) от 05.10.2021
+
+Татьяна Степанова | Расследования Екатерины Петровской и К. Предсказание – End (2021) [MP3, Люба Петрова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет, не идиллическая тишина царит над этим провинциальным городком. Скорее затишье перед бурей. Тихо в домах, замер пустынный парк, в котором некогда маньяк растерзал девушку, а единственного свидетеля вскоре нашли повешенным на карусели. Тогда это дело сошло на нет, но все знают, кто преступник. И вот он вернулся… Прежние друзья не хотят его видеть, жители шарахаются (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3D6DD0D346982133FC813C8F9ECC999F1F33D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500150   (842720) от 05.10.2021
+
+Иман Кальби | Одержимые наследники. Северная бабочка (2021) [MP3, Luigi, Валерия Егорова]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ближний Восток испокон веков испепеляет не только тела палящим зноем, но и сердца одержимой любовью. Времена меняются, а его жар все так же беспощаден. Пришло их время – наследников великого премьер-министра Сирии Васеля Увейдата… Они выросли такими же красивыми, гордыми и страстными, как их родители. Отец и мать смогли защитить их, казалось бы, от всего в жизни, (   Читать дальше...   )Жанр: Остросюжетные любовные романы, Эротические романыПродолжительность: 08:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0402B3D94A93FBCFE11DD50AD56E48662EB30A
 ```
 
 https://mybot314.ru/tekegram_catalog/

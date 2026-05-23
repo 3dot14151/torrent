@@ -6,7 +6,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050905.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SHOGUN: Total War (2000) [Multi] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050903.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ECHELON (1988) [En] (3.40) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050801.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050799.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050798.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050354.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050268.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Realmz (1999) [En] (7.1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049563.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Shadow Vault / Shadow Vault: Зона теней (2004) [Ru] (1.0.28) License М
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049407.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048329.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048197.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ UnReal World (1992) [En] (3.86.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046865.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046862.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046861.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046857.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Geneforge 3 (2005) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046856.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046734.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046641.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046296.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044179.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Jagged Alliance 2: Wildfire (2005) [Ru/Multi] (6.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040671.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037052.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036778.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036486.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035677.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035605.jpg" />
 </div>
 
 

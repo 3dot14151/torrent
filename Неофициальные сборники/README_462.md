@@ -1,32 +1,3 @@
-###  Публикация: 712606   (403223) от 19.10.2013
-
-Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul 1985-1
-02. Cheri Cheri Lady 1985-2
-03. Lady Lai 1986-1
-04. China In Her Eyes 2000(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F20322017E2F19599C41F9ACB1B215701289F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712805   (403216) от 19.10.2013
 
 Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
@@ -35,7 +6,7 @@ Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403216.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ A-ha - 25 Best Songs (2012) [MP3|320 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403204.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Chris Rea - 25 Best Songs (2012) [MP3|197 - 270 кб/с]<Blues-Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403176.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403175.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403166.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Empire Records: Classic Disco (2017) [MP3|320 Kbps] <Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403150.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403142.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Music For Racing (2017) [MP3|320 Kbps] <Hands Up, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403116.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Musical Dreams: Popular Session Of September (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403097.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Музыкальные Новости Русский (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403070.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ VA - Big Box Store Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues, Lyric>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403061.jpg" />
 </div>
 
 
@@ -360,7 +331,7 @@ VA - Взрывная волна Русского Радио (2012) [MP3|256 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403036.jpg" />
 </div>
 
 
@@ -395,7 +366,7 @@ VA - Зажигаем все вместе (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403035.jpg" />
 </div>
 
 
@@ -430,7 +401,7 @@ VA - Astro Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403032.jpg" />
 </div>
 
 
@@ -465,7 +436,7 @@ VA - Дискотека Non-Stop 7 от Русского радио (2012) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403007.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ VA - Need for speed Drayvovy mix (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403005.jpg" />
 </div>
 
 
@@ -535,7 +506,7 @@ VA - Вкусные хиты на Love Radio (2012) [MP3|256 кб/с]<Pop, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403003.jpg" />
 </div>
 
 
@@ -570,7 +541,7 @@ VA - Сливки Русского радио: Лучшие песни 9 (2012) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403000.jpg" />
 </div>
 
 
@@ -605,7 +576,7 @@ VA - На Радиоволнах Хит FM (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402999.jpg" />
 </div>
 
 
@@ -640,7 +611,7 @@ VA - Осенний Top MTV (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402991.jpg" />
 </div>
 
 
@@ -675,7 +646,7 @@ VA - Мобильная 200-ка Интернета (2012) [MP3|128 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402990.jpg" />
 </div>
 
 
@@ -710,7 +681,7 @@ VA - Empire Records - Disco Chill Out (2017) [MP3|320 Kbps] <Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402469.jpg" />
 </div>
 
 
@@ -739,7 +710,7 @@ VA - Осенний Муз-Paradise (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402433.jpg" />
 </div>
 
 
@@ -774,7 +745,7 @@ VA - Русский муз-хит (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402420.jpg" />
 </div>
 
 
@@ -809,7 +780,7 @@ Blue System - 25 Best Songs (2012) [MP3]320 кб/с]<Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402313.jpg" />
 </div>
 
 
@@ -823,6 +794,41 @@ Blue System - 25 Best Songs (2012) [MP3]320 кб/с]<Eurodisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A74B8824754C142327C2B64E55E80BC4186CC12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564844   (402120) от 24.10.2012
+
+VA - Дискотека бездна Exclusive 9000 50/50 (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402120.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Горячий Шоколад - За Тобой
+002. Madeon - The City
+003. Alyosha (Алеша) - Точка На Карте
+004. Arty & BT feat. Nadia Ali - Must Be The Love (Radio Edit)
+005. Soda - Знаки
+006. Hi-Fi - Земляничный Дождь
+007. Celia feat. Mohombi - Love 2 Party (Dream Vibers Remix)
+008. Юлия Войс - Ненавижу Любя
+009. Justice Crew ft. Bonnie Anderson - Gonna Make You Sweat
+010. Олег Винник - Па-па(   Читать дальше...   )Жанр: PopПродолжительность: 12:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDC57E386867B3F6179985D3511F536B7FC3B32
 ```
 
 https://mybot314.ru/tekegram_catalog/

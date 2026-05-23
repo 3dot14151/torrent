@@ -6,7 +6,7 @@ Selection Project / Отборочный проект [2021, TV, 13] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147750.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147614.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita. / YuShibu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147529.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kuma Kuma Kuma Bear / Ми-ми-ми-мишка [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147323.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adachi to Shimamura / Adachi and Shimamura / Адати и Симамура [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147140.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146901.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146894.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146813.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146648.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146640.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Mahou Shoujo Nante Mou Ii Desu kara. Second Season / Меня достало б�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146428.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Release the Spyce / Выпустить Спайс [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146331.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ken En Ken: Aoki Kagayaki | Xuan Yuan Sword Luminary | Меч Жёлтого и�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146308.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Я л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146288.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146121.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Cheating Craft / Искусство обмана [2016, TV, 12 из 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146031.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146000.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145516.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Soul Buster: Shousei Ran / Разрушитель душ [2016, TV, 12 из 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145511.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Al Caral no Isan | Наследие Ал Карал [1993, OVA] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145227.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145222.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145060.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145019.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Chuukan Kanriroku Tonegawa | Менеджер среднего звена Тон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144920.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144548.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144415.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Game WideScreener 1.2.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650264.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Audition CC 2019 12.1.0.180 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650260.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comodo Internet Security Premium 12.0.0.6810 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650255.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Video Editor Plus 22.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650214.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ABViewer Enterprise 14.1.0.99 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650207.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FolderSizes 8.4.155 Enterprise Edition [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650194.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Movavi Video Editor Business 15.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650141.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650101.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ HomeWiki 1.0.3.2 Portable [Ru/En] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650085.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ QTTabBar 1040 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650015.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe After Effects CC 2019 16.1.0.204 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650005.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649935.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NVIDIA GeForce Desktop 382.53 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649917.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ DriverPack Solution 17.7.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649774.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BurnAware Free 5.0 Beta 2 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649723.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Boilsoft Video Joiner 6.57.10 / Video Splitter 6.34.8 [Eng] Portable by Baltagy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649577.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wise Registry Cleaner 9.22.595 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649537.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ TapinRadio Pro 1.72.7 Portable by PortableAppC (02.07.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649534.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Rainmeter 2.3.1 build 1510 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649449.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Windows 8 Codecs 1.1.2 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649439.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Macgo Windows Blu-ray Player 2.15.1.1979 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649366.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Comodo Dragon 43.2.2.157 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649364.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649341.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Right Click Enhancer Professional 4.4.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649340.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Internet Download Manager 6.25 Build 22 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649331.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Zemana AntiLogger 1.9.3.181 [Multil/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649310.jpg" />
 </div>
 
 

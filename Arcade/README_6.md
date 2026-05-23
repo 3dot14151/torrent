@@ -6,7 +6,7 @@ Soulcalibur VI / Soulcalibur 6 (2018) [Ru/En] (02.05.00/dlc) Repack xatab [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928574.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927185.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927175.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Murder by Numbers (2020) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926756.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Go Home Dinosaurs! [En] (Repack) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926071.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ A Boy and His Blob (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925623.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925516.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Street Fighter V (2016) [Ru/Multi] License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923751.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Road Fist (2017) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923688.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.06/dlc) Repack R.G. Механик�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920153.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Card City Nights (2014) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913585.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Obliteracers (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912894.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Inside (2016) [Ru/Multi] (10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911635.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ The Fall (2014) [Ru/Multi] (2.31) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911525.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.11.3102) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911050.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Trine Anthology (2013-2015) [Ru/Multi] (2.12/2.01/1.11) Repack Seraph1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909793.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Never Alone (2014) [Ru/Multi] (1.8/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907892.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Raging Titan (2016) [En] (1.6.11) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906264.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Oh...Sir!! The Insult Simulator (2016) [En] (1.07) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904425.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ One Finger Death Punch 2 (2019) [En] (2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903028.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Binding of Isaac: Afterbirth (2015) [En] (1.05) Repack R.G. ILITA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901836.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900406.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Until We Die (2021) [Ru/Multi] (2021.07.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900018.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Pac-Man Museum (2014) [Multi] (1.0) License Reloaded
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899125.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ El Shaddai: Ascension of the Metatron (2021) [Multi] (7272439) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896953.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893077.jpg" />
 </div>
 
 

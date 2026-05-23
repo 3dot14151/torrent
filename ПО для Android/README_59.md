@@ -1,58 +1,3 @@
-###  Публикация: 1410677   (433737) от 22.09.2020
-
-ReGYM v2.5 [Ru/En] - дневник тренировок (фитнес и пауэрлифтинг)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-ReGYM - это уникальный подход к ведению дневника тренировок с контролем отдыха после нагрузок различной интенсивности. Создайте для себя индивидуальный план тренировок, который поможет вам идти к своей цели без препятствий! Отслеживайте степень восстановления мышц и планируйте тренировки таким образом, чтобы они были максимально эффективными в тот день, когда ваши (   Читать дальше...   )Тип издания: Пиратка / Unlocked (Full)Релиз состоялся: 11 сентября 2020 г.Разработчик: AppsByBrosПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6124A346ADCE3D1F4531B1A6B0A385B19F304E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945403   (433097) от 10.10.2015
-
-Аура Астрология + v1.10 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Построение астрологических карт, поддерживает разные системы домов.
-Аура Астрология (старое название - "Аура Зодиак")
-==============================================
-В программу включены:(   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 13 января 2015Разработчик: Sinin StudioПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD08E75DD27B9C684D5BE386DCC5CFDB0F4318A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371802   (431260) от 23.09.2020
 
 Интерактивное ТВ (Zabava) v3.0.13 Mod [Ru] (обновляемая)
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431260.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431087.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424706.jpg" />
 </div>
 
 
@@ -140,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421047.jpg" />
 </div>
 
 
@@ -166,7 +111,7 @@ Endel: звуковые фоны 3.60.460 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421044.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ Ear Scout: Super Hearing 1.4.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421042.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ Call Log Analytics 2.1.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421037.jpg" />
 </div>
 
 
@@ -247,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420960.jpg" />
 </div>
 
 
@@ -273,7 +218,7 @@ Phases of the Moon Pro 4.5.1 [Ru] - Фазы луны
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420675.jpg" />
 </div>
 
 
@@ -299,7 +244,7 @@ Electronics Database v2.36 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420570.jpg" />
 </div>
 
 
@@ -328,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420057.jpg" />
 </div>
 
 
@@ -357,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420048.jpg" />
 </div>
 
 
@@ -383,7 +328,7 @@ VideoReg Pro 6.96 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419906.jpg" />
 </div>
 
 
@@ -409,7 +354,7 @@ RocketDial Dialer&Contacts Pro 3.8.6.1 [Ru] - Звонилка с широким
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419895.jpg" />
 </div>
 
 
@@ -435,7 +380,7 @@ Grammatisch 2.4.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419316.jpg" />
 </div>
 
 
@@ -461,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417910.jpg" />
 </div>
 
 
@@ -487,7 +432,7 @@ Device ID Changer Pro v4.9 [ADIC] [En/Ru] - изменение идентифи�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417639.jpg" />
 </div>
 
 
@@ -513,7 +458,7 @@ Doninn Audio Editor Pro 1.08 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411220.jpg" />
 </div>
 
 
@@ -539,7 +484,7 @@ Baby Sleep Sound Machine 1.1.104 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410406.jpg" />
 </div>
 
 
@@ -565,7 +510,7 @@ Panels - sidebar (edge screen) 1.364 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410310.jpg" />
 </div>
 
 
@@ -591,7 +536,7 @@ Tools for Google Maps 5.30 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410213.jpg" />
 </div>
 
 
@@ -617,7 +562,7 @@ Flud v1.8.3.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410211.jpg" />
 </div>
 
 
@@ -643,7 +588,7 @@ TV Online v1.0 (16) Ad-Free [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408903.jpg" />
 </div>
 
 
@@ -669,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408574.jpg" />
 </div>
 
 
@@ -680,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:476A9E3359398BD6F3AEAE242004333A9911ADDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413514   (407982) от 04.10.2020
+
+DailyRoads Voyager v7.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407982.jpg" />
+</div>
+
+
+###  Подробнее
+
+DailyRoads Voyager - приложение для устройств под управлением операционной системы Android, позволяющее делать видеозапись из автомобиля. Приложение работает как "чёрный ящик" или видеорегистратор, записывая всё, но сохраняя только то, в чём действительно заинтересован пользователь. Программа будет полезна водителям, позволяя быстро и безопасно сохранять (   Читать дальше...   )Тип издания: Пиратка (AdFree: удалена реклама и аналитика)Релиз состоялся: 01.06.2020Разработчик: DailyRoadsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CA11A7DF77D7F55EAC5F7DBE4CC090956A139B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399852   (407751) от 04.10.2020
+
+Android Hidden Settings (Professional) v1.7.3 [En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрытые настройки Android позволяют открывать некоторые настройки Android, которые некоторые продавцы телефонов скрывают для пользователя. Это приложение позволяет получить доступ к скрытым настройкам на вашем Android-устройстве без рута, без прав доступа. Это приложение показывает вам только доступные параметры для вашего устройства.Тип издания: Пиратка (открыт Pro)Релиз состоялся: 25.08.2020Разработчик: Common toolsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8BF84DD89644A23D95E0B7D21F8E0807F30A62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ FinePrint Software (FinePrint 11.41 / pdfFactory Pro 8.41) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191773.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.41 Build 19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191772.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adguard 7.11.1 (7.11.4095.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191769.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Process Explorer 17.01 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191768.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adguard 7.11.1 (7.11.4095.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191766.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AIDA64 Extreme Edition 6.90.6528 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191765.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wise Registry Cleaner Pro 11.1.1.716 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191763.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CrystalDiskInfo 8.17.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191762.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CPU-Z 2.07.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191757.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Freemake Video Converter 4.1.13.156 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191756.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VueScan Pro 9.8.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191753.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Auslogics BoostSpeed 13.0.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191750.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Visual Studio Code 1.73.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191747.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DxO PureRAW 2.2.1 build 3 RePack by KpoJIuK  [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191733.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Internet Download Manager 6.41 Build 19 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191717.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AOMEI Partition Assistant Technician Edition 9.12.0 (DC 03.11.2022) RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191708.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Topaz DeNoise AI 3.7.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191700.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AmanVPN 2.3.5.0907 [DC 02.11.2022] [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191693.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ CineBench 2024.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191660.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Firefox Browser 106.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191634.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ApowerREC 1.5.9.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191624.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ LibreWolf 106.0.4-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191615.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Mozilla Thunderbird 102.4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191604.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Aiseesoft Video Converter Ultimate 10.5.36 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191602.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Viber 20.9.0.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191597.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ FinePrint 11.31 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191590.jpg" />
 </div>
 
 

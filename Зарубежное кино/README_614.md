@@ -1,56 +1,3 @@
-###  Публикация: 1276546   (788030) от 16.01.2019
-
-Враг общества №1 / Public Enemies (1996) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма легла реальная история банды Кейт Баркер и ее сыновей, наводивших ужас на банки во времена Великой депрессии. Кейт, мать четверых сыновей, и ее муж не в состоянии справиться с глубокой бедностью.
-Первое убийство, совершенное в порыве ярости, спровоцированное обманом, положило начало череде жестоких и дерзких преступлений. Банда, не знающая ни страха, (   Читать дальше...   )Производство: США / American World PicturesЖанр: Триллер, Драма, КриминалРежиссер: Марк Л. ЛестерАктеры: Тереза Расселл, Дэн Кортезе, Гэвин Харрисон, Джозеф Линдси, Джеймс Марсден, Фрэнк Сталлоне, Алисса Милано, Грант Крамер, Эрик Робертс, Джо Дэйн, Леа Бест, Чип Хеллер, Том Уорд, Ричард ИденПеревод: Профессиональный (многоголосый закадровый), авторскийСубтитры: ОтсутствуютПродолжительность: 01:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC47ABF7DF50E5FE37235413CD49171D7FF1573C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202930   (788006) от 02.02.2018
-
-Доктор Голливуд / Doc Hollywood (1991) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Судьба подложила ему свинью. Бенджи Стоун был подающим надежды пластическим хирургом, ехал в Голливуд, и вдруг — авария на главной улице какого-то захолустного городка. Кто виноват? Конечно, Бенджи. Полиция определяет нарушителю наказание: 32 часа принудительных работ терапевтом в местной больнице. Нормально? Доктор Голливуд приступает к работе. И самое дикое — она (   Читать дальше...   )Производство: США / Warner Bros.Жанр: Комедия, МелодрамаРежиссер: Майкл Кейтон-ДжонсАктеры: Майкл Дж. Фокс, Бриджит Фонда, Вуди Харрельсон, Дэвид Огден Стайерз, Джордж Хэмилтон, Джули Уорнер, Барнард Хьюз, Фрэнсис Стернхаген, Мел Уинклер, Робертс БлоссомПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Английские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290C21172C06566E771EEC79D033D813D4FA43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203497   (788004) от 02.02.2018
 
 Скайлайн 2 / Beyond Skyline (2017) BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788004.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787976.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787975.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787974.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787969.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787968.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787965.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787941.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787927.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787926.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787925.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787922.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787921.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787878.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787820.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787810.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787797.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787786.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787783.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787777.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787775.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787772.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787771.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787763.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90D09DD1314DA2977478D8F8D9A97D19098CC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511995   (787758) от 23.11.2021
+
+На линии (На связи) / Boiseu (On the Line) (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчина становится жертвой голосового фишинга, после чего внедряется в обобравшую его организацию, чтобы добраться до её основателя и отомстить.Производство: Южная Корея, CJ Entertainment, Soo FilmЖанр: Триллер, криминал, детективРежиссер: Ким Гок, Ким СонАктеры: Пён Ё-хан, Му Ёль Ким, Ким Хи-вон, Вон Джин-а, Ли Джу-ён, Ли Гю-сон, Юн Бён-хи, Ок Ча-ён, Чхве Бён-мо, Пак Мён-хунПеревод: Многоголосый любительский (АрхиAsia)Субтитры: Русские форсированные (на корейские надписи)Продолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D29B7084F399F05A00717AE8C58E459CF9E0BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511974   (787747) от 23.11.2021
+
+Король Ричард / King Richard (2021) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ричард Уильямс — отец теннисисток Серены и Винус Уильямс. Сам он практически никогда не играл в теннис и мало понимал в тренировке профессиональных теннисистов. Он планировал тренировать всех дочерей, но настоящий талант показали только Серена и Винус.Производство: США, Overbrook Entertainment, Star Thrower Entertainment, Warner Bros., Westbrook StudiosЖанр: биография, спорт, драмаРежиссер: Рейнальдо Маркус ГринАктеры: Уилл Смит, Онжаню Эллис, Джон Бернтал, Санийя Сидни, Деми Синглтон, Тони Голдуин, Микайла, Лашэй Бартоломью, Даниэль Лоусон, Лайла Кроуфорд, Эрика РингорПеревод: Двуголосый профессиональный (PazlVoice)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 02:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D02165F38E95BF5E22490C4578963FF2A5EE86
 ```
 
 https://mybot314.ru/tekegram_catalog/

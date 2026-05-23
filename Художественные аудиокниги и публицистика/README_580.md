@@ -1,81 +1,3 @@
-###  Публикация: 1172871   (391962) от 09.10.2017
-
-Елена Звёздная | Любовница снежного лорда (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если страшный снежный лорд объявил тебя своей любовницей? Идеальный вариант – в ответ объявить себя его личным секретарем, поставив перед фактом, что порядочные девушки с начальством не спят, и старательно начать приводить в порядок его жизнь! А как иначе, если, вступив в должность, обнаруживаешь, что в жизни шефа бардак, бывшая возлюбленная с супругом (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 08:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D49047806DEA722B7CFD84D42850285702B9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172703   (391958) от 09.10.2017
-
-Елена Звёздная | Академия Проклятий. Урок первый: Не проклинай своего директора (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Особенно – если вы простая адептка Академии проклятий, а он самый могущественный лорд Темной империи! Ведь совершив подобную глупость, вы можете запустить целую цепь странных событий… К примеру, проклятый вами лорд Риан Тьер внезапно начнет вас преследовать, оказывая недвусмысленные знаки внимания, смертельные проклятия одно за другим как из рога изобилия посыплются (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A63AA1E4A2EF30F226D38505A2636731F8E260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716911   (391900) от 31.10.2013
-
-Милорад Павич | Страшные любовные истории (2010) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сборник новых произведений выдающегося сербского прозаика М.Павича, где каждая вещь делает нас соучастниками некоей магической игры, затеянной писателем. Излюбленные темы Павича - любовь, смерть, загадочные сны, прошлое - вновь звучат в его прозе.Жанр: зарубежная прозаИздательство: Нигде Не Купишь
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33A5F4E294B393D31167292305E6CE4C27D7CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172794   (391856) от 09.10.2017
 
 Александра Лисина | Пламя для дракона (2017) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391856.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391855.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391558.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391464.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391291.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391240.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391229.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391224.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391154.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391148.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391078.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390896.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390815.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390687.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390611.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390531.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390471.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390467.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390408.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390405.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390346.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389688.jpg" />
 </div>
 
 
@@ -662,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389026.jpg" />
 </div>
 
 
@@ -673,6 +595,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A78B42C87FDD3EA7FAA38846755D3B05601C4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566546   (388994) от 06.11.2012
+
+Андрей Земляной | Академик (Странник-5) [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествуя по вселенной, Рей решает посетить Академию, находящуюся в пространстве Сопряжения, где начинает постигать магические науки. На этом пути, ему предстоит столкнуться с полным харсом оборотней в Мире Хайтор, вступить в противостояниями с богами и небожителями, посетить места «былой славы» и многое другое. Но переломный момент наступает в войн с технологической расой эднорнов. Результатом такого противостояния становится Посмертное проклятие уничтожившее все пространственные слои и мембраны. Как говорится: «свято место пусто не бывает» — и если Рей не желает проникновения хаоса, ему придется сделать выбор. Да будет СВЕТ!Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67EAD0A8594B8AAFEC5AEF1C64D013D2DE1CC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173880   (388986) от 13.10.2017
+
+Семён Малков | Голубая кровь. Золотая клетка (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть знаменитой эпической трилогии Семена Малкова «Две судьбы».
+.. Жизнь продолжается. И вот уже дети полюбившихся читателям героев попадают в сети безответной любви. Драматическая интрига, динамичное действие, откровенные любовные сцены захватывают читателя с первых страниц. Тонкий психолог и мастер слова Семен Малков с необычайной остротой и яркостью рисует (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 36:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEBA0AF10346DF9EBA28CD86D8F8CDE3C60E931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173756   (388759) от 13.10.2017
+
+Роман Злотников, Антон Корнилов | Последняя крепость. Том 1 (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно повержен маг-узурпатор Константин Великий. Но желанный мир не пришел в королевства людей. Король Гаэлона Эрл Победитель бессилен повелевать своими землями. Его величество Эрл Победитель бессилен повелевать даже самим собою. Ибо во власти Высокого Народа не только Шесть Королевств, но и разум и сердце короля Эрла. Лишь рыцари Болотной Крепости Порога в состоянии (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9722BD2DD677E1FCA6B4F55B84017D0E0E73716
 ```
 
 https://mybot314.ru/tekegram_catalog/

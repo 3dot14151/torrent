@@ -1,29 +1,3 @@
-###  Публикация: 1327348   (376065) от 24.09.2019
-
-Palmyra Orphanage (2019) [Ru/En/Ch] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Palmyra Orphanage — это паранормальный хоррор от первого лица, в котором только скрытность и внимание помогут тебе выжить. Выбери тот финал, который они заслуживают. Раскрой историю приюта. И будь осторожен. В отдаленном уголке постсоветской России находится приют «Пальмира». Каким-то образом детский дом смог пережить развал страны и жуткую лихорадку девяностых. (   Читать дальше...   )Тип издания: LicenseРазработчик: Steppe Hare StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1505B6048AEE6FA13041259DB066176193D73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175776   (375853) от 19.10.2017
 
 The First Tree (2017) [Ru/Multi] (1.1) License RELOADED
@@ -32,7 +6,7 @@ The First Tree (2017) [Ru/Multi] (1.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375853.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Little Big Adventure 2 (1997) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375349.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Lucid Dream (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374495.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374114.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Painted Memories (2016) [En/Tr] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373040.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Long Dark (2017) [Ru/Multi] (2.02) License GOG [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372297.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dummy Life (2017) [En] (1.0.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371245.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Inner World - The Last Wind Monk (2017) [Ru/Multi] (96894D) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371241.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Virginia (2016) [Ru/Multi] (1.02/upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370456.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ MIAZMA or the Devil's Stone (2018) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370273.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Rabbit Hole (2022) [Ru/Multi] (Build 9481229) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370080.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Shattering (2020) [Ru/Multi] (1.1.9/dlc) License GOG (обновляемая
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370032.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Intruders: Hide and Seek (2019) [Multi] (1.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369593.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dreamfall Chapters: The Longest Journey (2014) [Ru/En] (5.3.1.1) Repack xatab [S
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368108.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Fahrenheit: Indigo Prophecy Remastered (2015) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368107.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365416.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ The Park (2015) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364718.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Jack Keane / Джек Кейн (2008) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364145.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ The 9th Gate (2018) [En/Ch] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363058.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362861.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Yomawari: Midnight Shadows (2017) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362437.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ The Longest Journey Dilogy (2000) [Ru/En] Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360529.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Reah: Face the Unknown (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360260.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ GRIM - Mystery of Wasules (2017) [En/Tur] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359996.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359995.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:373E1D0B3AF303F42416FBA54247C65441DBE3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177858   (359987) от 26.10.2017
+
+Shiver (2017) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы будете играть роль своенравного сына, отправившегося навестить своего стареющего отца в отдаленном доме перед его выходом на пенсию. В пути вы попадаете в аварию и оказываетесь на территории заброшенного национального парка Windy Oaks. Используя свои умения и упорство, вы должны найти способ связаться с помощью и убежать, прежде чем парк вас поглотит.Тип издания: RepackРазработчик: Kowai Sugoi StudiosЖанр: Adventure (Horror, Point-and-Click), PuzzleЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF81D35C189934813B44ED90B929DB373C7891FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

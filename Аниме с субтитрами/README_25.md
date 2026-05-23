@@ -6,7 +6,7 @@ Memories Off | Забыть прошлое [2001, OVA, 3 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913212.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Memories Off 2nd | Memories Off 2 | Забыть прошлое 2 [2003, OVA, 3 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913151.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ High School DxD Born | Демоны старшей школы [ТВ-3] [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912983.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kemeko Deluxe! | Кемеко Делюкс! [2008, TV, 12 из 12] BDRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910897.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Time Travel Shoujo: Mari Waka to 8-nin no Kagakusha-tachi | Девушки, пу
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910176.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Altered Carbon: Resleeved | Видоизмененный углерод [2020, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910150.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Hetalia: World Stars | Хеталия: Мировые звёзды [2021, Web, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908213.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Покорен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907520.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Heroic Age / Героический Эйдж [2007, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906730.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ghost Sweeper GS Mikami / Ghost Sweeper Mikami / Миками - истребит
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_905762.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905577.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных с�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905557.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905375.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905246.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903817.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fukuyama Gekijou: Natsu no Himitsu | Театр Фукуямы: Летний с�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903664.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903660.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tsugumomo (2020) | Цугумомо OVA [2020, OVA, 1 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903490.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ni no Kuni | Другой мир | Вторая страна [2019, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903377.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Kaijuu no Kodomo | Children of the Sea | Дети моря [2019, Movie] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903373.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Macross FB7: Ginga Rukon - Ore no Uta o Kike! / Макросс ФБ7: Блужд
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903142.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901922.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901755.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Uchi Tama?! Uchi no Tama Shirimasenka? | Uchitama?! Have You Seen My Tama? | Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901387.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901344.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901204.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1795219   (19463) от 03.05.2025
-
-Пропавшие девушки: Лонг-айлендский убийца / Gone Girls: The Long Island Serial Killer (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) Red Head Sound
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал рассказывает о череде загадочных исчезновений женщин в Лонг-Айленде, которые долгое время оставались нераскрытыми. Исчезнувшие, как правило, были молодыми и социально уязвимыми, и лишь спустя годы после первых сообщений полиция начинает обнаруживать тела, похороненные вдоль пустынной дороги. История обретает огласку, когда одна из жертв успевает (   Читать дальше...   )Производство: США / Archer Gray, Story SyndicateЖанр: документальный, криминалРежиссер: Лиз ГарбусУчастники: Нэйт Терани, Изабелла Викторсон, Аарон Пек, Роберт Колкер, Мелисса Кэнн, Джон Рей, Джералдин Харт, Сара Карнес, Рэй Тирни, Жаклин ГаллуччиПеревод: Многоголосый профессиональный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29167A4F3A4EB79E4D973E61AEC7C2927991F417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242588   (19221) от 06.05.2025
 
 BBC: Я и гравитация. Сила, формирующая нашу жизнь / Gravity and Me. The Force That Shapes Our Lives (2017) HDTV [H.264/1080i-LQ]
@@ -32,7 +6,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19221.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19076.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16636.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16449.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14896.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14864.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14860.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14674.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Discovery: Шахты на Луне / Mining the Moon (Роб Бимер) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14598.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Discovery: Экоград / Ecopolis (2008) SATRip (серии 1-6 из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14591.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14581.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14548.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14525.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14504.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14372.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14369.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14359.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14315.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13943.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13925.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13641.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13391.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13057.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12988.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12867.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93BB94D81B27EA9962B59E7355CB8523A6A524DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805834   (11852) от 11.07.2025
+
+Современная инженерия: Когда что-то идет не так / When Big Things Go Wrong (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11852.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Современная инженерия: Когда что-то идёт не так» — это увлекательный документальный сериал, где ошибки инженеров становятся началом глубоких расследований. С помощью архивных кадров, компьютерной графики и интервью с экспертами проект детально исследует причины аварий сложных технических сооружений — от мостов и небоскрёбов до плотин и промышленных объектов. Каждый (   Читать дальше...   )Производство: США | «Plimsoll productions»Жанр: Документальный, историяУчастники: Мосин Мелвин, Роб Белл, Дэниел Дикрелл, Люк Бисби, Роберт Гленистер, Сайэн Проктор, Асегун Генри, Мэтт Робинсон, Эндрю Херрман, Джерри ШеммелПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AAF4ED4B20FD8FCC9DC6EA943CE0FA9710F6FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

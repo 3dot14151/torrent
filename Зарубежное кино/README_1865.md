@@ -1,55 +1,3 @@
-###  Публикация: 1597189   (167295) от 13.12.2022
-
-Зимний хребет / Winter Ridge (2018) BDRip [H.264/1080p] [US Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Несколько месяцев назад жена детектива Райана Барнса была сбита пьяным водителем и с тех пор лежит в коме. Когда виновный выходит на свободу, в округе начинают происходить странные смерти пожилых людей.Производство: Великобритания / Camelot Films, Chris.Hardman Pictures, Nice One FilmЖанр: Триллер, детектив, криминалРежиссер: Дом ЛенуарАктеры: Мэтт Хукингс, Олуэн Катрин Келли, Ханна Уэддингхэм, Майкл МакКелл, Джастин МакДональд, Алан Форд, Иэн Пири, Ноэлин Комиски, Claudia Archer, Ella RoadПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1A0A19AB1D60741C10543DB766D71FEA8EDC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515415   (167293) от 09.12.2021
-
-Мавританец / The Mauritanian (2021) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Не получив официальных обвинений и возможности защиты в суде, Мохаммед Ульд Слахи провел в тюрьме Гуантанамо более 6 лет. Только после этого он был удостоен права иметь адвокатов. Но и им в борьбе с правительственной машиной предстоит побороть личные сомнения.Производство: Великобритания, США / Wonder Street, 30WEST, BBC FilmsЖанр: Биография, драма, триллерРежиссер: Кевин МакдональдАктеры: Джоди Фостер, Тахар Рахим, Закари Ливай, Саамер Усмани, Бенедикт Камбербэтч, Nouhe Hamady Bari, Saadna Hamoud, Mohamed Yeslem Mousse, Mohamed Abderrahmane Arava, Aly DeydeПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio), Авторский (А. Карповский)Субтитры: Русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 02:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEDEB11AA717118A99C34BAA141D151A31602CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597064   (167289) от 13.12.2022
 
 Кабан / Boar (2017) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167289.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167278.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167272.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167265.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167248.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167245.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167225.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167224.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167216.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167213.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167201.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167192.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167191.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167190.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167183.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167176.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167173.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167168.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167166.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167165.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167164.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167148.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167138.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167137.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E979DBEF95D952C9D03B28985DDEC054080FE6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597032   (167136) от 13.12.2022
+
+Амстердам / Amsterdam (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, 1933 год. Ветеран Первой мировой Бёрт Берендсен держит небольшую клинику и помогает таким же покалеченным войной бедолагам, как и он сам. Однажды его с лучшим другом и сослуживцем, адвокатом Харольдом Вудменом, нанимает дочь их бывшего полководца, чтобы провести вскрытие внезапно почившего отца, который только что прибыл из Европы и собирался выступить (   Читать дальше...   )Производство: США, Канада / 20th Century Studios, Canterbury Classic, Forest Hill EntertainmentЖанр: Kомедия, детектив, историяРежиссер: Дэвид О. РасселлАктеры: Кристиан Бэйл, Джон Дэвид Вашингтон, Марго Робби, Рами Малек, Андреа Райзборо, Аня Тейлор-Джой, Крис Рок, Алессандро Нивола, Маттиас Шонартс, Майкл ШеннонПеревод: Дублированный (Jaskier), Многоголосый профессиональный (LostFilm, TVShows), Авторский (Д.Есарев)Субтитры: Русские (Full), Английские (Forced, Full, SDH)Продолжительность: 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CE73482C07AA2E2A8EB0D5BC14B9D31F02BB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345289   (167134) от 14.12.2019
+
+Тихая семья / Joyonghan gajok / The Quiet Family (1998) BDRip [H.265/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилая пара с тремя взрослыми детьми и братом мужа приобрела большой дом рядом с горой в надежде на перспективный доход от туристов и строящуюся рядом дорогу. Время идёт, туристов нет. Но вот появляется первый клиент — платит, отправляется в свой номер, а на следующее утро хозяева находят его мёртвым. Бедолага покончил с собой, и чтобы не портить репутацию гостинице, (   Читать дальше...   )Производство: Корея Южная / Myung Film Company Ltd.Жанр: Комедия, КриминалРежиссер: Ким Джи-унАктеры: Пак Ин-хван, На Мун-хи, Сон Кан-хо, Чхве Мин-сик, Ко Хо-гён, Ли Юн-сон, Чхве Чхоль-хо, Ки Джу-бон, Чан Га-хён, Чон Джэ-ёнПеревод: Одноголосый любительский x2Субтитры: английские (хардсаб)Продолжительность: 01:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652572B726378FD08FBDC61BE036053B318208CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

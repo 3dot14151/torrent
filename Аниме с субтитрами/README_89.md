@@ -6,7 +6,7 @@ Be-Bop High School / Старшая школа Би-Боп [1990, OVA 7 эп.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283911.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Charlotte | Шарлотта [2015, TV, 13 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283280.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Rerided: Tokigoe no Derrida | РЕридеД: Деррида, что путеш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282479.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Conf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282177.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kyousogiga / Шутки чокнутой столицы [2011, OVA] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281989.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280525.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hoshi wo ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279703.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Full Moon wo Sagashite | Searching for the Full Moon | В поисках Пол�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279058.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Mouretsu Pirates - Akuu no Shin'en | Moretsu Pirates: Abyss of Hyperspace | Ли
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278991.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278785.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277672.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277632.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ GTO / Great Teacher Onizuka / Крутой учитель Онидзука [1999
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277276.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Koukaku Kidoutai Stand Alone Complex: Solid State Society / Ghost in the Shell: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277271.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Underbar Summer | Лето [2006, OVA, 2 эп. + 2 SP] DVDrip 720 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276150.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Devil's Line | Линия дьявола [2018, TV, 12 + 1 ОВА] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275101.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Shin Kidou Senki Gundam Wing | Mobile Suit Gundam Wing | Мобильный во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273615.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273436.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Glass Mask TV 2005 / Стеклянная маска [ТВ-2] [2005, TV, 51] SDT
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273409.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272274.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ To Love-Ru: Trouble - Darkness OVA | To Love-Ru Trouble Darkness / Любовн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270931.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Kidou Senshi Gundam: Twilight Axis | Mobile Suit Gundam Twilight Axis | Моби
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266953.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266827.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Sukas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266745.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Wakaokami wa Shougakusei! | Хозяйка гостиницы из младше�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266441.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266266.jpg" />
 </div>
 
 

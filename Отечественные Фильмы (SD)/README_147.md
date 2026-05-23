@@ -1,108 +1,3 @@
-###  Публикация: 1808498   (10389) от 25.07.2025
-
-72 метра (2004) SATRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Капитан-лейтенанты Пётр Орлов и Иван Муравьёв давно служат на подводной лодке «Славянка». Очередной выход в море - боевые плановые учения. Но никто не предполагает, что в этот раз случится катастрофа - волны от учебных взрывов растревожат «спящую» со времён Второй мировой войны морскую мину.Производство: Россия / Первый канал, Студия ТритэЖанр: боевик, триллер, драмаРежиссер: Владимир ХотиненкоАктеры: Сергей Маковецкий, Марат Башаров, Андрей Краско, Дмитрий Ульянов, Чулпан Хаматова, Станислав Никольский, Сергей Гармаш, Владислав Галкин, Игорь Ливанов, Артём Михалков и другиеСубтитры: отсутствуютПродолжительность: 02:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F89346751EAA6FDE7CB27A60571F4DD56603AF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809846   (9678) от 01.08.2025
-
-Мастер и Маргарита (2023) HDRip [H.264] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Москва, 1930-е годы. Известный писатель на взлёте своей карьеры внезапно оказывается в центре литературного скандала. Спектакль по его пьесе снимают с репертуара, коллеги демонстративно избегают встречи, в считанные дни он превращается в изгоя. Вскоре после этого, он знакомится с Маргаритой, которая становится его возлюбленной и музой. Воодушевлённый ее любовью и (   Читать дальше...   )Производство: Россия / АМЕДИА, Профит, Марс Медиа ЭнтертейнментЖанр: драма, фэнтези, мелодрамаРежиссер: Михаил ЛокшинАктеры: Аугуст Диль, Юлия Снигирь, Евгений Цыганов, Клас Банг, Юрий Колокольников, Алексей Гуськов, Кеша, Юрий Борисов, Алексей Розин, Данил СтекловПеревод: Не требуется (Русский)Субтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CCD635AEE0E92A2F2571C8C3D2381F1C7FD425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 394472   (9608) от 02.08.2025
-
-Честь имею! (4 серии из 4) (2004) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Его зовут капитан Числов. Он воюет на территории Чеченской республики. У него, как и у его товарищей, мало стимулов рисковать жизнью. У него нет денег, нет квартиры, нет семьи… Его предают и там, в бою, и здесь — в мирной, обычной жизни.
-   Об этом ему скажет очень красивая и очень богатая женщина далеко от войны, в прекрасном и безопасном Петербурге. Но у него есть (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Виктор БутурлинАктеры: Александр Лазарев мл., Евгения Крюкова, Андрей Фролов, Наталья Круглова, Владислав Юрчикевич, Роман Золотов, Анжелина Карелина, Сергей Астахов, Артем Алексеев, Александр СаюталинФормат: AVIКачество: DVDRipПродолжительность: 4 x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EF31CE23F7B7185E77DE17EA8EFDD844BDDFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357923   (9592) от 02.08.2025
-
-Второе дыхание (2008) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой картины – молодой прожигатель жизни Павел Макаров. Проснувшись после очередной вечеринки, он обнаруживает рядом с собой незнакомую девушку, которая всерьез предлагает жениться на ней, но получает отказ. Дочь местного авторитета, она не привыкла слышать слово «нет». И теперь Макарову грозят серьезные неприятности: ему приходится срочно покинуть родной (   Читать дальше...   )Жанр: Боевик, ВоенныйРежиссер: Михаил ТуманишвилиАктеры: Екатерина Климова, Никита Емшанов, Максим Щеголев, Всеволод Шиловский, Петр Красилов, Денис НикифоровПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8981CE6BB6F9107C3CD5D425B3B062334661519C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586466   (9587) от 02.08.2025
 
 Прорыв (2005) DVDRip [H.264]
@@ -111,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9587.jpg" />
 </div>
 
 
@@ -139,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9559.jpg" />
 </div>
 
 
@@ -165,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9510.jpg" />
 </div>
 
 
@@ -191,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8580.jpg" />
 </div>
 
 
@@ -217,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7407.jpg" />
 </div>
 
 
@@ -244,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6809.jpg" />
 </div>
 
 
@@ -271,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4693.jpg" />
 </div>
 
 
@@ -297,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4353.jpg" />
 </div>
 
 
@@ -323,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3819.jpg" />
 </div>
 
 
@@ -349,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3691.jpg" />
 </div>
 
 
@@ -376,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3542.jpg" />
 </div>
 
 
@@ -404,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3007.jpg" />
 </div>
 
 
@@ -430,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2437.jpg" />
 </div>
 
 
@@ -457,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1201.jpg" />
 </div>
 
 
@@ -483,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1089.jpg" />
 </div>
 
 

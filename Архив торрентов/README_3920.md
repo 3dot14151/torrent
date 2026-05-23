@@ -6,7 +6,7 @@ Softorino YouTube Converter PRO for Mac 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205396.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Artstudio Pro 5.1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205392.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Dash 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205390.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Swinsian 3.0 Preview 8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205386.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Adobe Audition 2022 22.6.0.66 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205385.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ADB AppControl 1.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205376.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ ZEDGE 8.15.7-beta Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205373.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ HWiNFO 7.61 Build 5180 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205372.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ ZEDGE 8.14.4 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205367.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Capture One 22 Enterprise v.15.4.0.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205366.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PeaZip 9.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205362.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.598]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205352.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Mirillis Action! 4.36.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205350.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Chromium 116.0.5845.97 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205348.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Everyone Piano 2.5.8.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205345.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Persecond for Mac 1.6 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205336.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Windows 11 Media Creation Tool 10.0.22621.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205332.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ PhotoRoom 4.6.5 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205316.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Widgetter - Desktop Widgets for Mac 1.14.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205304.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ RJ TextEd 15.93.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205300.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Corona Renderer 8 (Hotfix 2) for 3ds Max 2014-2023 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205297.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ WonderPen 2.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205291.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Maxon Cinema 4D Studio R26.107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205290.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ FontXChange 5.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205283.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205281.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Photomath Plus 8.28.0 (b70000936) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205271.jpg" />
 </div>
 
 

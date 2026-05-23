@@ -6,7 +6,7 @@ Dee Dee Bridgewater - Dee Dee's Feathers (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531717.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jack Teagarden & Jonah Jones - Old Timey Jazz (1979) 2014, Music Trax [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531691.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rosey - Luckiest Girl (2008) [FLAC|Lossless|image + .cue] <Soul-Jazz, Cool Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531681.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jose James - Yesterday I Had The Blues - The Music Of Billie Holiday (2015) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531621.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Quincy Jones - Complete Recordings 1955-1959 (2013) 4CD, Enlightenment [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531574.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sonny Rollins - Trio & Quartet: Paris 1965 - Copenhagen 1968 (2008) 2CD, Gambit 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531397.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Oscar Peterson - Jam Montreux '77 (1977) 1989, Prestige[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531063.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dann Zinn - Day Of Reckoning (2019) Origin Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530967.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Count Basie Orchestra - Long Live The Chief (1986) Denon [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530965.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chris Amemiya & Jazz Coalescence - In The Rain Shadow (2013) OA2 Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530963.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tommy Emmanuel & Frank Vignola - Just Between Frets : Groovemasters Vol. 11 (200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530680.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tommy Emmanuel, Martin Taylor - The Colonel & The Governor (2013) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530678.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Art Blakey & The Jazz Messengers - Free For All (1964) /2014, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529995.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Fattburger - Good News (1987) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529945.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Woody Herman - The 3 Herds (1945 - 1954) 2017, Sony Music [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529895.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lucky Millinder - 1941 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529864.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ John Coltrane - Blue Train (1957) 2CD, 2010, Not Now Music[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529261.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ David Kikoski - Phoenix Rising (2019) HighNote [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529226.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dave Stryker - Eight Track II (2016) Strikezone Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529225.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dwight Trible - Inspirations (2017) Gondwana Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529224.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Buddy DeFranco (De Franco) And Oscar Peterson - Play George Gershwin (1954) 1998
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528933.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Buddy Rich - Buddy Rich Band (1981) MCA Records [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528864.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Herbie Hancock - This Is Jazz (1998) Columbia [FLAC|Lossless|tracks + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528860.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Lee Morgan - The Complete Live At The Lighthouse (1970) 8CD, 2021, Blue Note [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528851.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Fattburger - Living In Paradise (1988) /Intima Records/[FLAC|tracks+.cue]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528767.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Carter Jefferson - The Rise Of Atlantis (1978) /2015, Solid Records/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528766.jpg" />
 </div>
 
 

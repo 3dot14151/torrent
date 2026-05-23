@@ -1,55 +1,3 @@
-###  Публикация: 1158655   (487534) от 18.08.2017
-
-Дракула 3000 / Dracula 3000 (2004) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-3000 год. Космический челнок обнаруживает на задворках вселенной останки корабля «Деметр», пропавшего на пути из Карпатской галактики. Надеясь поживиться добычей, искатели приключений Мина, Ван Хельсинг и их лихие напарники проникают на борт судна, чтобы в его мрачных коридорах обнаружить зловещий груз — 50 гробов. К несчастью для экипажа, в недрах «Деметра» уже (   Читать дальше...   )Производство: Германия, ЮАР / ApolloProMedia, Fiction Film & Television Limited, Film Afrika Worldwide CCЖанр: Ужасы, ФантастикаРежиссер: Даррелл РудтАктеры: Каспер Ван Дин, Эрика Элениак, Кулио, Александра Кэмп-Гроеневельд, Грант Суэнби, Лэнгли Кирквуд, Том ’Тайни’ Листер мл., Удо КирПеревод: Многоголосый закадровый, профессиональный (Лицензия,«CP-Digital»)Субтитры: отсутствуютПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262AD242BF9177F8C3049FBFB2EBBAE816E4B217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545275   (487529) от 09.09.2012
-
-Иерусалим / O Jerusalem (2006) HDTVRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Нью-Йорке живут два молодых человека: американский еврей Бобби Гольдман и араб из Иерусалима Саид Шаин. Атмосфера всеобщего ликования по поводу окончания Второй мировой войны делает их друзьями, и в свои 27 лет они разделяют одни и те же принципы и верят в одни и те же идеи. Однако окончание мировой войны не всегда означает наступление мира во всем мире. 27 ноября (   Читать дальше...   )Жанр: ДрамаРежиссер: Эли ШуракиАктеры: Джей Джей Филд, Саид Тагмауи, Мария Папас, Патрик Брюэль, Иэн Холм, Това Фелдшух, Мел Райдо, Сесиль Кассель, Мхаири Стинбок, Том Конти, Питер Поликарпу,Даниэль Лунд, Анатол Юсеф, Джейми Хардинг, Лаура Вейссбеккер, Роберт Атико, Дэниэл Бен Зеноу,Эли Шураки, Кристиан Хиллман, Джон Ховарт, Доминик Джефкотт, Райан КрюгерПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2124CB34A2EB3D0C807163B97976E177D443013C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055129   (487466) от 22.09.2016
 
 Разрушение / Demolition (2015) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487466.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487464.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487448.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487424.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487407.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487404.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487367.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ S.P.L. Звезды судьбы / Saat po long (2005) BDRip [H.264/720p]
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487330.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487327.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487324.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487322.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487319.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487311.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487310.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487307.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487268.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487266.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487261.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487202.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487197.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487190.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487188.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487128.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487101.jpg" />
 </div>
 
 
@@ -678,6 +626,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D65D4DCE582DBE8A53AF918B223464AFB30B084C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545288   (487006) от 09.09.2012
+
+Остин Пауэрс: Голдмембер / Austin Powers in Goldmember (2002) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487006.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1975 году отец Остина Пауэрса — знаменитый английский шпион Нейджел Пауэрс — был похищен голландским злодеем Голдмембером. Теперь, в 21-ом веке, знаменитый шпион Остин Пауэрс решает помочь своему отцу. Заручившись поддержкой своего давнего врага — Доктора Зла, с помощью его машины времени Остин совершает прыжок во времени.
+Он оказывается в 1975 году, в эпохе диско. Однако вскоре выясняется, что одержимый идеей завоевать весь мир Доктор Зло, был сам в сговоре с Голдмембером и возможно причастен к похищению отца Остина. Может быть, похищение Нейджела Пауэрса — это всего лишь уловка двух злодеев, совершенная, чтобы заманить к себе Остина Пауэрса?
+Вместе со своей очаровательной давней подружкой Фокси Клеопатрой Остин Пауэрс пытается распутать злодейские планы Доктора Зла и Голдмембера, чтобы не только выручить своего отца, но и спасти весь мир от этих злодеев…Жанр: Комедия, Криминал, ПриключенияРежиссер: Джей РоучАктеры: Майк Майерс, Бейонсе Ноулз, Сет Грин, Майкл Йорк, Роберт Вагнер, Мелинда Стерлинг, Верн Тройер, Майкл Кейн, Фред Сэвадж, Дайан МизотаПеревод: ДублированныйПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E292FFF1D41195847FDB7AB3D26DCB9BF08AF5B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545295   (487001) от 09.09.2012
+
+Остин Пауэрс: Шпион, который меня соблазнил / Austin Powers: The Spy Who Shagged Me (1999) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтающий о мировом господстве Доктор Зло отправляется назад в свингующие 60-е, чтобы похитить «моджо» плейбоя и суперагента Остина Пауэрса- талисман, гарантирующий ему успех у женщин. Смертельная схватка неизбежна.
+ Остин бросается в погоню за своим врагом, чтобы вместе с соблазнительной помощницей Фелицией Трахвелл спасти мир, вернуть свою гиперсексуальность и… успеть домой как раз к чаю…Жанр: Комедия, Криминал, ПриключенияРежиссер: Джей РоучАктеры: Майк Майерс, Хэзер Грэм, Майкл Йорк, Роберт Вагнер, Роб Лоу, Сет Грин, Мелинда Стерлинг, Верн Тройер, Элизабет Херли, Гия КаридесПеревод: ДублированныйПродолжительность: 01:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7C58B468C0D080EA488A390D3632C569C873BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,81 +1,3 @@
-###  Публикация: 1804275   (13145) от 28.06.2025
-
-Влад Лей, Александр Грохт | Пекло (Книга 2). Наемники Пекла (2025) [MP3, Наемники Пекла]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Далекий и опасный мир – Пекло. Планета, где всем заправляют свирепые банды, где закон силы превыше всего, а человеческая жизнь стоит дешевле стакана воды. Здесь сложно выжить одному, нужны соратники, которые прикроют спину. Злой Тапок, волею судьбы оказавшийся здесь собрал неплохую команду, но хватит ли этого, чтобы пройти через все испытания, выпавшие на его долю?Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 09:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FFD458D82951014C8103DAA38C98BA2E5022F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804278   (13138) от 28.06.2025
-
-Влад Лей, Александр Грохт | Пекло (Книга 3). Воины Пекла (2025) [MP3, Иван Никонов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Покинуть Пекло не такая уж и легкая задача. Тапку и Ко не удалось сбежать и они вновь вынуждены выживать на этой богом забытой планете. Впрочем, пока есть друзья и патроны сдаваться он не собирается.Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 09:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0DF39C448EDFF7F5982A45E7197B4B898E5999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804446   (13051) от 29.06.2025
-
-Дмитрий Билик | Рубежники (Книга 2). Бедовый. Специалист по нечисти (2025) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В моем доме живет бес, я знаком с чертями, а с лешим даже приятельствую. И нет, я не клиент психиатрической клиники, а всего лишь рубежник. Человек, который может видеть то, что не способны другие. И так вышло, что больше всего специализируюсь на общении с нечистью. А что, звучит: Матвей Зорин - специалист по нечисти. Так в резюме и напишу.Жанр: Городское фэнтези, Мистика, ЮморИздательство: 1С-ПаблишингПродолжительность: 08:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEA2C0BA2CF2342A23138AD3AB9D7CABA3BA588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804445   (13038) от 29.06.2025
 
 Дмитрий Билик | Рубежники (Книга 1). Бедовый (2025) [MP3, Игорь Ломакин]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13038.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12964.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12957.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12942.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12934.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12925.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12912.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12909.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12907.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12891.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12864.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12739.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12732.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12663.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12648.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12645.jpg" />
 </div>
 
 
@@ -509,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12644.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12641.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12637.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12582.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ Lanpirot | Товарищ "Чума" (Книга 6). (2025) [MP3, Виктор �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12558.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12553.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12456.jpg" />
 </div>
 
 
@@ -676,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:961E602C43BD28258A7033BC34276894B8B778E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805335   (12434) от 05.07.2025
+
+Дмитрий Видинеев | Надзиратель (2025) [MP3, Алекс Зборовский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подмосковный город Светинск оказался на грани настоящего кошмара. Жестокий убийца по кличке Надзиратель сбежал из самого ада, прихватив с собой так называемую Стаю – тринадцать кровавых маньяков. И теперь банда отморозков направляется в город. Для Надзирателя не существует никаких правил. Он не знает ни жалости, ни милосердия. Люди для него – ничтожные насекомые. (   Читать дальше...   )Жанр: Фэнтези, УжасыИздательство: Аудиокнига своими рукамиПродолжительность: 13:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BBE9CF459324622FE2565C0EDD17272CD4FF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805366   (12424) от 05.07.2025
+
+Виталий Свадьбин | КиберМиха. Полукровка (2025). [MP3, дядя Фёдор]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12424.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Солнечную систему прилетают инопланетяне, которые опережают землян в развитии на десятки тысяч лет. Селятся на самом мелком континенте, начинается внедрение в цивилизацию человечества Средних веков. В это же время в тело юноши, сына хана кочевников, попадает разум нашего современника, который погиб в зоне СВО. Герой видит, что миром управляют неизвестные лица через (   Читать дальше...   )Жанр: Альтернативная история, Историческая фантастика, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 09:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF4D7A7737D595DD363B8B93E86909AC9CAEF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805533   (12352) от 06.07.2025
+
+Евгений Капба | Великий и ужасный (Книга 1) (2025) [MP3, Алексей Файзуллин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь – штука непредсказуемая, герой же думал, что очутился в сказке. Мир-то и впрямь сказочный: есть в нём волшебники, вот только совсем не добрые; имеются и принцессы, причём не сказать, чтобы прекрасные. Да и новый облик «попаданца» подкачал: не рыцарь благородный, а сущее чудище. В остальном же всё почти как у нас. Например, надо искать работу: жить-то на что-то (   Читать дальше...   )Жанр: Попаданцы в магические миры, Городское фэнтези, КиберпанкИздательство: 1С-ПаблишингПродолжительность: 09:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F5848BD65B3D504836669E365215C084494E81
 ```
 
 https://mybot314.ru/tekegram_catalog/

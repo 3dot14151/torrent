@@ -1,29 +1,3 @@
-###  Публикация: 1792456   (4368) от 05.09.2025
-
-Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Действие игры развернется в уже знакомой игрокам вселенной Stygian: Reign of the Old Ones. Вам предстоит не только принять участие в событиях, предшествовавших «Черному дню», но и возможность в определенной мере повлиять на них. Вы погрузитесь в мир, полный опасностей, запретных тайн сокрытых в темных уголках на краю сознания и древнего ужаса, суть которого недоступна (   Читать дальше...   )Тип издания: LicenseРазработчик: Misterial GamesЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA1841B8C7FE7971F5B0B0C6A0278A9394AA6A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758471   (4366) от 05.09.2025
 
 SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack seleZen [Premium Edition]
@@ -32,7 +6,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack seleZen [Premium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4366.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ PowerSlave Exhumed (2022) [Multi] (1.0.1659) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4362.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4357.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4352.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4347.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831/dlc) Repack FitGirl [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4342.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.10.370/dlc) Repack FitGirl [Inne
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4332.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Enshrouded (2024) [Ru/Multi] (729115) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4322.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4302.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Detective Club 2: Gallery of Shadows / Детективный клуб 2: Гал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4283.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4267.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wolfenstein: The New Order, The Old Blood, The New Colossus, Youngblood (2014-20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4263.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.2.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4259.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Universe Sandbox (2015) [Ru/Multi] (35.3.3) License GOG [Early Access] (обно
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4255.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Through the Ages (2018) [Ru/Multi] (2.19.1120/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4254.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4238.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4234.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4233.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4222.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1093513) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4221.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4213.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4195.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4187.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4171.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Artifact Seekers: Season 2 / Искатели артефактов: Сезон 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4091.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Artifact Seekers: Season 2 / Искатели артефактов: Сезон 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73919EF4ACBC6AEAD042A80C80036C759B14898A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816753   (4090) от 06.09.2025
+
+Big Adventure: Trip to Europe 11 / Большое приключение: Поездка в Европу 11 (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной игры Big Adventure: Trip to Europe. Это настоящее европейское приключение, для которого не требуется паспорт! Погрузитесь в атмосферу европейских приключений и откройте для себя континент, не выходя из дома! Исследуйте исторические памятники, культурные достопримечательности и живописные пейзажи, проходя увлекательные уровни поиска скрытых (   Читать дальше...   )Тип издания: UnofficialРазработчик: Avi GamesЖанр: Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCFA452AF9913A71EB5CE6CA4680E4994118301
 ```
 
 https://mybot314.ru/tekegram_catalog/

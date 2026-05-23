@@ -6,7 +6,7 @@ PhotoRoom 4.6.7 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191623.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191617.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LibreWolf 106.0.4-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191615.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Speedtest от Ookla 5.1.0 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191614.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Mozilla Thunderbird 102.4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191604.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Aiseesoft Video Converter Ultimate 10.5.36 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191602.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Viber 20.9.0.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191597.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Lucky Patcher 10.8.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191594.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ FinePrint 11.31 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191590.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Text Edit Plus 13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191589.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ FanControl V136 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191583.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Calibre 6.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191580.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ RegCool 1.343 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191577.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ jv16 PowerTools 7.7.0.1524 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191574.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ HiPER Calc Pro (Scientific Calculator) 10.3.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191573.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Free Hex Editor Neo 7.37.00.8578 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191568.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Icecream Screen Recorder PRO 7.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191566.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ NIUBI Partition Editor 9.7.7 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191565.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ EF Commander 2023.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191561.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ O&O Defrag Professional 26.1 Build 7708 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191556.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ CCleaner Pro: ПО для очистки 23.17.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191555.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Auslogics BoostSpeed 13.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191554.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ PortableApps.com Platform 26.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191548.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VPN Inf - Security Fast VPN 7.5.912 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191547.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Opera Crypto Browser 102.0.4880.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191544.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ iTubeGo YouTube Downloader 6.4.1 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191535.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ABViewer Enterprise 14.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799324.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DisplayFusion Pro 9.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799320.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iZotope - RX 9 Audio Editor Advanced 9.1.0 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799296.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ qBittorrent 4.3.9 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799295.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ RS Recovery Software 2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799284.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Uninstall Tool RePack (&Portable) by D!akov 3.5.7 build 5611 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799277.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ JetBrains PyCharm 2018.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799274.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ RonyaSoft CD DVD Label Maker 3.2.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799184.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Novicorp WinToFlash Professional 1.6.0001 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799174.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Scanitto Pro 3.16 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799161.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ FontViewOK 4.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799117.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rufus 2.13 Build 1078 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799115.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Aiseesoft HD Video Converter 8.2.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799112.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Firefox Browser 94.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799098.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Privacy Eraser Free 5.17.0 Build 4067 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799095.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WonderFox HD Video Converter Factory Pro 24.2 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799077.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Win+X Menu Editor 2.7.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799057.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Text Editor Pro 18.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799056.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Java SE Development Kit 17.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799052.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.04.03 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799043.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Windows 10 Manager 2.0.8 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799042.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Skype 8.78.0.159 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799041.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799040.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Waterfox Current G4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799037.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Adobe Animate CC 2017.2 16.2.0.24 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799029.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ KLS Backup 2021 Professional 11.0.0.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799028.jpg" />
 </div>
 
 

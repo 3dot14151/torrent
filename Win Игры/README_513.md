@@ -1,29 +1,3 @@
-###  Публикация: 1723490   (27990) от 11.02.2025
-
-Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В Instruments of Destruction используется передовая система разрушения, основанная на физических законах. Благодаря полностью интерактивной физике любое сооружение в игре можно разрушить на кусочки, и все объекты будут так или иначе взаимодействовать с разрушениями. Все элементы игровой реальности гармонично включены в систему разрушения и взаимодействуют друг с (   Читать дальше...   )Тип издания: RepackРазработчик: RadiangamesЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F7BA01DBE6F62BB23DA7B4DE8AC005A2EA6A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767438   (27989) от 11.02.2025
 
 BROK the InvestiGator - Natal Tail, A New Christmas (2024) [Ru/Multi] (1.0.7.1) License GOG
@@ -32,7 +6,7 @@ BROK the InvestiGator - Natal Tail, A New Christmas (2024) [Ru/Multi] (1.0.7.1) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27989.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27984.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27969.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Door Kickers (2014) [Ru/Multi] (1.1.6) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27945.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack FitGi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27895.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dream Cage (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27870.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.110917.0/dlc) Repack FitGirl [Dwarven
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27852.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27837.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27807.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) Repack Wanterlude [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27790.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack Wa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27788.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (Build 17334550/dlc) R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27783.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27781.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27779.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27760.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Backrooms: Mass Extinction (2022) [En] (1.2.2 Beta) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27757.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.00) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27751.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Let's Cook Together 2 (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27745.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Locks (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27743.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Rake (2015) [En] (5.0.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27742.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27738.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Mind Echoes: The Lost Mysteries / Эхо разума: Утраченные та
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27726.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.0.34) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27707.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Kardboard Kings: Card Shop Simulator (2022) [Ru/Multi] (1.3.25) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27696.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Flooded (2023) [Multi] (1.0.8.3.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27695.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Flooded - стратегическая видеоигра в режиме реа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11742DA7C2CD975FF18133B7F3577D9B6BB9C32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493233   (27691) от 14.02.2025
+
+Amazing Cultivation Simulator (2020) [Multi] (1.268-2501211542dev/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amazing Cultivation Simulator – игровой проект, разработанный в жанре симулятора с элементами рогалика, где главному герою предстоит создать и развить собственный культ. Первым делом стоит отметить наличие мира, способного генерироваться совершенно случайным образом, что точно порадует всех любителей жанра. Данный факт говорит о том, что процесс автоматически становится (   Читать дальше...   )Тип издания: LicenseРазработчик: GSQ GamesЖанр: Симулятор, Стратегия, SandboxЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606E616C91913A35B7DE2742421132DBCFBCD427
 ```
 
 https://mybot314.ru/tekegram_catalog/

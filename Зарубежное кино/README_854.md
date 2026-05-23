@@ -1,58 +1,3 @@
-###  Публикация: 514944   (657411) от 24.06.2012
-
-Не пойман - не вор / Inside Man (2006) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История крутого полицейского, детектива Фрезьера, который сталкивается «на узкой дорожке» с хитрым грабителем банков Долтоном. Их противостояние выливается в напряженную драму с захватом заложников.
-По мере того, как развивается эта игра в «кошки-мышки», на горизонте появляется еще одна загадочная фигура — брокер Мадалина, роль которой в разворачивающихся событиях остается до поры до времени совершенно непонятной. Мадалина вносит еще больше хаоса и нестабильности в и без того чрезвычайно хрупкую ситуацию…Жанр: Триллер, Драма, КриминалРежиссер: Спайк ЛиПродюсер: Брайан Грейзер, Джонатан Филли, Карен КехелаАктеры: Дензел Вашингтон, Клайв Оуэн, Джоди Фостер, Уиллем Дефо, Чиветел Иджиофор, Кристофер Пламмер, Джеймс Рэнсон, Дэвид Браун, Мишель ДиБенедетти, Питер Герети, Кен ЛеунгПеревод: Профессиональный (полное дублирование)Язык субтитров: Русский, АнглийскийПродолжительность: 02:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F07425D88AE0BB5B4A7304A9C5D2BB59A3E467C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514708   (657409) от 24.06.2012
-
-Гавр / Le Havre (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Марсель Маркс, в прошлом богемный писатель, переселяется в портовый город Гавр и становится чистильщиком сапог. Занятие, хоть и не очень хлебное, дает Марселю ощущение пользы для людей. Поставив крест на своих писательских амбициях, Марсель вполне доволен жизнью, проводя ее между работой, домом и ближайшим кабаком.
-
-Но однажды судьба сталкивает его с ребенком-иммигрантом из Черной Африки, а жена Марселя Арлетти тяжело заболевает. И вновь Марсель оказывается перед холодной стеной равнодушия и пробует победить слепую государственную машину, надвигающуюся на ребенка-беженца. Оружие Марселя — только врожденный оптимизм и поддержка многочисленных друзей. Сможет ли он победить в этой неравной борьбе?..Жанр: Драма, КомедияРежиссер: Аки КаурисмякиАктеры: Андре Вилмс, Кати Оутинен, Жан-Пьер Дарруссен, Блондин Мигель, Элина Сало, Эвелин ДидиПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: студия ОмикронПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE7BC27DACE1D1929FE4B693350C5A8641716DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903384   (657391) от 31.05.2015
 
 Мёртвые земли / The Dead Lands (2014) HDRip
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657391.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657379.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657374.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657372.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657370.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657369.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657368.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657367.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657360.jpg" />
 </div>
 
 
@@ -295,7 +240,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657356.jpg" />
 </div>
 
 
@@ -321,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657341.jpg" />
 </div>
 
 
@@ -347,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657339.jpg" />
 </div>
 
 
@@ -373,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657338.jpg" />
 </div>
 
 
@@ -399,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657336.jpg" />
 </div>
 
 
@@ -425,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657335.jpg" />
 </div>
 
 
@@ -451,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657332.jpg" />
 </div>
 
 
@@ -477,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657326.jpg" />
 </div>
 
 
@@ -503,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657062.jpg" />
 </div>
 
 
@@ -530,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657029.jpg" />
 </div>
 
 
@@ -556,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656949.jpg" />
 </div>
 
 
@@ -582,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656854.jpg" />
 </div>
 
 
@@ -608,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656852.jpg" />
 </div>
 
 
@@ -634,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656848.jpg" />
 </div>
 
 
@@ -660,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656847.jpg" />
 </div>
 
 
@@ -671,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08EFA12D61097610EF881388C0638F9252C681D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140174   (656754) от 05.06.2017
+
+Черчилль идет на войну / Churchill: The Hollywood Years (2004) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уинстон Черчилль — американский супермен. Голливудские боссы решают экранизировать историю жизни знаменитого английского премьер-министра Уинстона Черчилля, но обнаруживают, что реальная фигура толстого Черчилля выглядит слишком отталкивающе для американских зрителей. Тогда создатели фильма решают заменить исполнителя главной роли на мужественного красавца.Производство: Великобритания | Little Bird Productions, Inside Track Films, Isle of Man Film CommissionЖанр: КомедияРежиссер: Питер РичардсонАктеры: Кристиан Слэйтер, Нив Кэмпбелл, Миранда Ричардсон, Энтони Шер, Гарри Энфилд, Саймон Рейк, Джеймс Лонг, Джеймс Путнэм, Боб Мортимер, Вик РивзПеревод: Профессиональный (двуголосый закадровый)Субтитры: OтсутствуютПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A9263173BF12807ED0D41E38E33BB243A5DD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226207   (656745) от 19.05.2018
+
+Темные времена / Darkest Hour (2017) Blu-ray [H.264/1080p] [EUR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656745.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о первом и решающем шаге Уинстона Черчилля на посту премьер-министра Великобритании, получившего власть при чрезвычайных обстоятельствах. Успехи нацистской армии взбудоражили британское сообщество, но вопреки давлению и страху других политиков Черчилль отказывается идти на соглашение с Гитлером.Производство: Великобритания, США / Perfect World PicturesЖанр: драма, военный, биография, историяРежиссер: Джо РайтАктеры: Лили Джеймс, Гэри Олдман, Бен Мендельсон, Кристин Скотт Томас, Стивен Диллэйн, Сэмюэл Уэст, Ханна Стил, Рональд Пикап, Анна Барнетт, Николас ДжонсПеревод: Дублированный (Лицензия EUR)Субтитры: Английские, русские, чешские, венгерские, польские, греческие, болгарские, хорватские, эстонские, латышские, литовские, румынские, словенскиеПродолжительность: 02:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38836E531E49376E883F50C576F56A964425F77
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,117 +1,3 @@
-###  Публикация: 484682   (89269) от 18.04.2012
-
-Людмила Гурченко. Песни военных лет (1980) TVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная композиция по песням войны в исполнении Людмилы Гурченко. Авторы композиции Л.Гурченко и В.Давыденко.01. Где же вы теперь, друзья-однополчане
-02. Казак уходил на войну
-03. Прощайте, скалистые горы
-04. Заветный камень(   Читать дальше...   )Производство: СССР, , Главная редакция муз. программ ЦТЖанр: Фильм-концерт, моноспектакльПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3808FD808B554357CC29692C2D32C32BBF6B48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483762   (89015) от 17.04.2012
-
-Горе от ума (2002) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Телеспектакль, комедияРежиссер: Сергей ЖеновачАктеры: Юрий Соломин, Глеб Подгородинский, Ирина Леонова, Элина Быстрицкая, Александр Вершинин, Виктор Низовой, Инна Иванова, Светлана Аманова, Дмитрий Зеничев, Дмитрий Кознов, Татьяна Короткова, Ирина Тельпугова, Анна Жарова, Алена Охлупина, Виктор Павлов, Татьяна Панкова, Евгений Самойлов, Сергей Тезов, Василий Дахненко, Геннадий Сергеев, Наталья БоронинаПродолжительность: 02:32:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483263   (88840) от 16.04.2012
-
-Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов от Mtv1. Chris Brown - Turn Up The Music (4:17)
-2. David Guetta - Turn Me On ft. Nicki Minaj (3:30)
-3. Demi Lovato - Skyscraper (4:05)
-4. Drake - The Motto (Edited) ft. Lil Wayne, Tyga (4:01)(   Читать дальше...   )Жанр: Dance,Pop,RnB,HipHop,OtherРежиссер: MtvАктеры: Chris Brown, David Guetta, Evanescence, Flo Rida, Rihanna, Katy Perry ...Перевод: ОтсутствуетПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483814   (88747) от 16.04.2012
-
-Сурганова и Оркестр  [03.04.2012] концерт в Ижевске <Rock> CamRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Легендарная Светлана Сурганова после долгого перерыва приехала в Ижевск, чтобы представить свой новый сольный альбом «Увидимся скоро», который вышел в свет осенью прошлого года.
-Концерт в Ижевске чуть не оказался под срывом. Рейс, на котором должна была прилететь Светлана, задержали. И 6,5 часа группа «Сурганова и оркестр» провела в аэропорту, ожидая следующего рейса. (   Читать дальше...   )01.Интро (муз. С.Сургановой)
- 02.Увидимся скоро (муз. П.Малаховский, сл. К. Хохловой)
- 03.Хвала (сл. Т. Хмельник)
- 04.SanctumSanctorum (муз. и сл. П.Малаховский)(   Читать дальше...   )Жанр: RockПродолжительность: 01:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3F7363BFFBF18081AB2275FB511BD06339EE92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482910   (88392) от 14.04.2012
 
 Григорий Лепс - Научись летать Live (2011) BDRip
@@ -120,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88392.jpg" />
 </div>
 
 
@@ -149,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88265.jpg" />
 </div>
 
 
@@ -178,7 +64,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87978.jpg" />
 </div>
 
 
@@ -208,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87725.jpg" />
 </div>
 
 
@@ -237,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87524.jpg" />
 </div>
 
 
@@ -263,7 +149,7 @@ Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87461.jpg" />
 </div>
 
 
@@ -289,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87434.jpg" />
 </div>
 
 
@@ -315,7 +201,7 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87234.jpg" />
 </div>
 
 
@@ -341,7 +227,7 @@ ABBA - Number Ones (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87227.jpg" />
 </div>
 
 
@@ -376,7 +262,7 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87197.jpg" />
 </div>
 
 
@@ -411,7 +297,7 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87167.jpg" />
 </div>
 
 
@@ -437,7 +323,7 @@ Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86964.jpg" />
 </div>
 
 
@@ -463,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86926.jpg" />
 </div>
 
 
@@ -491,7 +377,7 @@ Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86899.jpg" />
 </div>
 
 
@@ -517,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86807.jpg" />
 </div>
 
 
@@ -543,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86689.jpg" />
 </div>
 
 
@@ -571,7 +457,7 @@ Nightwish -End Of Innocence (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86612.jpg" />
 </div>
 
 
@@ -597,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86544.jpg" />
 </div>
 
 
@@ -632,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86515.jpg" />
 </div>
 
 
@@ -660,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86329.jpg" />
 </div>
 
 
@@ -689,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86322.jpg" />
 </div>
 
 
@@ -715,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86308.jpg" />
 </div>
 
 
@@ -730,6 +616,130 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B940FADB4EED26867DD89A498288EFC0F0651C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477542   (86196) от 03.04.2012
+
+Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Red Hot Chili Peppers на фестивале Rock In Rio 2011.01. Monarchy Of Roses
+02. Can't Stop
+03. Charlie
+04. Otherside
+05. Look Around
+06. Dani California
+07. Under The Bridge
+08. Factory Of Faith
+09. Throw Away Your Television
+10. Pea(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: 01:42:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477555   (86175) от 03.04.2012
+
+Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86175.jpg" />
+</div>
+
+
+###  Подробнее
+
+30-го августа, в день выхода новой пластинки RHCP “I’m”With You” музыканты исполнят весь альбом полностью на концерте в Кёльне... Посмотреть прямую трансляцию концерта поклонники могли в кинотеатрах 39 стран мира, в том числе в США, Аргентине, Чили, Бразилии и странах Европы. В Москве трансляция шла в клубе «16 тонн»... Red Hot Chili Peppers была основана в Калифорнии в 1983 году. С тех пор коллектив продал более 60 миллионов копий своих альбомов...01. Monarchy of Roses
+02. Factory of Faith
+03. Brendan's Death Song
+04. Ethiopia
+05. Annie Wants a Baby
+06. Look Around
+07. Frankenstein (Edgar Wiliams cover)
+08. The Adventures Of Rain Dance Maggie
+09. Jam
+10. Did I Let You Know (with Michael Bulger on trumpet)(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: Видеокодек: MPEG-2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477653   (86121) от 03.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 03 Пиратская Вечеринка 4.28Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477679   (86120) от 03.04.2012
+
+Кто есть кто? (1977) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по пьесе Григория Горина.
+
+В день 40-летия доктора наук, директора НИИ Андрея Андреевича Щукина к нему в дом приходит некто Щагин и заявляет, что Щукин - это он, и все заслуги настоящего Щукина по праву принадлежат ему, потому что в роддоме их перепутали. Он доказывает Андрею Андреевичу, что все его достижения не результат таланта и способностей, а (   Читать дальше...   )Жанр: комедия, спектакльРежиссер: Марк РозовскийПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1FB90FA0E756975B5D213A3C7D46781331846C
 ```
 
 https://mybot314.ru/tekegram_catalog/

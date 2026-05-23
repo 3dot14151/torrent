@@ -1,55 +1,3 @@
-###  Публикация: 1590776   (188441) от 15.11.2022
-
-109-й идёт без остановки / Shinkansen daibakuha (1975) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Террористы закладывают бомбу в высокоскоростной поезд «Хикари-109», в котором полторы тысячи пассажиров. Поезд отправляется в рейс под управлением ничего не подозревающих машинистов и набирает скорость свыше 200 км/ч. После этого на пульт управления безопасности перевозок поступает звонок от террориста, который сообщает о заложенной бомбе, а также о том, что она (   Читать дальше...   )Производство: Япония, Toei Co. Ltd.Жанр: драма, криминал, боевик, триллерРежиссер: Дзюнья СатоАктеры: Кэн Такакура, Сонни Чиба, Кэи Ямамото, Эйдзи Го, Акира Ода, Раита Рю, Масаё Уцуномия, Юмико Фудзита, Юми Такигава, Эцуко СихомиПеревод: дублированный (Мосфильм с добавлением VO), любительский одноголосый (Максим Ибрагимов)Субтитры: русские (на места без перевода и полные), английскиеПродолжительность: 02:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE972121DD3CC27EE64F49B6AFD98B6CF5A71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590695   (188437) от 15.11.2022
-
-Вампир Видар / Vampyr Vidar (2018) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Видар Хаар — 33-летний фермер-холостяк, который ведет монотонную и наполненную тяжким трудом жизнь на ферме своей матери на западе Норвегии. Каждый вечер он усердно молится Богу, и однажды просит Всевышнего освободить его ото всяких ограничений и послать в его жизнь как можно больше молоденьких девушек. Молитвы оказываются услышаны, и однажды Видар просыпается совершенно (   Читать дальше...   )Производство: Норвегия / UFOh!, Foton4 FilmЖанр: ужасы, фэнтези, комедияРежиссер: Томас Аске Берг, Fredrik WaldelandАктеры: Томас Аске Берг, Brigt Skrettingland, Ким Сёндерхолм, Хенрик Рафаелсен, Марит Санден, Эспен Хана, Isabelle Cau, Сигве Эслэнд, Сутарсан Бала, Siv Mary EspedalПеревод: Дублированный (Plan B)Язык озвучки: русский, норвежскийСубтитры: английские, русские (forced) - отдельными файламиПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507A6DEC131A92180F6CB45F4C3836870B89A8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590692   (188427) от 15.11.2022
 
 Каблуи / Kabluey (2007) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188427.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188425.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188422.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188421.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188418.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188409.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188400.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188399.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188388.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188380.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188373.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188371.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188369.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188365.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188360.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188359.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188358.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188355.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188353.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188351.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188344.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188340.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188338.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188334.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2601717451E8D4E3F0597C17CCAD3F36F7C5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661346   (188311) от 15.09.2023
+
+Подземелья и драконы: Честь среди воров / Dungeons & Dragons: Honor Among Thieves (2023) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдгин Дарвис вместе с верной воительницей Хольгой объединяются с рассеянным магом Саймоном, ловкой друидкой Дорик и чопорным паладином Зенком, чтобы вернуть утерянную реликвию, наделенную огромной силой. Однако всё быстро идет наперекосяк, когда на их пути встает злодей Фордж.Производство: США, Канада, Великобритания, Исландия, Ирландия, Австралия / Paramount Pictures, Entertainment One, Allspark PicturesЖанр: фэнтези, боевик, комедияРежиссер: Джон Фрэнсис Дейли, Джонатан М. ГолдштейнАктеры: Крис Пайн, Мишель Родригес, Реге-Жан Пейдж, Джастис Смит, София Лиллис, Хью Грант, Хлоя Коулмэн, Дэйзи Хэд, Кайл Хиксон, Спенсер УайлдингПеревод: Дублированный (SDI Media / IYUNO SDI Group, Red Head Sound, LeDoyen)Язык озвучки: Русский, УкраинскийСубтитры: отсутствуютПродолжительность: 02:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9853C484EB6EA996892D1347A444418E10647C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661346   (188310) от 15.09.2023
+
+Подземелья и драконы: Честь среди воров / Dungeons & Dragons: Honor Among Thieves (2023) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдгин Дарвис вместе с верной воительницей Хольгой объединяются с рассеянным магом Саймоном, ловкой друидкой Дорик и чопорным паладином Зенком, чтобы вернуть утерянную реликвию, наделенную огромной силой. Однако всё быстро идет наперекосяк, когда на их пути встает злодей Фордж.Производство: США, Канада, Великобритания, Исландия, Ирландия, Австралия / Paramount Pictures, Entertainment One, Allspark PicturesЖанр: фэнтези, боевик, комедияРежиссер: Джон Фрэнсис Дейли, Джонатан М. ГолдштейнАктеры: Крис Пайн, Мишель Родригес, Реге-Жан Пейдж, Джастис Смит, София Лиллис, Хью Грант, Хлоя Коулмэн, Дэйзи Хэд, Кайл Хиксон, Спенсер УайлдингПеревод: Дублированный (SDI Media / IYUNO SDI Group, Red Head Sound, LeDoyen)Язык озвучки: Русский, УкраинскийСубтитры: отсутствуютПродолжительность: 02:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9853C484EB6EA996892D1347A444418E10647C59
 ```
 
 https://mybot314.ru/tekegram_catalog/

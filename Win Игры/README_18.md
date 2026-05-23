@@ -6,7 +6,7 @@ Alan Wake Remastered (2021) [Ru/En] (1.33/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059943.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Echoes of the End (2025) [Ru/Multi] (2.04) Repack HardwareMining [Enhanced Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059942.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Assetto Corsa Rally (2025) [Ru/Multi] (0.3.1 HF) Repack Let'sРlay [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059912.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Peregrino (2026) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059905.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.44/dlc) Repack Other s [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059881.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack FitGirl [Anniversary Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059880.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059879.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Magenta Horizon: Neverending Harvest (2024) [Ru/Multi] (1.1.4) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059878.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VonGarland Castle: Beyond Blood (2025) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059877.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Docked (2026) [Ru/Multi] (Build 22147336/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059876.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Docked (2026) [Ru/Multi] (Build 22147336) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059875.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Docked (2026) [Ru/Multi] (Build 22147336/dlc) Repack Other s [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059874.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mashinky (2018) [Ru/Multi] (25.02.2026) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059873.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kingdoms And Slaves (2025) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059872.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Railroad Corporation 2 (2024) [Multi] (1.0.19116/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059871.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ FINAL FANTASY VII (7) (2026) [Ru/Multi] (Build 21140793) Repack FitGirl [Re-Rele
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059870.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Car Service Together (2026) [Ru/Multi] (0.9F6) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059869.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.0) Repack FitGirl [Supporter Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059849.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.12.1485/dlc) Repack Let's
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059841.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Roots Devour (2026) [Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059840.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ PayDay 2 (2013) [Ru/Multi] (1.146.254/dlc) Repack Pioneer [Ultimate Edition]
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059838.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Purrrifiers: Cleaning Chaos (2025) [Ru/Multi] (0.8444) Repack Pioneer [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059828.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ FRONT MISSION 3 Remake (2026) [Multi] (0.0.13) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059802.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Cleaning Simulator (2026) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059801.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.2) Repack Let'sРlay [Supporter Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059784.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Gunslugs 3: Rogue Tactics (2019) [En] (1.0.10b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059754.jpg" />
 </div>
 
 

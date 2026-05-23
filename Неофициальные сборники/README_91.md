@@ -1,32 +1,3 @@
-###  Публикация: 988785   (919178) от 21.02.2016
-
-VA - Smooth Jazz n' Chill (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Lebron - Kiss and Tell (04:06)
-02. Oli Silk - Get out Claws (03:28)
-03. Randy Scott - Kisses (04:52)
-04. Jaared - Jamaican Winds (03:41)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9670DB3154EDBC275605F6A8F928702CB9028E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367071   (919146) от 14.03.2020
 
 VA - The Official UK Top 40 Singles Chart 13.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -35,7 +6,7 @@ VA - The Official UK Top 40 Singles Chart 13.03.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919146.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - German Top 100 Single Charts 13.03.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919144.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Дальняя дорога с душевной музыкой (2016) [MP3|
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919096.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Нагадай мне любовь. Любимые песни для душ
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919092.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Bossa Nova: Bossa Nostra (2016) [MP3|320 кб/с] <Latin, Dance, Folk, Spai
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919088.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - ЕвроХит Топ 40 Europa Plus 13.03.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919069.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Around The Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919068.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Лучшая клубная музыка ANDRS vol.33 (2015) [MP3|128-320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918992.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ DJ - Взрывная дискотека №1 (2016) [MP3|128-320 кб/с] <Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918991.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ VA - 100-ка популярных хитов (2016) [MP3|256 kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918932.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ VA - 100 Greatest 00s Hip-Hop (2020) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918890.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ VA - World Deephouse Selection Vol.2 (2020) [MP3|320 Kbps] <House, DeepHouse, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918881.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ VA - Диско 80 от Виталия 72 часть 2 (1983-1988) [MP3|203-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918679.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ VA - Диско 80 от Виталия 72 часть 1 (1981-1989) [MP3|204-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918678.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ VA - Hits of My Soul Vol. 55 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918630.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ VA - Discoteka 2017 Dance Club. The Party Continues (2017) [MP3|320 Kbps] <House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918524.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ VA - The Collection 30 Years Ago From Ovvod7 (1986) (60 CD) (2020) [MP3|192-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918513.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ VA - B машину ремиксы Vol. 3 (2020) [MP3|320 Kbps] <House, Pop, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918223.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ VA - Отрывайся с лучшими хитами. Версия № 10 (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917797.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ VA - Полный отрыв. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917792.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ VA - Зимние лучшие блатные песни Выпуск № 4 (201
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917774.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ VA - Лучшие зимние хиты года. Сборник № 7 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917751.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ VA - Top 100 шансон зимний. Выпуск № 2 (2017) [MP3|256 Kbps]
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917746.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ VA - Убойные хиты на Шансоне. Выпуск № 10 (2016) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917735.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Sedativ - Sedativ (2002) [MP3|256 Kbps] <Post Punk, Electronic>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917732.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Sedativ - Sedativ (2002) [MP3|256 Kbps] <Post Punk, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A8A10EF4EB253D19A8AD2FA664018B3B4B66CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096790   (917660) от 25.01.2017
+
+VA - Ресторан Кураж для друзей (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Регион 42 & Александр Кузнецов - Брат 3:35
+002. Александр Талин - Судьба 3:34
+003. Сиран Агасаров - Мама 3:32
+004. Андрей Широков - Сигаретный Дым 3:34(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:869C7D81B668D43C82B90064F8B40B0F5457E888
 ```
 
 https://mybot314.ru/tekegram_catalog/

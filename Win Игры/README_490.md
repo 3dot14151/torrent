@@ -1,29 +1,3 @@
-###  Публикация: 1764891   (34680) от 09.12.2024
-
-Strange Investigations 4: Truth Will Out / Удивительные расследования 4: Тайное становится явным (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Преступления на почве страсти и предательства оказываются в центре внимания, когда Кевин Вудс, требовательный владелец сети ночных клубов Rainville Shine, нанимает детективное агентство Strange Investigations для расследования похищения своей жены. Но вскоре становится ясно, что происходит нечто большее, чем простая попытка получить выкуп. Чем больше Дана погружается (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21457761FCF322083EFDC31DCF7850497AEE14FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764883   (34677) от 09.12.2024
 
 Twin Mind 5: The Deathly Trick / Двуединое сознание 5: Смертельный фокус (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Twin Mind 5: The Deathly Trick / Двуединое сознание 5: Смер
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34677.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Karate Survivor (2024) [Ru/Multi] (1.2.0.277/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34666.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34651.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Aurora Hills: Chapter 1 / Аврора-Хиллз: Глава 1 (2024) [Ru/Multi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34648.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack FitGirl [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34639.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Bridge to Another World 12: The Christmas Curse / Мост в другой ми�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34632.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Grim Tales 25: Light in the Darkness / Страшные сказки 25: Све�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34621.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Shredder 13 + DeepShredder 13 (2016) [Multi] (13) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34616.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Maze of Realities 5: Synergy of Worlds / Лабиринт Реальностей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34599.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Detectives United 7: Mission Possible / Лига детективов 7: Мис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34595.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34575.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34572.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (Build 16541638) Sce
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34559.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34518.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34510.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Halloween Stories 8: Inspirations Spark / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34496.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Harmony Chronicles 2: Demon of the Void / Хроники Гармонии 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34490.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34480.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34479.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2891297/dlc) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34475.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ BIOMORPH (2024) [Multi] (1.7.27362) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34469.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34461.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Sifu (2023) [Ru/Multi] (1.28.6.720/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34453.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34448.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34438.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A2F5E521B3FFE54A12F7482953EFD435E247CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765300   (34431) от 12.12.2024
+
+Sea of Stars (2023) [Ru/Multi] (1.1.53846) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sea of Stars - динамичное ролевое приключение, разработанное в стилистике игр старой школы девяностых годов. Повелитель плоти восстал и теперь мир находится под угрозой уничтожения. Мы же узнаем историю двух детей Солнцестояния, обладающих особой силой и могуществом, которые и являются единственной надеждой людей на спасение. Твоими противниками станут жуткие потусторонние (   Читать дальше...   )Тип издания: RepackРазработчик: Sabotage StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9446C0CB712E16FF0FFACE3B3B49DD24E3BAC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,118 +1,3 @@
-###  Публикация: 779332   (771075) от 22.04.2014
-
-СупердискотЭка / Супердискотека 90-х от Радио Рекорд (19.04.2014) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х возвращает в детство, когда мы обменивались на переменке вкладышами, вырывали странички с замечаниями из дневника, спешили домой рубиться в Сегу и Денди, а по вечерам всей семьей смотрели Санта-Барбару.
-Это гораздо больше, чем просто концерт! Это грандиозное высокотехнологичное шоу и одновременно возвращение в мир 90-х - туда, где музыку слушали (   Читать дальше...   )01. Балет А.Духовой - Тодес
-02. Юля Волкова (ex. t.A.T.u.) - Нас не догонят
-03. гр.На-На - Шляпа
-04. Линда - Мозговые помехи(   Читать дальше...   )Жанр: Концерт, Pop, Pop-rapПродолжительность: ~ 02:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1BF16D34C364F64FF5C583A68760D7748E643C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779326   (771069) от 22.04.2014
-
-СупердискотЭка / Супердискотека 90-х от Радио Рекорд (19.04.2014)  SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х возвращает в детство, когда мы обменивались на переменке вкладышами, вырывали странички с замечаниями из дневника, спешили домой рубиться в Сегу и Денди, а по вечерам всей семьей смотрели Санта-Барбару.
-Это гораздо больше, чем просто концерт! Это грандиозное высокотехнологичное шоу и одновременно возвращение в мир 90-х - туда, где музыку слушали (   Читать дальше...   )01. Балет А.Духовой - Тодес
-02. Юля Волкова (ex. t.A.T.u.) - Нас не догонят
-03. гр.На-На - Шляпа
-04. Линда - Мозговые помехи(   Читать дальше...   )Жанр: Pop, Pop-rapПродолжительность: ~ 02:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BE89C1BB0A854917DB7A16ECAC1DB30AFE5B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778960   (771053) от 22.04.2014
-
-Браво - 30 лет. Концерт в Stadium Live (2014) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Добрый вечер, Москва
-02. Мода
-03. Мне грустно и легко
-04. Если бы на Марсе(   Читать дальше...   )Жанр: Rock, Beat, County RockПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C6A5E2CE97C78B1541BB1A49D7CA4727F06246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266717   (771006) от 13.05.2016
-
-Adriano Celentano - Greatest Video. Vol.2 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПеревод: ОригинальныйПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978245A051C992D5B59874C802965DE6AF52C3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718244   (770885) от 13.05.2016
 
 VA - Золотая коллекция Ретро (2006) 4xDVD5
@@ -121,7 +6,7 @@ VA - Золотая коллекция Ретро (2006) 4xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770885.jpg" />
 </div>
 
 
@@ -150,7 +35,7 @@ VA - Весенний марафон № 163 / Видеоклипы (Заруб�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770671.jpg" />
 </div>
 
 
@@ -180,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770425.jpg" />
 </div>
 
 
@@ -206,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769165.jpg" />
 </div>
 
 
@@ -233,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769079.jpg" />
 </div>
 
 
@@ -259,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769049.jpg" />
 </div>
 
 
@@ -286,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769048.jpg" />
 </div>
 
 
@@ -313,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768944.jpg" />
 </div>
 
 
@@ -339,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768650.jpg" />
 </div>
 
 
@@ -365,7 +250,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768470.jpg" />
 </div>
 
 
@@ -391,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768350.jpg" />
 </div>
 
 
@@ -420,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768325.jpg" />
 </div>
 
 
@@ -449,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768323.jpg" />
 </div>
 
 
@@ -475,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768286.jpg" />
 </div>
 
 
@@ -501,7 +386,7 @@ Depeche Mode - Live Spirits / Spirits in the Forest (2020) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768252.jpg" />
 </div>
 
 
@@ -527,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767613.jpg" />
 </div>
 
 
@@ -556,7 +441,7 @@ King Diamond - Songs for the Dead Live (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767563.jpg" />
 </div>
 
 
@@ -582,7 +467,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767559.jpg" />
 </div>
 
 
@@ -608,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767327.jpg" />
 </div>
 
 
@@ -635,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767256.jpg" />
 </div>
 
 
@@ -664,7 +549,7 @@ Eurythmics - Peacetour (1999) DVD9 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767212.jpg" />
 </div>
 
 
@@ -693,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767161.jpg" />
 </div>
 
 
@@ -704,6 +589,120 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5460590DB6225579F4D75AAF81DCA78FD94D4591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201921   (767015) от 20.05.2010
+
+Джузеппе Верди - Травиата (Анна Нетребко, Зальцбург) / G. Verdi - La Traviata. Premium Edition (Salzburg, Netrebko) (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия знаменитой постановки одной из самых популярных опер всех времен на Зальцбургском фестивале 2005 года, выпущенная легендарным германским лейблом Deutsche Grammophon GmbH, славящегося своими стандартами в области звукозаписи классической музыки.
+В главных ролях только наши современники - звезды мировой оперной сцены и дива Анна Нетребко, представшая здесь (   Читать дальше...   )Жанр: МузыкаРежиссер: Вилли Декер, Брайан ЛанджАктеры: Анна Нетребко (Anna Netrebko), Роландо Вилазон (Rolando Villazon), Томас Хэмпсон (Thomas Hampson), Сальваторе Корделла (Salvatore Cordella), Элен Шнейдерман (Helene Schneiderman)Перевод: ОригинальныйЯзык субтитров: Английские, Немецкие, Французские, Испанские, Итальянские, КитайскиеПродолжительность: 02^12^00 минуты (опера) +00^ 47^00 минут (бонусы)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125506   (766963) от 16.04.2017
+
+Def Leppard - And there will be a next time... Live from Detroit (2017) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+1 Let’s Go
+2 Animal
+3 Let It Go(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: Jim YukichАктеры: Def LeppardПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD22F455836C199387591E509915277B606F903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279158   (766748) от 28.01.2019
+
+Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bee Gees – пожалуй, самый успешный семейный проект в истории музыки. Группа «Би Джиз» состояла из трех братьев – Барри, Мориса и Робина Гиббов, их песни в 1970-х годах стали символом этого стильного времени с его цветастыми рубашками, длинными волосами и брюками-клеш. Общий объем мировых продаж пластинок Bee Gees превышает 100 миллионов копий, за что их называют (   Читать дальше...   )01. Ordinary Lives
+02. Giving Up The Ghost
+03. To Love Somebody
+04. I.ve Gotta Get A Message To You(   Читать дальше...   )Производство: США, Eagle Vision MediaЖанр: Pop, Disco, Soft RockРежиссер: Рой Вуд, Петер ДеметрисСубтитры: отсутствуютПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBF98DD2AEAAF84F2C0148C45B56E9485BED927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279153   (766735) от 28.01.2019
+
+Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bee Gees – пожалуй, самый успешный семейный проект в истории музыки. Группа «Би Джиз» состояла из трех братьев – Барри, Мориса и Робина Гиббов, их песни в 1970-х годах стали символом этого стильного времени с его цветастыми рубашками, длинными волосами и брюками-клеш. Общий объем мировых продаж пластинок Bee Gees превышает 100 миллионов копий, за что их называют (   Читать дальше...   )01. Ordinary Lives
+02. Giving Up The Ghost
+03. To Love Somebody
+04. I.ve Gotta Get A Message To You(   Читать дальше...   )Производство: США, Eagle Vision MediaЖанр: Pop, Disco, Soft RockРежиссер: Рой Вуд, Петер ДеметрисСубтитры: отсутствуютПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F6F1F50F89C19C7CADD3DA70E382011B081385
 ```
 
 https://mybot314.ru/tekegram_catalog/

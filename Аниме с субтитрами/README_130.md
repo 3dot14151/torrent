@@ -6,7 +6,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15125.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Moonrise | Восход Луны [2025, Web, 18 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15080.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14352.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aru Majo ga Shinu Made / Once Upon a Witch's Death / Пoкa вeдьмa нe ум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14339.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wind Breaker Season 2 | Ветролом 2 [2025, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14134.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14132.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Enen no Shouboutai San no Shou | Fire Force (2025) | Пламенная бриг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14055.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Danjo no Yuujou wa Seiritsu Suru? (Iya, Shinai!!) / Can a Boy-Girl Friendship Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14049.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita 2 / Убив�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13949.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Shoushimin Series / How to Become Ordinary / Как стать обычным ч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13833.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Katainaka no Ossan, Kensei ni Naru / From Old Country Bumpkin to Master Swordsma
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13756.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Zatsu Tabi: That's Journey / Это путешествие [2025, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13743.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Gorilla no Kami kara Kago Sareta Reijou wa Ouritsu Kishidan de Kawaigarareru | T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13741.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Maebashi Witches | Ведьмы Маэбаси [2025, TV, 12 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13715.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Aharen-san wa Hakarenai 2 / Непостижимая Ахарэн-сан 2 [2025
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13709.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 эп.] WebRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13630.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Kakushite! Makina-san!! | Makina-san's a Love Bot?! | Прячься, Макин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13505.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Nazotoki wa Dinner no Ato de | The Dinner Table Detective | Разгадыван
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13496.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Shiunji-ke no Kodomo-tachi / The Shiunji Family Children / Дети семьи �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13485.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | Ki
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13418.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Chuuzenji-sensei Mononoke Kougiroku: Sensei ga Nazo o Toite Shimau kara. | Жу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13403.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ninja to Koroshiya no Futari-gurashi | A Ninja and an Assassin Under One Roof | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13399.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13372.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ A Rank Party o Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu o Meza
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13236.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Kowloon Generic Romance | Обычная романтика в Цзюлуне [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13209.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Teogonia | Теогония [2025, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13206.jpg" />
 </div>
 
 

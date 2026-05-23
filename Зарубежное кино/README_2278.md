@@ -1,55 +1,3 @@
-###  Публикация: 1819026   (1841) от 20.09.2025
-
-Дьявольская жизнь / Ma vie est un enfer (1991) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Леа Лемонье, невзрачная толстуха, отмечает свой тридцать пятый день рождения в компании с собакой. Ничего другого ей не остаётся, потому что жизнь не задалась: работа ассистентки у стоматолога-садиста, сосед – сексуальный маньяк, мать – молодящаяся фанатка пластической хирургии, личный психоаналитик – бездарь и хапуга. И тут в её доме появляется незваный гость демонической (   Читать дальше...   )Производство: Франция / CiBy 2000, Investimage 3, Les Films Flam, SofiarpЖанр: фэнтези, комедия, мелодрамаРежиссер: Жозиан БаласкоАктеры: Даниель Отой, Жозиан Баласко, Ришар Берри, Микаэль Лонсдаль, Катрин Сами, Жан Бенгиги, Джессика Форд, Луис Рего, Катрин Хигель, Макс ВиальПеревод: профессиональный многоголосый (R5 Cinema Prestige), профессиональный двухголосый (Кипарис)Язык озвучки: русский, французскийСубтитры: русские (R5), английскиеПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9C037DAC96323050E6C5A49E1725D26DED2C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819067   (1837) от 20.09.2025
-
-Коталавади / Kothalavadi (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В бедной деревне коррумпированный дилер эксплуатирует местных жителей для незаконной добычи полезных ископаемых. Когда вспыхивает насилие, три влиятельные фигуры сражаются за власть, а жители деревни оказываются перед выбором между свободой и жадностью.Производство: Индия / PA ProductionsЖанр: боевик, драмаРежиссер: Джи Сри РаджуАктеры: Прутхви Амбаар, Авинаш, Гопалкришна Дешпанде, Четан Гандхарва, Раджеш Натаранга, Раагху Рааманакопа, Кавья ШайваПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, ХиндиСубтитры: Английские (SDH)Продолжительность: 02:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FD5A424022977DBF43DE5E6122CBE26CD9CFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819093   (1825) от 20.09.2025
 
 Их поменяли телами / Dating the Enemy (1996) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1825.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1805.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1766.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1753.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1728.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1679.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1674.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1663.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1658.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1657.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1655.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1649.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1635.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1634.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1610.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1553.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1543.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1541.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1535.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1529.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1527.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1516.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1504.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1493.jpg" />
 </div>
 
 
@@ -673,6 +621,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DF5F90566769C4CAA5588A7252164CBD20A4B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819448   (1457) от 22.09.2025
+
+Хищные твари / Dangerous Animals (2025) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дерзкую сёрфершу Зефир похищает серийный убийца, одержимый акулами и убивающий с их помощью своих жертв. Оказавшись запертой на его лодке, она должна проявить смекалку и перехитрить маньяка, прежде чем острые как бритва акульи зубы разорвут её на куски.Производство: Австралия, США, Канада / LD Entertainment, Brouhaha Entertainment, Range Media PartnersЖанр: ужасы, триллерРежиссер: Шон БирнАктеры: Хэсси Харрисон, Джай Кортни, Джош Хюстон, Элла Ньютон, Liam Greinke, Роберт Карлтон, Ali Basoka, Майкл Голдман, Carla Haynes, Dylan EastlandПеревод: Дублированный (Мосфильм-Мастер), Многоголосый (HDRezka)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785C7344A1F2FF2D93A1245404C575025A1992DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218275   (1408) от 23.09.2025
+
+21 грамм / 21 Grams (2003) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что каждый человек в момент смерти теряет 21 грамм. Столько весит горстка монет в пять центов, плитка шоколада, птица колибри…
+«21 грамм» — это история о надежде и человечности, жизнелюбии и выживании. Независимо от того, боитесь вы смерти или нет, она приходит, и в этот момент ваше тело становится на 21 грамм легче. Быть может, это вес человеческой души?Производство: США / Mediana Productions FilmgesellschaftЖанр: триллер, драма, криминалРежиссер: Алехандро Гонсалес ИньярритуАктеры: Шон Пенн, Бенисио Дель Торо, Наоми Уоттс, Дэнни Хьюстон, Карли Наон, Клер Пакис, Ник Николс, Шарлотта Генсбур, Джон Рубинстайн, Эдди Марсан, Ллойд Кит Сэлтер, Мелисса ЛеоПеревод: Дублированный (Лицензия), Профессиональный (многоголосый) (Tycoon), (Лиц. MVO R1, R1 - переиздание), Авторский (М. Яроцкий - присутствует ненормативная лексика)Субтитры: Русские, английскиеКачество: BDRip 1080pПродолжительность: 02:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F44172BE9F056B957B01F29A19450645F910F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

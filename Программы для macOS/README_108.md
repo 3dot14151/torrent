@@ -6,7 +6,7 @@ Exposure X6 Bundle v6.0.1.86 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339714.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nik Software Dfine 2.112 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339624.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nik Software Sharpener Pro 3.010 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339609.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Nik Software Viveza 2.009 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339497.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Commander One PRO 2.5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339451.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Nik Software Silver Efex Pro 2.006 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339385.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ iCalamus 2 v2.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338673.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Aeon Timeline 2 v2.3.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338671.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.18 (79982) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338519.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Copied 1.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338439.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Man Reader 1.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336132.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Trash Without 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335599.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Periscope Pro 3.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335482.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Block Advertising on Internet 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335465.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ H265 Converter Pro 3.3.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335055.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cyberduck 4.7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335023.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Hobo 1.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335002.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Vanilla Pro 1.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334860.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ MacPaw Hider 2 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334680.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ MacProxy 3 v3.0.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334587.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Mathworks Matlab 2014b (8.4.0.150421) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334496.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ ControllerMate 4 v4.11.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334242.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ iBoostUp Premium 6.4.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333153.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Focus 1.8.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333031.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332984.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Flux 7 v7.1.11 [RU/En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332928.jpg" />
 </div>
 
 

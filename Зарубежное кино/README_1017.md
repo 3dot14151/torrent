@@ -1,56 +1,3 @@
-###  Публикация: 530104   (564580) от 01.08.2012
-
-Поэзия / Shi / Poetry (2010) [H.264] HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В маленьком городе провинции Кенгидо, где протекает река Хан, живет Миджа со своим внуком-школьником. Эксцентричная и любопытная женщина очень любит заботиться о своей внешности и носит шляпы, расписанные цветами, и яркую одежду. Случайно она попадает на курсы обучения стихосложению в местном доме культуры.
-Впервые в жизни Миджа пишет стихотворение. Она ищет красоту в своем обычном окружении, на которое никогда не обращала особого внимания. Ей кажется, что теперь она наконец заметила то, что раньше просто видела, и приходит в восторг. Однако неожиданные события заставляют женщину осознать, что жизнь не так прекрасна, как ей представлялось.Жанр: драмаРежиссер: Ли Чан ДонАктеры: Юн Чжон Хи, Да-вит Ли, Хира Ким, Нэ Сэн Ан, Минг-Шин Парк, Ёонг-тэк КимПеревод: многоголосый закадровый (профессиональный)Язык субтитров: русский, английскийПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E8D48EC34C953D339ABECEDC15BC04E2B740CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044491   (564573) от 20.08.2016
-
-Крутые меры / Bastille Day (2016) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ловкий карманник Майкл Мэйсон привлекает внимание полиции и спецслужб, когда крадет сумку, содержащую гораздо больше, чем просто бумажник. На его след выходит дерзкий и резкий спецагент ЦРУ Шон Брайар. Вдвоем они становятся мишенью тайной преступной организации и в течение суток должны вывести злоумышленников на чистую воду.Производство: Великобритания, Франция, СШАЖанр: Боевик, ДрамаРежиссер: Джеймс УоткинсАктеры: Идрис Эльба, Ричард Мэдден, Келли Райлли, Шарлотта Ле Бон, Анатол Юсеф, Хорхе Леон Мартинес, Карл Фаррер, Хосе Гарсия, Александр Купер, Эрик Эбони и др.Перевод: Одноголосый закадровый, любительскийОзвучка: Хихикающий докторЯзык субтитров: Английский (полные, форсированые)Продолжительность: 01:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AAA3E161137A56B98D563BF5333DA940822A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530016   (564529) от 01.08.2012
 
 Огненный путь / Agneepath (2012) HDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564529.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564522.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564520.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564460.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564457.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564448.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564446.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564382.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564381.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564380.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564379.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564373.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564321.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564259.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564160.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563924.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563920.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563894.jpg" />
 </div>
 
 
@@ -533,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563790.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563778.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563762.jpg" />
 </div>
 
 
@@ -613,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563643.jpg" />
 </div>
 
 
@@ -639,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563611.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563597.jpg" />
 </div>
 
 
@@ -676,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8495B95838CDC680B3C52EDB32F3A4596B88336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235050   (563469) от 09.07.2018
+
+Эскобар / Loving Pablo (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563469.jpg" />
+</div>
+
+
+###  Подробнее
+
+История восхождения Пабло Эскобара — его стремительного пути к миллиардам, могуществу и непростительным преступлениям. Во всесильного наркобарона влюбляется журналистка, чьи мемуары положены в основу фильма.Производство: Испания, Болгария, США | B2Y EOOD, Escobar FilmsЖанр: Биография, драма, криминалРежиссер: Фернандо Леон Де АраноаАктеры: Хавьер Бардем, Пенелопа Крус, Питер Сарсгаард, Жульет Рестрепо, Оскар Хаенада, Фреди Йэт, Рикардо Ниньо, Педро Кальво, Джованни Альварез, Дэвид ВаленсиаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A64C16FAE77BBA9E8062FB76E8921CF943CA79B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152560   (563466) от 24.07.2017
+
+Белый слон / Elefante blanco (2012) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в трущобах Буэнос-Айреса. Два католических священника Хулиан и Николас помогают местным жителям. Хулиан использует свои связи в мире политики, чтобы добиться строительства больницы. К нему присоединяется Николас, ставший свидетелем бойни, учиненной военизированными формированиями в джунглях. Тем временем в трущобах разгорается война (   Читать дальше...   )Производство: Аргентина, Испания, Франция / arte, Canal Plus, Canal+ EspañaЖанр: ДрамаРежиссер: Пабло ТрапероАктеры: Рикардо Дарин, Жереми Ренье, Мартина Гусман, Мигель Арансибия, Федерико Барга, Эстебан Диас, Пабло Гатти, Вальтер Якоб, Рауль Рамос, Сусана ВарелаПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9C686AC5C04FA58E05411AD75F977DFDA6970B
 ```
 
 https://mybot314.ru/tekegram_catalog/

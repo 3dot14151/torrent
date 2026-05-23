@@ -6,7 +6,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.5.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31810.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31453.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ My Summer Car (2016) [En] (241230-03) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31422.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31409.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030.529/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31387.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Guardian's Guide (2025) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31292.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Teardown (2022) [Ru/Multi] (20241204/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31229.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31213.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31140.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31117.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ While We Wait Here (2024) [Ru/Multi] (Build 16641425) Repack FitGirl [Soundtrack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30960.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30881.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30779.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.15) Repack R.G. Freedom
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30586.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.37/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30499.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30486.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Heart's Medicine - Hospital Heat (2017) [Ru/Multi] (1.0.0.9) Scene F4CG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30478.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Love n Life: Lucky Teacher (2024) [Ru/Multi] (3.3.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30398.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Tavern Master (2021) [Ru/Multi] (2.3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30392.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30386.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Warlords Under Siege (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30193.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Vampire Therapist (2024) [Multi] (1.202) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30155.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Uncle Chop's Rocket Shop (2024) [Ru/Multi] (1.4.0:5875/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30029.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29833.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29831.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29622.jpg" />
 </div>
 
 

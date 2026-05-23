@@ -6,7 +6,7 @@ Bobby Rush - Rawer Than Raw (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483383.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Walter Trout - Ordinary Madness (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483373.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mike Goudreau - Je Reste Accroche (2015) [MP3|320 кб/с]<Chicago & Texas Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482092.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Levi Platero - Levi Platero Band (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481486.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ G.E. Smith & LeRoy Bell - Stony Hill (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481481.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jimmy Rogers - Complete Shelter Recordings: Chicago Blues Masters, Vol. 2 (1995)
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480090.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Muddy Waters - Chicago Blues Masters, Vol. 1 (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480008.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dani Wilde - Heal My Blues (2008) [MP3|320 кб/с]<Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480005.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Dahman Beck Band - Show A Little Soul (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479606.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Deb Ryder - Grit Grease & Tears (2016) [MP3|320 Kbps] <Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479407.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Joanne Shaw Taylor - White Sugar (2009) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477909.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Howlin' Wolf, Muddy Waters, Bo Diddley - The Super Super Blues Band (2018) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474909.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Blues Hits (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474781.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Deborah Coleman - The Essential Deborah Coleman (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473552.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sabrina Weeks & Swing Cat Bounce - Got My Eye On You (2013) [MP3|320 Kbps] <Swin
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473175.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sena Ehrhardt - The Essential (2015) [MP3|320 кб/с]<Contemporary Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471519.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lauren Anderson - Truly Me (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467027.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Billy Walton Band - Dark Hour (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466551.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Danielle Nicole - Wolf Den (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464909.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Omar & The Howlers Featuring Gary Primich - Too Much Is Not Enough (2012) [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464277.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The Geoff Everett Band - The Quick And The Dead (2012) [MP3|320 Kbps] <Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464165.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Muddy Waters & Rory Gallagher - The London Muddy Waters Sessions (1996) [MP3|320
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464116.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Dirty Mojo Blues Band - Made Cents At The Time (2017) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463558.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Arlen Roth - Slide Guitar Summit (2015) [MP3|320 кб/с]<Blues Rock, Slide Guit
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462858.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Blues Guitar Duels (1997) [MP3|256 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462724.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Thorbjorn Risager & The Black Tornado - Songs From The Road (2015) [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462709.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Allegro Milano - Allegro Milano Spielt Die Schönsten Weihnachtslieder (1993) [F
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586252.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586251.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586141.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, Wor
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585859.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ OST Трансформеры 3: Тёмная сторона Луны / Transform
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585771.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585764.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585759.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585650.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585090.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Pure Spirit Of Relaxation 3CD Boxset (2005) [MP3|320 kbps]<Meditativ, Relax
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585081.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584933.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584880.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584798.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584742.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Loss
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584260.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584030.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Zhang Yi - Strings Of Love (2015) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583968.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Daisuke Minamizawa - Solo Guitar no Shirabe - Studio Ghibli Sakuhinshu (2000) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583840.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Michel Pepe - Offrandes (Best Of 2008-2015) (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583448.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583406.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583103.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582944.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, B
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582851.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582664.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contempor
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582423.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582244.jpg" />
 </div>
 
 

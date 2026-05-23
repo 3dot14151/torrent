@@ -1,133 +1,3 @@
-###  Публикация: 673113   (700657) от 26.06.2013
-
-О.Г.Вендик, М.Д.Парнес | Антенны с электрическим сканированием [2001] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена теоретическому обобщению и исследованию вопросов формирования диаграммы направленности и изменения направления излучения системы излучателей, образующих антенну с электрическим сканированием. В наиболее общей форме представлены свойства таких систем излучателей и даны рекомендации по построению систем, удовлетворяющих заданным требованиям.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC60EB802DBCB466D15B64F798327C67C3C9506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220633   (700520) от 21.04.2018
-
-Susanna S. Epp | Discrete Mathematics with Applications 4ed (+ Full Solution Manual) (2011) [PDF, HTML]  [EN]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-“Дискретная математика с приложениями, четвертое издание” обеспечивает четкое введение в дискретную математику. Известная своей прозрачной, доступной прозой, Epp объясняет сложные, абстрактные концепции с ясностью и точностью. В этой книге представлены не только основные темы дискретной математики, но и рассуждения, лежащие в основе математической мысли. Студенты (   Читать дальше...   )Жанр: МатематикаФормат: PDF, HTML
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0FC76FF035EDD56B371A076242C38D83218A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793327   (700368) от 07.06.2014
-
-О. М. Танхилевич | Эпикур и эпикуреизм (1926) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге поднимаются вопросы атеизма Эпикура, его приверженности к материализму и развитие идей философа на протяжении всей последующей истории философской мысли.Формат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154AC8C2F0D64AEB2F5E4397436E91882F6F8D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578986   (700226) от 09.05.2017
-
-Подборка книг "Электроника" 106 книг [2011] [DJVU] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представлена книжная подборка из 106 томов по электронике в комфортных форматах на русском языке как для новичков, так и для опытных пользователей.Формат: DJVU,PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C136CD1A40204C040CC43EB49D1F61428A80801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026964   (699834) от 17.06.2016
-
-Анна Ионина, Аида Саакян | Современная английская грамматика в таблицах (2014) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-От издателя: В этой книге ключевые грамматические темы английского языка представлены в максимально наглядной и доступной форме – в таблицах и схемах. Учащиеся смогут легко найти нужную тему, получить полную информацию о правилах и исключениях, действующих в английском языке, быстро повторить базовый курс грамматики. В пособии также содержится информация о важных (   Читать дальше...   )Жанр: Английский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD596B0A6ECE2EC31B22461310E118559BE694A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402317   (699699) от 15.08.2020
 
 Б. А. Чагин | Создание и развитие К. Марксом и Ф. Энгельсом теории научного коммунизма (1970) [DJVU, PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699699.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699639.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699636.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699579.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699567.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699564.jpg" />
 </div>
 
 
@@ -292,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699513.jpg" />
 </div>
 
 
@@ -318,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699510.jpg" />
 </div>
 
 
@@ -344,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699501.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699446.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699439.jpg" />
 </div>
 
 
@@ -424,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699382.jpg" />
 </div>
 
 
@@ -450,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699381.jpg" />
 </div>
 
 
@@ -476,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699379.jpg" />
 </div>
 
 
@@ -502,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699374.jpg" />
 </div>
 
 
@@ -528,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699369.jpg" />
 </div>
 
 
@@ -554,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699359.jpg" />
 </div>
 
 
@@ -580,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699330.jpg" />
 </div>
 
 
@@ -606,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699215.jpg" />
 </div>
 
 
@@ -632,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699166.jpg" />
 </div>
 
 
@@ -658,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699044.jpg" />
 </div>
 
 
@@ -669,6 +539,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:941333A151D6BB831AEE6A1CB06B0242C698E1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288031   (699027) от 09.03.2019
+
+Дарья Варламова, Елена Фоер | Секс. От нейробиологии либидо до виртуального порно. Научно-популярный гид (2018) [EPUB, MOBI] [18+]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами уникальная книга, в которой тема секса рассмотрена одновременно с двух позиций – биологии и психологии. Такой подход дает возможность понять суть сексуальности и найти ответы на многие вопросы.
+
+Почему люди вообще хотят секса? Что такое половой отбор? В чем особенности нейробиологии либидо? Откуда берутся асексуалы? А почему кто-то любит заниматься сексом (   Читать дальше...   )Жанр: СексологияФормат: EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12105CFAFED926BDB4AFA3363A811B113AA09890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884041   (699014) от 09.03.2019
+
+Юрий Пашолок | Стальные шары Сталина (2014) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699014.jpg" />
+</div>
+
+
+###  Подробнее
+
+О секретных проектах немецких инженеров не писал только ленивый. Книга, которую вы держите в руках, посвящена таким же секретным проектам, но на сей раз героями стали аппараты, предлагавшиеся советскими конструкторами. И это не простые танки, а сферические и цилиндрические боевые машины! Тема кажется абсолютно несерьезной, но лишь на первый взгляд. Юрий Пашолок предлагает (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B852EA60BA30131FF274ED9AED417DEEB2CC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 39572   (699009) от 09.03.2019
+
+Черменский О.Н. |  Подшипники качения. Справочник-каталог
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены системы условных обозначений, типы, размеры, характеристики подшипников качения производства стран СНГ и зарубежных фирм, в том числе подшипников новых перспективных конструкций фирмы SKF: высокоскоростных с шариками из нитрида кремния, прецизионных пар винт-гайка, подшипников с «интеллектом» и др. Даны рекомендации по выбору подшипников для различных режимов (   Читать дальше...   )Жанр: техническийФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8C49E02FD6818DEF486E47A0DFE6F20EA2B5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132776   (698978) от 10.05.2017
+
+Б. Э. Быховский | Враги и фальсификаторы марксизма (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и подобает лакеям, социал-демократы питаются объедками с барского стола. Когда на первый план в буржуазной философии выдвигается неокантианство, Бернштейны, Форлендеры, М. Адлеры, Бауэры, Кранольды становятся разносчиками неокантианства. Когда неокантианство делает крен в сторону неогегельянства, Марки и Маркузе поспешают за ним. Когда на почве кризиса буржуазного (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6EF863D374DAE1D21813C953D8E6F24D59D0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132933   (698976) от 10.05.2017
+
+Н. Н. Стоскова | Ф. Энгельс о роли техники в развитии общества (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрываются положения Энгельса о роли техники в развитии производительных сил, в смене социально-экономических формаций. Большое место занимает освещение Энгельсом предпосылок, содержания и последствий промышленных революций XVIII—XIX вв., происшедших в Англии, Германии, России, Австрии. Автор показывает, как Энгельс трактует роль технических изобретений в развитии (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CB92F0345A0D835339C232B19ADB19B34DD84A
 ```
 
 https://mybot314.ru/tekegram_catalog/

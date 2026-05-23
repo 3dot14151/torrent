@@ -6,7 +6,7 @@ EF Commander 2023.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209202.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Video AI 3.3.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209197.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HomeBank 5.6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209189.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Uninstall Tool 3.7.1 Build 5700 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209188.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Mirillis Action! 4.35.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209186.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft .NET 7.0.9 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209185.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Auslogics BoostSpeed 13.0.0.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209183.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Antivirus Removal Tool 2023.01 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209182.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ SupRemo 4.10.0.2065 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209178.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Movavi Screen Recorder 22.5.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209177.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Firefox Browser 115.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209176.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Mandelbulber 2.30.0  + Standalone [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209174.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Start Everywhere 1.4.0.32 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209166.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Transcend SSD Scope 4.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209163.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ SoundSwitch 6.7.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209161.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CPUID HWMonitor Pro 1.50 (x64) Portable by conservator [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209158.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Just Color Picker 5.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209149.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209146.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Auslogics Disk Defrag Pro 11.0.0.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209141.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ NVIDIA GeForce Desktop Game Ready 528.24 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209139.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Hallo northern sky 4.2.15d + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209138.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ FreeCAD 0.20.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209137.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ IceCream Ebook Reader Pro 6.25 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209136.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Fort Firewall 3.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209134.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VirtualBox 6.1.38 Build 153438 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209133.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Draw.io 21.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209131.jpg" />
 </div>
 
 

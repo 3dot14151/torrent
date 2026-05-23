@@ -1,120 +1,3 @@
-###  Публикация: 566351   (229323) от 18.12.2013
-
-Bob Marley - Concert tribute to Bob Marley(+бонус) (1999) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В концерте известные исполнители исполняют песни Боба Марли и если вам нравится Боб Марлей, то это точно для вас!01. Lauryn Hill - Turn the Lights Down Low
-02. Chrissie Hynde - Waiting in Vain
-03. Chrissie Hynde & Jimmy Cliff - Jammin'
-04. Erykah Badu - No More Trouble(   Читать дальше...   )Жанр: Концерт, ReggaeПродолжительность: 01:28:03(01:25:35+00:02:28)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90C3BEDA923CCE74CB60AD17D1C8736A1BBAA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512827   (228900) от 26.11.2021
-
-ZZ Top - Live At Montreux 2013 (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В релизе представлено выступление американской группы ZZ Top состоявшееся 10 июля 2013 года в зале Stravinski Auditorium во время традиционного джазового фестиваля в Монтрё.
-Альбом вышел в 2014 году в форматах DVD и Blu-ray. Группа, наряду с собственными хитами, исполнила три джаз-блюз трибьюта в память о создателе фестиваля Клоде Нобсе, который умер в январе 2013 (   Читать дальше...   )01. Got me under pressure
-02. Waitin' for the bus
-03. Jesus just left Chicago
-04. Gimme all your lovin'(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard Rock, Blues RockПродолжительность: 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DAF2787C5233D8A06BA67F95B28E81E705007E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267794   (227792) от 10.12.2018
-
-Юрий Кукин - Фестиваль памяти Юрия Визбора. Концерт в Омске (1995) VHS>DVD5 <Chanson>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Выступление на фестивале памяти Юрия Визбора в Омске. Концертный зал, 1995 год.01. Вступление
-02. За туманом
-03. Не так
-04. Говоришь, чтоб остался я(   Читать дальше...   )Производство: Россия, ГТРКЖанр: Музыка, ШансонАктеры: Юрий КукинЯзык озвучки: РусскийСубтитры: нетПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19072CBECE3620B86B8083A510BF6DBB04B5B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583767   (227672) от 16.10.2022
-
-Квартирник у Маргулиса. Группа «Йорш» (14.05.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Первый альбом панк-рок-группы «Йорш» «Нет Богов!» вышел в 2006 году и сразу принес славу и популярность коллективу из подмосковного Подольска. Песни «По кругу» и «Города» стали настоящими хитами, а группе было суждено стать одной из самых известных команд в российском андеграундном панке. В гостях у Евгения Маргулиса участники группы «Йорш» поделились интересными (   Читать дальше...   )00:00:00 Квартирник у Маргулиса. Группа «Йорш»
-00:00:05 Летова
-00:06:12 Светлячки
-00:13:06 Молодость(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Панк-рок, альтернативный рокПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2195144A2A934803BEC1CD06EBCFC56A4B4D04A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965373   (226174) от 14.12.2015
 
 Даниил Хармс - Белая Овца (Старуха) (2005) SATRip (Театр "Эрмитаж")
@@ -123,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226174.jpg" />
 </div>
 
 
@@ -150,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226061.jpg" />
 </div>
 
 
@@ -176,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225900.jpg" />
 </div>
 
 
@@ -202,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225895.jpg" />
 </div>
 
 
@@ -231,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225872.jpg" />
 </div>
 
 
@@ -258,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225857.jpg" />
 </div>
 
 
@@ -284,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225674.jpg" />
 </div>
 
 
@@ -313,7 +196,7 @@ Metallica - Quebec Magnetic (2012) BDRip [720]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225637.jpg" />
 </div>
 
 
@@ -341,7 +224,7 @@ Adele - At The BBC (2015) HDTVRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225515.jpg" />
 </div>
 
 
@@ -370,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225493.jpg" />
 </div>
 
 
@@ -397,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225411.jpg" />
 </div>
 
 
@@ -423,7 +306,7 @@ VA - Зимний марафон № 212: Дискотека в стиле Count
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225379.jpg" />
 </div>
 
 
@@ -452,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225266.jpg" />
 </div>
 
 
@@ -483,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225199.jpg" />
 </div>
 
 
@@ -509,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223905.jpg" />
 </div>
 
 
@@ -535,7 +418,7 @@ OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223829.jpg" />
 </div>
 
 
@@ -561,7 +444,7 @@ Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222735.jpg" />
 </div>
 
 
@@ -590,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222452.jpg" />
 </div>
 
 
@@ -619,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222154.jpg" />
 </div>
 
 
@@ -648,7 +531,7 @@ Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222117.jpg" />
 </div>
 
 
@@ -677,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221782.jpg" />
 </div>
 
 
@@ -707,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221120.jpg" />
 </div>
 
 
@@ -721,6 +604,117 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9960B186153F2DE8167091297CEFF4322F5F808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337812   (221105) от 04.12.2019
+
+Винтаж - Запретный мир (2015) HDTVRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «ВИНТАЖ» создала свою реальность, в которой действительность пересекается с вымыслом, привычные законы бытия больше не нужны, и на их место приходят новые, дающие всем нам возможность заглянуть в самые потаенные глубины своей сущности. Это «ЗАПРЕТНЫЙ МИР», в который можно попасть, но вернуться из него прежним уже не получиться…Самураи, Великая Китайская стена, (   Читать дальше...   )01. Китайская стена
+02. Плохая девочка
+03. Boys
+04. Когда рядом ты(   Читать дальше...   )Производство: Россия, REi musicЖанр: Поп, шоуПродолжительность: 01:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F000BFDA7A1C9A56BEA700830E5F52166A9CEFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650305   (220603) от 07.08.2023
+
+eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись второго концертного тура «The Live Experience» группы eRa, отгремевшего в конце 2022 года под руководством автора проекта Эрика Леви.
+Относительно дебютного тура 2019 года, здесь присутствуют несколько важных изменений: во-первых два новых участника группы - победительница большинства молодежных вокальных конкурсов последних лет Екатерина (   Читать дальше...   )Жанр: New-age, Symphonic metalПродолжительность: 01:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A420FE6F8DC92830CC432F04B62C6874C7EE2FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207469   (220561) от 01.12.2021
+
+Михаил Рощин - Серебряный век (Сцены 1949 года) (2008) SATRip (2 части) (Театр им. Моссовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220561.jpg" />
+</div>
+
+
+###  Подробнее
+
+ТВ-версия спектакля Театра им. Моссовета по пьесе Михаила Рощина в постановке Юрия Еремина. Положительный мальчик Миша, учащийся старших классов и начинающий поэт, проживает с мамой, честной советской труженицей в обычной коммуналке. Мамин ухажер, промышляющий мелкими коммерческими авантюрами, знакомит Мишу с одухотворенной интеллигентной Кирой Августовной. Она открывает (   Читать дальше...   )Производство: Россия, ГТРК Культура, Московский Государственный академический театр им. МоссоветаЖанр: Телеспектакль, социальная драмаРежиссер: Юрий Еремин, Любовь ТимофееваАктеры: Ольга Кабо, Ольга Остроумова, Георгий Тараторкин, Андрей Смирнов (VI), Валерий Ярёменко, Ирина Томская, Ирина Карташёва, Александр Леньков, Дмитрий ОшеровСубтитры: отсутствуютПродолжительность: 02:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D396114BF73347A7480A61E508E28F4F5AA663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585638   (220409) от 23.10.2022
+
+Квартирник у Маргулиса. Ирина Сурина (22.10.2022) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирина Сурина исполняет песни в стиле кантри-фолк, авторские песни и романсы. В 1989 году стала солисткой первой российской кантри-группы «Кукуруза», а в 2000 году начала сольную карьеру. В гостях у Евгения Маргулиса певица поделилась интересными воспоминаниями и исполнила хиты, любимые многими.00:00:05  Белая песня
+00:05:36  Знать-познать
+00:13:11  Ветер
+00:21:10  Порушка-Параня(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4307E82CB16074E35ADCAF19C1457451A742B81E
 ```
 
 https://mybot314.ru/tekegram_catalog/

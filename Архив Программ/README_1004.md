@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2022.001.20142   RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538802.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinSnap 4.5.6 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538756.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nitro Pro 10.5.4.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538754.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics File Recovery 6.0.1.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538747.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DU Meter 7.09 Build 4754 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538725.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FastStone Image Viewer 6.3 RePack (& Portable) by ZVSRus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538684.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Freemake Video Converter 3.1.0.2 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538667.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VSDC Free Video Editor 3.2.1.373 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538634.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Duplicate Cleaner Pro 3.2.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538628.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Media Encoder CC 2015.0.1 9.0.1.29 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538624.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Free Audio Video Pack 2.19 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538596.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ CrystalDiskMark 5.2.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538576.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Autodesk AutoCAD Mechanical 2018.1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538561.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ESET NOD32 Antivirus 9.0.117.0 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538515.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FilmConvert Pro 2.31 for After Effects and Premiere Pro [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538511.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Proteus 8 Professional 8.3 SP1 Build 19777 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538502.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ MyTetra 1.43.27 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538444.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AIDA64 Extreme Edition | Business Edition 2.50.2063 Beta [MULTi / Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538403.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Multisim & Ultiboard (Circuit Design Suite) 11.0.2 PowerPro [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538400.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ DU Meter 7.09 Build 4754 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538374.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Microsoft Visual C++ 2017 Redistributable Package 14.11.25325 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538351.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ KMSAuto Helper 1.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538339.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Rufus 2.16 (Build 1170) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538319.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ FolderSizes 6.1.60 Professional Edition [ENG+RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538261.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PrivaZer 3.0.73 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538228.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft Office 2010 Professional Plus 14.0.7197.5000 SP2 + Update RePack by D!
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538197.jpg" />
 </div>
 
 

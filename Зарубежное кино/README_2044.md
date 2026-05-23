@@ -1,57 +1,3 @@
-###  Публикация: 487741   (90725) от 25.04.2012
-
-Площадь Колумба / Columbus Circle (2012) [H.264/720p-LQ] HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма строится вокруг нелюдимой и одинокой наследницы состояния своей семьи Эбигейл, которая не покидает квартиры на Манхэттене уже два десятка лет. Она общается только с двумя людьми: через записки с консьержем своего дома и с доктором Реймондом Фонтейном, старинным другом семьи Эбигейл и поверенным во всех ее делах.
-
-Героине приходится столкнуться со своими (   Читать дальше...   )Производство: СШАЖанр: Криминал, Мистика, ТриллерРежиссер: Джордж ГаллоАктеры: Сэльма Блэр, Эми Смарт, Джейсон Ли, Джованни Рибизи, Кевин Поллак, Бо Бриджес, Джейсон Антун, Джерри Пенаколи, Роберт Гийом, Сэмм ЛивайнПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Сергей Фурман / по субтитрам kato_raptureПродолжительность: 01:25:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487450   (90711) от 25.04.2012
-
-Выход Дракона / Enter the Dragon (1973) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-События переносят нас на остров, превращенный в крепость главарем боевиков, открывшим там школу боевых искусств, которая является лишь ширмой, маскирующей контрабандный бизнес. В эту цитадель проникает герой Брюса Ли и становится участником жестокого турнира…Жанр: боевик, триллер, драма, криминалРежиссер: Роберт КлаузАктеры: Брюс Ли, Джон Сэксон, Кьень Ши, Ана Капри, Анджела Мао, Джим Келли, Роберт Уолл, Боло Йенг, Бетти Чюн, Джефри Уикс, Питер Арчер, Ли-Джен Хи, Марлен Кларк, Аллан Кент, Уильям Келлер, Мики Карузо, Пэт Э. Джонсон, Дарнелл Гарсиа, Майк Бисселл, Хинди Очиаи, Джеки Чан, Рой Чяо, Пол М. Хеллер, Саммо Хунг Кам-Бо, Тони Лю, Хой Ман, Стив Сандерс, Чин-Лаи Сунг, Вэй Тунг, Донни (   Читать дальше...   )Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3B031EC0422B645E8C38C768C6D5371B885D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487774   (90709) от 25.04.2012
 
 Прогулка по Дели / Delhi Belly (2011) DVDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90709.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90688.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90686.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90556.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90506.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90486.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90447.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90421.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90350.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90348.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90347.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90343.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90325.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90324.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90311.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90310.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90304.jpg" />
 </div>
 
 
@@ -502,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90295.jpg" />
 </div>
 
 
@@ -528,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90276.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90275.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90272.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90003.jpg" />
 </div>
 
 
@@ -636,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89948.jpg" />
 </div>
 
 
@@ -662,13 +608,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89938.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Американский турист Фрэнк приезжает в Италию, чтобы залечить душевную рану. В Венеции он знакомится с необычной женщиной по имени Элиза. Израненное сердце, похоже, готово сдаться новой возлюбленной. Однако планы Фрэнка и Элизы грубейшим образом нарушает водоворот интриг и опасностей.Жанр: Боевик, Триллер, Мелодрама,  ДетективРежиссер: Флориан Хенкель фон ДоннерсмаркАктеры: Джонни Депп, Анджелина Джоли, Пол Беттани, Стивен Беркофф, Тимоти Далтон, Руфус Сьюэлл, Игорь Жижикин, Кристиан Де Сика, Алессио Бони, Даниэле ПеччиПеревод: ДублированныйСубтитры: Русские (forsed), Русские, Английские - (UTF-8)Язык субтитров: Русские, АнглийскиеПродолжительность: 01:43:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486245   (89932) от 21.04.2012
+
+Миссия невыполнима: Протокол Фантом / Mission: Impossible - Ghost Protocol (2011) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: Боевик, триллер, приключенияРежиссер: Брэд БёрдАктеры: Том Круз, Джереми Реннер, Саймон Пегг, Пола Пэттон, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: ДублированныйЯзык субтитров: Английский, русский, украинскийПродолжительность: 02:07:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485855   (89928) от 21.04.2012
+
+Мушкетеры / The Three Musketeers (2011) [1080p] Blu-ray [3D/2D]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой д’Артаньян покинул родной дом и отправился в Париж, надеясь на место в полку мушкетёров. По случайности в один день он обидел сразу троих мушкетёров - Атоса, Портоса и Арамиса - и получил от всех троих вызовы на дуэль. Но дуэль была прервана появлением гвардейцев кардинала, которые хотели арестовать их за нарушение указа о запрете дуэлей. Д’Артаньян и три мушкетера победили превосходящего противника и стали друзьями. Теперь они должны остановить злобного Кардинала Ришелье и столкнутся с герцогом Бэкингемом, и предательницей Миледи Де Винтер.Жанр: Боевик, ПриключенияРежиссер: Пол У. С. АндерсонАктеры: Логан Лерман, Милла Йовович, Мэтью Макфейден, Рэй Стивенсон, Люк Эванс, Мадс Миккельсен, Габриэлла Уайлд, Джеймс Корден, Джуно Темпл, Фредди ФоксПеревод: ДублированныйПродолжительность: 01:50:17
 
 ## Скачать торент
 ```bash

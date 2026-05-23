@@ -6,7 +6,7 @@ Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768226.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767700.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767565.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Die Young: Prologue (2019) [Ru/Multi] (1.1.0.58.20) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766717.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Deus Ex: Revision (2000-2015) [En] (1.112fm/1.2) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766707.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Die Young (2019) [Ru/Multi] (1.2.0.70.20) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766650.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) License PLAZA [Gold
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766623.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766475.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Wild Eternal (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765998.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765987.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Homefront: The Revolution (2016) [Ru/Multi] (1.0781467) SteamRip Let'sPlay [Free
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765041.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kingpin: Life of Crime [En/Ru] (L) 1999
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764684.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Paranormal Activity: The Lost Soul (2018) [En] (1.03) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763891.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Battlefield Heroes [En] (RePack) 2009 | tukash
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763776.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Cursed Forest (2019) [Ru/Multi] (1.0.6) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763412.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ ShellShock Дилогия [Ru] (RePack) 2004-2009 | tukash
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761237.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Portable PortGamPC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760493.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack R.G. Defoz
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758818.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Genesis Alpha One (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758065.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Tom Clancy's Rainbow Six: Vegas Дилогия [Ru] (RePack) 2006-2008 | R.G. М
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757532.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_754058.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Left Alone (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753316.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ DESOLATE (2019) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753005.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0/dlc) License SKIDROW [Enhan
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752724.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Monstrum (2015) [En] (1.4.1) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749468.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ The Signal From Tölva (2017) [En] (1.0.51) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747395.jpg" />
 </div>
 
 

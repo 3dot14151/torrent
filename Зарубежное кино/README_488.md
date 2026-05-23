@@ -1,59 +1,3 @@
-###  Публикация: 1112439   (842445) от 08.03.2017
-
-Пазманский дьявол / Bleed for This (2016) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Винни Пациенца - один из самых выдающихся чемпионов по боксу. Молодой, яркий, безрассудный... Его называли Пазманским дьяволом. Его карьера была на самом пике, но страшная авария в одночасье разрушила все планы. Врачи говорили, что он больше никогда не сможет ходить. Однако Винни решил вернуться на ринг во что бы то ни стало.Производство: США, Bruce Cohen Productions, Magna Entertainment, Sikelia ProductionsЖанр: Драма, Биография, СпортРежиссер: Бен ЯнгерАктеры: Майлз Теллер, Аарон Экхарт, Кэти Сагал, Киран Хайндс, Тед Левайн, Джордан Гелбер, Аманда Клэйтон, Дэниэл Саули, Кристин Евангелиста, Тина Каскиани, Лиз Кэри, Денис ШеферПеревод: Дублированный (iTunes)Продолжительность: 01:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CB897A3B09FFA56BCFB96114EC0AC9DC2CA982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309376   (842373) от 15.03.2011
-
-Старски и Хатч / Starsky and Hutch (2004) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Детектив Дэвид Старски — самый опытный агент, работающий под прикрытием на улицах Бэй Сити в Калифорнии. Он маниакально предан своей работе, и ни одно преступление не останется безнаказанным, пока он на дежурстве… а дежурство у него не прекращается никогда. Причиной подобной усердности является наследственность и комплекс матери. Дело в том, что его родительница была легендой городской полиции.
-
-Сыну приходится из кожи вон лезть, чтобы доказать, что можно стать суперполицейским, работая не так, как она. А одним из ее рецептов успеха был постоянный напарник. И теперь Дэвид меняет партнеров, как перчатки. Детектив Кен «Хатч» Хатчинсон имеет собственные взгляды на образ идеального блюстителя порядка. Он все схватывает на лету, сообразителен и принимает молниеносные решения. Но зачастую подобная спешка приводит к провалу операций.
-
-Обеспокоенный шеф местной полиции капитан Доуби, наконец, принимает соломоново решение: объединить двух лучших, но непутевых полицейских в команду и выпустить их на патрулирование города. (   Читать дальше...)Жанр: Боевик, Триллер, Комедия, КриминалРежиссер: Тодд ФиллипсАктеры: Бен Стиллер, Оуэн Уилсон, Снуп Догг, Фред Уильямсон, Винс Вон, Джульетт Льюис, Джейсон Бейтман, Эми Смарт, Кармен Электра, Джордж ЧунгПеревод: ДублированныйПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379102   (842368) от 27.04.2020
 
 Бладшот / Bloodshot (2020) BDRip [H.264]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842368.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842364.jpg" />
 </div>
 
 
@@ -114,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842363.jpg" />
 </div>
 
 
@@ -140,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842358.jpg" />
 </div>
 
 
@@ -166,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842344.jpg" />
 </div>
 
 
@@ -192,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842335.jpg" />
 </div>
 
 
@@ -218,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842332.jpg" />
 </div>
 
 
@@ -245,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842294.jpg" />
 </div>
 
 
@@ -273,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842290.jpg" />
 </div>
 
 
@@ -299,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842288.jpg" />
 </div>
 
 
@@ -325,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842270.jpg" />
 </div>
 
 
@@ -351,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842225.jpg" />
 </div>
 
 
@@ -377,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842224.jpg" />
 </div>
 
 
@@ -403,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842221.jpg" />
 </div>
 
 
@@ -429,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842220.jpg" />
 </div>
 
 
@@ -455,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842219.jpg" />
 </div>
 
 
@@ -481,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842216.jpg" />
 </div>
 
 
@@ -507,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842215.jpg" />
 </div>
 
 
@@ -533,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842214.jpg" />
 </div>
 
 
@@ -559,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842211.jpg" />
 </div>
 
 
@@ -585,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842209.jpg" />
 </div>
 
 
@@ -611,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842203.jpg" />
 </div>
 
 
@@ -637,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842106.jpg" />
 </div>
 
 
@@ -664,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842010.jpg" />
 </div>
 
 
@@ -675,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADCB2870415CD9D5C0801D9DDE7958FFA9AC7B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878367   (841977) от 15.03.2015
+
+Другой мир: Эволюция / Underworld: Evolution (2006) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841977.jpg" />
+</div>
+
+
+###  Подробнее
+
+В зловещем ночном мире, скрытом от взора простых смертных, не утихает беспощадная борьба между двумя кланами властителей мрака - вампирами и оборотнями. Настала пора узнать об истоках вековой вражды, ставшей для вампира-воительницы Селин и Майкла, полуоборотня-получеловека, проклятьем и смыслом существования. Сражаясь с могущественными врагами из обоих кланов, древними (   Читать дальше...   )Производство: США | Lakeshore Entertainment, Screen Gems Inc.Жанр: Фэнтези, Боевик, ТриллерРежиссер: Лен УайзманАктеры: Кейт Бекинсейл, Скотт Спидман, Тони Карран, Дерек Джекоби, Билл Найи, Стивен Макинтош, Шэйн Бролли, Брайан Стил, Зита Гёрёг, Скотт МакЭлрой, Джон Манн, Майкл Шин, София Майлс, Ричард Цетрон, Майк Мукатис, Кристин Даниэль, Кайя Джестал, Аттила ЛоваджиПеревод: Профессиональный дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291641CBEC10E676BF5CDA700168D6175D5E8824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771550   (841972) от 30.03.2014
+
+Секреты / Ha-Sodot (2007) DVDRip [H.264] [Hi10P]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_841972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Религиозная школа древнего каббалистического города Цфат. Дочь раввина Наоми делает все возможное, чтобы отсрочить свадьбу и продолжить учиться. Бунтарка Мишель послана в Цфат религиозными родителями из Франции для усмирения характера. Подруги знакомятся с загадочной француженкой Анук, которая ищет в Цфате покой и очищение. Но ортодоксальное общество отвергает ее. (   Читать дальше...   )Производство: Франция, ИзраильЖанр: ДрамаРежиссер: Ави НешерАктеры: Аня Букштейн, Дана Ивги, Фанни Ардан, Михаль Штамлер, Адир МиллерПеревод: Профессиональный (многоголосый закадровый)Субтитры: нетПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86D779FA69D296FCFCEDAEE7F4E27DBF6B871BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

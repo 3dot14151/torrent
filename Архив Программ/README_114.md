@@ -6,7 +6,7 @@ Exif Pilot 6.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016392.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Infix PDF Editor Pro 7.6.2 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016389.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EZ CD Audio Converter 9.3.2.1 (x64) Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016375.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.0 Build 11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016359.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FileZilla 3.54.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016285.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LDPlayer 4.0.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016276.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GPU-Z 2.39.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016271.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ OCCT 8.2.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016264.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ DiskTrix UltimateDefrag 6.0.94.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016256.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016248.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Bulk Crap Uninstaller 5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016242.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft .NET 5.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016239.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Internet Download Manager 6.38 Build 25 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016219.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ MAGIX Sound Forge Pro 15.0 Build 57 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016211.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.0 Build 11 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016190.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adobe Photoshop 2021 22.4.0.195 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016186.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Visual Studio 2019 Professional 16.9.5 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016134.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Viber 15.3.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016130.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Microsoft Visual Studio 2019 Community 16.9.5 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016128.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Chromium 90.0.4430.212 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016123.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Wise Disk Cleaner 10.4.4.794 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016109.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Microsoft Visual Studio 2019 Enterprise 16.9.5 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016085.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ CPU-Z 1.96.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016080.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Sidify Music Converter 2.2.5 RePack (& portable) by elchupacabra (для Spotify
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016049.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Windows 10 (v20h2) x64 PRO by KulHunter v3.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016041.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Adobe Photoshop 2021 22.4.0.195 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016039.jpg" />
 </div>
 
 

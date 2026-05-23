@@ -6,7 +6,7 @@ SAM DeCoDeR Pack 2012 v4.25 Best & Player [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260771.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Corel PaintShop Photo Pro X4 14.2.0.1 Retail RePack by MKN [Русский/Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260670.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Free for commercial use WPI 1.1 by q1q1 (апрель 2012)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260634.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Mozilla Firefox 13.0 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260533.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ SoftOrbits Pack by Wadimus 01.06.12 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260531.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Dr.Web CureIt! 6.0 от 01.06.2012 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260497.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Mail.Ru Агент 6.0 Build 5667 [Multi/Rus] + Portable by Valx
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260479.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ LibreOffice 3.5.4.2 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260409.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Multiboot flash gnom26rus edition [эксклюзивно для NNM-club] [Ru,E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260146.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Notepad++ 6.1.3 Final [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260014.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Inno Setup 5.5.0 RePack by D!akov [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259979.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mail.Ru Агент 6.0 Build 5650 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259971.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Freemake Video Converter 3.0.2.10 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259806.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ USB Safely Remove 5.1.3.1186 Final RePack by KpoJIuK [Ru/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259738.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ USB Safely Remove 5.1.3.1186 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259730.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Raxco PerfectDisk Professional/Server 12.5 Build 311 Final RePack by KpoJIuK [Р
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259714.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ AIDA64 Extreme/Extreme Engineer Edition | Business Edition 2.50.2000 Final RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259702.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Comodo Dragon 19.1 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259655.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Mirillis Action! 1.3.4.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259623.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Fraps 3.5.3 Build 15007 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259603.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Reg Organizer 5.45 beta 2 [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259571.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Mozilla Firefox 13.0 Beta 6 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259568.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 [Rus/Multi] (29.05.2012) [Обно
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259514.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Kaspersky Internet Security 2013 13.0.0.3345 Technical Preview
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259498.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ ESET Endpoint Security 5.0.2122.10 Final (x86/х64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259486.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Zero Assumption Recovery 9.1 Build 4 Technician Edition [Multi/Rus] Portable by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259451.jpg" />
 </div>
 
 

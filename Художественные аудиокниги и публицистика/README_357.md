@@ -1,83 +1,3 @@
-###  Публикация: 1022545   (728939) от 02.06.2016
-
-Мари-Элен Лафон | Знакомство по объявлению (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Поль живет и работает на ферме в Центральной Франции, Анетта родом из промышленного городка на севере. У обоих в прошлом - горькие обиды и разочарования. Его окружает неуживчивая родня, принимающая в штыки любого чужака, у нее растет сын. Но вот однажды Поль дает объявление в газету, Анетта откликается... Так начинается трогательная история их любви.
-
-Мари-Элен Лафон (   Читать дальше...   )Жанр: РоманПродолжительность: 04:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C63A5AF9C4173AD370DE4E2832B3E1B92BF6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022044   (728933) от 02.06.2016
-
-The Descendant | Юноша в саду (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-17 сентября 1862 года стало самым кровавым днём в истории Америки. Именно тогда во время Гражданской войны США состоялось сражение между федеральной армией и силами Конфедерации возле реки Энтитем-Крик, что рядом с городом Шарпсбург, штат Мэриленд. А вчера Флаттершай напевала что-то весёлое себе под нос, поливая сад. И эти события связаны между собой.Жанр: Драма, фантастикаПродолжительность: 02:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5103556734CFBFC0593641B9ECBC9CCEEDDBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022430   (728931) от 02.06.2016
-
-Константин Симонов | Дни и ночи (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Повесть выдающегося советского писателя, журналиста-военкора и драматурга, классика отечественной литературы Константина Михайловича Симонова (1915 – 1979), посвящена одному из важнейших событий Великой Отечественной войны — Сталинградской битве. Армию защитников Сталинграда пополняют части, переброшенные из-за Волги. В их числе батальон главного героя повести — (   Читать дальше...   )Жанр: Отечественная КлассикаПродолжительность: 10:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4970DA7F593C5DAAD296474EE9A0944470D0D61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530521   (728917) от 11.02.2022
 
 Роджер Желязны | Долина проклятий (2021) [MP3, Puffin Cafe]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728917.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728836.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728834.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728833.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728832.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728830.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728818.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728794.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728715.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728714.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728705.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728704.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728702.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728662.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728588.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728584.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728582.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728560.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728492.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728470.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728457.jpg" />
 </div>
 
 
@@ -638,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728356.jpg" />
 </div>
 
 
@@ -664,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728342.jpg" />
 </div>
 
 
@@ -676,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBF9E7DE05CFA1DFF655E728065570A0892B07C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022281   (728339) от 02.06.2016
+
+Данил Корецкий | Джекпот для лоха (2016) [MP3, Фёдор]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лихие девяностые, приватизация госсобственности, коммерсанты, похожие на бандитов, бандиты с устремлениями коммерсантов, разборки, перестрелки, а в центре этого круговорота скромный, забитый жизнью инженер Говоров, вынужденный работать дворником и, в силу стечения обстоятельств, оказавшийся важной фигурой в процессе приватизации крупного завода. Сможет ли он преодолеть (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9918CBC09006CEBBB25C9E1B4EA0C36EA54CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022368   (728232) от 02.06.2016
+
+Филип Дик | Убик (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728232.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Убик» прост как древнекитайская притча. «Убик» увлекателен как синтез «Матрицы», лучшего из Стивена Кинга, тонкого юмора и необычайной атмосферы, которую ощущаешь почти физически.
+– Бесспорно, «Убик» – это чудовищный гротеск. Своей изобретательностью и силой воображения Дик превосходит коллег по научно-фантастическому жанру. Его распадающийся, выбрасывающий странные (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 06:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A6277939392E7E0A0CB76A3C72818738747835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022345   (728163) от 02.06.2016
+
+Василий Маханенко | Поиск Создателя (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения Шамана продолжаются! Еще недавно Дмитрию Махану, по кличке Шаман, казалось, что он совершил в игровом мире Барлионы шестой шаг, и последний, но жизнь внесла поправку. Корпорация решила возродить Темного Повелителя и всю его армию. Иванов, глава Корпорации, лично нажал кнопку восстановления. Гераника и его Дракон Мрака ожили. А Шаман получил от руководства (   Читать дальше...   )Жанр: Боевое фэнтези. LitRPGПродолжительность: 12:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C27E54DF24801A104E1A2ED29A4A02928A5674
 ```
 
 https://mybot314.ru/tekegram_catalog/

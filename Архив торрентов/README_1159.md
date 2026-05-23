@@ -6,7 +6,7 @@ Pale Moon 28.3.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788189.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MacX DVD Ripper Pro 6.2.0 (build20190111) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788187.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iMazing 2.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788186.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ R-Wipe & Clean 20.0 Build 2222 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788184.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Cherry Glazerr - Stuffed & Ready (2019) [FLAC|Lossless|tracks + .cue] <Indie, Fe
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788183.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788180.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - Nothing But... Psy Trance Vol.01 (2018) [MP3|320 Kbps] <Psy Trance, Psychod
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788176.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Goa Vol.65 (Compiled by DJ BIM & Materia) (2018) [MP3|320 Kbps] <Psy Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788175.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MacBooster 6.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788165.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Chick Webb - King Of The Savoy Vol 2 1937-1939 (1958 ??) аукционная п
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788163.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Movavi Photo Manager 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788157.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Brave Browser 0.58.21 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788152.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Your Universal MultiBoot Installer 2.0.6.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788150.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ WinSnap 5.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788145.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Sex Lounge: Music For Making Love (2002) [FLAC|Lossless|tracks + .cue] <Lou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788140.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Michiya Koide Backed By The King Orchestra - Beautiful Melodies Of Japan Play's 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788138.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ YTD Video Downloader PRO 5.9.3 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788135.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Barry Sisters - Barry Sisters with Sammy Meade's Orchestra (1940) шеллак  
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788131.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ CoolUtils Total Audio Converter 5.3.0.160 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788129.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ IObit Uninstaller Pro 8.3.0.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788114.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Google Chrome 64.0.3282.140 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788097.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Maxthon Browser 5.1.6.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788086.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ PrivaZer 3.0.40 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788082.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Ashampoo Photo Optimizer 7.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788066.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Google Chrome 64.0.3282.140 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788057.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Zoom Player MAX 14.1 Build 1410 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788047.jpg" />
 </div>
 
 

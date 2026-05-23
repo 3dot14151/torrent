@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274587.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Arturia - Synth Collection 2019.11 STANDALONE, VSTi, VSTi3, AAX (x64) RePack by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274572.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ICQ 10.0 build 38094 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274562.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Allavsoft Video Downloader Converter 3.15.3.6544 RePack (& Portable) by вова
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274557.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274545.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Raxco PerfectDisk PRO/Server 11.0.183 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274519.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ qBittorrent 4.0.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274518.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Maxthon Browser MX5 5.0.2.900 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274506.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ShareX 12.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274481.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Advanced SystemCare Pro (акция comss) 13.0.2.171 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274468.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ The Foundry Modo 13.2v1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274458.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ RadioMaximus 2.21.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274454.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mozilla Firefox Quantum 57.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274440.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Windows XP Pro Black Edition v2010.12.18 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274413.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The KMPlayer 4.1.5.3 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274347.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ DxO PhotoLab Elite 3.0.1 build 4247 (10.11.2019) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274343.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Mindjet MindManager Pro 9.1.157 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274340.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lenovo G450G550 Win7 Drivers v1.5 (32bit & 64bit) v1.5 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274331.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274327.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274315.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ PDF-XChange Editor Plus 6.0.319.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274310.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ FastStone Capture 8.7 Final +Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274256.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ uTorrent 3.4.9 Build 43085 Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274241.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Nox App Player 6.0.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274235.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6762.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274229.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ NVIDIA Inspector 1.9.7.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274222.jpg" />
 </div>
 
 

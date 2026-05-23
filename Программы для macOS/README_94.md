@@ -6,7 +6,7 @@ Intensify CK (Pro) 1.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432142.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ RightFont 6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431842.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ AICopy - Docs, Article Creator 2.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431774.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Word Counter Pro 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431763.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Folder 1.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431762.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ popCalendar 1.8.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431375.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ iNet Network Scanner 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431200.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Mindjet MindManager 11 v11.2.111 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430552.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Raya Pro 2.0 & InstaMask 1.0 fix - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430039.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Antivirus Zap Pro 3.10.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429829.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ IconJar 2.11.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429768.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ WaterMarker 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429329.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Money 4.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429288.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ CCleaner Professional Edition for Mac 1.18.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429240.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ QR Factory 2.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429179.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ OmniPlan Pro 3 v3.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429133.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ AirBeam Pro 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428945.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Hear 1.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428817.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ ForkLift 2.6.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428645.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Audulus 3 v3.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427553.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ TotalFinder 1.12.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427342.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ iVolume 3.7.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427065.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BiglyBT 1.0.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426679.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Magnet 1.9.13 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425667.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Curio 9.4.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425054.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Adobe Acrobat Pro DC 20.012.20043 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424773.jpg" />
 </div>
 
 

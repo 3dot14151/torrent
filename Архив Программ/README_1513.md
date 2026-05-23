@@ -6,7 +6,7 @@ VKMusic 4.84 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264584.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Opera 65.0.3467.48 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264583.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FastStone Capture 9.3 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264574.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Auslogics BoostSpeed 11.2.0.3 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264569.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Format Factory 4.9.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264568.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Far Manager 3.0 Build 5511 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264566.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ The KMPlayer 4.2.2.34 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264557.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ FastStone Capture 9.3 Corporate RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264556.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ableton - Live Suite 10.1.5 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264544.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264456.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Telegram Desktop 1.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264446.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Viber 7.7.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264429.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ XYplorer 18.60 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264422.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ACDSee Photo Studio Ultimate 2018 v11.1 Build 1272 Portable by Alz50 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264333.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.1.0.10 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264317.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Auslogics Registry Cleaner Pro 8.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264260.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Light Image Resizer 6.0.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264259.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Auslogics Disk Defrag Pro 9.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264254.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Calibre 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264253.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ PrivaZer 3.0.82 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264251.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Soft Organizer Pro 7.50 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264249.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Auslogics Duplicate File Finder 8.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264235.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Auslogics BoostSpeed Pro 11.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264234.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Auslogics Windows Slimmer 2.2.0.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264221.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ FastStone Capture 9.3 Corporate RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264203.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Wondershare Filmora 9.2.11.6 (x64) Repack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264201.jpg" />
 </div>
 
 

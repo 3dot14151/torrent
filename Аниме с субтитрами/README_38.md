@@ -6,7 +6,7 @@ Kiitarou Shounen no Youkai Enikki | Kiitaro's Yokai Picture Diary | Дневни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798809.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Ulysses: Jeanne d'Arc to Renkin no Kishi / Ulysses: Jeanne d'Arc and the Alchemi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798614.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aishiteruze Baby | Моя малышка [2004, TV, 26 эп.] DVDRip 720p 10bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797802.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Soukyuu no Fafner: Dead Aggressor - Right of Left | Небесный Фафни�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797789.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797752.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mujaki no Rakuen / Paradise of Innocence / Невинный Рай [2014-2016, O
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797183.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bosco Daibouken | Bosco Adventure | Приключения Боско [1986, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797150.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Harmony | Гармония [2015, MV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795893.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Eromanga Sensei | Эроманга-сэнсэй [2017, TV, 12 эп.] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795531.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tsugumomo | Цугумомо [ТВ-1] [2017, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795465.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Owarimonogatari (2017) | Owarimonogatari Second Season | Финальные ис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795414.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Made in Abyss | Созданный в Бездне [2017, TV, 13 эп.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795330.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794776.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kobayashi-san Chi no Maid Dragon / Miss Kobayashi's Dragon Maid / Служанк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794173.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Emiya-san Chi no Kyou no Gohan | Today's Menu For Emiya Family | Сегодня�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793868.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Granblue Fantasy The Animation | Голубая мечта Грана [2017, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793806.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Nekopara | Кошачий рай [2017, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793805.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792887.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ingress the Animation | Ингресс [2018, TV, 11 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792866.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Ichigo Marshmallow | Strawberry Marshmallow | Клубничный зефир [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792633.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Uchuu Senkan Tiramisu Zwei | Space Battleship Tiramisu Zwei | Космическ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792572.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Uchuu Senkan Tiramisu | Space Battleship Tiramisu | Космический ли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792570.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Haikyuu!! OVA-1 | Волейбол OVA-1 [2014, OVA, 2 из 2] DVDRip 480 10bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792512.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Gekijouban Haikyuu!! | Волейбол (компиляция) [2015, Movie, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792508.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792507.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792503.jpg" />
 </div>
 
 

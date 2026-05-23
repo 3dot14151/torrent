@@ -6,7 +6,7 @@ Shadow Defender 1.4.0.623 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823297.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zentimo xStorage Manager 1.2.1.1125 [Eng] [Silent Install]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823271.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 11.10 Build 2064 Snapshot [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823264.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SRWare Iron 49.0.2600.0 DC 09.04.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823234.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SIV (System Information Viewer) 5.09 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823232.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bigasoft Video Downloader Pro 3.11.4.5942 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823231.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ pCloud Drive 3.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823220.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Martinic - AX73 1.0.1 VSTi (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823160.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Skype 7.22.0.109 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823139.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Shadow Defender 1.4.0.623 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823114.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Yellowpile 1.20.12 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823113.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sandboxie 5.53.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823038.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CudaText 1.147.0.3 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823030.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Maxthon Cloud Browser 4.9.2.1000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823023.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AVG Internet Security 2016 16.61.7539 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823019.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Shadow Defender 1.4.0.623 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823017.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BandLab - Cakewalk 2021.09 (Build 145) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822928.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ IObit Smart Defrag Pro 7.2.0.88 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822922.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Kaspersky PURE 3.0 13.0.2.558  (a) Final  [Англиийский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822853.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Windows 10 Manager 1.1.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822843.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Google Chrome 50.0.2661.75 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822839.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ AVG AntiVirus 2016 16.61.7539 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822828.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Skype 7.22.32.109 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822824.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PicPick 5.1.9 Pro + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822816.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ iZotope - RX 9 Audio Editor Advanced 9.0.1 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822810.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Free Download Manager 6.15.3.4236 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822809.jpg" />
 </div>
 
 

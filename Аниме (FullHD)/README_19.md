@@ -6,7 +6,7 @@ Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778103.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Little Witch Academia (2017) | Академия ведьмочек [2017, TV, 25
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778094.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Plastic Memories | Синтетические воспоминания [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776249.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Shinmai Maou no Testament BURST | The Testament of Sister New Devil BURST | За
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776245.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] BDrip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776243.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kokoro ga Sakebitagatterunda | Kokosake | The Anthem of the Heart | Сердцу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773913.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Tenkuu no Escaflowne / Vision of Escaflowne TV / Видение Эскафлон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773561.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Buzzer Beater 2 | Забить на последней секунде 2 [2007, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773252.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Buzzer Beater | Забить на последней секунде [2005, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773248.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Gekkan Shoujo Nozaki-kun | Monthly Girls' Nozaki-kun | Нозаки и его с
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773209.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ All Out!! | Изо всех сил!! [2016, TV, 25 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773126.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Zetman / Зетмен [2012, TV, 13 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772389.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tachibanakan to Lie Angle | Любовные страсти пансиона Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769763.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769452.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Senki Zesshou Symphogear XV / Последняя Песня Боевых При�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769353.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768946.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768926.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Human Lost: Ningen Shikkaku | Human Lost: Исповедь неполноцен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768897.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Re: Zero - Director`s Cut | Re: Zero kara Hajimeru Isekai Seikatsu - Shin Henshu
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768886.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ New Game!! | Новая игра! [ТВ-2] [2017, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768423.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766845.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ New Game! | Новая Игра! [2016, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766167.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766016.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Nana Maru San Batsu | Nanamaru Sanbatsu | Fastest Finger First | Семь - ве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764419.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Gekijouban Fate/Kaleid Liner Prisma Illya: Sekka no Chikai | Судьба: Де�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762997.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Fate/kaleid liner Prisma Illya 3rei!! | Fate/Kaleid Liner Prisma Illya Drei!! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762872.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1228950   (434626) от 23.09.2018
-
-BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) Repack R.G. Catalyst [Complete Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-BLACKHOLE («Черная дыра») – суровый сюжетный платформер и в то же время - веселый фантастический квест с гравитационными головоломками, прохождение которых потребует более 15 часов. Парень, разносящий кофе, всех спасет! И мы имеем в виду вовсе не спасение от похмелья утром понедельника. Мы про Настоящее Спасение Мира. Потому что разносчик кофе - единственный, кто (   Читать дальше...   )Тип издания: RepackРазработчик: FiolaSoft StudioЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Чешский, Испанский и другиеЯзык интерфейса: Русский, Английский, Чешский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049A197A2A2D6E5C38277117666E4C248953BFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165304   (434327) от 12.09.2017
 
 Bloody Zombies (2017) [Ru/Multi] (1.0) Unofficial CoolGames
@@ -32,7 +6,7 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) Unofficial CoolGames
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434327.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Arcania: Gothic 4 / Готика 4: Аркания [Multi5-] (L) 2010 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434109.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ BioShock 2 Remastered (2016) [Ru/Multi] (1.0.121755) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434039.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ Connected Hearts 2: Fortune Play / Связанные Любовью 2: Игры
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433727.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ Dark Romance 11: The Ethereal Gardens (2019) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433693.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Mystery Trackers 18: Fatal Lesson / Охотники за тайнами 18: Р�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433614.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Alan Wake's American Nightmare (2012) [Ru] (1.0.3.17.1781) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433286.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.23850) Repack xatab [Remastered Co
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433276.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Sable Maze: Sullivan River. Collector's Edition / Темный Лабиринт:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433138.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Signal Simulator (2018) [En] (1.7.3) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433081.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Madden NFL 08 [En] (RePack/4.0) 2007 | R.G. Механики
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432837.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Crash Time 5: Undercover [En/Ge] (L) 2012 | RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432808.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Pinball FX3 (2017) [Multi] (1.0/dlc) License HI2U [Season 1-2 Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432647.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ DRAGON QUEST XI: Echoes of an Elusive Age (2018) [Multi] (1.0/dlc) Crack
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432633.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Final Theory (2018) [En] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432491.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ LUMINES REMASTERED (2018) [Multi] (1.04) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432481.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432476.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ F1 2017 (2017) [Ru/Multi] (1.6/dlc) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432117.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Ru/En] (1.0) Repack D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431802.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) License GOG [Digital Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431288.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Indivisible (2019) [Ru/Multi] (42940/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431267.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Hades (2020) [Ru/En] (1.36032) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431248.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430656.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Rocket League (2015) [Ru/Multi] (1.53/dlc) Repack Other s [Game of the Year Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430533.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ The Search (2017) [Ru/Multi] (20170910) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430179.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ The Search (2017) [Ru/Multi] (20170910) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CA6E0E25197F1992C70480D13C5039826078392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165319   (430054) от 14.09.2017
+
+Still Life 2 (2009) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто же скрывается под именем мистера Икс? В игре Still Life 2 вас ждет долгожданный финал оригинальной Still Life и новое расследование агента Виктории МакФерсон. Осенью 2008 года Викторию отправляют в штат Мейн, где было обнаружено тело Эллен Данниган. Характер действий преступника, а также отправленное полиции и прессе видео не оставляют сомнений: Мучитель с Восточного (   Читать дальше...   )Тип издания: LicenseРазработчик: GameCO StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F28FBE5BBE1D1476A74704021F01A17528EE3E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

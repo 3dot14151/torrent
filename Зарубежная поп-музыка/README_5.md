@@ -6,7 +6,7 @@ VA - Billboard - Hot Dance & Electronic Songs (08-May-2021) [MP3|320 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013382.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Boys Don't Cry - All the Very Best (серия "Другие восьмидес�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013205.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anabel Englund - Messing With Magic (2021) Deluxe Edition [FLAC|LOSSLES-Web-DL] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012429.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - 100 Greatest Women in Pop (2021) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012398.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Mastermix DJ Edits 23 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012125.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Maroon 5 - JORDI (2021) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011629.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Johnny Warman - Walking Into Mirrors (серия "Другие восьмиде�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008718.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 100 Greatest TikTok Songs & Viral Hits (2021) [MP3|320 Kbps] <Pop, Dance, O
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006482.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tina Turner - Foreign Affair (1989) 4CD, Remaster, Capitol Records, 2021 [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006295.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Sweaty Workout Hits (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006142.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Summer Body Fitness Hits (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005938.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Hits de l'été 2021 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005220.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Girl Power (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004609.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sweet Power - Hits On 33 - 50 Non-Stop Disco Dancing Hits (1981) LP [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002576.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Selena Gomez - Rare (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002430.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ricky & The Rockets - Rock'n Roll Disco - 50 Non-Stop Rock'n'Roll Dancing Hits (
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001140.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Dalida - Oh! La La (2012) [MP3|320 кб/с]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999678.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Andy Williams - 16 Biggest Hits (2000) [MP3|320 кб/с]<Vocal Pop, Traditional 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999623.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Dan Balan - All Hits In One Album (2012) [MP3|198-256 kbps] <Dance / Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999620.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Celine Dion - The Best Of Celine Dion and David Foster (2012) [MP3|~245 кб/с 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999603.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Taylor Swift - 3 альбома 1 демо (2011 - 2006) [MP3|320 кб/с]<Count
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998828.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Aura Dione - 3 Альбома (2008-2011) [MP3|320 kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998316.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Shakira - Коллекция (2007) [MP3|192 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998277.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Umberto Tozzi - The Best Of (2 CD) (2002) [MP3|320 кб/с]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998017.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Eros Ramazzotti - All The Best (2012) [MP3|320 кб/с]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996926.jpg" />
 </div>
 
 
@@ -778,7 +778,7 @@ Army of Lovers - The Best Of (1999) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996864.jpg" />
 </div>
 
 

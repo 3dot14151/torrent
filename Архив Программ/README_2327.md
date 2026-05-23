@@ -6,7 +6,7 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14232.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Premiere Pro 2025 25.3.0.84 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14177.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ v2rayN 7.12.7 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14156.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NVIDIA GeForce Desktop Game Ready 576.80 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14142.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe After Effects 2025 25.3.0.71 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14139.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Illustrator 2025 29.6.0.207 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14131.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Activation Program 1.12 b05  Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14071.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (20.06.2025) RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14066.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ StartAllBack 3.9.11 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14047.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Topaz Gigapixel AI Pro 8.4.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14042.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Total Commander 11.55 RC7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14034.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ IObit Uninstaller Pro 14.4.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14023.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14014.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14009.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Steinberg - Cubase Pro 14 14.0.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14003.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows 11 PRO 24H2 26100.4351 Update 16 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13969.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Windows 11 3in1 x64 24Н2 (build 26100.4351) by ivandubskoj 20.06.2025 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13962.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Auslogics SSD Optimizer 2.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13953.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Auslogics BoostSpeed 14.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13951.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Revo Registry Cleaner Pro 1.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13922.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Display Driver Uninstaller 18.1.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13894.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe Photoshop 2025 26.8.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13865.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 15.06.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13835.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Everything 1.4.1.1027 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13828.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AnyDesk 9.5.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13821.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Auslogics Windows Slimmer 5.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13811.jpg" />
 </div>
 
 

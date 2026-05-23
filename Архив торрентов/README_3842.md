@@ -6,7 +6,7 @@ Slimjet 12.0.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216679.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iStatistica 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216671.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Disk Cleaner 10.9.5.811 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216670.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WizTree 4.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216662.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Young Fathers - White Men Are Black Men Too (2015) [FLAC|Lossless|tracks + .cue]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216653.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Motive - D.N.A. (Dopest Nigga Alive) (2015) [FLAC|Lossless|tracks + .cue] <Hip H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216627.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ StartAllBack 3.1.5 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216624.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ocenaudio 3.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216619.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ PotPlayer 211118 (1.7.21566) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216617.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Love Live! Sunshine!! / Живая любовь! Сияние!! [ТВ-3] [2016, 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216616.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ GoldWave 6.68 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216605.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Google Chrome 107.0.5304.63 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216596.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Soft4Boost Document Converter 4.7.1.465 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216591.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Aiseesoft Video Converter Ultimate 10.5.32 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216590.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Registry Life 3.23 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216587.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ WizTree 4.11 Enterprise RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216582.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Windows 7 (3in1) x64 by Updated Edition (10.08.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216580.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216579.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Barron - Full Discography - 39 releases (2011-2015) [MP3|320 kbps] <Dubstep, Dru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216577.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ IObit Uninstaller Free 12.1.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216576.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Opera 92.0.4561.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216571.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Internet Download Manager 6.35 Build 16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216556.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Glary Utilities Pro 5.155.0.181 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216537.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216517.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ JRiver Media Center 27.0.34 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216509.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Thomas Mraz - DO NOT SHAKE THE SPEAR (2016) [MP3|320 Kbps] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216503.jpg" />
 </div>
 
 

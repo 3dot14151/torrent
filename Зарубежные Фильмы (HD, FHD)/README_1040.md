@@ -1,56 +1,3 @@
-###  Публикация: 469838   (83342) от 20.03.2012
-
-Король вечеринок 3. Первый год в колледже / Van Wilder: Freshman Year (2009) [H.264/1080p-LQ] HDTV
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Очутившись в новом колледже, Ван с ужасом обнаруживает, что все девушки вокруг дали обет безбрачия. Тогда наш герой рьяно берется за исправление столь неприемлемой для него ситуации: он должен освободить школу от «сексуальных оков». Главное в таком деле — не переусердствовать!Жанр: КомедияРежиссер: Харви ГлейзерАктеры: Джонатан Беннетт, Кристин Каваллари, Курт Фуллер, Стив Талли, Нестор Аарон Абсера, Ник Нак, Джерри Ши, Мередит Жангранд, Ирен Кэн, Линден ЭшбПеревод: Многоголосый закадровыйПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470348   (83336) от 20.03.2012
-
-Домашняя работа / The Art of Getting By (2011) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Одинокий и фаталистический подросток Джордж разгильдяй и бездельник. У него очень серьезные проблемы в школе. Чтобы не остаться на второй год и развить отношения с девушкой по имени Салли необходимо выполнить решающую домашнюю работу.
-Джордж очень симпатичен юной особе: она видит в нем не только друга, но и родственную душу. Впереди решающий тест, завалить который юноша не имеет права…Жанр: Драма, МелодрамаРежиссер: Гэвин ВьесенПродюсер: Кара Бэйкер, Гия Уолш, П. Дженнифер Дэна, ...Актеры: Фредди Хаймор, Эмма Робертс, Саша Спилберг, Маркус Карл Франклин, Энн Дауд, Майя Ри Санчез, Блэр Андервуд, Энн Харада, Рита Уилсон, Ярлат Конрой, Майкл Ангарано, Алисия СильверстоунПеревод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469714   (83310) от 20.03.2012
 
 Секс, ложь, безумие / Dream Lover (1993) [H.264/1080p-LQ] HDTV
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83310.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83306.jpg" />
 </div>
 
 
@@ -121,7 +68,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83289.jpg" />
 </div>
 
 
@@ -149,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83153.jpg" />
 </div>
 
 
@@ -175,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83123.jpg" />
 </div>
 
 
@@ -201,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82941.jpg" />
 </div>
 
 
@@ -227,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82896.jpg" />
 </div>
 
 
@@ -253,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82760.jpg" />
 </div>
 
 
@@ -279,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82746.jpg" />
 </div>
 
 
@@ -307,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82740.jpg" />
 </div>
 
 
@@ -333,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82721.jpg" />
 </div>
 
 
@@ -361,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82715.jpg" />
 </div>
 
 
@@ -389,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82659.jpg" />
 </div>
 
 
@@ -415,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82338.jpg" />
 </div>
 
 
@@ -441,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82323.jpg" />
 </div>
 
 
@@ -467,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82320.jpg" />
 </div>
 
 
@@ -493,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82312.jpg" />
 </div>
 
 
@@ -519,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82302.jpg" />
 </div>
 
 
@@ -545,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82263.jpg" />
 </div>
 
 
@@ -571,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82124.jpg" />
 </div>
 
 
@@ -599,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82085.jpg" />
 </div>
 
 
@@ -625,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81734.jpg" />
 </div>
 
 
@@ -651,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81725.jpg" />
 </div>
 
 
@@ -677,13 +624,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81708.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Голливуд, 1927 год. Звезда немого кино Джордж Валентайн и слышать не хочет о микрофонах на съемочной площадке. А безнадежно влюбленная в Валентайна статистка Пеппи Миллер стремительно набирает популярность в новом звуковом кинематографе. Только любовь поможет героям обрести счастье.Жанр: Драма, Мелодрама, КомедияРежиссер: Мишель ХазанавичусАктеры: Жан Дюжарден, Беренис Бежо, Джон Гудмен, Джеймс Кромуэлл, Пенелопа Энн Миллер, Мисси Пайл, Бет Грант, Эд Лотер, Джоэль Мюррей, Битси ТаллочЯзык субтитров: Русский, Английский, Французский (forced)Продолжительность: 01:40:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466274   (81700) от 12.03.2012
+
+Жена астронавта / The Astronaut's Wife (1999) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находясь в открытом космосе, астронавт Спенсер Армакост (Джонни Депп) на несколько минут потерял связь с Землей. Но все обошлось, и экипажу удалось вернуться назад. Спенсер и его жена опять были вместе. Но вскоре Джиллиан (Шарлиз Терон) начинает подозревать, что ее муж стал другим. И если прежде она тревожилась за его жизнь, то теперь стала бояться за свою. Она оказалась один на один с пугающей неизвестностью…Жанр: Фантастика, Триллер, УжасыРежиссер: Рэнд РэвичАктеры: Джонни Депп, Шарлиз Терон, Джо Мортон, Ник Кассаветис, Клеа ДюВалл, Саманта Эггар, Донна МерфиПеревод: ДублированныйПродолжительность: 01:49:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466684   (81606) от 12.03.2012
+
+Человек, который хотел оставаться собой / The Big Picture / L'homme qui voulait vivre sa vie (2010) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Поль — сотрудник одной из адвокатских контор Парижа с большой зарплатой и большим домом, красивой женой и двумя сыновьями. Однако вскоре Поль узнает, что его жена изменяет ему с местным фотографом. Слепая ярость толкает Поля на безрассудный поступок. Стоя над трупом любовника, он понимает, что его красивая благополучная жизнь в прошлом…Жанр: ДрамаРежиссер: Эрик ЛартигоАктеры: Ромен Дюри, Марина Фоис, Нильс Ареструп, Бранка Катич, Катрин Денёв, Эрик РуфПеревод: Двухголосый закадровыйПродолжительность: 01:55:17
 
 ## Скачать торент
 ```bash

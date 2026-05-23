@@ -6,7 +6,7 @@ Pale Moon 32.5.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165286.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBEdit 14.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165281.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera GX 102.0.4880.117 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165279.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TagScanner 6.1.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165271.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ HDCleaner 1.321 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165269.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Tinderbox 9 v.9.5.1[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165267.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ DMG Canvas 3 v3.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165262.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Skype 8.67.0.96 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165261.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Scrivener 3 v3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165258.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ WinTools.net 23.11.1 Classic / Professional / Premium RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165257.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ iTrash 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165256.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Privacy Eraser Free 5.6.0 Build 3756 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165255.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ WinTools.net Premium / Professional / Classic 23.11.1 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165254.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Freddie Gibbs & Amerigo Gazaway - A Freddie Christmas Album (2019) [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165250.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Icecream Screen Recorder Pro 7.31 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165249.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ djay - DJ App & AI Mixer 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165245.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Listen Audiobook Player v5.2.1 (972) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165243.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Topaz Video AI 4.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165234.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mp3tag 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165230.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Adobe Media Encoder 24.0.2.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165228.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Das EFX - Real Hip-Hop (2019) Reissue, Compilation [FLAC|Lossless|Web-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165227.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ BluffTitler Ultimate 15.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165216.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Sketch 61.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165209.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Topaz Photo AI 2.0.7 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165204.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Extreme Picture Finder 3.65.11.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165198.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Emurasoft EmEditor Professional 20.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165196.jpg" />
 </div>
 
 

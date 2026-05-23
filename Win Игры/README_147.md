@@ -1,29 +1,3 @@
-###  Публикация: 1280206   (761502) от 02.02.2019
-
-Not in Heaven (2019) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Not in Heaven – это сюрреалистичное приключение в жанре ужасов от третьего лица, в котором вы окажетесь в роли восьмилетней девочки по имени Эмили. После того, как мать Эмили погибла, отцу пришлось воспитывать дочь одному.Тип издания: LicenseРазработчик: Ricardo PratasЖанр: Adventure, Quest, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E89DF01EFE6FA92773DB7C86A4945CF25359092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280198   (761498) от 02.02.2019
 
 Arc Savior (2019) [En] (1.01) License CODEX
@@ -32,7 +6,7 @@ Arc Savior (2019) [En] (1.01) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761498.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ShellShock Дилогия [Ru] (RePack) 2004-2009 | tukash
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761237.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Mars Taken (2018) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761024.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Redemption Cemetery 8: At Death's Door (2016) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760788.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760737.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Dark Romance 4: Kingdom Of Death / Мрачная история 4: Загово
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760690.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Insane Decay of Mind (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760673.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Shadwen (2016) [En/Multi] (1.0.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760597.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ The Song of Seven: Chapter One (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760596.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Panzer Elite Action - Dunes of War (2007) [Ru] (1.44.12) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760595.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Danganronpa Dilogy (2016) [En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760591.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Beyond the Invisible 2: Darkness Came (2017) [En] (1.0) Unofficial [Platinum Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760529.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Dark City: London (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760527.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Haunted Train 3: Clashing Worlds / Поезд привидений 3: Столк
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760330.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Haunted Hotel 17: Beyond the Page / Проклятый отель 17: По ту 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760327.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ EMERGENCY 20 (2017) [Multi] (4.2.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759742.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759457.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Trine (2014) [Ru/Multi] (2.12) Repack R.G. Catalyst [Enchanted Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759371.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759368.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Leveron Space (2016) [En/Chi] (1.0.1.1) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758820.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack R.G. Defoz
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758818.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ A Plot Story (2017) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758720.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Leveron Space (2016) [En/Zh] (1.0.1.1) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758712.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Haunted Hotel 19: Lost Time / Проклятый отель 19: Потерянн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758643.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Enchanted Kingdom 2: A Stranger's Venom / Зачарованное Короле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758610.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Enchanted Kingdom 2: A Stranger's Venom / Зачарованное Короле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D153B73997F69778EAAC3C1920108DE65F0BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280717   (758378) от 04.02.2019
+
+Secrets of Magic 3: Happy Halloween (2017) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктория теперь учительница в той же магической школе, где она сама постигала азы волшебства. Теперь её ждет новое задание. Близится Хэллоуин, и учителя хотят подготовить студентам сюрприз. Сможете ли вы помочь Виктории обучится основам декораторства, чтобы украсить школу к празднику? Сделайте школьный прием незабываемым!Тип издания: UnofficialРазработчик: Green Sauce GamesЖанр: Пазл, Логические игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530C272BE832DE8F9A21D8FFB4A2A70EC40E4BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 1625516   (241234) от 10.04.2023
-
-А.В. Кругликов (ред.) | Интеллектуальные технологии трансформации бизнес-моделей (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие посвящено изучению базовых методик трансформации бизнес-моделей. Трансформация представляет собой весьма сложный процесс преобразований. Конкуренция в бизнесе переходит в сферу бизнес-моделирования и создания экосистем. Выбор модели трансформации, ее адаптация к особенностям компаний и последующее управление изменениями требуют профессионального подхода, (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BD906370B8179D507B80326398C631AE922B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545261   (240890) от 18.04.2022
-
-М.М. Левицкий | Лаборатория химических историй. От электрона до молекулярных машин (2022) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Что происходит с молекулами в момент химических реакций и почему одни вещества становятся мягкими, а другие твердеют, одни приобретают упругость, а другие – хрупкость? Каким образом вязкая жидкая масса превращается в легкую приятную ткань и почему человек не может жить без полимеров? Какими были люди, совершившие величайшие открытия в химии, и какую роль сыграл элемент (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D90FC5250D2BFE47AAB60927350D8E43B984F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545102   (240880) от 18.04.2022
-
-С.Г. Прохоров, О.В. Шиндор | Аналоговая электроника в приборостроении. Руководство по решению задач (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Пособие предназначено для практических занятий по аналоговой электронике и курсового проектирования. Подробно рассмотрены принципы работы схем на пассивных и активных элементах. Рассмотрены примеры расчетов аналоговых схем на транзисторах и операционных усилителях, используемых в современной технике: расчет усилительных каскадов на транзисторах по постоянному и переменному (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D39075D5C5AF5CC65275CA9A9B0F74323CE9BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626268   (240645) от 13.04.2023
-
-Петр Кропоткин | Великая Французская революция (2023) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся русский мыслитель-анархист Пётр Кропоткин признан во всём мире как лучший историк Великой Французской революции. Он первым открыл и подробно описал её социальные, народные корни. Показал не только борьбу против монархии, но и борьбу крестьянства с буржуазией. Эта книга перевернула принятые штампы представлений об истории. Кроме того, она написана увлекательно! (   Читать дальше...   )Жанр: История России, Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B658555A2719977B076280853C533CEF55536BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626633   (240547) от 15.04.2023
-
-О. Иванов, С. Климчук | Математический анализ для первокурсников (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Книга, предлагаемая вниманию читателя, состоит из двух формально независимых текстов, дополняющих как друг друга, так и стандартный курс математического анализа (как часть курса высшей математики ) для первокурсников нематематических специальностей вузов.
-С точки зрения хронологии первой была написана и издана (на английском языке) ее вторая часть – Контрпримеры (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C81C2C67A4BD9D4A6FDB02F82FDD7A9C9727910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636764   (240454) от 01.06.2023
 
 Н.А. Кузнецов | Русский Колумб XX века. Борис Вилькицкий (2014) [DJVU, PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240454.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240365.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240219.jpg" />
 </div>
 
 
@@ -218,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240171.jpg" />
 </div>
 
 
@@ -244,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240120.jpg" />
 </div>
 
 
@@ -270,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239893.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239743.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239595.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239453.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239232.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239116.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239074.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238854.jpg" />
 </div>
 
 
@@ -480,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238837.jpg" />
 </div>
 
 
@@ -506,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238739.jpg" />
 </div>
 
 
@@ -533,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238710.jpg" />
 </div>
 
 
@@ -559,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238687.jpg" />
 </div>
 
 
@@ -585,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238624.jpg" />
 </div>
 
 
@@ -612,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238567.jpg" />
 </div>
 
 
@@ -638,7 +507,7 @@ Marcos Mateu-Mestre | Framed Drawing Techniques: Mastering Ballpoint Pen, Graphi
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238345.jpg" />
 </div>
 
 
@@ -665,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238222.jpg" />
 </div>
 
 
@@ -676,6 +545,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79FD2933250863130C4CF027BF6C2A5529704836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548175   (237991) от 02.05.2022
+
+Redman Stuart | English Vocabulary in Use. Pre-intermediate and Intermediate (2017) [PDF] [4th Edition: Book with Answers | Including MP3] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слова, которые нужны вам, чтобы общаться уверенно.
+Словарные статьи и упражнения для изучающих английский язык с уровнем Pre-Intermediate и Intermediate (B1). Книга отлично подходит как для самостоятельного обучения, так и для занятий в классе. Расширяйте свой словарный запас с легкостью, изучая 100 глав, которые содержат доступные толкования слов и тренировочные (   Читать дальше...   )Жанр: ОбразованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203021F76303984FC59CE76F6F670A136904F7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547620   (237985) от 02.05.2022
+
+Antonia Clare, J. J. Wilson | Speak Out 2nd Intermediate (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.Жанр: ОбразованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A47ABB7E077D0A289AE8E26FEAE071E78551A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546890   (237882) от 02.05.2022
+
+Сборник | Изучение иностранных языков по естественному методу [327 книги] (1736-2020) [DJVU, PDF, EPUB] [Дополнительно аудиоматериалы] [EN, DE, FR, ES, IT, RU, LA, GR]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует множество методов и методик изучения иностранных языков. Традиционный подход подразумевает изучаение грамматики, выполнение упражнений, переводов, что больше напоминает изучение лингвистики, а не языка. Однако, существует и другой, более естественный (Natural) метод обучения, который иногда еще называется прямым (Direct). Он был разработан около 1900 года, (   Читать дальше...   )Жанр: Учебная, Языкознание, СловариФормат: DJVU, PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859BF3F304A9A3FF4778A8631F6F823319E25993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639837   (237825) от 15.06.2023
+
+М.И. Шахпаронов | Механизмы быстрых процессов в жидкостях (1980) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237825.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются теоретические основы методов изучения кинетики и механизмов быстрых и сверхбыстрых процессов, протекающих в жидкостях. Теоретические положения иллюстрируются примерами.
+Книга содержит ряд оригинальных разработок и приложений.Жанр: ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0626268E18602EE36077B5F496C8CB7D6005FA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546895   (237672) от 03.05.2022
+
+Сборник | Подборка атласов по истории [171 книга] (1885-2020) [DJVU, PDF, EPUB, JPG, BMP] [RU, EN, PL, BE]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обширная подборка исторических атласов: от школьных и детских до узкоспециализированных. Атласы посвящены как отдельным историческим эпохам, континентам, странам, так и всей истории мира в целом. Взято с сайта b-ok.cc.Жанр: Карты, атласыФормат: DJVU, PDF, EPUB, JPG, BMP, DOCX, AZW3, CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EC82C8B1DB3069617AE21FB9785C254865C223
 ```
 
 https://mybot314.ru/tekegram_catalog/

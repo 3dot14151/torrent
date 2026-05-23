@@ -6,7 +6,7 @@ Marvel’s Avengers (2020) [Ru/Multi] (1.3) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362074.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360775.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.24) License GOG (обновляема�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359725.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Final Fantasy VII [En] (Repack/1.0.6) 2012 | R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359479.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира [Ru] 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356850.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0) License GOG [GOG Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356282.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WARSAW (2019) [Ru/Multi] (Build 76) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355955.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Nights of Azure 2: Bride of the New Moon (2017) [En/Ja/Ch] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352846.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Gauntlet (2014) [Ru/En] (2.2/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349519.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Veil of Crows (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349394.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dragon Fin Soup (2015) [En/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348281.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ God Eater: Resurrection (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346752.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345108.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344118.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340197.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340196.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wave of Darkness (2015) [En/Fr] (1.50s) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338934.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338334.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tyranny (2016) [Ru/Multi] (1.0.1.0010) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337470.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336767.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Jack Move (2022) [Ru/Multi] (1.0.5-118) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329541.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Gamedec (2021) [Ru/Multi] (1.7.0.r64951/dlc) Repack Other s [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326030.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325061.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Fallout 2 [Ru] (L) 1998
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325043.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Vendetta: Curse of Raven's Cry (2015) [En/De] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323064.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ The Other Half (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320447.jpg" />
 </div>
 
 

@@ -1,136 +1,3 @@
-###  Публикация: 1269983   (215520) от 17.12.2018
-
-Б.Б. Оразбаев и др. | Теория и методы системного анализа (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В пособии систематизированы и изложены основные методы системного анализа, применяемые при управлении производственными системами и технологическими процессами. Изложены основы теории системного анализа, изучены информационные системы в системном анализе. Рассмотрены принципы, этапы и методы системного анализа, вопросы управления в системах. Изложена методология (   Читать дальше...   )Жанр: Системный анализФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4ED50793AB12FF6666C2AD11A1C6FF6FC769721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270021   (215317) от 17.12.2018
-
-О.А. Москвитина и др. | Сборник примеров и задач по программированию (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Цель книги - помочь изучающим язык Турбо Паскаль 7.0 приобрести практические навыки разработки алгоритмов и программ с использованием принципов структурного программирования путем решения специально подобранных задач.
-В систематизированном виде приведены необходимые теоретические сведения и примеры решения типовых задач. По каждой теме приведены наборы заданий различной (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38A0137B8D316DC1E1956F1115C855F28E4E59C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514696   (215004) от 04.12.2021
-
-Г.В. Ерофеева и др. | Практические занятия по общему курсу физики (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Учебник содержит теоретическую часть, тестовые задания и задачи по разделам курса общей физики «Механика», «Молекулярная физика. Термодинамика», «Электричество», «Электромагнетизм», «Колебания. Волновая оптика», «Атомная и ядерная физика. Элементы квантовой механики».
-Для практических занятий по физике, индивидуальной и самостоятельной работы студентов элитного технического (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D5C733E6BCC12221DFE9AD121C3F7A5A4AF978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586673   (214495) от 28.10.2022
-
-А.А. Самарский, А.В. Гулин | Численные методы (1989) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Излагаются основные принципы построения и исследования численных методов решения на ЭВМ различных классов математических задач. Наряду с традиционными разделами, такими как интерполирование, численное интегрирование, методы решения задач Коши для обыкновенных дифференциальных уравнений, большое место в книге занимают разностные методы для уравнений в частных производных (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D863C8CEDE299E369B590CFC641896BEF9612CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343866   (214489) от 08.12.2019
-
-С.А. Бельков | Прикладное программирование с использованием языка С-Шарп (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие предназначено для студентов-бакалавров, уже прошедших ранее курс изучения языка программирования С++ и приступающих теперь к изучению языка нового программирования С-Шарп (C#). Основное внимание уделено особенностям практического освоения нового языка программирования.
-Данное пособие будет полезно для студентов средних курсов, обучающихся разработке (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6519EAFE59999A4135BF6F2133A29F0291E612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586290   (214362) от 28.10.2022
 
 Л.И. Камынин | Курс математического анализа [2 книги] (1995 - 2001) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214362.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214244.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214164.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214151.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214144.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214072.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213645.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213505.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213168.jpg" />
 </div>
 
 
@@ -378,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213056.jpg" />
 </div>
 
 
@@ -405,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213036.jpg" />
 </div>
 
 
@@ -431,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213032.jpg" />
 </div>
 
 
@@ -458,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212793.jpg" />
 </div>
 
 
@@ -484,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212259.jpg" />
 </div>
 
 
@@ -510,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212182.jpg" />
 </div>
 
 
@@ -537,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211774.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211667.jpg" />
 </div>
 
 
@@ -589,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211641.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211625.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211475.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211468.jpg" />
 </div>
 
 
@@ -678,6 +545,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A401EF7B5322191BEC339176F7F88AF0F6E77B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639818   (211455) от 15.06.2023
+
+А.И. Слободянюк | Физика для любознательных [4 книги] (2014 - 2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие в четырёх частях для средних учебных заведений.Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443B72224C1D6F7DA69512F7541FF3F32EEB8D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586176   (211454) от 25.10.2022
+
+В.В. Подбельский | Программирование. Базовый курс С# (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211454.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основе последних версий языка программирования С# и платформы .NET Framework изложены основные концепции и механизмы современного программирования. Методика изложения и тщательно отобранные примеры позволяют освоить не только синтаксис и семантику языка С#, но и изучить фундаментальные принципы процедурного, объектного, объектно-ориентированного и обобщенного (   Читать дальше...   )Жанр: Языки программированияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626972E2548AE6E305BCE803666EA281BEE5AAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586058   (211434) от 25.10.2022
+
+Г.М. Фихтенгольц | Основы математического анализа [2 книги] (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211434.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Основы математического анализа» задуманы как учебник анализа для студентов первого и второго курсов математических отделений университетов; в соответствии с этим и книга делится на два тома.
+При составлении был широко использован трехтомный «Курс дифференциального и интегрального исчисления», но содержащийся в нем материал подвергся сокращению и переработке в целях (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464E76DD95285512F9844C3E433F3DDA069E2EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640156   (211394) от 16.06.2023
+
+Е.А. Ефимова | Основы программирования на языке Visual Prolog (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211394.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе изучается логическое программирование и язык Пролог. В качестве реализации языка Пролог используется современная версия языка Visual Prolog. Предназначен для начинающих.
+Рассматриваются основные теоретические понятия логического программирования, а также приемы и методы программирования на языке Пролог. Изучаются основы программирования на языке Visual Prolog (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324C37718253C5E740F4555D08F5712141A458F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640274   (211317) от 17.06.2023
+
+Б.Б. Буховцев и др. | Сборник задач по элементарной физике (3 издание) (1968) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник задач по физике составлен в соответствии с материалом, изложенным в "Элементарном учебнике физики" под редакцией академика Г.С. Ландсберга. Большинство задач значительно превосходит по трудности задачи, предлагаемые обычно учащимся средних школ. Все они снабжены подробными решениями. Часть задач сборника составляют переработанные задачи (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225D48486128C390201358022315C12F21270FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

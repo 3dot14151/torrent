@@ -1,38 +1,3 @@
-###  Публикация: 513864   (660536) от 22.06.2012
-
-VA - Sexy Trance #39 (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. DNS Project feat. Madelin Zero - Another Day (KhoMha Remix) [07:22]
- 02. Cerf, Mitiska & Jaren - Another World (Shogun Remix) [07:34]
- 03. David Forbes feat. Antonia Lucas - Because of You (Pulser Remix) [05:26]
- 04. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix) [06:11]
- 05. Indecent Noise - Civitanova (Nick Callaghan & Will Atkinsons Dark Sessions Remix) [07:30]
- 06. EDX - D.A.N.C.E. (Original Mix) [05:43]
- 07. Daniel Kandi & Phillip Alpha - Don't Fix It (Original Mix) [07:46]
- 08. Dj Nail with Kudesnik & PriSe feat. V.Ray - Falling With You [05:59]
- 09. Fabio XB feat. Simona Barbieri - Flash Of Life (Cressida Remix) [07:00]
- 10. Ferrit - Galaxy [05:11](   Читать дальше...   )2012Жанр: Trance, Vocal TranceПродолжительность: 03:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31FE50751F8B25E031A23BABA4A685B2F5848B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514044   (660505) от 22.06.2012
 
 VA - Esthetics Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
@@ -41,7 +6,7 @@ VA - Esthetics Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660505.jpg" />
 </div>
 
 
@@ -76,7 +41,7 @@ VA - Летняя Авто Дискотека DFM 50+50 (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660497.jpg" />
 </div>
 
 
@@ -111,7 +76,7 @@ VA - Super Bomb Dance 8 (2012) [MP3|320 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660462.jpg" />
 </div>
 
 
@@ -146,7 +111,7 @@ VA - Я тебя очень жду. Душевный шансон (2015) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660118.jpg" />
 </div>
 
 
@@ -175,7 +140,7 @@ VA - 130 European Monster Chart (2017) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660107.jpg" />
 </div>
 
 
@@ -204,7 +169,7 @@ VA - Новая Русская Дискотека Vol.8 (2017) [MP3|256-320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660106.jpg" />
 </div>
 
 
@@ -233,7 +198,7 @@ VA - Blues Collection 9 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660005.jpg" />
 </div>
 
 
@@ -262,7 +227,7 @@ VA - Deep Vocal Relax (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659939.jpg" />
 </div>
 
 
@@ -291,7 +256,7 @@ VA - I Love Italo Disco ot Vitaly 72 - 3 (2015) [MP3|320 кб/с]<Italo-Disco, S
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659914.jpg" />
 </div>
 
 
@@ -320,7 +285,7 @@ VA - Дискотека 2017 Deep House - The Best Vol.3 от NNNB (2017) [MP3|3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659703.jpg" />
 </div>
 
 
@@ -349,7 +314,7 @@ VA - Deep House Collection Vol.170 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659668.jpg" />
 </div>
 
 
@@ -378,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659598.jpg" />
 </div>
 
 
@@ -407,7 +372,7 @@ VA - Top 100 Русский Рок от Зайцев. Нет (2015) [MP3|256 к�
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659566.jpg" />
 </div>
 
 
@@ -436,7 +401,7 @@ VA - Зайцев.нет: Музыкальные новинки. Май (2018) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659529.jpg" />
 </div>
 
 
@@ -465,7 +430,7 @@ VA - Ibiza Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659323.jpg" />
 </div>
 
 
@@ -494,7 +459,7 @@ VA - Empire Records - Retromania 2 (2017) [MP3|320 Kbps] <House, Nu Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659291.jpg" />
 </div>
 
 
@@ -523,7 +488,7 @@ VA - Sexy Trance #86 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659141.jpg" />
 </div>
 
 
@@ -552,7 +517,7 @@ VA - Summer Dance Hits (2015) [MP3|320 кб/с]<Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659065.jpg" />
 </div>
 
 
@@ -581,7 +546,7 @@ VA - USA Hot Top 40 Singles Chart 6 June (2015) [MP3|~245 кб/с (V0)]<Dancehal
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659057.jpg" />
 </div>
 
 
@@ -610,7 +575,7 @@ VA - Morning Chill & Relax (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659042.jpg" />
 </div>
 
 
@@ -639,7 +604,7 @@ VA - Тузы козырные Блатной суперсборник (2015) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658950.jpg" />
 </div>
 
 
@@ -668,7 +633,7 @@ VA - Популярная хитовая сотка (2015) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658788.jpg" />
 </div>
 
 
@@ -697,7 +662,7 @@ VA - Top 100 Зайцев.Нет Май (2017) [MP3|192-320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658784.jpg" />
 </div>
 
 
@@ -726,7 +691,7 @@ VA - Дискотека забытых хитов #2 (2017) [MP3|320 Kbps] <Euro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658544.jpg" />
 </div>
 
 
@@ -755,7 +720,7 @@ VA - Top 100 Русский Рэп от Зайцев.Нет (2015) [MP3|256 кб
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658431.jpg" />
 </div>
 
 
@@ -769,6 +734,35 @@ VA - Top 100 Русский Рэп от Зайцев.Нет (2015) [MP3|256 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970B6CEFE8692B05CFFAC319426B77872D625B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902971   (658408) от 30.05.2015
+
+Чиж & Co - Коллекция легендарных песен (2014) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Еду, еду
+02. О любви
+03. Перекресток
+04. Вечная молодость(   Читать дальше...   )Жанр: RockПродолжительность: 05:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758D3BA5B9FBC1593A3EBF00846AF94B4057FD15
 ```
 
 https://mybot314.ru/tekegram_catalog/

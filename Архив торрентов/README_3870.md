@@ -6,7 +6,7 @@ Winaero Tweaker 1.53 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211494.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics BoostSpeed 12.3.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211493.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LDPlayer 9.0.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211486.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ OCCT 12.0.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211481.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CPUID HWMonitor 1.47 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211479.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Total Commander 11.00 beta7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211477.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adguard 7.11.0 (7.11.4078.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211476.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1406) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211474.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.80.6200 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211471.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Google Chrome 114.0.5735.134 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211470.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Graebert ARES Commander 2024.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211469.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Microsoft .NET 7.0.7 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211465.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ StartAllBack 3.6.7 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211458.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Antivirus Removal Tool 2023.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211457.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AIMP 5.03 Build 2397 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211453.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Driver Easy Pro 5.8.1.41398 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211442.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ FastCopy 4.2.1 Portable by AlexYar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211441.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Opera 99.0.4788.77 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211438.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ StartAllBack 3.6.6 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211436.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ UnHackMe 14.30.2022.1025 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211430.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VideoProc Converter 4K 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211428.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Viber 20.3.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211423.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Viber 20.3.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211421.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ StartAllBack 3.6.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211401.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Topaz Video AI 3.3.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211399.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Total Commander 10.52 (26.10.2022) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211390.jpg" />
 </div>
 
 

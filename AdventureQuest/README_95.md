@@ -1,29 +1,3 @@
-###  Публикация: 1769691   (32636) от 29.12.2024
-
-Doll Impostor (2024) [Ru/Multi] (Update 10 HotFix 3) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Doll Impostor погружает игрока в атмосферу страха и напряжения. Действие разворачивается в ограниченном пространстве, где игроку предстоит взять на себя роль хранителя коллекции жутких кукол. Однако среди них затесался самозванец, который стремится избежать разоблачения любой ценой. Задача игрока - вычислить самозванца до 9 утра, иначе его ждут ужасные последствия.Тип издания: RepackРазработчик: HeadArrowЖанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A153CBA0593023E624F2BDBFFC91A29DD793F565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769492   (32632) от 29.12.2024
 
 Jusant (2023) [Ru/Multi] (1.07.1498596) Repack Let'sРlay
@@ -32,7 +6,7 @@ Jusant (2023) [Ru/Multi] (1.07.1498596) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32632.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.09) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32613.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32611.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32607.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pools (2024) [Ru/Multi] (12.12.24) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32604.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32599.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9129) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32585.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32535.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Machinika Museum (2021) [Ru/Multi] (1.24050201) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32515.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dustborn (2024) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32463.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32462.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Free Durov (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32460.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Locked In Mind (2023) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32443.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Strange City (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32414.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Follow the meaning (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32390.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Stars In The Trash (2024) [Ru/Multi] (Build 20241208) Repack FitGirl [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32362.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Song of Farca (2021) [Ru/Multi] (1.0.2.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32157.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32141.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32124.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Slay the Princess (2023) [Ru/Multi] (build 16887603) Repack seleZen [The Pristin
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32107.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [Multi] (1.07) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32092.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Slay the Princess - The Pristine Cut (2023) [Ru/Multi] (Build 16887603) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32087.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD (2019) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32082.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32043.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32040.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Joyville 2 - это хоррор-головоломка от первого ли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F59ADABDF04C480DCC2A1CAFE40BACE8955CD8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771046   (32035) от 04.01.2025
+
+Locked In Mind (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32035.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Locked in Mind вы станете звездой своего собственного приключения в комнате побега. Оказавшись в ловушке таинственного и загадочного виртуального мира, вы должны использовать свою смекалку и навыки решения проблем, чтобы пройти через сложные препятствия и раскрыть секреты окружающего вас мира. По мере прохождения игры вы столкнетесь с множеством головоломок, (   Читать дальше...   )Тип издания: SceneРазработчик: Bendegúz Anisics, András NemesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E3E45DACA3C208A2B8076050708D223DD0DF27
 ```
 
 https://mybot314.ru/tekegram_catalog/

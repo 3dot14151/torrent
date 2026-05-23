@@ -1,32 +1,3 @@
-###  Публикация: 1163645   (448422) от 06.09.2017
-
-VA - Digital Tech House (2017) [MP3|320 Kbps] <Tech House, Minimal Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Boris Brejcha - Anthurie
-002. Trump - Noteam
-003. Cut N Glue - Headliner
-004. Topmodel - Major(   Читать дальше...   )Жанр: Tech House, Minimal ElectroПродолжительность: 10:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A8C94315F634FC72B70CC4D4162F0724A08EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163638   (448420) от 06.09.2017
 
 VA - Pandemonium: Syntwave Music (2017) [MP3|320 Kbps] <Synthwave, Synthpop, Electronic>
@@ -35,7 +6,7 @@ VA - Pandemonium: Syntwave Music (2017) [MP3|320 Kbps] <Synthwave, Synthpop, Ele
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448420.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Сладкая парочка.Только лучшие треки (2012) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448410.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ VA - Зайцев.нет: Лучшие новинки Сентября 2018 [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448313.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ VA - US Dance Airplay Hot 50 September 2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448284.jpg" />
 </div>
 
 
@@ -157,7 +128,7 @@ VA - Инструментальная музыка (2012) vol. № 81 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448168.jpg" />
 </div>
 
 
@@ -192,7 +163,7 @@ VA - Инструментальная музыка (2012) vol. № 83 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448165.jpg" />
 </div>
 
 
@@ -227,7 +198,7 @@ VA-New Age Style - Enigmatic 7 (2012) [MP3|~245 кб/с (V0)]<New Age, Enigmatic
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448164.jpg" />
 </div>
 
 
@@ -253,7 +224,7 @@ VA - Инструментальная музыка (2012) vol. № 82 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448161.jpg" />
 </div>
 
 
@@ -288,7 +259,7 @@ VA - Инструментальная музыка (2012) vol. № 79 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448039.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ VA - Инструментальная музыка (2012) vol. № 80 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448018.jpg" />
 </div>
 
 
@@ -358,7 +329,7 @@ VA - Инструментальная музыка (2012) vol. № 84 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447927.jpg" />
 </div>
 
 
@@ -393,7 +364,7 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.64
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447685.jpg" />
 </div>
 
 
@@ -422,7 +393,7 @@ VA - Top 100 Зайцев.Нет Август (2017) [MP3|320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447683.jpg" />
 </div>
 
 
@@ -451,7 +422,7 @@ VA - Music News vol.37 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447362.jpg" />
 </div>
 
 
@@ -480,7 +451,7 @@ VA - TOP September (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447217.jpg" />
 </div>
 
 
@@ -509,7 +480,7 @@ VA - Клубная Супер Дискотека Vol.2 (2015) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447123.jpg" />
 </div>
 
 
@@ -538,7 +509,7 @@ Al Bano & Romina Power - Good Songs (2015) [MP3|128 кб/с]<Italo pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447114.jpg" />
 </div>
 
 
@@ -567,7 +538,7 @@ VA - Попсовая соточка MTV. Сборник 8 (2015) [MP3|256-320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447108.jpg" />
 </div>
 
 
@@ -596,7 +567,7 @@ Texas - Compilation (2022) [MP3|320 Kbps] <Pop, Pop - Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447086.jpg" />
 </div>
 
 
@@ -625,7 +596,7 @@ Ricchi E Poveri - Good Songs (2015) [MP3|320 кб/с]<Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447021.jpg" />
 </div>
 
 
@@ -654,7 +625,7 @@ VA - Music For You vol. 23 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446993.jpg" />
 </div>
 
 
@@ -683,7 +654,7 @@ VA - Music News vol.209 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446992.jpg" />
 </div>
 
 
@@ -712,7 +683,7 @@ VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446912.jpg" />
 </div>
 
 
@@ -741,7 +712,7 @@ VA - Trance Floor Astronomical (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446763.jpg" />
 </div>
 
 
@@ -770,7 +741,7 @@ VA - Mystical n Sexy Lounge (2016) [MP3|256-320 Kbps] <Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446750.jpg" />
 </div>
 
 
@@ -784,6 +755,41 @@ VA - Mystical n Sexy Lounge (2016) [MP3|256-320 Kbps] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:937C49870A7F6D796A90D99F620E0E16ECACAEF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553061   (446705) от 27.09.2012
+
+VA - Dub step from evolinte vol.12 (2011) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Assault Terror - Terror (3:54)
+2. ASYS - Bassturbation (Oyaebu Remix) (4:08)
+3. Atomic - Missile (4:10)
+4. Atomic - Reflux (4:14)
+5. Brainpain - Engine (4:13)
+6. Captain Panic! - Screamer (Gambit Remix) (4:22)
+7. Captain Panic! - Screamer (VIP) (5:03)
+8. Chaosphere - Empire (4:13)
+9. Chaosphere - System (4:03)
+10. Chaosphere - Venom (4:50)(   Читать дальше...   )Жанр: DubstepПродолжительность: 02:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE02A73697770330E12B187DE01152BF4C07C5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

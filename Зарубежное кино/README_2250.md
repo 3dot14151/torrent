@@ -1,55 +1,3 @@
-###  Публикация: 1799229   (16813) от 26.05.2025
-
-Учитель, обещавший море / El maestro que prometio el mar / The Teacher Who Promised the Sea (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1935 год. Молодой учитель Антони Бенайжес приезжает в провинцию Бургос, чтобы преподавать в деревенской школе. С помощью новаторского педагогического метода Антони вдохновляет своих учеников и дает обещание: показать им море, которого они никогда не видели. Но такой свободный и творческий подход не устраивает часть консервативно настроенных родителей.Производство: Испания / Filmax, Institut Català de les Empreses Culturals (ICEC), Instituto de la Cinematografía y de las Artes Audiovisuales (ICAA)Жанр: драма, биографияРежиссер: Патрисия ФонтАктеры: Энрик Окер, Лайа Коста, Луиза Гаваса, Рамон Агирре, Гаэль Апарисио, Альба Эрмосо, Николас Кальво, Антонио Мора, Мило Табоада, Хорхе РочаПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, испанскийСубтитры: Русские (Forced, Full), испанские (Full, SDH)Продолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E0CE57529FEFD2E207D5382FBBC472B386B6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795941   (16794) от 27.05.2025
-
-Как стать миллионером / The Luckiest Man in America (2024) WEB-DL [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Май 1984 года. Майкл Ларсон, безработный водитель грузовика с мороженым, становится участником телеигры Press Your Luck и одерживает самую длинную серию побед в истории передачи. Организаторам шоу предстоит понять, мужчина пришёл к победе с помощью везения или хитрости.Производство: США, Колумбия, Канада, Чили / Exemplary Films, Fabula, Jaguar BiteЖанр: триллерРежиссер: Самир ОливеросАктеры: Пол Уолтер Хаузер, Уолтон Гоггинс, Шамир Андерсон, Дэвид Стрэтэйрн, Брайан Джерати, Патти Харрисон, Мэйси Уильямс, Рики Рассерт, Дэвид Рисдаль, Шонетт Рене УилсонПеревод: Многоголосый профессиональный (HDrezka Studio, заКАДРЫ), авторский (А.Кашкин)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF3BD30531A7A1C723B8F962584BC28BAD22D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799327   (16739) от 27.05.2025
 
 Бешеные псы / Reservoir Dogs (1992) UHD BDRip [AV1/2160p] [4K, HDR10+, Dolby Vision Profile 10.1, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16739.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16730.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16718.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16711.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16696.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16618.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16609.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16560.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16552.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16546.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16522.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16493.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16457.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16395.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16392.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16388.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16371.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16357.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16354.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16353.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16317.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16288.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16241.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16237.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E3CF170DCE284386021753DFF9C1718C0935E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800064   (16167) от 31.05.2025
+
+Шоугёлз / Showgirls (1995) UHD BDRip [H.265/1080p] [10-bit] [US Transfer Vinegar Syndrome]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая длинноногая танцовщица Номи отчаянно пытается добиться успеха в Лас-Вегасе и устроиться в популярное шоу. Но пока ей приходится согласиться на работу в стриптизе. Вскоре девушке достаётся счастливый билет - она знакомится с королевой сцены Лас-Вегаса Кристал. Та устраивает Номи в своё шоу и вводит её в истинный мир шоу-бизнеса Лас-Вегаса - мир случая, предательства (   Читать дальше...   )Производство: Франция, США / Carolco Pictures Inc., Chargeurs, United Artists, Vegas ProductionsЖанр: драмаРежиссер: Пол ВерховенАктеры: Элизабет Беркли, Кайл МакЛоклен, Джина Гершон, Гленн Пламмер, Роберт Дави, Алан Рачинс, Джина Равера, Лин Туччи, Грег Трэвис, Аль РуссоПеревод: дублированный официальный (Невафильм), профессиональный многоголосый (CP Digital, Black Street Records, CTC, ТакТребаПродакшн), профессиональный двухголосый (Від студия), авторский (Юрий Живов, Михаил Яроцкий, Андрей Гаврилов)Язык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB52ADDC3117B25279B6E30E976AFBBA40F72CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799963   (16140) от 31.05.2025
+
+Переводчица / The Interpreter (2005) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переводчица случайно узнает о готовящемся убийстве главы одного африканского государства, который должен на днях посетить Генеральную ассамблею ООН. Пытаясь предотвратить покушение, она подвергает свою жизнь смертельной опасности. И пока она сама не стала жертвой, ей отчаянно нужно, чтобы кто-нибудь ей поверил и помог...Производство: Великобритания, Франция, Германия, США, ЮАР / Mirage Entertainment, Misher Films, Motion Picture JOTA Produktions, Studio Canal, Universal Pictures, Working Title FilmsЖанр: триллер, криминал, детективРежиссер: Сидни ПоллакАктеры: Николь Кидман, Шон Пенн, Кэтрин Кинер, Еспер Кристенсен, Иван Атталь, Эрл Кэмерон, Джордж Харрис, Майкл Райт, Клайд Кусацу, Эрик КинлисайдПеревод: Дублированный, многоголосый, двуголосый, одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Forced, SDH)Продолжительность: 02:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52D26888694FC7052F4935D1CD94D6499C4CB32
 ```
 
 https://mybot314.ru/tekegram_catalog/

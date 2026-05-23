@@ -6,7 +6,7 @@ Caladan Brood - Echoes Of Battle (2013) [MP3|320 кб/с]<Atmospheric Black, Epi
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976635.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Marty Friedman - 11 albums (1988-2011) Discography [MP3|224 - 320 кб/с] <thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975953.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Abbath - Abbath (2016) [MP3|320 кб/с] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975668.jpg" />
 </div>
 
 
@@ -101,7 +101,7 @@ Pelican - Australasia (2003) [MP3|320 kbps]<Instrumental Artcore / Sludge Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974911.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ My Dear Addiction - Kill the Silence (2016) [MP3|320 кб/с] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974475.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Saxon - Sacrifice (2013) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973756.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ewigheim - Nachruf (2013) [MP3|320 кб/с] <Industrial Metal, Gothic Metal, Dar
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973434.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Ecliptica - Ecliptified (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973362.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Mr. Ego - Se7en (2015) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973360.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Rhapsody Of Fire - Into the Legend (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973275.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Dissfigured - Thousand Yard Stare (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972259.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Non Divine Sun - Non Divine Sun (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972257.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Brainstorm - Scary Creatures (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971941.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Shok Paris - Full Metal Jacket (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970733.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Delain - Apocalypse & Chill (2020) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970730.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Sepultura - Quadra (2020) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970641.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Loathe - I Let It in and It Took Everything (2020) [MP3|320 Kbps] <Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968813.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Sylosis - Cycle of Suffering (2020) [MP3|320 Kbps] <Melodic Death Metal, Thrash 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968809.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Unzucht - Jenseits der Welt (2020) 2CD [MP3|320 kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968750.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ravenword - Transcendence (2020) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968749.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Inhaler - Inhaler (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967867.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Orphaned Land - The Never Ending Way Of ORwarriOR (2010) [MP3|320 kbps]<Oriental
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966549.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Agonal - Death Defeated (2016) [MP3|320 кб/с] <Doom, Death, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965742.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Jason Becker -8 albums + 2 Tributes (1987 - 2012) Discography [MP3|192 - 320 к�
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965166.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Michael Angelo Batio - 9 albums (1995 - 2009) Discography [MP3|192 кб/с]<Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965095.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Dethrone - Incinerate All (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964817.jpg" />
 </div>
 
 

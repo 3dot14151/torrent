@@ -6,7 +6,7 @@ NepTunes 1.63 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869967.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chikoo 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868994.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tipard Mac 3D Converter 6.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868986.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ QR Factory 2.9.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868824.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ iWork 09.3 (2012) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868779.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Tipard PDF to Word Converter for Mac 3.1.26 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868470.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ LogRabbit 1.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868266.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ TuneBoto Amazon Music Converter 2 v2.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868262.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868134.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Path Finder 10 v10.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868012.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Joyoshare Audio Recorder 1.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867199.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Joyoshare Media Cutter 3.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867120.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Smart Trash 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866680.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Valentina Studio Pro 11.4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866671.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ OnTime PRO 3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866669.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ TuneBoto Amazon Video Downloader 1.4.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866668.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ TunePat Amazon Video Downloader 1.4.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866662.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Satellites 1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866661.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ TunePat Amazon Music Converter 2 v2.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866598.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Tunepat Tidal Media Downloader 1.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866465.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ TunePat Spotify Converter 1.5.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866460.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ WinZip Mac Pro 9 v9.0.5554 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866350.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Templates Bundle for iWork - Templates Guru 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866234.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Pixellu SmartAlbums 2 v2.0.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866093.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ SketchUp Pro 2021.1.2 v21.1.331 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866077.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Allavsoft Video Downloader Converter 3.22.4.7405 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865622.jpg" />
 </div>
 
 

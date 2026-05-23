@@ -1,88 +1,3 @@
-###  Публикация: 1643990   (209810) от 04.07.2023
-
-Джон Гришэм | Округ Форд. Последний присяжный (2023) [MP3, Станислав Старков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Убийца выходит на свободу… И теперь он готов мстить
-Девять лет назад тихий южный городок был потрясен сенсационным процессом! Наследник одной из могущественнейших семей штата получил пожизненный срок за жестокое убийство молодой красивой вдовы…
-Все помнят, как он угрожал присяжным местью во время суда.
-А теперь, девять лет спустя, он досрочно освобожден.(   Читать дальше...   )Жанр: современный детектив, зарубежный детективПеревод: Ирина ДоронинаПродолжительность: 11:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D07E2A81694E45F29021859C8EA2B1DC024D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644010   (209804) от 04.07.2023
-
-Саймон Бекетт | Там, где дым (2023) [MP3, Валерий Захарьев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Девушка забеременела при помощи ЭКО от человека, которого видела лишь на картинке. Но незнакомец убит и оказывается совершенно другим человеком. Кто и зачем похитил его личность?
-
-Забеременев при помощи ЭКО от симпатичного психолога Алекса Тернера, найденного по объявлению в медицинском журнале, и отправив будущему отцу сообщение о радостном событии, успешная бизнес-леди (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПродолжительность: 09:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DD4A0FEB7B25F5A995E70D016B28FCDE967158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643992   (209800) от 04.07.2023
-
-Джон Гришэм | Камино (Книга 1). Остров Камино (2023) [MP3, Валентин Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Сможет ли начинающая писательница разгадать загадку украденных рукописей?
-Ограблена библиотека Принстонского университета! Похищены бесценные рукописи Фрэнсиса Скотта Фицджеральда…
-Полиция и ФБР – в тупике. И тогда нанятое страховой компанией частное детективное агентство, специализирующееся на розыске краденых предметов искусства, начинает собственную охоту на похитителей. (   Читать дальше...   )Жанр: современный детектив, зарубежный детективПродолжительность: 09:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3079FB7F7D94EADE826400731884C49F713374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644037   (209797) от 04.07.2023
 
 Кейт Стюарт | Стая (2023) [MP3, Ольга Миронова]
@@ -91,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209797.jpg" />
 </div>
 
 
@@ -120,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209762.jpg" />
 </div>
 
 
@@ -148,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209737.jpg" />
 </div>
 
 
@@ -176,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209696.jpg" />
 </div>
 
 
@@ -203,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209695.jpg" />
 </div>
 
 
@@ -229,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209687.jpg" />
 </div>
 
 
@@ -255,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209683.jpg" />
 </div>
 
 
@@ -281,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209673.jpg" />
 </div>
 
 
@@ -307,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209631.jpg" />
 </div>
 
 
@@ -333,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209623.jpg" />
 </div>
 
 
@@ -359,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209615.jpg" />
 </div>
 
 
@@ -385,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209597.jpg" />
 </div>
 
 
@@ -411,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209563.jpg" />
 </div>
 
 
@@ -437,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209556.jpg" />
 </div>
 
 
@@ -466,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209555.jpg" />
 </div>
 
 
@@ -494,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209527.jpg" />
 </div>
 
 
@@ -520,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209515.jpg" />
 </div>
 
 
@@ -546,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209482.jpg" />
 </div>
 
 
@@ -573,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209408.jpg" />
 </div>
 
 
@@ -599,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209392.jpg" />
 </div>
 
 
@@ -628,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209369.jpg" />
 </div>
 
 
@@ -655,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209358.jpg" />
 </div>
 
 
@@ -681,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209356.jpg" />
 </div>
 
 
@@ -694,6 +609,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BB94718CAA143F7CF39FB9B68CFEF603EE9B38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645508   (209355) от 10.07.2023
+
+Игорь Осипов | Мастер для эльфийки, или приключения странствующего электрика (2023) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209355.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мастер для эльфийки, или приключения странствующего электрика» – фантастический роман Игоря Осипова, жанр фантастика, альтернативная история.
+И восстали машины из ядерного пекла… но это было давно, огонь погас, машины заржавели, а на остывшем пепле возникли новые города и народы, среди которых и лежит путь нашего героя – странствующего мастера гильдии электриков, (   Читать дальше...   )Жанр: ФантастикаИздательство: ИДДКПродолжительность: 09:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DD37F87F40A863A6207F4D8B061FE2DF8FCD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645436   (209337) от 09.07.2023
+
+Роберт Маккаммон | Кусака (2021) [MP3, Валерий В.]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький, захолустный городишко Инферно. Люди, одни из которых мечтают уехать, а другие понимают, что в этой жизни им ловить нечего да и негде. Подростки, предел мечтаний которых работать на местного наркоторговца, а единственное развлечение — борьба с другой бандой. У всех свои маленькие проблемы, которые скоро забудутся. Останется одна большая — ВЫЖИТЬ. Таинственный (   Читать дальше...   )Жанр: Фантастика, ужасыИздательство: Аудиокнига своими рукамиПродолжительность: 18:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1A76009F46DAC6416E06F4263427E47D640A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606497   (209330) от 22.01.2023
+
+Дмитрий Ра | Константин Киба (Книга 2). Превосходство Неодаренного. Том 2 (2023) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я – Константин Киба, бывший Первый Хранитель богини-паучихи, стал в новом мире первым среди последних в школе неодаренных «Новая Эра». И доказал, что меч в руках идиота всегда останется зубочисткой, тогда как зубочистка в моих руках – смертельное оружие для любого… недооценивающего меня врага.Жанр: Боевое фэнтези, Магические академии, Попаданцы, Юмористическое фэнтезиПродолжительность: 07:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E746F43792A230B548CD7C52EC88E0CB9A3F9A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

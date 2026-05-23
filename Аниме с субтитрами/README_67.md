@@ -6,7 +6,7 @@ Honoo Tripper / Fire Tripper / Сквозь огонь [1985, OAV] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535058.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534955.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Junketsu no Maria | Непорочная Мария [2015, TV, 12 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534443.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534442.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Kubikiri Cycle: Aoiro Savant to Zaregotozukai | Обезглавливающий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534283.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533967.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Akatsuki no Yona | Рассвет Ёны [2015, OVA, 3 эп.] DVDrip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533961.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532571.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532562.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532550.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532544.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532441.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sekai de Ichiban Tsuyoku Naritai! | SekaTsuyo | Wanna Be the Strongest in the Wo
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532356.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mahou no Stage Fancy Lala / Magical Stage Fancy Lala / Волшебная сце
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532336.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Souryuuden / Legend of the Dragon Kings / Легенда о Королях-Др�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532306.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530686.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Pani Poni Dash! OVA / Пани Пони Дэш! OVA [2009] DVDRip upconvert raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530007.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Tomodachi Game | Игра друзей [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529643.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Miss Monochrome The Animation 2 | Мисс Монохром 2 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528549.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Miss Monochrome The Animation 3 | Мисс Монохром 3 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528547.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Deaimon / Deaimon: Recipe for Happines / Дэаймон [2022, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528435.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528054.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Gunjou no Fanfare | Fanfare of Adolescence | Фанфары юности [2022, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524135.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Cue! / Реплика! [2022, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524100.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Yakusoku no Nanaya Matsuri | Starlight Promises | Звездное паломн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523663.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Gunjou no Magmell | Магмел синего моря [2019, TV, 13 эп.] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522724.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Aoharu x Kikanjuu / Aoharu x Machinegun / Юность и оружие [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472789.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ben-Tou / Жрач-ка [2011, TV, 12] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472456.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Kamigami no Asobi | Забавы богов [2014, TV, 12 из 12] BDRip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470985.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hinako Note | Дневник Хинако [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470722.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Taimadou Gakuen 35 Shiken Shoutai | Anti-Magic Academy: The 35th Test Platoon | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470590.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Rokka no Yuusha | Герои шести лепестков [2015, TV, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470488.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Amaama to Inazuma / Sweetness and Lightning / Сладость и молния [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470401.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Yawaraka Sangokushi Tsukisase!! Ryofuko-chan / Рёфуко-тян [2007, OVA, 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470290.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Kakegurui Twin | Безумный азарт: Близнец [2022, Web, 6 из 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470182.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Suzumiya Haruhi no Yuuutsu / The Melancholy of Haruhi Suzumiya / Меланхо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470017.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mondaiji-tachi ga Isekai kara Kuru Sou Desu yo? / Проблемные дети 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469711.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bananya | Бананя [2016, TV, 13] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468220.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Onsen Yousei Hakone-chan / Young Hot Spring Fairy Hakone-chan / Юный дух 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468107.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья (OVA-2) [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468016.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Days | Дни [2016, TV, 24 из 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466550.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Mawaru Penguindrum / Крутящийся пингвиний барабан [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466461.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Meitantei Conan / Detective Conan / Детектив Конан [1996, TV, 1-452
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466052.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Okusama wa Mahou Shoujo | Madam is a Magical Girl | Замужняя девуш�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465879.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Legend of the Galactic Heroes: My Conquest is the Sea of Stars / Легенда 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465845.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ajin | Полулюди [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465810.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mashiro-iro Symphony: The Color of Lovers / Белоснежная симфон�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465501.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Mashiroiro Symphony: The Color of Lovers / Белоснежная симфони
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464200.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Ore, Twintail ni Narimasu. | Gonna Be the Twin-Tail!! | Я, два хвоста 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464094.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Itsuka Tenma no Kuro Usagi: Kokoro Utsuri no Toukoubi - School Attendance Day | 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464078.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463950.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Kurokami The Animation | Black God | Тёмная богиня [2009, TV, 23 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463936.jpg" />
 </div>
 
 

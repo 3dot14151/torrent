@@ -1,29 +1,3 @@
-###  Публикация: 1204662   (784567) от 06.02.2018
-
-9th Company: Roots Of Terror / 9 Рота (2009) [Ru] (1.1) Repack Other s
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-9 рота – это не историческая реконструкция. Это не «игра по фильму» в классическом понимании. Это попытка разработчиков показать войну на примере одного из подразделений ограниченного контингента советских войск – 9-й роты отдельного 345-го парашютно-десантного полка – элитного подразделения советского десанта, воевавшего в Афганистане весь период конфликта. При (   Читать дальше...   )Тип издания: RepackРазработчик: Lesta Studios IncЖанр: Strategy (Real-time), 3DЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC63855BC4863EC1C1B4D16B92013FAA036F7D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204563   (784524) от 06.02.2018
 
 Call of Duty: Modern Warfare Remastered (2016) [Ru] (1.13) Rip Other s
@@ -32,7 +6,7 @@ Call of Duty: Modern Warfare Remastered (2016) [Ru] (1.13) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784524.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Team Sonic Racing (2019) [Ru/En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784419.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Silent Descent (2018) [En] (1.03) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784312.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784266.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Silent Descent (2018) [En] (1.03) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784265.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ OVERPASS (2020) [Ru/Multi] (13935/dlc) License CODEX [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784137.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Zombie Derby 2 (2016) [Ru/Multi] (1.1/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783981.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Remnants of Naezith (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783970.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Persian Nights 2: The Moonlight Veil / Персидские Ночи 2: Лунн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783872.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Light Remake (2020) [Ru/En] (1.01) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783843.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783831.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Trials of Mana (2020) [Multi] (1.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783829.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Deck of Ashes (2020) [Ru/Multi] (1.4.55057) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783826.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Beyond Blue (2020) [Ru/Multi] (1.3.15659) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783822.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lost God (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783743.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Treasure Adventure World (2018) [En] (1.02) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783740.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ling (2018) [En/Ch] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783727.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Kona / Kôna (2017) [Multi] (07-08-2017) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783713.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sudden Strike 4 (2017) [En] (1.06/dlc) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783710.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Condemned Criminal Origins (2006) [Ru] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783708.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/Multi] (1.0.684579) 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783704.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783703.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/dlc) Repack R.G. Catal
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783702.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/dlc) Repack R.G. Catalys
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783701.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Planetoid Pioneers (2018) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783698.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Planetoid Pioneers - это двухмерная приключенческая 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A322766D99132513949C3ED68CA81E6389C0B187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205533   (783444) от 10.02.2018
+
+PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Проклятие Офелии (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей кукольной серии PuppetShow. Муж Вашей кузины Анжелы отправляет Вам печальное письмо с просьбой приехать как можно скорее. Карьера Анджелы пошла в гору, но после того как она получила ведущую роль в последнем спектакле своего театра, стали происходит странные вещи. Анджела была проклята куклой и теперь находится в коме. Сможете ли Вы найти (   Читать дальше...   )Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236DDA04063D59BF24D15A856ACC338360E3ED21
 ```
 
 https://mybot314.ru/tekegram_catalog/

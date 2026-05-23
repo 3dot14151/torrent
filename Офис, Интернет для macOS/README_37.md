@@ -6,7 +6,7 @@
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277257.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Infographics for Pages 3.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277252.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PDFelement Express 1.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276582.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Tipard PDF Converter for Mac 3.1.30 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276326.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MarkdownD 3.7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274973.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Themes for Keynote 5.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274844.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Templates Bundle for iWork 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274843.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Cloud Outliner Pro 2 v2.5.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274196.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ MindNode 5 v5.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274145.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ PDFelement 6 Pro - PDF & OCR v6.7.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273998.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Adobe InCopy 2020 v15.0.0.155 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273711.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Debit & Credit - Учет финансов 2.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273510.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Adobe InDesign 2020 v15.0.0.155 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273358.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Templates for Excel by GN 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273159.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cookie 6.0.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265369.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ MonthlyCal 1.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264702.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Proxifier for Mac 2.26 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263547.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ NeoOffice 2017.19 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262823.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Romanysoft SpeedTest 7.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262232.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ CalcTape Paper Tape Calculator 1.4.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262092.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Day One 2.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262063.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ IP Scanner Pro 4.06 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249661.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Convertos 2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245805.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Hostbuddy 2.2.5 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245635.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ NotesTab Pro 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245552.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Type Fu 4.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245455.jpg" />
 </div>
 
 

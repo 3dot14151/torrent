@@ -1,55 +1,3 @@
-###  Публикация: 1764108   (35137) от 05.12.2024
-
-Что скрывает ложь / What Lies Beneath (2000) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Клэр забросила свою карьеру, когда выяснила, что беременна, и вышла замуж за доктора Нормана Спенсера. Теперь, когда дочь выросла и уехала из дома, Клэр целыми днями находится в огромном пустом доме одна, и заняться, кроме как подглядыванием за соседом, который, как ей кажется, убил свою жену, ей нечем. Она становится всё более и более уверенной в своих догадках, (   Читать дальше...   )Производство: США / DreamWorks SKG, Twentieth Century Fox Film Corporation, ImageMoversЖанр: ужасы, драма, детектив, триллерРежиссер: Роберт ЗемекисАктеры: Мишель Пфайффер, Харрисон Форд, Дайана Скаруид, Венди Крюсон, Джеймс Римар, Миранда Отто, Джо Мортон, Эмбер Валлетта, Кэтрин Таун, Виктория БидвеллПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506D93135954EE48E3F0EDC8A7F1AB9AD6DAC56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764121   (35124) от 05.12.2024
-
-Что скрывает ложь / What Lies Beneath (2000) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Клэр забросила свою карьеру, когда выяснила, что беременна, и вышла замуж за доктора Нормана Спенсера. Теперь, когда дочь выросла и уехала из дома, Клэр целыми днями находится в огромном пустом доме одна, и заняться, кроме как подглядыванием за соседом, который, как ей кажется, убил свою жену, ей нечем. Она становится всё более и более уверенной в своих догадках, (   Читать дальше...   )Производство: США / DreamWorks SKG, Twentieth Century Fox Film Corporation, ImageMoversЖанр: ужасы, драма, детектив, триллерРежиссер: Роберт ЗемекисАктеры: Мишель Пфайффер, Харрисон Форд, Дайана Скаруид, Венди Крюсон, Джеймс Римар, Миранда Отто, Джо Мортон, Эмбер Валлетта, Кэтрин Таун, Виктория БидвеллПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669AA10C8C5EC645F820516C52394167B9B39B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604490   (35080) от 06.12.2024
 
 Улыбка / Smile (2022) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35080.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35032.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35028.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35000.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34991.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34980.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34964.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34945.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34942.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34927.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34886.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34849.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34842.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34810.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34774.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34773.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34771.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34770.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34767.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34766.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34752.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34742.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34701.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34696.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7713B77127779989C5C4C8F3777EAFE59D6CE978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764872   (34686) от 09.12.2024
+
+Ветеран / Beterang (2015) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чо Тхэ О — избалованный молодой человек из богатой семьи. Он регулярно совершает почти все мыслимые преступления, решает свои проблемы с помощью денег, влияния и безнаказанности. До сегодняшнего дня это срабатывало, пока за расследование по делу о самоубийстве водителя грузовика, в котором он замешан, не берётся целеустремлённый детектив Со До Чхоль со своей командой...Производство: Южная Корея / Filmmaker R&KЖанр: комедия, криминал, боевикРежиссер: Сын Ван РюАктеры: Чжон Мин Хван, А Ин Ю, Хэ Чжин Ю, Даль Су О, Ман Сик Чон, Ун Ин Чон, Си Ху Ким, Кён Чжин, Ин Ён Ю, Со Дам Пак, Дон Хви Ли, Сон У Пэ, Хо Чжин Чхон, Тхэ Гу Ом, Дэ Хван ОПеревод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 02:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2369457188B9DB60FC400B92642D3CF4C168803D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753927   (34658) от 10.12.2024
+
+Воины сумерек: Осада Коулуна / Gau lung sing zaai wai sing / Twilight of the Warriors: Walled In (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гонконг, 1980-е. Украв у обманувших его бандитов мешок с, как он думал, деньгами, нелегальный мигрант Чань спасается от них бегством и забегает в город-крепость Коулун — квартал плотной застройки, который живёт по своим законам. Там он пытается продать оказавшиеся в мешке наркотики и «знакомится» с местной бандой. Пожалев нелегала, главарь по прозвищу Циклон оплачивает (   Читать дальше...   )Производство: Гонконг, Китай / Aether Film Production Limited, Entertaining Power, HG Entertainment, LianRay Pictures, Media Asia Film, One Cool Production Company, Sil-Metropole OrganisationЖанр: боевик, криминал, фэнтезиРежиссер: Чин Поу-СойАктеры: Рэймонд Лам, Луис Ку, Саммо Хун, Ричи Жэнь, Филип Нг, Терренс Лау, Герман Чун, Тони У, Кенни Вон, Аарон КвокПеревод: Дублированный (Okko), профессиональный многоголосый (TVShows)Язык озвучки: Русский, китайскийСубтитры: русские (Forced, Full), английские, китайские (традиционные и упрощенные)Продолжительность: 02:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698B78C84FE65B2FA3B11772FDE9E814CBD86982
 ```
 
 https://mybot314.ru/tekegram_catalog/

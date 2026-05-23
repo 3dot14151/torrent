@@ -1,55 +1,3 @@
-###  Публикация: 1305009   (559506) от 28.05.2019
-
-Не отпускай его / Holding the Man (2015) HDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в Австралии 1970-1980-х гг. Тим и Джон учатся в католической школе для мальчиков в Мельбурне. Джон возглавляет футбольную команду, а Тим пробует свои силы на сцене школьного театра. Парни тянутся друг к другу и постепенно юношеская влюблённость перерастает в нечто более серьёзное. Отношения Тима и Джона будут длиться 15 лет. Героям (   Читать дальше...   )Производство: Австралия / Goalpost Pictures, John Barry Group, Screen AustraliaЖанр: Драма, Мелодрама, БиографияРежиссер: Нил АрмфилдАктеры: Райан Корр, Крэйг Стотт, Гай Пирс, Энтони ЛаПалья, Джеффри Раш, Керри Фокс, Камилла Ах Ким, Брайан Липсон, Ли Корми, Сара СнукПеревод: Многоголосый любительский, одноголосый любительскийСубтитры: Русские, английскиеПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9C065496129643F6EAD283CE8D5D9DD419F8D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304994   (559504) от 28.05.2019
-
-Особь 3 / Species III (2004) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сара — уже третье поколение получеловеческого-полуинопланетного существа. Это почти совершенная особь, которая была возрождена ренегатом — профессором биохимии Абботом. Жестокая в своих поисках партнера для размножения, Сара обладает удивительной физической силой и способностью преобразовывать свое тело в различные агрессивные формы, выбрасывать щупальца, когти. (   Читать дальше...   )Производство: США / FGM Entertainment, Metro-Goldwyn-Mayer (MGM)Жанр: Ужасы, ФантастикаРежиссер: Брэд ТернерАктеры: Робин Данн, Роберт Неппер, Санни Мабри, Амелия Кук, Джон Пол Питок, Майкл Уоррен, Кристофер Ним, Патриша Бетун, Джоэль Штоффер, Джеймс Лео РайанПеревод: Двуголосый профессиональный, авторскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CF23F12D2601DE9AB25AF34DB889D40A7DCE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304807   (559503) от 28.05.2019
 
 Обратная тяга 2 / Backdraft 2 (2019) BDRemux [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559503.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559462.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559437.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559379.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559373.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559348.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559338.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559300.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559261.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559250.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559191.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559190.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559189.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559188.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559150.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559136.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559121.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559118.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559107.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559092.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559089.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559023.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558981.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558971.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DAC40A5496ABFD158E05C29254BEBE6B2FD0430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922512   (558956) от 03.08.2015
+
+Выскочка / Election (1999) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая война развернулась между самой активной и нахальной ученицей школы Харвер Хай Трэйси Флик и ее учителем Джимом МакАлистером. Выскочка Трэйси хочет во что бы то ни стало быть избранной президентом школьного совета, а мистер МакАлистер, зная вероломный и склочный характер Флик, готов пойти на все, чтобы этого не случилось. К сожалению, мистер МакАлистер даже (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: КомедияРежиссер: Александр Пэйн / Alexander PayneАктеры: Мэттью Бродерик, Риз Уизерспун, Крис Клейн, Джесика Кэмпбелл, Марк Харелик, Фил Ривз, Молли Хэйгэн, Делани Дрисколл, Коллин Кэмп, Фрэнки ИнграссияПеревод: Двуголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACA55E3F35A16485C9A83E09FABDEB590723556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814438   (558941) от 20.08.2014
+
+Шоу Трумана / The Truman Show (1998) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Труман Бербэнк узнает, что он — главный герой реалити-шоу, которое снимается с самого его рождения. Все люди, с которыми Труман общается каждый день — актеры. А мир вокруг — всего лишь декорация. Теперь у Трумана появляется выбор: остаться марионеткой в вымышленном безопасном мире или переселиться в мир настоящий, незнакомый и полный опасностей. Зрители, затаив дыхание, (   Читать дальше...   )Жанр: Фантастика, Драма, КомедияРежиссер: Питер УирАктеры: Джим Кэрри, Лора Линни, Ноа Эммерих, Наташа МакЭлоун, Холланд Тэйлор, Брайан Дилэйт, Питер Краузе, Рон Тэйлор, Дон Тэйлор, Тед Рэймонд, Джуди Клэйтон, Джадсон Вон, Энтони Короне, Марио Эрнесто Санчес, Джон Роселиус, Тони Тодд, Роберт Дэвис, Эд Харрис, Пол Джаматти, Адам Томей, Хэрри Ширер, Уна Дэймон, Филип Бейкер Холл, Джон Плешетт, Филип Гласс, О-Лан Джонс, Эл (   Читать дальше...   )Перевод: Многоголосый x3, Авторский x2Язык субтитров: Русский, АнглийскийПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E8EB8D0E1D6C38FBA48460E68F060DA8BA0EA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

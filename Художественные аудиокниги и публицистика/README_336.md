@@ -1,83 +1,3 @@
-###  Публикация: 1018913   (753887) от 21.05.2016
-
-Елена Хаецкая | Меч и радуга, или Хелот из Лангедока (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хелот из Лангедока был странствующим рыцарем. Во всяком случае, пытался им быть. Как явствует из его имени, родился он в Лангедоке, но о родине своей имел весьма смутные воспоминания, ибо с детства странствовал по различным землям, сначала в качестве слуги, потом оруженосца, потом самостоятельно, поскольку в одном из захолустных замков, после долгого нытья и просьб (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 16:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F70EBE7AB084398561E519BE8F3037439A2AEE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018880   (753886) от 21.05.2016
-
-Альманах фантастики | Фантаскоп №002 (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Проект «ФАНТАСКОП» родился в память о трагически погибшем 31.07.2008 Ташкине Дмитрии Сергеевиче, меценате, благотворителе, да и просто очень хорошем человеке, страстном любителе неба, авиации и хорошей фантастики. Самолет в честь него мы сделать не можем, а вот альманах фантастики смогли.
-Выражается огромная благодарность всем его друзьям и близким людям, которые (   Читать дальше...   )Жанр: фантастика, постапокалипсис, хоррор, мистика, космическая фантастикаПродолжительность: 05:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDB0B66404B13B6C39FD6355A95CA33282165F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018616   (753883) от 21.05.2016
-
-Валентин Пикуль | Исторические миниатюры. Букет для Аделины (2016) [MP3, Сергей Чонишвили, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Миниатюры» Валентина Пикуля — серия исторических рассказов-эссе советского писателя.
-Каждая миниатюра рассказывает о личности, зачастую забытой, затерявшейся на просторах российской истории. Герои миниатюр — это как известные деятели, так и люди, чьи имена не на слуху, но каждый из них внес свой вклад в историю, причём не только российскую. Многие из миниатюр проникнуты (   Читать дальше...   )Жанр: Исторические миниатюрыИздательство: СоюзПродолжительность: 06:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EE70224103277A07B3955C9645275C278664EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 322122   (753875) от 11.04.2011
 
 Эрих Мария Ремарк | Тени в раю (2011) [MP3, Валерий Саберов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753875.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753818.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753816.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753783.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753737.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753736.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753734.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753732.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753706.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753606.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753535.jpg" />
 </div>
 
 
@@ -374,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753483.jpg" />
 </div>
 
 
@@ -400,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753426.jpg" />
 </div>
 
 
@@ -426,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753410.jpg" />
 </div>
 
 
@@ -453,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753160.jpg" />
 </div>
 
 
@@ -479,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753054.jpg" />
 </div>
 
 
@@ -505,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753044.jpg" />
 </div>
 
 
@@ -531,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752929.jpg" />
 </div>
 
 
@@ -559,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752910.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752811.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752443.jpg" />
 </div>
 
 
@@ -642,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752256.jpg" />
 </div>
 
 
@@ -668,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752255.jpg" />
 </div>
 
 
@@ -679,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F9B1D44E898846FD0F3620144A909D683F78EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395776   (752208) от 12.07.2020
+
+Ридиан Брук | Последствия (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Последствия» – это пронзительная история любви, предательства и мести на фоне разрушенного послевоенного мира. 1946 год, послевоенный Гамбург лежит в руинах. Британский офицер Льюис Морган назначен временным губернатором Гамбурга и его окрестностей. Он несколько лет не видел жену Рэйчел и сына, но война позади, и семья должна воссоединиться. Губернатора поселяют (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DFE4684E8D95AB7AE9403D0072A23195828783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019352   (752190) от 22.05.2016
+
+Сесил Скотт Форестер | Мичман Хорнблоуэр (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Мичман Хорнблоуэр» начинает прославленную серию романов Сесила Скотта Форестера (1899–1966) – знаменитого английского писателя, военного историка и голливудского сценариста. В первом томе читатель познакомится с юностью одного из самых обаятельных и любимых героев английской литературы – Горацио Хорнблауэра, который, пройдя через «дедовщину», шторма, морские (   Читать дальше...   )Жанр: Морские приключения Путешествия и географияПродолжительность: 12:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940CCD7A8699139FCC7B92F64AF4EA0500F08C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018996   (752187) от 22.05.2016
+
+Борис Полевой | Повесть о настоящем человеке (1979) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752187.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце марта 1942 года, летчик-истребитель Алексей Мересьев был сбит фашистами и упал в районе Черного леса Демянского кольца, Горьковской области РСФСР. О необычайной биографии, характере, мужестве, силе духа этого советского офицера рассказывает эта биоргафическая повесть Бориса Полевого... Прототипом главного героя книги — стал реальный исторический персонаж: (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58AACEF99512D377C1BF1A73FD8622A3EC76E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

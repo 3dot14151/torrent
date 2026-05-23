@@ -1,84 +1,3 @@
-###  Публикация: 1549455   (593389) от 07.05.2022
-
-Михаил Шолохов | Наука ненависти (2022) [MP3, Сергей Горбунов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет культовую выдающуюся аудиокнигу «Наука ненависти» знаменитого русского советского писателя Михаила Александровича Шолохова, лауреата Нобелевской премии по литературе 1965 года – «за художественную силу и цельность эпоса о донском казачестве в переломное для России время». Премия была вручена за роман «Тихий Дон».
-Михаил Шолохов был (   Читать дальше...   )Жанр: Русская классическая прозаПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299BCE6CD6EBA8848948982D631ADE1FF97A51BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549693   (593349) от 07.05.2022
-
-Майю Лассила | За спичками (2019) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Классика финской литературы Майю Лассила на самом деле звали иначе. Это один из псевдонимов финского писателя Ангольта Унтолы (Тиетвяйнена, 1868-1918), которому выпало жить в эпоху перемен.
-
-Его юмористическая повесть «За спичками» – шедевр финской иронической литературы, она хорошо известна российским читателям в переводе Михаила Зощенко. Писателя в конце 1940-х (   Читать дальше...   )Жанр: Зарубежная классика, Зарубежный юмор, Юмористическая прозаПродолжительность: 08:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DB1946E000049B2C80C81F8BAD93756C195F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549687   (593344) от 07.05.2022
-
-Генрик Сенкевич | Крестоносцы (2022) [MP3, Дмитрий Сидаш]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Крестоносцы – исторический роман Генрика Сенкевича, посвящен борьбе поляков и литвинов с Тевтонским орденом в конце XIV – начале XV веков. По мнению некоторых критиков эта книга – наиболее реалистичная и продуманная из всех исторических романов Сенкевича.Жанр: Зарубежная классика, Историческая проза, РоманПродолжительность: 31:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6716261484AA066843346A9CB7BDA498A789F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549699   (593316) от 07.05.2022
 
 Курт Воннегут | Бойня номер пять, или Крестовый поход детей (2021) [MP3, Владимир Голицын]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593316.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593279.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593199.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593197.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593147.jpg" />
 </div>
 
 
@@ -218,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593136.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593132.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593116.jpg" />
 </div>
 
 
@@ -297,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593061.jpg" />
 </div>
 
 
@@ -323,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592952.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592921.jpg" />
 </div>
 
 
@@ -376,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592886.jpg" />
 </div>
 
 
@@ -402,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592862.jpg" />
 </div>
 
 
@@ -428,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592851.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592761.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592756.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592745.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592741.jpg" />
 </div>
 
 
@@ -561,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592664.jpg" />
 </div>
 
 
@@ -587,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592662.jpg" />
 </div>
 
 
@@ -613,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592613.jpg" />
 </div>
 
 
@@ -641,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592531.jpg" />
 </div>
 
 
@@ -667,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592530.jpg" />
 </div>
 
 
@@ -678,6 +597,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8234001C7BBAA7D1A37F48AA8B48B194AA81AFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550390   (592525) от 10.05.2022
+
+Ольга Володарская | Призраки забытых могил (2022) [MP3, Елена Калиниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то девушки с неблагополучными судьбами сбились в стаю, чтобы легче было выживать. Они побирались, подворовывали, дрались за место под солнцем, но все же не теряли надежду на лучшее. Среди них была скрипачка по прозвищу Пила. Она играла так великолепно, что могла бы поступить в консерваторию. Но девушек похитили и заперли в ледяном подвале. Чтобы спастись, им (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFFB72FE0B9626FB587C7E77192F94326C22B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550356   (592518) от 10.05.2022
+
+Наталья Мамлеева | «Дракмар» Книга 1. Факультет драконьих наездниц (2022) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я приручила Черного дракона!
+Так я думала, пока не оказалась в лапах этого самого дракона, весьма недовольного и опасного…
+Эта девчонка посмела меня «приручить»! Меня – Владыку Темных земель!
+Она «всего лишь» перепутала связь истинных с «приручением», приняв меня за дикого. Усмехнулся. Будет забавно. Для меня.Жанр: Любовное фэнтези, Фэнтези про драконовПродолжительность: 09:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272D083A82BE9EEC8EFCE6C72600F2A3A3EC88EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550387   (592510) от 10.05.2022
+
+Ханс Фаллада | Один в Берлине. Каждый умирает в одиночку (2022) [MP3, Дмитрий Стрелков]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592510.jpg" />
+</div>
+
+
+###  Подробнее
+
+1940-й год. Немецкие войска триумфально входят в Париж. Простые немцы ликуют в унисон с верхушкой Рейха, предвкушая скорый разгром Англии и установление германского мирового господства. В такой атмосфере бросить вызов режиму может или герой, или безумец. Или тот, кому нечего терять. Получив похоронку на единственного сына, столяр Отто Квангель объявляет нацизму войну. (   Читать дальше...   )Жанр: Зарубежная классика, Литература 20 векаПродолжительность: 19:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF3BCFC87D51F4B312E7AEBB17E46B7BC86D1A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

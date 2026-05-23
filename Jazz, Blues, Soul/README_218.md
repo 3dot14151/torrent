@@ -6,7 +6,7 @@ VA - The Real... Blues: The Ultimate Collection (2015) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624572.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sebastien Texier & Christophe Marguet 4tet - For Travellers Only (2018) Cristal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624544.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sam Most - Plays Bird, Bud, Monk & Miles (1957) /2014, Solid Records/[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624332.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Shirley Scott Trio - For Members Only & Great Scott!! (1963-1964) /2011, Verve/[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624328.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ellis Marsalis - Heart Of Gold (1992) Columbia [FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624257.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Benny Waters - Live At The Pawnshop (1976) 1999, Opus 3 Records [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624256.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Brilleaux - Pictures Of The Queen (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624240.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Benny Waters - From Paradise (Small's) To Shangri-La (1989) Muse Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624123.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jenny Scheinman - Mischief & Mayhem (2012) Tzadik [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624034.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Anthony Wilson - Anthony Wilson (1997) Mama Foundation [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623980.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dexter Gordon - Four Classic Albums: Second Set (1961, 1962) 2CD, 2019, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623975.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Pasadena Roof Orchestra - A Talking Picture, Night Out (1978, 1979 ) 2CD in 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623936.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623924.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623795.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623794.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Edgar Winter - Brother Johnny (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623580.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Welshly Arms - Welshly Arms (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623525.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Black Joe Lewis & The Honeybears - Scandalous (2011) [FLAC|Lossless]<Modern Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623019.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Classics In Jazz (5CD) (2005) [MP3|320 кб/с]<Jazz, Classical Music>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622936.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Anthony Davis - Of Blues And Dreams (1978) Sackville[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622852.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ The Carla Bley Band - Musique Mecanique (1978) 1979, ECM Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622825.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Lucy Woodward - Til They Bang On The Door (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622798.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Ina Forsman - Ina Forsman (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Ret
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622759.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Nubiyan Twist - Jungle Run (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Afr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622508.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ The Pentagon - The Pentagon (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622389.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Larry Young - Of Love And Peace (1966) /2014, Universal/[FLAC|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622388.jpg" />
 </div>
 
 

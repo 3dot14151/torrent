@@ -6,7 +6,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Digital Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475444.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.00.3598/1/dlc) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475427.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Digital Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473662.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.953.7721/dlc) Repack Other s [Gold Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471125.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Giant Machines 2017 (2016) [Ru/Multi] (1.1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470098.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cry of War (2018) [Ru/Multi] (1.1/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466648.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Lossless Repack/1.0.u.1) 2012 | R.G. Reve
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459659.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Tony Hawk’s American Wasteland [Eng] (L) 2006
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455620.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (1.0.0.51) License SKIDROW [Pocket
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454302.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (1.0.0.51) Repack Other s [Pocket 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454293.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tony Hawk's Pro Skater HD (2012) [Ru/En] (1.0.8788.0) Repack Audioslave
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452894.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452412.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452195.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Telling Lies (2019) [Ru/Multi] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452190.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Cold Waters (2017) [En] (1.07b) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452051.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Farm Expert 2017 (2016) [En] (1.124) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449905.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Thrills & Chills - Roller Coasters (2016) [En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447832.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ A-Train 9 V3.0: Railway Simulator (2014) [En] (3.0) Repack Mr.Weegley [Premium E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442188.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ A-Train 9 V3.0: Railway Simulator (2014) [En] (3.0) SteamRip SKIDROW [Premium Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441983.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.182.64713/dlc) Repack xatab [Bear H
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439774.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Battle Royale Tycoon (2019) [Ru/Multi] (1.00) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435096.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Signal Simulator (2018) [En] (1.7.3) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433081.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pinball FX3 (2017) [Multi] (1.0/dlc) License HI2U [Season 1-2 Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432647.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Planet Zoo (2019) [Ru/Multi] (1.2.5.63260) License EMPRESS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429077.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Planet Zoo (2019) [Ru/En] (1.2.5.63260/dlc) Repack Other s [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429060.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Planet Zoo (2019) [Ru/En] (1.2.5.63260/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429056.jpg" />
 </div>
 
 

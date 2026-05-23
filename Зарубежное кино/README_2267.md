@@ -1,55 +1,3 @@
-###  Публикация: 1813298   (7130) от 18.08.2025
-
-Кунг Фьюри / Kung Fury (2015) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Майами. 1985 год. В городе появляется самый опасный преступник всех времён — Адольф Гитлер по прозвищу Кунг Фюрер. Суперкоп Кунг Фьюри решает совершить путешествие во времени в нацистскую Германию, чтобы убить Гитлера и положить конец нацистской империи...Производство: Швеция / Lampray, Laser Unicorn, Salmon FoxЖанр: фантастика, фэнтези, боевик, комедияРежиссер: Дэвид СандбергАктеры: Дэвид Сандберг, Леопольд Нильссон, Стивен Чю, Андреас Кахлинг, Эрик Хёрнквист, Элени Янг, Хелен Алсон, Пер-Хенрик Арвидус, Эос Карлссон, Дэвид ХэсселхоффПеревод: профессиональный многоголосый (Jaskier), любительский двухголосый (OzzTV), авторский (Леонид Володарский; Дмитрий Пучков)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3117883084A8A546FCB9CC59F7EDD7F24C9D4414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813312   (7122) от 18.08.2025
-
-Обливион / Oblivion (2013) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Можно ли скучать по месту, в котором никогда не был, мечтать о девушке, которую никогда не видел? Добро пожаловать в будущее! Мы больше не можем называть Землю своим домом. Мы выиграли войну, но не смогли сохранить планету…Производство: США / Chernin Entertainment, Ironhead Studios, Radical Pictures, Radical Studios, Truenorth Productions, Universal PicturesЖанр: фантастика, боевик, триллер, приключенияРежиссер: Джозеф КосинскиАктеры: Том Круз, Ольга Куриленко, Морган Фримен, Андреа Райзборо, Николай Костер-Валдау, Мелисса Лео, Зои Белл, Эбигейл Лоу, Изабель Лоу, Дэвид МэдисонПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (SDH)Продолжительность: 02:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2F22E730984C64ECC7DD07E9830C38C05A55A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813249   (7108) от 18.08.2025
 
 Сорокалетний девственник / The 40 Year Old Virgin (2005) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit] [Unrated]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7108.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7080.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7008.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6958.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6943.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6898.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6823.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6805.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6804.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6803.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6774.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6729.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6720.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6691.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6690.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6687.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6681.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6672.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6663.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6657.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6637.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6631.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6566.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6551.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBF2B7FFD332C678E1A43178DB4011A9A57B3DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566145   (6526) от 22.08.2025
+
+Король-Рыбак / The Fisher King (1991) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек — популярный радиоведущий. У него есть чувство юмора, сарказм и профессиональный цинизм, который в итоге оборачивается трагедией: один из постоянных слушателей последовал его ироничному совету: вошел в людное кафе и разрядил полную обойму в ничего не подозревающих посетителей.
+Потрясенный Джек бросает работу и уходит в запой, погружаясь на дно отчаяния. В этот (   Читать дальше...   )Производство: США, TriStar PicturesЖанр: фэнтези, драма, комедияРежиссер: Терри ГиллиамАктеры: Робин Уильямс, Джефф Бриджес, Аманда Пламмер, Мерседес Руэль, Майкл Джитер, Уильям Джей Маршалл, Адам Брайант, Пол Ломбарди, Дэвид Хайд Пирс, Тед Росс, Лара ХаррисПеревод: Дублированный (Варус Видео), Многоголосый профессиональный (1 Канал)Язык озвучки: Русский, АнглийскийСубтитры: Русскиe, АнглийскиeПродолжительность: 02:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6983A7C120836FC05249E542EB9A3BE84F9ACE13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813931   (6517) от 22.08.2025
+
+Голый пистолет 33 1/3: Последний выпад / Naked Gun 33 1/3: The Final Insult (1994) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейтенант полиции Лос-Анджелеса Фрэнк Дребин женится на Джейн и уходит на пенсию, пытаясь разобраться с нахлынувшими семейными проблемами. В это же время в тюрьму к отбывающему срок известному взрывнику Рокко приходит представитель арабских террористов и предлагает ему и его матери-подельнице совершить крупный теракт за 5 миллионов долларов. Не в силах справиться (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: комедия, криминалРежиссер: Питер СигалАктеры: Лесли Нильсен, Присцилла Пресли, Джордж Кеннеди, О. Дж. Симпсон, Фред Уорд, Кэтлин Фримен, Анна Николь Смит, Эллен Грин, Эд Уильямс, Рэй БиркПеревод: Многоголосый профессиональный (Видеобиз)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CF862DC717604810CF048F81331F368A51855C
 ```
 
 https://mybot314.ru/tekegram_catalog/

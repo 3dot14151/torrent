@@ -6,7 +6,7 @@ Adobe Acrobat Reader 2024.002.20736.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57536.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GIMP 2.10.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57524.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NetSetMan 5.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57523.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ALLPlayer 9.2.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57516.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PDFsam Basic 5.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57512.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ KiCad 8.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57498.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sand Land: The Series | Страна песков [2024, Web, 13] WEBRip 1080p r
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57496.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57495.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Substance 3D Stager 2024 2.1.4 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57490.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Substance 3D Sampler 2024 4.3.3 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57489.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Office Installer & Office Installer+ 1.15 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57461.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ System software for Windows v.3.5.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57455.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sound Normalizer 8.7 (06.05.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57448.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ R-Studio Network / Technician 9.4 Build 191310 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57436.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FurMark 2.3.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57434.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ GIMP 2.10.38-0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57427.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Any Video Downloader 8.8.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57417.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AyuGram - неофициальный клиент Telegram 10.10.1 Mod by NURIK 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57412.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Serif Affinity Designer 2.4.2.2371 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57411.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Freemake Video Converter 4.1.13.175 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57409.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Busuu - изучение языков 31.20.1(1001751) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57402.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ TikTok 34.5.5 Mod by Dmitry Nechiporenko + Plugin 1.36 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57396.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Atlantis Word Processor 4.3.9.4 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57391.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ PassMark RAMMon 3.2 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57385.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ uTorrent Pro 3.6.0 Build 47082 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57363.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.3 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57362.jpg" />
 </div>
 
 

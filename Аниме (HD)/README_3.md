@@ -6,7 +6,7 @@ SSSS.Dynazenon | Диназенон [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009612.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ UFO Robo Grendizer tai Great Mazinger | UFO Robo Grandizer vs. Great Mazinger | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009543.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fairy Ranmaru: Anata no Kokoro Otasuke Shimasu | Феи Ранмару: Мы с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009510.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009507.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Dragon, Ie o Kau. | Dragon Goes House-Hunting | Дракон в поисках �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009500.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kyuukyoku Shinka Shita Full Dive RPG ga Genjitsu yori mo Kusogee Dattara / Чт�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009480.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Zombie Land Saga Revenge | Зомбиленд. Сага [ТВ-2] [2021, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009373.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Subarashiki Kono Sekai the Animation | The World Ends with You the Animation | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009241.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Убива�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009209.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ijiranaide, Nagatoro-san / Don't Toy With Me, Miss Nagatoro / Не издева�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009202.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yuukoku no Moriarty (2021) | Moriarty the Patriot 2 | Патриотизм Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008905.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Bishounen Tanteidan | Pretty Boy Detective Club | Клуб детективов-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008645.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nomad: Megalo Box 2 | Megalobox: Nomad | Мегалобокс [ТВ-2] [2021, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008519.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Osananajimi ga Zettai ni Makenai LoveCome / Романтическая коме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008396.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008058.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Fruits Basket the Final | Корзинка фруктов [ТВ-2, финал] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007235.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Hibike! Euphonium | Sound! Euphonium | Играй, эуфониум! [ТВ-1 и 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007007.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Kabukibu! / Клуб кабуки [2017, TV, 12 из 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006945.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Kenka Banchou Otome: Girl Beats Boys | Боевой главарь банды: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006392.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005581.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004651.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki: Are You the Only One Who Loves Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004174.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wonder Egg Priority | Приоритет чудо-яйца [2021, TV, 12 + SP] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003969.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Africa no Salaryman / African Office Worker / Офисная фауна из А�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002636.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Urusei Yatsura | Those Obnoxious Aliens | Несносные пришельцы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002276.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Kono Oto Tomare! | Задержите этот звук! [2019, TV, 26 из 26] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001825.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Seal 1.11.0-beta.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167211.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HP Service Pack for ProLiant (SPP) 2020.09.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167200.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera GX 102.0.4880.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167199.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AMD Radeon Software Adrenalin Edition 22.11.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167197.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Nik Collection 4 by DxO 4.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167196.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ XnView Shell Extension 4.1.6  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167187.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ CloudMounter 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167186.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Trimble Tekla Structures 2020 SP3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167177.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ZWCAD 2023 SP2 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167154.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Telegram Desktop 4.11.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167153.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ K-Lite Codec Pack Update 17.9.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167150.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VueScan Pro for Mac 9.8.20 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167145.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ InShot - Фото и видеоредактор v1.980.1422 Mod by maxi123444 [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167140.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Listen Audiobook Player v5.2.0 (977) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167130.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Wondershare PDFelement 10.1.4.2521 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167122.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Any Video Converter  6.3.7 Professional RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167114.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ DiskTrix UltimateDefrag 6.0.50.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167111.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ OpenNumismat 1.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167100.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Seal 1.10.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167097.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Chromium 118.0.5993.118 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167083.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167055.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Permute 3 v3.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167054.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Topaz Video AI 4.0.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167052.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AIDA64 Extreme /Engineer / Business 6.85.6300 RePack (& Portable) by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167036.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ JRiver Media Center 31.0.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167034.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Yate 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167030.jpg" />
 </div>
 
 

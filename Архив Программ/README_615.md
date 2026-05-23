@@ -6,7 +6,7 @@ R-Studio 8.0 Build 164571 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741557.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows and Office ISO Download Tool 2.00 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741554.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 7.4.0.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741525.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ iSpy 6.3.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741520.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ uTorrent Pro 3.4.3 Build 40097 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741517.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741506.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Windows 10 Insider Preview 10.0.14352 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741502.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ESET NOD32 Antivirus 9.0.381.0 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741493.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kaspersky Internet Security 2016 16.0.1.445 (c) MR1 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741492.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Avast! Internet Security 2015 10.2.2218 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741420.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Microsoft Office 2007 Enterprise SP3 12.0.6718.5000 RePack by D!akov (22.04.2015
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741411.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IObit Smart Defrag Pro 6.5.5.119 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741284.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Unreal Commander 3.57 build 1470 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741262.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741257.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC2020-07-17) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741248.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v3.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741197.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ BurnAware Professional 12.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741156.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Screen Translator 3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741108.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Privacy Eraser Free 4.47.2 Build 2778 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741057.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Vivaldi 2.3.1440.48 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741053.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ WinUtilities Professional Edition 15.47 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741047.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ PicturesToExe Deluxe 9.0.9 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740999.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Advanced Installer 15.7 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740972.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Dashcam Viewer 3.1.9 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740969.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Twinkstar 4.11.2000.1901 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740968.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Sonible smart:EQ2 1.1.1 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740967.jpg" />
 </div>
 
 

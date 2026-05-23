@@ -1,29 +1,3 @@
-###  Публикация: 1708543   (62305) от 21.03.2024
-
-God of War (2022) [Ru/Multi] (1.0.13) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-God of War – новый взгляд на популярную серию, где бессмертный полубог принимает решение измениться. Для Кратоса это значит нарушить цикл насилия, недоверия и предательства, которое было с незапамятных времен в его семействе. Именно этот цикл привел его к самым ужасным решениям – сделке с Аресом, убийству семьи, сумасшествию и мести, что в итоге стало причиной уничтожения (   Читать дальше...   )Тип издания: LicenseРазработчик: PlayStation PC LLCЖанр: Экшены, Ролевая игра, ПриключeнияЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D7A85AC65BAA1D5BCFF15D4CEC6CD81C1632DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708526   (62294) от 21.03.2024
 
 Unbearable (2024) [Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Unbearable (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62294.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Highwater (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62284.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Blade Prince Academy (2024) [Multi] (1.0) Repaclk FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62265.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Cadet Files: Scene Unseen (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62262.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62206.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ A Twisted Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62173.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Amygdala (2024) [En] (1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62081.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Weird Dream (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62064.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Grand Soul Saga (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62058.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ EMPYRE: Earls of the Deep Earth (2024) [En] (Build #16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62054.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62053.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62047.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Hex Gambit: Respawned (2024) [Ru/Multi] (1.0.34+9115b5b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62040.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Corbid! A Colorful Adventure (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62033.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Manic Mechanics (2024) [Ru/Multi] (2.1.7.0_88821) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61983.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ We Are Football 2024 (2024) [Multi] (3.00hf) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61982.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ United Penguin Kingdom (2024) [Ru/Multi] (1.001) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61981.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61979.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61972.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61957.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61897.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Knight Witch (2022) [Ru/Multi] (59.40571) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61887.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61884.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.240321) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61881.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61861.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E71EE8EF80318784B94EAAA980523C30F0EC77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570164   (61786) от 26.03.2024
+
+As Dusk Falls (2022) [Ru/Multi] (1.01) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61786.jpg" />
+</div>
+
+
+###  Подробнее
+
+As Dusk Falls - это оригинальная интерактивная драма от INTERIOR NIGHT. В центре сюжета судьбы двух семей, за тридцать лет прочно переплетённые между собой. Действие начинается в 1998 году с неудавшегося ограбления. Это история о предательстве, стойкости духа и готовности пойти на жертвы. Жизни персонажей будут зависеть от ваших действий и решений.Тип издания: RepackРазработчик: INTERIOR NIGHTЖанр: AdventureЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FD6600DD7EC189F444207144A9349A2D4A1FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

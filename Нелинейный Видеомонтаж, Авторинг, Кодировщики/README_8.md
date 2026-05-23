@@ -1,55 +1,3 @@
-###  Публикация: 1082834   (865483) от 23.02.2017
-
-WonderFox DVD Ripper Pro 8.4 RePacK by Dinis124 [Ru] (обновляемая)
-
->>След.
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-WonderFox DVD Ripper является мощным и профессиональным риппером. Это одно из лучших решений для копирования содержания DVD-дисков для широкого спектра основных видео форматов, такие как AVI, MP4, VOB , MKV , MPEG, MOV , FLV, WMV, 3GP и т.д. Обычно занимает около 50 минут, чтобы рипнуть 100 минутный DVD в AVI ( Разрешение: 720 * 480, Видео битрейт: 2000, кадров в (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22C5A79D4EE4FC1C4D1E51910B57CD2A8A9FE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109003   (860194) от 26.02.2017
-
-Harmonic ProMedia Carbon 3.27.0.50553 RePack by AlekseyPopovv [En]
-
->>След.
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Harmonic ProMedia Carbon (Carbon Coder) - универсальный транскодер медиафайлов профессионального уровня с широчайшими возможностями, "сердцем" которого является первоклассный mpeg2 енкодер. Поддерживая работу с большинством распространенных форматов, ProMedia™ Carbon постоянно обновляется в соответствии с появлением новых форматов. ProMedia™ Carbon может (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FAD27DA6D378805120D5DF418CB6C8FD3231A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378886   (842282) от 27.04.2020
 
 Wondershare Filmora Effect Packs 2 RePack by elchupacabra [Ru]
@@ -58,7 +6,7 @@ Wondershare Filmora Effect Packs 2 RePack by elchupacabra [Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842282.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ AquaSoft SlideShow 10 Ultimate 10.4.08 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837725.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ AnyMP4 DVD Creator 7.2.6 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825976.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ GiliSoft Video Editor 12.2.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825932.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Wondershare Video Converter Ultimate 10.2.1 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820423.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ Replay Media Splitter 3.0.1703.9 [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818568.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ VSO Blu-ray Converter Ultimate 4.0.0.60 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814768.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ ProDAD ProDRENALIN 2.0.27 Repack by Team.V.R [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801010.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ Adobe Media Encoder 2022 (22.0.0.107) Portable by XpucT [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790713.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ Microsoft Hyperlapse Pro 1.6.116 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788907.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Imagineer Systems Mocha PRO 5.6.0 Build 1601 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788863.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ MakeMKV 1.14.2 beta [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788410.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ JPEXS Free Flash Decompiler 14.6.0 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787828.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ VSO DVD Converter Ultimate 4.0.0.60 Final [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786285.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ GiliSoft Video Converter 10.4.0 RePack by Manshet [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784344.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ Aiseesoft HD Video Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783448.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ SolveigMM Video Splitter 7.3.2006.08 Business Edition + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783007.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ Aiseesoft Total Media Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782500.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ Video Rotator 3.0.3 RePack by KaktusTV [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766821.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ XviD4PSP 7.0.466 DAILY [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765866.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ Rubber Monkey FilmConvert Pro 2.39 for After Effects and Premiere Pro RePack by 
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765036.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ GENARTS sapphire OFX 11.0.1 RePack by Team VR [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762760.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ Video Repair Utility 4.0.0.0 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758010.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ VSDC Free Video Converter 2.4.7.339 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756439.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ VSDC Free Video Converter 2.4.7.339 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72080378247DE2B97A4DA55E8DAED927E87E3F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216556   (747269) от 01.04.2018
+
+VideoPad Video Editor Professional 6.01 [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747269.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoPad предлагает средства для быстрого и лёгкого создания видео профессионального качества. Монтируя свой фильм, вы можете использовать видео ролики с web-камеры или видеомагнитофона, объединяя их с помощью эффектов перехода. Программа располагает совершенными инструментами настройки звука и цвета, средствами оптимизации видео. Создавайте собственное видео, делитесь (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF09D08A86908CF51FC36A8E9CF9CA96FCDFD66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217622   (740750) от 06.04.2018
+
+VideoSolo DVD Creator 1.2.6 RePack by вовава [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740750.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoSolo DVD Creator - это програма для создания собственного меню DVD. Запись ваших собственных DVD-дисков выполняется всего за три шага. Хороший интерфейс и иллюстрированная панель инструментов делают весь процесс простым от начала до конца. Просто импортируйте медиафайлы или видеофайлы, которые вы хотите записать на DVD, создайте свое собственное меню DVD. Создание (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C90DF64A4FEC487393BA1DEDBE3E47EC8A07B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

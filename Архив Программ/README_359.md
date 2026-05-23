@@ -6,7 +6,7 @@ SRWare Iron 49.0.2600.0 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866388.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Glary Utilities Pro 5.47.0.67 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866387.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HWiNFO 32-64 5.22-2820 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866380.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AMD Radeon Software Adrenalin Edition 21.9.2 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866341.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TweakPower 2.001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866339.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LibreOffice 7.2.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866338.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TheAeroClock 3.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866266.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ditto 3.21.50.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866255.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SRWare Iron 49.0.2600.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866250.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ FileZilla 3.24.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866237.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ W10Privacy 3.7.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866220.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft SQL Server 2008 R2 RC1 WinBeta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866197.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SMath Studio Desktop 0.97.5890 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866118.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sticky Password Premium 8.3.1.21 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866084.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CorelDRAW Graphics Suite X5 15.0.0.486 final Portable (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866040.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft Windows Server 10 Pro Technical Preview 2 Build 9926 OEM RETAIL DVD-WZ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865982.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Skype 7.21.32.100 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865940.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ WinCatalog 2017 17.0.2.23 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865914.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Avira Free Antivirus 15.0.24.146 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865897.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ TeraCopy Pro 3 RC2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865799.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ BlueStacks HD App Player 2.1.7.5658 MOD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865715.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Auslogics Registry Cleaner 6.1.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865695.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BDtoAVCHD 2.9.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865616.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Allavsoft Video Downloader Converter 3.22.4.7405 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865614.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Macrium Reflect 6.3.1734 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865588.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mathworks Matlab R2016a (9.0.0.341360) (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865510.jpg" />
 </div>
 
 

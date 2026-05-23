@@ -1,107 +1,3 @@
-###  Публикация: 1870680   (1068965) от 
-
-Google Chrome 148.0.7778.168 Portable by Cento8 [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C7A7F61B38F9054D5C5A1698C27E638C7AB6C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870682   (1068964) от 
-
-Active@ Disk Editor 26.1.3 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Active@ Disk Editor - это бесплатный расширенный инструмент для просмотра и редактирования необработанных данных (секторов) на физических дисках, включая тома, разделы и файлы. Active@ Disk Editor использует простую программу просмотра дисков низкого уровня, которая отображает информацию в двоичном и текстовом режимах одновременно. Вы можете использовать это представление (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D58E00A54F275160DE36DCD8B2CA3E65E120972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870684   (1068963) от 
-
-Кристоферы / The Christophers (2025) WEB-DL [4K, HDR10+, 10-bit] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Барнаби и его сестра Салли — дети некогда знаменитого пожилого художника Джулиана Склара. В тайне от отца они решают нанять молодую художницу Лори Батлер, чтобы та дописала незаконченные картины Джулиана, которые после его смерти перейдут детям по наследству и позволят им заработать.Производство: Великобритания, США / Department MЖанр: драма, комедияРежиссер: Стивен СодербергАктеры: Иэн Маккеллен, Микейла Коул, Дмитрий Прокопьев, Джессика Ганнинг, Джеймс Корден, Тилли Ботсфорд, Дэниэл Фирн, Люси Маккормик, Ле Филь, Даллас КэмпбеллПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB3A57F39E7B65C9EB8125D30E5165E5F6250993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870685   (1068962) от 
-
-Взлом на миллион / Wardriver (2026) WEB-DL [H.264/1080p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь хакера-кочевника Коула подчинена строгому коду: никаких привязанностей и никаких следов. Но крупный заказ на миллион долларов сталкивает его с Сарой − девушкой, ставшей пешкой в чужой опасной схеме. Когда ограбление выходит из-под контроля, а за самим Коулом начинается охота, он вынужден выйти из тени: вернуть деньги и вытащить Сару из смертельной ловушки, (   Читать дальше...   )Производство: США / Star Thrower Entertainment, Travelling Picture Show Company, TheЖанр: триллерРежиссер: Ребекка ТомасАктеры: Дэйн ДеХаан, Саша Калле, Мамуду Ати, Джеффри Донован, Уильям Белло, Карина Сегура, Кэмерон Ли Прайс, Гэри Хаус, Луз Озуна, Брук БёртонПеревод: Дублированный (Pride Production)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 01:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDBEEB9F80AADB3E2F7CB42C136F0424059E8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870683   (1068961) от 
 
 Информатор (2025) WEBRip [H.264/720p] (сезон 1, серии 1-12 из 12)
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068961.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ GadgetPack 42.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068960.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068959.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ StarDesk 1.3.2 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068958.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068957.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ School Days | Школьные дни [2007, TV 12 эп. + OVA 1-2] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068956.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Guy Mitchell - 20 Golden Greats (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068955.jpg" />
 </div>
 
 
@@ -295,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068954.jpg" />
 </div>
 
 
@@ -321,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068953.jpg" />
 </div>
 
 
@@ -347,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068952.jpg" />
 </div>
 
 
@@ -373,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068951.jpg" />
 </div>
 
 
@@ -399,7 +295,7 @@ MicroSIP 3.22.7 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068950.jpg" />
 </div>
 
 
@@ -427,7 +323,7 @@ LibreWolf 150.0.3-1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068949.jpg" />
 </div>
 
 
@@ -455,7 +351,7 @@ Windows 10 22H2 x64 by OneSmiLe [19045.7291] [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068948.jpg" />
 </div>
 
 
@@ -484,7 +380,7 @@ Windows 11 25H2 x64 by OneSmiLe [26200.8457] [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068947.jpg" />
 </div>
 
 
@@ -513,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068946.jpg" />
 </div>
 
 
@@ -540,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068945.jpg" />
 </div>
 
 
@@ -566,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068944.jpg" />
 </div>
 
 
@@ -592,7 +488,7 @@ Windows 11 26H1 x64 by OneSmiLe [28000.2113] [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068943.jpg" />
 </div>
 
 
@@ -621,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068942.jpg" />
 </div>
 
 
@@ -647,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068941.jpg" />
 </div>
 
 
@@ -673,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068940.jpg" />
 </div>
 
 
@@ -684,6 +580,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB6ECD459736A799EF7E1A970D6733484DD406B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870733   (1068939) от 
+
+Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Мискатоникском университете происходит что-то зловещее. Профессор Гарри Эверхарт старательно игнорирует тени, которые видит периферическим зрением, а студентку Эванджелин Дрейтон преследуют невероятные сны об обнаруженном десять лет назад артефакте. В поисках ответов пара героев откроет для себя множество секретов, уходящих в века дальше, чем можно себе представить.Тип издания: RepackРазработчик: Out of the Blue GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB3B9E7E5B925A66880321C6FD2F72B4ACB9501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870736   (1068938) от 
+
+Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Scene Rune
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068938.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Мискатоникском университете происходит что-то зловещее. Профессор Гарри Эверхарт старательно игнорирует тени, которые видит периферическим зрением, а студентку Эванджелин Дрейтон преследуют невероятные сны об обнаруженном десять лет назад артефакте. В поисках ответов пара героев откроет для себя множество секретов, уходящих в века дальше, чем можно себе представить.Тип издания: SceneРазработчик: Out of the Blue GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09AE8D9DD7677A1D39B8DC41EF5C59118F568BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870633   (1068937) от 
+
+PotPlayer 260422 (1.7.22859) RePack (& Portable) by elchupacabra (12.05.2026) [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068937.jpg" />
+</div>
+
+
+###  Подробнее
+
+PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E557CCDE11CCC8C6BF862DA0871F741595122493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870586   (1068936) от 
+
+RAMMap 1.63 RePack by TRENERA [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068936.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAMMap — утилита для анализа использования физической памяти компьютера под управлением операционных систем Windows. Программа показывает, сколько памяти используют ядро операционной системы, запущенные приложения, драйвера, динамические библиотеки, компоненты и модули, а также как Windows управляет памятью.Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB5133F2671171FDD645BE9356802142050A867
 ```
 
 https://mybot314.ru/tekegram_catalog/

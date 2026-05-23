@@ -1,116 +1,3 @@
-###  Публикация: 541272   (496942) от 04.09.2012
-
-Король и Шут - Ели мясо мужики (1999) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Ели Мясо Мужики
-02. Охотник
-03. Отец и Маски
-04. Валет и Дама(   Читать дальше...   )Жанр: Punk, Horror, RockПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47403EB2301C2B7F615A04686299F9C783C3BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936267   (496053) от 11.09.2015
-
-Dream Theater - Live at Luna Park (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концерт Dream Theater в Луна-парк арена в Буэнос-Айресе, Аргентина.  Концерт был издан на Over The Edge Productions.01. Bridges in the Sky
-02. 6:00
-03. The Dark Eternal Night
-04. This Is the Life(   Читать дальше...   )Жанр: Progressive MetalРежиссер: Майк ЛеонардПродолжительность: 02:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9CD133E40FAB62ED1B673CAA1E8B95F2BD02CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936464   (495788) от 11.09.2015
-
-VA - Осенний марафон № 188 / Видеоклипы (Зарубежный Парад Новинок ) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Осенние (11.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alex Adair - Heaven (Official Video) (00:03:07)
-2. Andreea Banica - Supererou (Official Video) (Famous Production) (00:03:50)
-3. Bobina ft. Natalie Gioia - Addicted (Official Video) (00:02:53)
-4. Bryan Adams - Brand New Day (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:27:40 + 00:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AD1A3F8790C51EA58A15B0FCF6BE00EEBD27D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543081   (495468) от 05.09.2012
-
-The AIX All Star Band - Pachelbel Canon Acoustica (2012) BDRip [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-The AIX All Star Band: Pachelbel Canon Acoustica, выпущенный наЖанр: Baroque, Free jazz, Jam sessionПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613978   (494837) от 24.08.2020
 
 Барышников на Бродвее / Baryshnikov on Broadway (1980) TVRip
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494837.jpg" />
 </div>
 
 
@@ -147,7 +34,7 @@ I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494349.jpg" />
 </div>
 
 
@@ -176,7 +63,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494179.jpg" />
 </div>
 
 
@@ -205,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494118.jpg" />
 </div>
 
 
@@ -233,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494101.jpg" />
 </div>
 
 
@@ -260,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494096.jpg" />
 </div>
 
 
@@ -286,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494024.jpg" />
 </div>
 
 
@@ -315,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493971.jpg" />
 </div>
 
 
@@ -342,7 +229,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493857.jpg" />
 </div>
 
 
@@ -371,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_493683.jpg" />
 </div>
 
 
@@ -398,7 +285,7 @@ Parazitii feat. Dan Lazar - Toate-s La Fel (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493594.jpg" />
 </div>
 
 
@@ -424,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493561.jpg" />
 </div>
 
 
@@ -453,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493031.jpg" />
 </div>
 
 
@@ -480,7 +367,7 @@ Tarja Turunen - Act 1 (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492997.jpg" />
 </div>
 
 
@@ -506,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492240.jpg" />
 </div>
 
 
@@ -532,7 +419,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492231.jpg" />
 </div>
 
 
@@ -561,7 +448,7 @@ John Mayall & The Bluesbreakers And Friends - 70th Birthday Concert (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491984.jpg" />
 </div>
 
 
@@ -590,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491341.jpg" />
 </div>
 
 
@@ -620,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490738.jpg" />
 </div>
 
 
@@ -649,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489615.jpg" />
 </div>
 
 
@@ -679,7 +566,7 @@ VA - Осенний марафон № 189 / Видеоклипы (Самые Т
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489563.jpg" />
 </div>
 
 
@@ -708,7 +595,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489551.jpg" />
 </div>
 
 
@@ -722,6 +609,116 @@ James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C17DC2837593337FD00A9B567CF209E5EE5A2658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 699272   (489127) от 12.09.2013
+
+Madonna - MDNA World Tour (2013) HDTV [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virgin Mary (Intro)
+02. Girl Gone Wild
+03. Revolver
+04. Gang Bang(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3196A078B7294699932F2421306B5BF8F1090C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381980   (489017) от 03.09.2011
+
+Sting. A Winter's Night... Live From Durham Cathedral (2009) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стинг, культовый певец из Великобритании, научил поклонников своего творчества быть готовыми к сюрпризам, которые ждут их на его новых работах. Чего стоит один альбом Songs From The Labyrinth, где компанию певцу составила исключительно средневековая музыка, да и то сыгранная на одном только инструменте. Та пластинка получилась настолько сильной, настолько яркой, (   Читать дальше...   )01. Gabriel's Message
+02. Soul Cake
+03. There Is No Rose Of Such Virtue
+04. The Snow It Melts The Soonest(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6EA9BFFE672D05E852EACAC2FD0A9F2A28AAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544820   (487700) от 09.09.2012
+
+MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9D772DD47C3F25018C44E522CAB826AB56A1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544823   (487697) от 09.09.2012
+
+Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9416E27CA3676B3FE08A4A5371B224C264AAC19
 ```
 
 https://mybot314.ru/tekegram_catalog/

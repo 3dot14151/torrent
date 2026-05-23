@@ -1,81 +1,3 @@
-###  Публикация: 1331454   (332343) от 15.10.2019
-
-Петер ван Гестел | Зима когда я вырос (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1947 год. Послевоенный Амстердам. Зимний лед не только на улицах города, но и в жизни людей, стремящихся обрести хоть какое-то равновесие. Десятилетний Томас живет вдвоем с отцом-мечтателем, который переходит с одной работы на другую и никак не может смириться со смертью матери мальчика. И сын остается практически без его внимания. У каждого в этом городе в это время (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 08:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147475FCCFE832BE9816E81D664283B921F4F743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420612   (332289) от 01.11.2020
-
-Михаил Тихонов | На тёмной стороне (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Красная звезда… Красная планета. Мертвая планета… Почти… Ни корабля, ни связи и никаких надежд выжить в агрессивной среде. Планета, на которой жизнь возможна в сумеречной зоне. На одном полюсе испепеляющая жара, на втором лютый холод. И только в линии терминатора, где солнце все время висит над линией горизонта, есть хоть какие-то шансы протянуть до утра… Которого (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаПродолжительность: 08:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056E3FA5DA722287301BFCE0208E60519EBB59D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420488   (332285) от 01.11.2020
-
-Роман Суржиков | Полари [Книга 2] Стрела. Монета. Искра (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Полари — мир фантастического Средневековья. Суровые и жестокие нравы здесь соседствуют с диковинными ростками будущего, мечи и арбалеты — с первыми электростанциями и железными дорогами. Император Адриан ведет государство нелегким путем реформ и прогресса. Могущественные феодалы плетут изощренные интриги, поднимают мятежи в борьбе за власть. Церковь также пользуется (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 12:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771D88F754A89EF592C9452938FA4AEB098D03D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420440   (332206) от 01.11.2020
 
 Альмира Рай | Э.С.К.О.Р.Т. (2020) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332206.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332194.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332150.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332145.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332006.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332001.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331878.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331849.jpg" />
 </div>
 
 
@@ -302,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331835.jpg" />
 </div>
 
 
@@ -328,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331758.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331715.jpg" />
 </div>
 
 
@@ -380,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331710.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331703.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331526.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331493.jpg" />
 </div>
 
 
@@ -486,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331040.jpg" />
 </div>
 
 
@@ -512,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330969.jpg" />
 </div>
 
 
@@ -541,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330951.jpg" />
 </div>
 
 
@@ -569,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330646.jpg" />
 </div>
 
 
@@ -597,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330616.jpg" />
 </div>
 
 
@@ -623,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330420.jpg" />
 </div>
 
 
@@ -650,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330414.jpg" />
 </div>
 
 
@@ -676,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_330409.jpg" />
 </div>
 
 
@@ -689,6 +611,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956237   (330105) от 14.11.2015
+
+Джеймс Роллинс | Линия крови (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дочь президента США Аманда Гант бесследно исчезла с борта собственной яхты, подвергшейся нападению в районе Сейшельских островов. Следы ведут к древней и могущественной организации, известной как «Гильдия», с которой давно борется секретная спецгруппа «Сигма». Ее директору Пейнтеру Кроу становится известно, что некоторое время назад Аманда забеременела в результате (   Читать дальше...   )Жанр: ТриллерПродолжительность: 15:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9FBE67E79E49B5A91A548977829B6A820CD21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956364   (330089) от 14.11.2015
+
+Тарас Асачёв | Палач (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Тёмная сторона».
+Можно ли рассчитывать на новую жизнь? Желать чего-то нового, приключений, любви и друзей. Новая жизнь – мечта и романтика. Можно об этом желать, если все так как вы планируете. А если новая жизнь будет без вашей памяти, там где вы не рассчитывали появиться? Уже не очень? А если судьба решит иначе, за вас и вы появитесь в странном (   Читать дальше...   )Жанр: Фантастика, попаданцы, иные мирыПродолжительность: 11:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AAEE12980958D068A113C9058C989D063D27BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580728   (329988) от 02.10.2022
+
+Иван Сергеевич Тургенев | Рудин (2010) [MP3, Николай Козий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Рудин» написан в 1856 году. И.С. Тургенев ярче всех своих сверстников уловил тот момент единодушия общественных стремлений, когда все хоронили старое и, не предвидя никаких осложнений, надеялись на лучшее будущее. Он первый с необыкновенной силой изобразил и поворотный пункт эпохи, когда начался разброд и из среды сторонников новых веяний выделились два течения (   Читать дальше...   )Жанр: Классическая проза, РоманПродолжительность: 06:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A831EF4EF211C4121539356434D1736E9B66F4D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

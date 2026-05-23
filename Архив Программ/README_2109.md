@@ -6,7 +6,7 @@ StaxRip 2.46 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68941.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Firefox Browser 136.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68757.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Vivaldi 7.2.3621.71 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68753.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GeoGebra 6.0.879 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68750.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Vivaldi 7.3.3635.2 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68710.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ QOwnNotes 25.3.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68708.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Firefox Browser ESR 115.21.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68670.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Firefox Browser ESR 115.21.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68668.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Firefox Browser 136.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68660.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Firefox Browser ESR 128.8.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68658.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Firefox Browser ESR 128.8.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68653.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ StaxRip 2.46.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68647.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PrivaZer Pro 4.0.104 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68607.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ant Download Manager Pro 2.15.2 Build 8951 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68605.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PrivaZer Pro 4.0.104 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68602.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ QOwnNotes 25.3.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68502.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Firefox Browser ESR 128.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68443.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Firefox Browser 137.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68440.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Duplicate File Detective 7.3.73.0 (x64) Professional / Enterprise / Server Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68399.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sandboxie plus 1.15.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68394.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Vivaldi 7.3.3635.7 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68383.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ FolderSizes 9.7.512 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68380.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Tablacus Explorer 25.4.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68369.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sandboxie 5.70.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68349.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Tablacus Explorer 25.4.4 Portable [Multi/Ru] (Pre-release)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68318.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ StaxRip 2.46.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68290.jpg" />
 </div>
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1432399   (163640) от 17.12.2020
-
-Константин Назимов | Cherry. Видевший будущее (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Неожиданно завершилась встреча с одноклассниками в далёком 1992 году. Виной тому красивая этикетка на бутылке спирта и непонятное содержимое, оказавшееся в ней, которое чуть не отправила на тот свет молодого парня. Перед Максом промелькнула вся его жизнь, но, что необычно и странно, не в порядке убывания. Он увидел те события, которым только суждено произойти, узнал (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 11:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DF4424551C1C0F966168C7FC94033D504A689C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345444   (163631) от 19.12.2019
-
-Владислав Выставной | Метро 2035: Крыша мира (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мы наш, мы новый мир построим…
-Лед и камень сжали в кулак последний анклав человечества в глубине вольфрамовых шахт у подножия Запретной Горы. Они забыли, что там, наверху, была жизнь. Они не верят, что там, наверху, что-то есть. Но черная смерть уже сочится в темные туннели. И кому-то придется высунуть голову из теплой норы в ледяной ад.Жанр: ПостапокалипсисПродолжительность: 13:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D2E85D5CD926A9A6AB590B582BBF318715B111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517148   (163595) от 14.12.2021
-
-Владимир Щербаков | Болид над озером (Сборник) (2021) [MP3, Юрий Рудник]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Болид над озером (1976)
-В 1955 году над одним из валдайских озёр пролетел болид. Герой рассказа, купавшийся в это время в озере, стал свидетелем странных явлений. Спустя двадцать лет его историей заинтересовались трое молодых физиков.Жанр: Научная фантастикаПродолжительность: 08:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF5D16C8D351B2DB0C77E80D7A211F621135FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673840   (163591) от 03.11.2023
 
 Марина Серова | Частный детектив Татьяна Иванова. До потери пульса (2023) [MP3, Виктория Томина]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163591.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163589.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163583.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163574.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163568.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163562.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163553.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163542.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163524.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163493.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163478.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163472.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163466.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163454.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163436.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163429.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163414.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163403.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163381.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163363.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163362.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163341.jpg" />
 </div>
 
 
@@ -666,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163336.jpg" />
 </div>
 
 
@@ -677,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7C2BFB90A77BA2254310B639A42DAE14D994643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673685   (163292) от 03.11.2023
+
+Софи Анри | Принц Ардена (Книга 1). Принц Ардена (2023) [MP3, Семен Мендельсон]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотни лет назад королевство Арден захватили южане. Кровь лилась рекой, пока правители не достигли соглашения: Хранителем Ардена станет принц-бастард Рэндалл. Ни король-отец, ни сводные братья никогда не жаловали Рэндалла, но тот жаждет справедливости. Чтобы укрепить позиции и спасти брата Уилла от нежеланного брака, Рэндалл решает взять в жены княжну Севера. Аврора (   Читать дальше...   )Жанр: Героическое фэнтези, Историческое фэнтезиИздательство: Эксмо, FreedomПродолжительность: 16:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252CE09B7C726720D24E9EE9B0E579FB8A9670A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674033   (163274) от 03.11.2023
+
+Генри Райдер Хаггард | Копи царя Соломона (2008) [MP3, Андрей Зарецкий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри Райдер Хаггард (1856–1925) английский писатель, автор множества приключенческих романов.
+Представляем аудиозапись, прочитанную актером театра им. Е.Вахтангова Андреем Зарецким, с шумовыми эффектами и оригинальным саундтреком.
+«Я, Хозе да Сильвестра, умирая от голода в маленькой пещере, пишу это собственной кровью в год 1590-й, обломком кости на клочке моей (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: СиДиКомПродолжительность: 10:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEE0053167002F62A556AD54568BB421B5CBD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468299   (163257) от 14.12.2021
+
+Герман Горшенев | S-T-I-K-S. Изолированный стаб. Книга 1 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая коммуна, закрытая со всех сторон непроходимой чернотой, населённая людьми современными, но с домами двенадцатого века. Социальный эксперимент хозяев Стикса, где умения компенсируют недостаток технического развития. Главный герой – взрослый человек, уже проживший долгую жизнь, счастлив тем, что у него здесь просто спина не болит, а если нужно пройти через (   Читать дальше...   )Жанр: Боевая фантастика, героическая фантастика, попаданцыПродолжительность: 13:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EF57653AB50114994B4169717024FD7E3FF00D
 ```
 
 https://mybot314.ru/tekegram_catalog/

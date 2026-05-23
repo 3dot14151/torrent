@@ -1,29 +1,3 @@
-###  Публикация: 1016829   (769422) от 15.05.2016
-
-Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Final Fantasy рассказывает историю героя по имени Tidus, звезды невероятного спорта Blitzball, который встречает обаятельную юную чародейку по имени Yuna и отправляется вместе с ней в долгое путешествие. Им предстоит спасти мир Spira от бесконечного цикла гибели и перерождения, причиной которого является колоссальное чудовище Sin.Тип издания: RepackРазработчик: SQUARE ENIXЖанр: RPG (Japanese-style), 3D, 3rd Person, CompilationЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C83155E834CF765BCF00F1D4652E7C9C0E1C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392347   (769314) от 25.06.2020
 
 Infected Maze (2020) [Multi] (1.0) License DARKSiDERS
@@ -32,7 +6,7 @@ Infected Maze (2020) [Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769314.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ P.A.M.E.L.A. (2020) [En] (1.0.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769272.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Railway Empire (2018) [Ru/En] (1.13.0.25864/dlc) Repack xatab (обновляе�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769269.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.1
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769265.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Spirit Legends 3: Time for / Легенды Духов 3: Время перем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769196.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fatal Evidence 2: The Missing / Роковые улики 2: Пропавшие 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769185.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.20.53319/dlc) Repack xatab (обновл
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769132.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Rolling Line (2018) [En] (3.7.5) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769017.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769013.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Rival Stars Horse Racing (2020) [Ru/Multi] (1.0) Repack Other s [Desktop Edition
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769007.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Hidden Expedition 19: The Price of Paradise (2020) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768913.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768874.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Pure Farming 2018 (2018) [Ru/En] (1.1/dlc) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768796.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768786.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Deadstep (2018) [En] (1.0.3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768782.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Duder (2018) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768751.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Demon Hunter V: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768521.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Cosmic Star Heroine (2017) [En] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768443.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Ready for Take off A320 Simulator (2017) [Multi] (1.0.1) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768389.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Bastion (2011) [Ru/En] (0.12367) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768386.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768237.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Someday You'll Return (2020) [Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768235.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Secrets of Great Queens 2: Regicide (2018) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767787.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Fear For Sale 12: Tiny Terrors (2018) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767741.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Queen's Quest 5: Symphony of Death (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767733.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Queen's Quest 5: Symphony of Death (2019) [En] (1.0) Unofficial [Collector's Edi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B03B45F1822956BEC929E22AF74878A7999EFE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125699   (767700) от 15.04.2017
+
+White Noise 2 (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть частью команды исследователя, или взять контроль над существом и поедать их! White Noise 2 предлагает 4vs1 асимметричный опыт ужаса, который никого не оставит равнодушным. White Noise 2 - это приключенческий хоррор, в котором четверо игроков пытаются выжить, столкнувшись с монстром, которого контролирует еще один человек. Действие игры проходит ночью в жуткой (   Читать дальше...   )Тип издания: LicenseРазработчик: Milkstone StudiosЖанр: Adventure (Horror), 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0788B36D4AB050D0D225E976D76B6FB041C428
 ```
 
 https://mybot314.ru/tekegram_catalog/

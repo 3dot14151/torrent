@@ -6,7 +6,7 @@ Caelum Audio - Flux Pro 1.0.1 VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036129.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ UJAM - Beatmaker CIRCUITS 2.2.1 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036115.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Freac 1.1.7 Stable + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035012.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ D16 Group - Phoscyon 2 2.1.0 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034839.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Cableguys - ShaperBox 3 3.2.3 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034741.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Cherry Audio - Mercury-6 1.0.5.84 Standalone, VSTi, VSTi 3, AAX (x64) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033626.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ reFX - Nexus 4.5.4 VSTi, VSTi 3, AAX (x64) RePack by VR + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031070.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ UVI - Phasor 1.0.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030752.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DS Audio - Tantra 2 2.0.1 VST, VST 3, AAX (x64) RePack by TCD + EXPANSION [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030736.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Fiedler Audio - Stage 1.2.0 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030527.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Accentize - Complete Bundle 2021.3 VST 3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024363.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Sony Noise Reduction 2.0m (Build 596) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021267.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Output - Thermal 1.0.1 VST, VST3, AAX (x86/x64) RePack by FLARE [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021166.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ SONY Sound Forge Pro 11.0 Build 299 Portable by Spirit Summer [Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020353.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Acon Digital Acoustica Premium 7.3.1 (x64) [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019936.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Slate Digital - Virtual Tape Machines 1.1.16.3 VST, VST3, AAX x64 RePack by R2R 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017215.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ TC Electronic - SYSTEM 6000 NATIVE Bundle 1.0.0.0 VST, VST3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017079.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ LiquidSonics - Illusion 1.1.7 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017062.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pulsar Audio - 1178 1.0.8  VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015289.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Softube - Weiss Compressor Limiter 2.5.9 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015276.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ CoolUtils Total Audio Converter 6.1.0.251 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014909.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Oeksound - Soothe2 1.1.2 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014116.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Arturia - Pigments 3.0.0.1375 STANDALONE, VSTi, VSTi3 (x64) [EN]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013500.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ MAGIX - Audio Plugin Union 2021 VST, VST3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013353.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Waves - Complete v12 (01.06.2021) VST, VST3, AAX, STANDALONE (x64) (Offline) [En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012774.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ TBProAudio - ISOL8 2.4.0 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012730.jpg" />
 </div>
 
 

@@ -1,107 +1,3 @@
-###  Публикация: 1509898   (792548) от 14.11.2021
-
-Семейный бюджет (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дружная семья из Краснодара – мама-преподаватель фортепиано, папа-конструктор аттракционов, дочь-блогер и сын-романтик – как и многие, покупает квартиру в ипотеку. Однако скоро оказывается, что платить за неё нечем. Теперь ради того, чтобы не остаться на улице, Фроловы идут на всё. Прожить неделю всей семьёй на 200 рублей? Легко! Сыграть классический концерт в костюме (   Читать дальше...   )Производство: Россия, Друг Друга, Медведьфильм ПродакшнЖанр: комедияРежиссер: Евгений АбызовАктеры: Юлия Александрова, Антон Филипенко, Валентина Ляпина, Георгий Стрелянный, Александр Лыков, Сергей Степин, Ангелина Миримская, Маргарита Дьяченкова, Арсений Попов, FedukПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91909E01DD989C1A7F2946A2721E4F7AFCF66511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201584   (791987) от 25.01.2018
-
-Сука (2014) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Красивая блондинка. Красный кабриолет. Прекрасный день. Почему бы его не испортить?Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Кирилл ЗимаАктеры: Марина Карасева, Борис Перцель, Андрей РезькоСубтитры: Английские (вшитые не отключаемые)Продолжительность: 00:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE65B6DEA7B4C5119099DF0DCCE12E04CC8BB861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607620   (791605) от 09.01.2019
-
-Кризис среднего возраста (1997) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой этого фильма Сергей приезжает в Москву, чтобы обрести нарушенное душевное спокойствие. Он устраивается работать на «скорой помощи» и тешит себя радужными надеждами. Но удары судьбы и разочарование во всем и во всех преследуют его на каждом шагу…Жанр: Драма, КомедияРежиссер: Гарик СукачевАктеры: Дмитрий Харатьян, Федор Бондарчук, Александр Балуев, Михаил Ефремов, Гарик Сукачев, Иван ОхлобыстинПродолжительность: 01:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD56727D2116B3BD3CE1E5A18EB9E405B7FBEEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275075   (791603) от 09.01.2019
-
-Французский попутчик (2016) WEB-DLRip [AD]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Студентка Елена Михалушкина летит в другую страну на опознание отца, погибшего в авиакатастрофе. Еще в российском аэропорту она знакомится с Андреем Егоровым, который уже несколько лет живет и работает за границей и возвращается теперь туда. Молодой человек вызывается помочь хорошенькой девушке, которая не знает языка и совсем одна в незнакомой стране. Он сопровождает (   Читать дальше...   )Производство: Россия | Стар Гелакси, Star MediaЖанр: БоевикРежиссер: Алексей ФеоктистовАктеры: Кирилл Плетнёв, Мария Андреева, Надежда Жарычева, Борис Клюев, Олег КаринПродолжительность: 01:27:26Реклама: присутствуют текстовые и видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902D74E887840E8F2B689FE5E097942074D0B17B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607623   (791599) от 09.01.2019
 
 Кризис среднего возраста (1997) DVDRip
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791599.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791545.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791478.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791475.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790962.jpg" />
 </div>
 
 
@@ -241,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790957.jpg" />
 </div>
 
 
@@ -268,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790943.jpg" />
 </div>
 
 
@@ -294,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790346.jpg" />
 </div>
 
 
@@ -321,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790306.jpg" />
 </div>
 
 
@@ -347,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790261.jpg" />
 </div>
 
 
@@ -373,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790248.jpg" />
 </div>
 
 
@@ -399,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790198.jpg" />
 </div>
 
 
@@ -425,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790194.jpg" />
 </div>
 
 
@@ -451,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790105.jpg" />
 </div>
 
 
@@ -477,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789795.jpg" />
 </div>
 
 
@@ -503,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789791.jpg" />
 </div>
 
 
@@ -530,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789780.jpg" />
 </div>
 
 
@@ -556,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789630.jpg" />
 </div>
 
 
@@ -582,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789550.jpg" />
 </div>
 
 
@@ -608,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789548.jpg" />
 </div>
 
 
@@ -634,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789498.jpg" />
 </div>
 
 
@@ -660,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789393.jpg" />
 </div>
 
 
@@ -671,6 +567,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B22A08CAEC879D18C1F8ACE430ADB8E9EE080B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202661   (789339) от 30.01.2018
+
+Новогодний переполох (2017) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверняка вы давно не играли в снежки... А в крокодила? Как ни странно, но именно этим вынуждены заниматься обитатели усадьбы Морозовых, потому что на кону отцовское наследство. И в этой нешуточной борьбе в ход идут любые средства. А средний сын Дима, неисправимый авантюрист, даже умудрился привезти с собой фиктивную семью. Только вот глава семейства, своенравный (   Читать дальше...   )Производство: Россия, RSS ProductionЖанр: Комедия, СемейныйРежиссер: Кирилл ПапакульАктеры: Владимир Меньшов, Константин Крюков, Анастасия Макеева, Ян Цапник, Инга Оболдина, Иван Пышненко, Екатерина Гордиенко, Эрик Тевосов, Мария Вэй, Ренат МухамбаевПеревод: Не требуется (русский) iTunesСубтитры: отсутствуютПродолжительность: 01:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8CCC9F0C464EBFBC2807D86823E22F729EDF33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202981   (789058) от 31.01.2018
+
+Экстренное торможение (2004) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой фильма преуспевающий бизнесмен, директор большого стекольного завода. У него есть красавица жена, очаровательная дочь. В одночасье он теряет практически все — уходит жена, едва не гибнет в автокатастрофе дочь, тут еще разборки с бандитами за землю...Производство: РоссияЖанр: Драма, мелодрама, криминалРежиссер: Пётр ЖуравлёвАктеры: Ян Цапник, Анна Геллер, Сергей Барковский, Анна Лутцева, Кирилл ПолухинСубтитры: ОтсутствуютПродолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA75FB2EEC926313C6C2469C3926FD600D9E272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202984   (789026) от 31.01.2018
+
+Афронт (2016) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может повлечь за собой, казалось бы, небольшая неприятность на дороге? Как отреагировать на незаслуженное, по вашему мнению, оскорбление от незнакомых людей? Как поступить? У каждого свой выбор...Производство: РоссияЖанр: Короткометражный, драма, криминалРежиссер: Давид АмбарцумянАктеры: Борис Круглов, Михаил Волженцев, Антон Куманяев, Алексей Шилов, Давид АмбарцумянСубтитры: Отсутствуют
+Присутствует ненормативная лексика!Продолжительность: 00:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EAE825F3EB5DB1DEBC2A494EE122B8B8FF354A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275956   (789004) от 14.01.2019
+
+БАгИ (2010) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что-то нарушилось в системе нашей жизни, что-то пошло не так… Их двое. Одному — 23, другому 68. Они не знают друг друга. От каждого из них зависит жизнь человека. Для ее спасения им необходимо достать огромную сумму денег. Это ситуация объединят их в трагических обстоятельствах.Производство: Россия / РоссфильмЖанр: Драма, семейныйРежиссер: Андрей БогатыревАктеры: Евгений Карельских, Алексей Боченин, Сергей Фетисов, Павел Абраменков, Елена Бирюкова, Ольга Кавалай-Аксёнова, Любовь Корнева, Александр Шпагин, Юрий Кузьменков, Николай Козак, Андрей Богатырёв, Игорь ВоробьёвСубтитры: ОтсутствуютПродолжительность: 01:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A700B2030354CF6F91E1726E314D3D53BC57C6B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

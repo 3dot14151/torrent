@@ -1,29 +1,3 @@
-###  Публикация: 1752546   (41814) от 01.10.2024
-
-The Invincible (2023) [Ru/Multi] (44.475) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-The Invincible представляет собой приключенческую игру с видом от первого лица. Проект использует антураж ретрофутуризма и отсылает к космической гонке между США и СССР в 20 веке. Тайтл выполнен в сеттинге атомпанка. Он может понравиться тем, кто любит атмосферу научно-фантастических триллеров. В основу нелинейного сюжета The Invincible лег роман "Непобедимый" (   Читать дальше...   )Тип издания: RepackРазработчик: Starward IndustriesЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06287E658DDE9E373B090691E1C0D3E0F54A4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752764   (41756) от 02.10.2024
 
 Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edition]
@@ -32,7 +6,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41756.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41752.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41751.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (28.16.0) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41749.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41736.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ To the Stars (2024) [Multi] (1.2.53) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41735.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41715.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41656.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41655.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Gravity Circuit (2023) [Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41653.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Steredenn: Binary Stars (2015) [Ru/Multi] (2.7.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41639.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ REYNATIS (2024) [Multi] (1.0.3/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41500.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ AMEDAMA (2024) [Multi] (2.0.0/2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41491.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Surreal Farm (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41486.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Beyond Hanwell (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41428.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack dixen18 [Enhanced Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41421.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41418.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.72) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41413.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Psycho Fear (2024) [Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41397.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41393.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41378.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Space Prison (2024) [Ru/Multi] (1.0.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41375.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41337.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Steamworld Heist (2016) [Ru/Multi]  (2.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41334.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41309.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:538B4ED47182BE487658982DAF8BB243B5BCCAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753681   (41291) от 06.10.2024
+
+Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в увлекательные приключенческие головоломки игры Machinika: Atlas. Вы выступите в роли музейного исследователя, главного героя игры Machinika: Museum, оказавшегося внутри инопланетного корабля, разбившегося на спутнике Сатурна, Атласе. С помощью спасательной капсулы вы оказываетесь в самом центре корабля. Machinika: Atlas - это продолжение игры Machinika: (   Читать дальше...   )Тип издания: RepackРазработчик: Littlefield StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A806BA0BE2E2DDE3FAE0234981122B483A8E7553
 ```
 
 https://mybot314.ru/tekegram_catalog/

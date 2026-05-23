@@ -1,29 +1,3 @@
-###  Публикация: 1815405   (2510) от 16.09.2025
-
-Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Nordic Ashes: Survivors of Ragnarok – динамическое приключение с элементами экшена и упрощенного рогалика. Сюжет вдохновлен скандинавскими легендами и мотивами. Главный герой оказывается в опасной среде, в которой он столкнется с полчищами вражеских и смертоносных существ. Ему необходимо остаться в живых среди сотен противников и ловушек, постепенно прокачивая свои (   Читать дальше...   )Тип издания: LicenseРазработчик: Noxfall StudiosЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BCABB1075CDAF917FC06FDCED61B280F8D9BF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818411   (2500) от 16.09.2025
 
 JETRUNNER (2025) [Ru/Multi] (1.0.1-dragon-0694/dlc) Repack FitGirl [Founders Edition]
@@ -32,7 +6,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.1-dragon-0694/dlc) Repack FitGirl [Founders Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2500.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.7.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2438.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2434.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.1/dlc) Repack Pioneer [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2432.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Let'sРlay [Supporte
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2431.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2430.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.9_15:1:60) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2427.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250826) Re
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2419.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Monster Energy Supercross 25 - The Official Video Game (2025) [Multi] (1585442/d
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2418.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.4/dlc) Repack Let'sРlay [Founders Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2417.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2416.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250908_2250-323631/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2404.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87582) Repack FitGirl [Coll
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2398.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack FitGirl [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2389.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack FitGirl [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2387.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2355.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ RoadCraft (2025) [Ru/Multi] (4.0/dlc) Repack seleZen [Rebuild Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2335.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ S.T.A.L.K.E.R.: Call of Prypiat (2010) [Ru/Multi] (1.10.0.26261) Repack Let'sРl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2282.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/Multi] (1.4.4) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2280.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Jotunnslayer Hordes of Hel (2025) [Ru/Multi] (1.0.2.88095/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2279.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Songs of Silence (2024) [Ru/Multi] (1.4.5-d.8740/dlc) Repack Let'sРlay [Support
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2277.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0-552065/dlc) Repack LetsPlay [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2276.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2274.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2272.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.10) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2270.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Terra Nil – градостроительный симулятор-песочн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E901C8009950C4616AEA01E94145FAF9F233FD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738069   (2269) от 18.09.2025
+
+TerraScape (2024) [Ru/Multi] (1.2.0.8) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2269.jpg" />
+</div>
+
+
+###  Подробнее
+
+TerraScape позволяет игрокам осуществить свою мечту - построить собственный город! Благодаря широкому выбору колод, предлагающих уникальные здания и возможности расширения, вы можете стратегически разместить свои карты на игровом поле, чтобы заработать очки и открыть новые награды. Вам нужно будет тщательно продумать влияние каждого здания на ваш город, включая его (   Читать дальше...   )Тип издания: LicenseРазработчик: Bitfall StudiosЖанр: Казуальные игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E21C6459A2C7C126CF4DF82F0C1410A76818CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,138 +1,3 @@
-###  Публикация: 1635116   (197946) от 24.05.2023
-
-А.Н. Свистунов | Построение распределенных систем на Java (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом курсе рассказывается о проблемах, сопровождающих разработку распределенных программных систем, и методах решения этих проблем. Все рассмотренные элементы технологии проиллюстрированы примерами, ознакомившись с которыми, читатели получат полное представление о методах разработки распределенных приложений на платформе J2EE.
-В рамках курса рассматривается (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F92D216E5A809498E7B378FE3DC579DDEE16075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635824   (197927) от 27.05.2023
-
-С.Р. Гуриков | Основы алгоритмизации и программирования на Visual C++ (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены основы алгоритмизации и программирования на языке Visual C++ для разработки Windows-приложений и создания консольных программ. Содержится описание работы линейных, разветвляющихся и циклических структур, принципов обработки одномерных и двумерных массивов, порядка создания DLL-библиотек и модулей, методов работы с файлами. Много внимания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD4B318DA362B0799807446D7679237E3EB4890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636081   (197889) от 28.05.2023
-
-Кристер Стурмарк, Дуглас Хофштадтер | Светоч разума. Рациональное мышление в XXI веке (2022) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Современный мир располагает огромным количеством идей, концепций и систем взглядов, которые предлагают человеку то или иное объяснение реальности. Теории заговоров, альтернативная медицина, духовные практики, астрология, эзотерика, несмотря на развитие науки, не теряют популярности. Но что они на самом деле могут объяснить? И почему многие люди так легко готовы поверить (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Инна Каганова, Татьяна ЛисовскаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732B0423AF32194E3A3AC2114E1E43D8F27C54FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636130   (197806) от 28.05.2023
-
-Marcos Mateu-Mestre | Серия книг по рисованию Framed: Drawing Techniques, Ink, Perspective [5 книг] (2010-2021) [PDF] [RU, EN]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Серия книг по рисованию "Framed" от Marcos Mateu-Mestre:
-- Framed Drawing Techniques
-- Framed Ink
-- Framed PerspectiveЖанр: РисованиеЯзык: Русский, АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B824747B1CF3330601286E04DE935D9B7EC5E0D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636723   (197752) от 31.05.2023
-
-И. Гончаренко | Антенны КВ и УКВ. Часть 6 (2014) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга является шестой (окончательной) частью справочника "Антенны KB и УКВ" и посвящена антеннам УКВ. В ней под ультракороткими волнами понимаются частоты от 50 до 3000 МГц.
-Первые части справочника выпущены издательством "РадиоСофт" в 2004-2009 гг. под названиями "Антенны KB и УКВ. Часть I. Компьютерное моделирование. MMANA", (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160C98523F59172E6EEAB45E1616FF8079AAFE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636619   (197727) от 31.05.2023
 
 Р.Г. Чембарисова | Механика. Курс лекций (2022) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197727.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197691.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197668.jpg" />
 </div>
 
 
@@ -221,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197648.jpg" />
 </div>
 
 
@@ -247,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197618.jpg" />
 </div>
 
 
@@ -273,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197598.jpg" />
 </div>
 
 
@@ -299,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197512.jpg" />
 </div>
 
 
@@ -325,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197509.jpg" />
 </div>
 
 
@@ -351,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197484.jpg" />
 </div>
 
 
@@ -377,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197364.jpg" />
 </div>
 
 
@@ -404,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197363.jpg" />
 </div>
 
 
@@ -430,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197299.jpg" />
 </div>
 
 
@@ -456,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197208.jpg" />
 </div>
 
 
@@ -483,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197198.jpg" />
 </div>
 
 
@@ -509,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197167.jpg" />
 </div>
 
 
@@ -535,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197151.jpg" />
 </div>
 
 
@@ -561,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197150.jpg" />
 </div>
 
 
@@ -590,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197146.jpg" />
 </div>
 
 
@@ -616,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197144.jpg" />
 </div>
 
 
@@ -642,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196924.jpg" />
 </div>
 
 
@@ -671,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196920.jpg" />
 </div>
 
 
@@ -682,6 +547,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A83BFFC594F57947457657DB61DF8AE7408624D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640724   (196903) от 19.06.2023
+
+В.М. Полевой (гл. ред.) | Популярная художественная энциклопедия [2 тома] (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная художественная энциклопедия: Архитектура. Живопись. Скульптура. Графика. Декоративное искусство
+
+В Популярной художественной энциклопедии помещены статьи о видах искусства, художественных стилях и направлениях, наиболее распространенных терминах изобразительного, декоративно-прикладного искусства и архитектуры, краткие статьи об искусстве отдельных стран (   Читать дальше...   )Жанр: энциклопедияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B3AF06C9161591D0EED0B934FEF32A822C390A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640730   (196899) от 19.06.2023
+
+Е.И. Тамм (гл. ред.) | Энциклопедия туриста (1993) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые издаваемая «Энциклопедия туриста» содержит около 3000 статей, посвященных основным видам туризма, туристским учреждениям и организациям, туристскому снаряжению и организации самодеятельных туристских походов, вопросам экскурсионного дела, краеведения, охраны природы, безопасности в походах, истории туризма, многочисленным историко-культурным и природным объектам (   Читать дальше...   )Жанр: энциклопедияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9337C6F4B8F12E54056B1DE6FC13C7BBCBC12809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635359   (196898) от 17.06.2023
+
+Артем Орел | Усиление эффектов наули ключевым упражнением на силу мышц живота (2023) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал адресован занимающимся йогой, делающим наули и только собирающимся освоить эту технику. Регулярная практика динамического упражнения «подъемы ног на гимнастической стенке» с касанием прямыми ногами перекладины радикально усиливает все эффекты наули. В первую очередь терапевтический и особенно при заболеваниях ЖКТ. Приведены два варианта освоения упражнения (   Читать дальше...   )Жанр: Йога, йогатерапия, ЛФКФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3362EA37414D6152890D83D09807B54AE9E260ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640731   (196891) от 19.06.2023
+
+Г.И. Воробьев (гл. ред.) | Лесная энциклопедия [2 тома] (1985-1986) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухтомная «Лесная энциклопедия» включает разносторонние сведения по лесоведению, лесоводству, лесоустройству и таксации леса, защитному лесоразведению, селекции и семеноводству основных лесообразующих пород, дендрологии, экономике и организации лесного хозяйства, его механизации и электрификации. В Энциклопедии приведены характеристики лесов и лесного хозяйства (   Читать дальше...   )Жанр: энциклопедияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E006333E581AEC78C9FDF9ABF9CD58C66D6DA383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640565   (196851) от 18.06.2023
+
+Серия книг «МИФ. Научпоп» [57 книг] (2014-2022) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Физика - понятными словами о сложном: о нашем месте в этой невероятной Вселенной и том, что мы о ней на сегодняшний день знаем. Математика - книги-приглашения в мир торжества логики, элегантности выводов и стройных теорий. Математическая абстракция умеет описывать мир и приносит интеллектуальное удовольствие для мозга. Экономика - вы удивитесь, как мало вы знали (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F5DAFEB8B12281F901D749113D841A4A8E6FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

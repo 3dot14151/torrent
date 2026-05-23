@@ -1,82 +1,3 @@
-###  Публикация: 1027266   (696657) от 19.06.2016
-
-Владислав Бахревский | Бородинское поле. Хождение встречь солнцу (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман: Бородинское поле 09:22:29
-Роман "Бородинское поле" повествует об одном из величайших событий боевой истории страны - Бородинском сражении 1812 года и рассматривает его в новом неожиданном ракурсе - через судьбы юных офицеров, чьи имена впоследствии стали гордостью России. Здесь не только захватывающие батальные сцены, но и жизнь, чувства, мысли, (   Читать дальше...   )Жанр: Исторический романПродолжительность: 15:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F588DA45213D578D3F0D3AAE71BDD74F14C787B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221150   (696625) от 23.04.2018
-
-Ким Стэнли Робинсон | Зеленый Марс (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Прошло пятьдесят лет с тех пор, как первые колонисты высадились на Марс. Красная планета постепенно теряет свой первозданный облик, и первые зеленые побеги уже карабкаются по холодным склонам скал. Но еще живы те, кто стремится сохранить пустынную красоту родной планеты и не допустить землян к управлению. Это – первое поколение детей, родившихся на Марсе, и они готовы (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастикаПродолжительность: 28:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2782034EADEB09A96E33911686F3D532624D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221239   (696623) от 23.04.2018
-
-Роберт Джордан, Брендон Сандерсон | Башни полуночи (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Последняя битва началась. Печати на узилище Тёмного рушатся. Узор эпохи распадается на глазах, и армии Тени стали выдвигаться из Запустения. Начинается закат Третьей Эпохи. Призраки прошлого преследуют Перрина Айбару. Белоплащники, убийца волков, и груз ответственности, лежащий на нём как на предводителе. Все это время невидимый враг медленно затягивает петлю на (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 42:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256668A4D3F41852F134B21EE03ACCB70D7164A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133074   (696597) от 11.05.2017
 
 Лев Толстой | Война и мир (2015) [MP3, Александр Клюквин]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696597.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696543.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696536.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696533.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696419.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696408.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696243.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696191.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696073.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695952.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695946.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695835.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695833.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695832.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_695830.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695823.jpg" />
 </div>
 
 
@@ -511,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695821.jpg" />
 </div>
 
 
@@ -537,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695687.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695642.jpg" />
 </div>
 
 
@@ -590,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695259.jpg" />
 </div>
 
 
@@ -616,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695112.jpg" />
 </div>
 
 
@@ -642,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695015.jpg" />
 </div>
 
 
@@ -668,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695006.jpg" />
 </div>
 
 
@@ -679,6 +600,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0588E6F9A2CA5810D1F5C688289C036008EDD212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221473   (694923) от 24.04.2018
+
+Иван Оченков | Великий герцог Мекленбурга (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет вторую аудиокнигу Ивана Оченкова, из уже ставшей популярной серии «Приключения принца Иоганна Мекленбургского» – «Великий герцог Мекленбурга». Новые приключения нашего соотечественника, волей судьбы оказавшегося в XVII веке.
+Век шпаг, мушкетеров и кружевных воротников… Он всего два года в этом мире, но можно сказать, что жизнь удалась. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 16:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95B9D611DF567DE6BF33CAA184E14B2274785BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221431   (694915) от 24.04.2018
+
+Иван Оченков | Приключения принца Иоганна Мекленбургского (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет аудиокнигу Ивана Оченкова «Приключения принца Иоганна Мекленбургского» – первую в одноименной серии.
+Волей судьбы наш современник оказывается в самом начале семнадцатого века в теле самого настоящего принца. Удачно получилось? Как бы не так! Принц – сирота, и жадные родственники желают лишить его наследства, инквизиция считает еретиком, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 13:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DD86643654C2056ACFFD76BAE2B354BA901A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211475   (694906) от 20.06.2010
+
+Эрнест Хемингуэй | Зелёные холмы Африки [2007] [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автобиографичная повесть Эрнеста Хемингуэя, вышедшая в 1935 году. Повествует об охоте писателя и его жены в африканских саваннах. В книге описано всё то, что происходило с Хемингуэем во время его двух сафари. События описаны не последовательно, автор слегка изменил их чередование. Сама книга повествует о волнениях, удачах и неудачах охоты, о жизни туземцев и окружающей (   Читать дальше...   )Жанр: повесть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8643142160A9084703516C88E800A8AB5DDF85F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

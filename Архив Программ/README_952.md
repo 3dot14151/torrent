@@ -6,7 +6,7 @@ AnyDesk 7.0.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568295.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2010 Standard 14.0.7172.5000 SP2 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568291.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Photoshop CC 2015.5.1 (20160722.r.156) + Plug-ins Portable by punsh [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568262.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ KMSAuto++ Portable 1.6.5 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568249.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568238.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SlimBrowser 7.00 Build 121 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568219.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Themes Windows7  STAR WARS 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568147.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ CyberLink YouCam 5 Deluxe 5.0.0909 RePack by mitya01201 (x86) [Multi/Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568142.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.592.18 Portable by Boomer 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568138.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Keyhunter WPI - Бесплатные программы 20120707 (x86/x64) [Ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568137.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Artweaver Free 5.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568131.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Adobe Shockwave Player 12.1.9.160 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568126.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Foxit Reader 7.2.0.722 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568031.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Adobe components: Flash Player 18.0.0.209 + AIR 18.0.0.180 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568020.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Shareman 3.78.136 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567987.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ DAEMON Tools Pro Advanced 6.1.0.0485 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567975.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Microsoft System Center Endpoint Protection 2016 Technical Preview 2 4.7.214.0 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567924.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ CCleaner 5.08.5308 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567918.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ NVIDIA GeForce Desktop 353.62 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567916.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ BluffTitler Pro 12.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567913.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Babylon 10.5.0r.6 Retail + Voice Pack + Dictionaries [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567910.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Daum PotPlayer 1.6.55390 DC 24.07.2015 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567909.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Avast! Free Antivirus 2015 10.3.2225 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567905.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567898.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Waterfox 56.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567842.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Accusonus - Regroover Pro 1.7.6 VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567824.jpg" />
 </div>
 
 

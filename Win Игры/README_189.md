@@ -1,29 +1,3 @@
-###  Публикация: 1143952   (631191) от 20.06.2017
-
-Moto Racer 4 (2016) [Ru/Multi] (1.0/dlc) License STEAMPUNKS
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Moto Racer 4 - это продолжение легендарной серии мотогоночных игр, которое возьмет из прошлых игр все самое лучшее, и все это будет приправлено современным игровым движком Unreal Engine 4 и графикой. Игроков ждет не только мотокросс, но и гонки на мощных спортивных байках по спортивным трекам и скоростным трассам.Тип издания: LicenseРазработчик: Artefacts StudiosЖанр: Arcade, Racing (Motorcycles), 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B5522027E597EA4FAD7990C2F1B025FBACD6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419672   (630948) от 10.04.2022
 
 Afterparty (2020) [Ru/Multi] (1.4.26f2) License GOG
@@ -32,7 +6,7 @@ Afterparty (2020) [Ru/Multi] (1.4.26f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630948.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Windward (2015) [Multi] (2017-06-17.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630946.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Season Match 4 / Времена Года 4 (2017) [Ru/En] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630944.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Perfect World / Идеальный мир (2005) [Ru/En] (1.3.6) Unofficial
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630932.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Witcher: Anthology / Ведьмак: Антология (2008-2015) [Ru/En/P
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630817.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ S.T.A.L.K.E.R. - Сердце зоны (Mod/Add-on) [Ru] 2010
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630362.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ GAIN (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629814.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Ghost 1.0 (2016) [Ru/Multi] (1.0.24) Repack Let's Play
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629811.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629810.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Tales of Destruction (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629806.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Cheat Engine (2015) [Ru] (6.5.1) Portable
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629802.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Endless Fables 4: Shadow Within (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629775.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629627.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629616.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Football, Tactics & Glory (2018) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629567.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Moonlighter (2018) [Ru/Multi] (1.4.4.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629566.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Tunnels of Despair (2018) [Ru/En] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629563.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Sonic Mania (2017) [Multi] (1.06.0503/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629463.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Rogue Legacy (2013) [Ru/En] (1.0.13) RePack e2e4
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629419.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.94/dlc) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629347.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Beholder 2 (2018) [Ru/En/Ch] (Upd20190129) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629343.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Attack on Titan 2 (2018) [Multi] (1.4.0.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629331.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Endless Space 2 (2017) [Ru/Multi] (1.4.2 S5/dlc) Repack R.G. Механики [D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629327.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ City of Brass (2018) [Ru/Multi] (1.5.1/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629325.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629319.jpg" />
 </div>
 
 
@@ -671,6 +645,35 @@ BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:724DF2865FCFE0413AB538EE8021E9B26C6DD549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520798   (628450) от 10.07.2012
+
+Hoard [Multi5\-] (RePack/1.0) 2011 | R.G. ReCoding
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно герой игры про драконов занимается тем, что бегает по королевствам и убивает этих огромных монстров, но в Hoard вам предстоит выступить в роли этого самого монстра...
+
+По сюжету игры, расширяющееся королевство намеревается вытеснить его с законной территории. Так что нам придется сделать все, чтобы этого не случилось – красть золото из казны, нападать на караваны (!!!), осуществлять рейды на склады еды и даже палить дома.
+Главное добиться того, чтобы дракону никто не мешал снова погрузиться в мирный сон !..(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Action / 3D / Top-downЯзык интерфейса: Английский, Испанский, Немецкий, Французский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795CDD00978B6748E9BF59506992CA26F44E57A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

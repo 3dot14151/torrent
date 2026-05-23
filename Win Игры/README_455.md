@@ -1,29 +1,3 @@
-###  Публикация: 1744485   (45988) от 22.08.2024
-
-Nightmare Side: The Game (2023) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Nightmare Side: The Game – как вы смотрите на то, чтобы погрузится с головой в настоящий индонезийский хоррор? В таком случае приготовьтесь посетить радиостанцию, в Бандунге. И ни в коем случае не слушайте ее в одиночку, если, конечно, не хотите пригласить тьму! Еще с 1997 году на радиошоу возникла Nightmare Side и транслируется по сей день. Где рассказываются действительно (   Читать дальше...   )Тип издания: RepackРазработчик: Hige StudioЖанр: Приключенческие игрыЯзык озвучки: ИндонезийскийЯзык субтитров: Английский, ИндонезийскийЯзык интерфейса: Английский, Индонезийский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C7B96E7F6989635A7105CCBD2A90F30DAD7EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744492   (45987) от 22.08.2024
 
 Unrooted (2024) [En] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Unrooted (2024) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45987.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ For The King II (2023) [Ru/Multi] (1.2.15/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45949.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45916.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0.11/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45915.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Who is Abby (2023) [En] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45905.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Trinity Trigger (2024) [Multi] (1.0.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45895.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Escape From Warehouse / Побег со склада (2024) [En] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45888.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Warriors of the Nile (2020) [Multi] (1.0310) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45875.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Twin Mind 5: The Deathly Trick (2024) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45874.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45870.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Warriors of the Nile 2 (2022) [Multi] (1.2030) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45860.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Outlanders (2023) [Ru/Multi] (20240822/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45833.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Homeless (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45832.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Combat Mission: Battle for Normandy (2023) [En] (Battle Pack 2/dlc) Scene Skidro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45811.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dicefolk (2024) [Ru/Multi] (20240819) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45789.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Frontiers Reach (2020) [En] (Chapter 3) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45788.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Super Antonio (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45780.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45747.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Hellcard (2024) [Ru/Multi] (1.1.240821/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45746.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45733.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1-b5421/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45730.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Harvest Island (2023) [Multi] (20240512/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45729.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Yohane the Parhelion - NUMAZU in the MIRAGE - (2024) [Multi] (1.0.14/dlc) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45725.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Elemental Exiles / Странники стихий (2024) [Ru/Multi] (1.0) Scene
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45720.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45719.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02F50CC7DBD98308D12FE70A891BAFF84C544023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745171   (45706) от 25.08.2024
+
+3 Minutes to Midnight - A Comedy Graphic Adventure (2024) [Multi] (1.0.4) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45706.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 Minutes to Midnight – казуальное инди-приключение с всевозможными головоломками, наполненное сатирой и пародиями на современное общество, юмором (порой чёрным и грубым) и непредсказуемыми сюжетными поворотами. Этот проект использует вид сбоку, что позволяет передвигаться в двух измерениях. Задние фоны проработаны и выполнены в трёхмерном стиле. Доступно управление (   Читать дальше...   )Тип издания: SceneРазработчик: Scarecrow StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B451DE18D35136675ADEE2142F52319D5A9FD9A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

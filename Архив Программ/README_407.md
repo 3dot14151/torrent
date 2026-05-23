@@ -6,7 +6,7 @@ Alcohol 120% 2.0.3 Build 8806 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836148.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836140.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ThisIsWin11 0.85.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836139.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Blackmagic Design DaVinci Resolve Studio 17.3.2 Build 8 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836134.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kerish Doctor 2021 4.85 (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836131.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Internet Download Manager 6.37 Build 12 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836097.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cockos REAPER 6.09 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836093.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AquaSoft Stages 10.4.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836054.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MakeMKV 1.9.9 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836043.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ cFosSpeed 10.12 Build 2260 Final (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836037.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blackmagic Design DaVinci Resolve Studio 17.3.2 Build 8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836021.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ KMSAuto++ Portable 1.5.9 by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836016.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Freac 1.1.1 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835997.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe Animate CC 2015 (v15.1.1) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835945.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Alcohol 52% 2.0.3.8806 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835944.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Google Chrome 49.0.2623.112 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835929.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Windows 10 Manager 2.0.7 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835913.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.3 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835901.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ashampoo Burning Studio 21.6.0.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835892.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ KMS Tools Portable by Ratiborus 08.10.2021 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835846.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ MKVToolNix 46.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835822.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Tixati 2.73 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835817.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alcohol 120% 2.0.3.8806 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835784.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Microsoft Windows 10 Insider Preview 10.0.14316 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835781.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ KMSAuto Net 2016 1.4.9 DC 11.03.2017 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835752.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ KMS Tools Portable 11.03.2017 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835749.jpg" />
 </div>
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1345285   (166974) от 14.12.2019
-
-Борис Акунин | История Российского Государства (Том 7). Первая сверхдержава. Александр Благословенный и Николай Незабвенный (2019) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Эта аудиокнига посвящена событиям первой половины XIX века, эпохе правления сыновей императора Павла – Александра, кумира отечественных либералов, и Николая, кумира отечественных государственников. Два эти политических режима, очень разные по идеологии и стилю, задали России новый ритм дыхания, продолжающийся и поныне. Какие уроки можно извлечь из изучения александровско-николаевской (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 12:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1279C1D4E7A8F3891C70AB3E69AE4A9D17C92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345304   (166951) от 14.12.2019
-
-Станислав Сергеев | Призрак Родины (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Большой космос. Нашествия негуманоидных рас, интриги, предательство, большая политика, древние тайны и кровь, много крови. В водовороте эпохальных событий оказывается наш современник, который в гражданской войне потерял все: родных, друзей, соратников, любовь. Его жизнь – это дорога, дорога Воина, его девиз: «Делай, что должен, и будь, что будет».Жанр: Боевая фантастика, героическая фантастика, космическая фантастикаПродолжительность: 14:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFABF90CE632EC5E14101B9B9D6CEB83C42D78E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597197   (166910) от 14.12.2022
-
-Рейчел Гивни | Влюбленная Джейн (2022) [MP3, Марина Никитина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Что, если бы Джейн Остен перенеслась в наше время… и влюбилась?
-
-Эта история повествует о легендарной английской писательнице Джейн Остен, которая отправилась в путешествие на двести лет вперед. Джейн не только находит счастье, о котором писала в своих книгах, но и оказывается перед сложным выбором: творческое наследие или любовь?
-На дворе 1803 год.(   Читать дальше...   )Жанр: Исторические любовные романы, Любовно-фантастическии романыПродолжительность: 12:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7CCC3938F7BEC18D7BBC042539DF3F4150CDC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672978   (166882) от 30.10.2023
 
 Проект Анонимус | Анонимус (Книга 11). Дело Саввы Морозова (2023) [MP3, Александр Клюквин]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166882.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166876.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166867.jpg" />
 </div>
 
 
@@ -170,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166842.jpg" />
 </div>
 
 
@@ -198,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166831.jpg" />
 </div>
 
 
@@ -224,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166827.jpg" />
 </div>
 
 
@@ -253,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166818.jpg" />
 </div>
 
 
@@ -280,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166816.jpg" />
 </div>
 
 
@@ -306,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166810.jpg" />
 </div>
 
 
@@ -334,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166807.jpg" />
 </div>
 
 
@@ -361,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166803.jpg" />
 </div>
 
 
@@ -387,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166802.jpg" />
 </div>
 
 
@@ -414,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166785.jpg" />
 </div>
 
 
@@ -441,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166783.jpg" />
 </div>
 
 
@@ -468,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166778.jpg" />
 </div>
 
 
@@ -494,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166774.jpg" />
 </div>
 
 
@@ -522,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166762.jpg" />
 </div>
 
 
@@ -549,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166756.jpg" />
 </div>
 
 
@@ -577,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166752.jpg" />
 </div>
 
 
@@ -603,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166745.jpg" />
 </div>
 
 
@@ -630,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166729.jpg" />
 </div>
 
 
@@ -659,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166728.jpg" />
 </div>
 
 
@@ -686,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166705.jpg" />
 </div>
 
 
@@ -697,6 +616,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8696423C85DB33BFAF00BD9E61EBDA34F13907F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597394   (166699) от 14.12.2022
+
+Леонид Юзефович | Журавли и карлики (2022) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще со времен Гомера существует миф о вечной войне журавлей и пигмеев, народа карликов. Именно этот миф лег в основу книги «Журавли и карлики» Леонида Юзефовича, за который он получил премию «Большая книга». Что объединяет авантюриста времен Османской империи, цесаревича Алексея, еле спасшегося и прибывшего в Забайкалье в Гражданскую войну, 40-летнего геолога из (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 15:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD61F37F108B22244F09027C0742E5951D4C92EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597267   (166666) от 14.12.2022
+
+Александра Лисина | Трис и Ширра (Книга 3). Аллира (2022) [MP3, Алевтина Жарова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166666.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Аллира» – фантастический роман Александры Лисиной, третья книга цикла «Трис и Ширра», жанр героическое фэнтези, городское фэнтези.
+
+Мглистые горы – это место из моих снов, куда я стремлюсь попасть и где, если верить духу-хранителю, еще остались мои родные. И я непременно туда доберусь, даже если близкий друг внезапно станет врагом, кровный враг превратится в друга, (   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтезиПродолжительность: 10:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE924436825DB91E5110E7584DB361E32F433B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333649   (166654) от 30.10.2023
+
+Марина Цветаева | Стихи (2008) [MP3, Вера Павлова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается сборник стихов замечательной поэтессы Марины Цветаевой. Актерское чтение стихов отличается от поэтического. Актер всегда занимается голосовой интерпретацией материала, а с точки зрения поэта стихи должны «читать себя сами». Именно в этом заключается основное отличие выходящей антологии «большой четверки» серебряного века, составленной (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: КонтентМедиаПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C794959C1CAF640A8D6C2F5BD10544F1B8E5DE9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

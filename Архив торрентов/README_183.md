@@ -6,7 +6,7 @@ Principle 6 v6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014847.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sublime Merge 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014836.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Calibre 5.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014823.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ gardenstate - AFTR:HRS SESSIONS 05 (2021-05-13) [MP3|320 Kbps] <Progressive Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014820.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Bootstrap Studio 5.6.4 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014796.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Vintage Culture - Cigarettes After Sex 003 (2021-05-15) [MP3|320 Kbps] <Tech Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014791.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Sublime Text 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014783.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Format Factory 5.7.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014782.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ StartIsBack++ 2.9.13 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014739.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Adobe Photoshop 2021 22.4.1.211 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014727.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gif Me! Camera Pro 1.83 [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014722.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ StartIsBack++ 2.9.13 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014721.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Windows Firewall Control 6.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014719.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Comedy Баттл (21.05.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014661.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014624.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014602.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ UltraISO Premium Edition 9.7.6.3812 (DC 23.05.2021) RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014576.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FSNotes 4 v4.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014561.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ DVD-Cloner 2021 v8.00.723 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014560.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Stats 2.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014557.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Soulver 3 v3.4.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014553.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tower 6 v6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014552.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Capture One 21 Pro Pro Beta5 v14.2.0.137 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014550.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ iToolab UnlockGo 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014540.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ iToolab FixGo 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014516.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Sweet Home 3D 6.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014510.jpg" />
 </div>
 
 

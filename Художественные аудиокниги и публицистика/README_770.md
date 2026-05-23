@@ -1,84 +1,3 @@
-###  Публикация: 1657458   (192655) от 03.09.2023
-
-Валентин Пикуль | Слово и дело (Книги 1 и 2) (2013) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый роман-хроника Валентина Пикуля «Слово и дело» состоит из двух томов. Это достаточно жестокое произведение, впрочем, как и сама Россия периода царствования императрицы Анны Иоанновны. Автор книги «Слово и дело» погружает читателя в борьбу аристократии за власть, мир дворцовых интриг и переворотов. Страну в буквальном смысле заселили и сковали иноземцы – (   Читать дальше...   )Жанр: Исторический романИздательство: Нигде не купишьПродолжительность: 64:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E38C9E659B0932C5765470F76DB50B000C1784F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657533   (192648) от 03.09.2023
-
-Дмитрий Силлов | Снайпер. Закон Фукусимы (2023) [MP3, Макс Радман]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Роман из цикла «Снайпер» межавторского цикла «Сталкер».
-
-Изменив прошлое, Снайпер нарушил гармонию нашего мира. Повсюду начали происходить необъяснимые явления, в том числе и в Зоне Фукусимы, где несколько лет назад произошла ядерная катастрофа. Группа ученых, работавших в Зоне, пропала. Все, кто пытался прийти им на помощь, также исчезли. И кто как не Снайпер, легендарный (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 06:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A2CCFA3CF3A4635B212096F8F3FE6EA854897C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587470   (192644) от 31.10.2022
-
-Джей Ди Кирк | Куча костей (2022) [MP3, Михаил Прокопов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Пропавший ребенок. Плюшевый мишка у дверей. И 48 часов на поиски…
-Шотландия, наши дни. Гуляя по лесу со своим отцом и собакой, бесследно исчезает семилетний Коннор Рид. И тут же родителям мальчика подбрасывают конверт с фото их сына, привязанного к стулу. А еще – плюшевого мишку… Ведущий расследование старший инспектор Логан потрясен: это слишком похоже на почерк (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективыПродолжительность: 08:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C350CB278F036B0E5CC477CC616EEF428EEBF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587628   (192642) от 31.10.2022
 
 Фредерик Браун | Письмо фениксу (2022) [MP3, Scaners]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192642.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192639.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192637.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192635.jpg" />
 </div>
 
 
@@ -195,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192629.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192595.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192590.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192589.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192555.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192526.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192523.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192431.jpg" />
 </div>
 
 
@@ -406,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192427.jpg" />
 </div>
 
 
@@ -432,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192425.jpg" />
 </div>
 
 
@@ -460,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192413.jpg" />
 </div>
 
 
@@ -486,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192410.jpg" />
 </div>
 
 
@@ -515,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192406.jpg" />
 </div>
 
 
@@ -541,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192403.jpg" />
 </div>
 
 
@@ -568,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192387.jpg" />
 </div>
 
 
@@ -594,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192369.jpg" />
 </div>
 
 
@@ -620,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192364.jpg" />
 </div>
 
 
@@ -646,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192351.jpg" />
 </div>
 
 
@@ -673,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192343.jpg" />
 </div>
 
 
@@ -686,6 +605,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3AE94A0D9FC755571F8A1D7A622CE1EFF58E334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657648   (192332) от 04.09.2023
+
+Олег Сапфир, Ковтунов Алексей | Лекарь (Книга 1). Идеальный мир для Лекаря (2023) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всю свою жизнь я посвятил изучению целительского мастерства, стал лучшим, самым сильным лекарем в своем мире... Но брат почему-то решил, что я буду претендовать на его трон и привел свое войско. Впрочем, неважно, всё равно уже давно собирался провести этот ритуал, и теперь...
+Я в другом мире? В теле какого-то юнца? И что значит лекарь здесь - это самый убогий дар? (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-АнимеИздательство: Аудиокниги своими рукамиПродолжительность: 08:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1519E976F9D5581214D0592C4F8E61E2C1F2437A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587856   (192301) от 01.11.2022
+
+Ник Перумов | Гибель богов 2 (Книга 8.2). Душа Бога. Том 2. Часть 2 (2022) [MP3, Роман Волков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192301.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, начатая больше тридцати лет назад, подошла к своему завершению. Мы узнаем, что случилось со всеми героями саги, смертными и бессмертными, уцелела ли вселенная Упорядоченного и вышел ли кто-нибудь победителем в схватке вселенских сил. В день, когда заканчиваются все пути, открываются все двери и находятся ответы на все вопросы. В день Рагнарёка, истинной (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 10:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D274AD1D47D03E71D0015F04542C3683FCFE228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587715   (192293) от 01.11.2022
+
+Вадим Оришин | Крыло (Книга 2) (2022) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боль утрат оставляет шрамы на сердце. Жизнь, пронизанная ложью и предательством, заставляет душу черстветь. За словами о чести скрывается гниль высокомерия. Стоило преодолеть одни опасности, как судьба подбросила новые.
+
+Второе Крыло. Это история о человеке, который стал самым страшным из чудовищ, и о чудовище, что человечнее любого из людей.Жанр: Боевое фэнтезиПродолжительность: 12:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D8AFF31B963E0A3345E3F82FF69B7B53D607CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

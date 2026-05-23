@@ -1,81 +1,3 @@
-###  Публикация: 1036813   (615583) от 23.07.2016
-
-Януш Вишневский | Прости… (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Януш Вишневский вновь рассказывает нам пронзительную историю любви и драматическую историю жизни – на этот раз от лица мужчины. Внезапно открывшаяся измена жены толкает мужа на отчаянный и страшный шаг. Слепая жажда мести, роковые выстрелы – и жизнь Винсента уже никогда не будет прежней. Как простить предательство, пережить утрату и возможно ли искупить тяжкий грех (   Читать дальше...   )Жанр: Современная зарубежная литератураПродолжительность: 08:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A80EC0FDABF461BB60A1DF2EC6140C434791F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036720   (615575) от 23.07.2016
-
-Алексей Дидуров | Легенды и мифы Древнего Совка (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Москва 50-х, 60-х, 70-х годов… Многое из того, что происходит сегодня с Россией и с нами, зарождалось, вызревало на кривых и горбатых московских улочках, в гулких переулках и в глубине дворовых проходных лабиринтов столицы СССР. Судьбы, сюжеты, личности, типажи и персонажи авантюрного трагикомического театра городской жизни – вот объекты авторского взгляда Алексея (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BAB779626D64C42313A36836462806A94A96AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036724   (615478) от 23.07.2016
-
-Энтони Бёрджесс | Заводной апельсин (2016) [MP3, Михаил Горевой]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Заводной апельсин"– потрясающий моноспектакль в исполнении Михаила Горевого с музыкальным сопровождением, точно и ярко иллюстрирующим шокирующие драматические события, происходящие в романе. Умный, жестокий, харизматичный антигерой Алекс, лидер уличной банды, проповедуя насилие как высокое искусство жизни, как род наслаждения, попадает в железные тиски (   Читать дальше...   )Жанр: Современная прозаИздательство: АудиокнигаПродолжительность: 07:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA83E780E2E6C0D2F689B9B2EC85CE77A016A13B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036636   (615475) от 23.07.2016
 
 Владимир Обручев | Плутония (2016) [MP3, Максим Суслов]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615475.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615387.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615370.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615355.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615269.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615158.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615155.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615154.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615084.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615080.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615079.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615071.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614585.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614584.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614573.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614558.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614550.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614549.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614527.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614515.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614424.jpg" />
 </div>
 
 
@@ -643,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614417.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614278.jpg" />
 </div>
 
 
@@ -680,6 +602,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C906748A07DD1554300A1AB3A231735864FB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230567   (614056) от 13.06.2018
+
+Александр Макколл Смит | Правильное отношение к дождю (2018) [MP3, Ирина Воробьева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614056.jpg" />
+</div>
+
+
+###  Подробнее
+
+С шотландским климатом примиряет Правильное отношение к дождю. С жизнью мирит готовность смело принимать ее дары. Это трудно дается Изабелле Дэлхаузи. Слишком много мыслей и слишком мало поступков. Что тут скажешь, философ.
+Она редактирует умный журнал и отчаянно старается не лезть в чужие дела. Не корить племянницу, связавшуюся с маменькиным сынком и рохлей. Не (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD1F3F4CAF251D7C0C62F5E623814198047DEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909672   (613839) от 24.06.2015
+
+Дем Михайлов | Судьба клана (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающие приключения Роса в волшебном мире Вальдиры продолжаются! Тернист и опасен путь к верщине, но настоящий герой никогда не пасует перед трудностями и добивается цели. Оказавшись втянутым в разборки кланов, Рос старается любым способом выполнить миссию, несмотря на нескончаемые препятствия на своем пути. Предательство и настоящая дружба, любовь и ненависть (   Читать дальше...   )Жанр: Научная фантастика, Боевое фэнтези, LitRPGПродолжительность: 10:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBE4314B1AB2B19776A43A7D03CA4881ACDC772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230494   (613756) от 13.06.2018
+
+Марк Калашников | Меж сном и явью (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в спину дышит старуха с косой, согласишься на многое, а тут всего-навсего работу предлагают. И не где-нибудь, а в легендарной корпорации «Трансформа»! Да и работенка не пыльная: стать бета-тестером новой компьютерной игры с полным погружением в виртуальную реальность. Подарок судьбы! Разве что раса досталась весьма специфическая и не очень почетная, да болевой (   Читать дальше...   )Жанр: ЛитРПГПродолжительность: 16:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C88DFE244B4FF537CEDE5F42C15CD19E3F0E2E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

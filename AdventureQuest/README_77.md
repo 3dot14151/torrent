@@ -1,29 +1,3 @@
-###  Публикация: 1717886   (58936) от 22.04.2024
-
-My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Под огнями Сеула вы, назначенный водитель, выхватываете заказ у загадочной девушки. Перед вами стоят ангелы женской группы страны. В результате внезапного скандала вы выдаете себя за их агента и становитесь опорой музыкальной индустрии! Вас ждет аромат любви и блеск карьеры – как выберете? Попросту говоря, перед вами довольно не самая обычная игра, а фантастическая (   Читать дальше...   )Тип издания: SceneРазработчик: Bing WorldЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: КорейскийЯзык субтитров: Английский, Китайский (традиционный), КорейскийЯзык интерфейса: Английский, Китайский (традиционный), Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717875   (58927) от 22.04.2024
 
 Scars Above (2023) [Ru/Multi] (1.0.0.132679) License GOG
@@ -32,7 +6,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58927.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58923.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/En] (1.1.0) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58907.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Sophia the Traveler (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58888.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Aquamarine (2022) [En] (2.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58841.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ FLAKE The Legend of Snowblind (2024) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58807.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shinkansen 0 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58805.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58796.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Scott Whiskers in: the Search for Mr. Fumbleclaw (2024) [Multi] (1.0.155) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58697.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58566.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58553.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Once a Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58539.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58453.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58393.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58271.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Staffer Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58165.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/En] (27042024/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58111.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tad the Lost Explorer (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58068.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719/dlc) Sc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58059.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ POOLS (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58008.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57479.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57108.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56939.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56911.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56893.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:011C415B8F7D0CD64479FFA3A4AD3E973E7D859B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723146   (56569) от 14.05.2024
+
+The Bridge Curse 2: The Extrication / Проклятый мост 2: Эвакуация (2024) [Ru/Multi] (1.6.4) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56569.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bridge Curse 2: The Extrication - продолжение одноименной серии психологических хорроров от первого лица, созданных по мотивам тайваньских городских легенд. События разворачиваются на территории университета Вэнь Хуа, где студенты не раз замечали сверхъестественную активность и убеждены в существовании призраков в стенах своего учебного заведения. В попытках (   Читать дальше...   )Тип издания: RepackРазработчик: SOFTSTAR ENTERTAINMENTЖанр: Приключенческие игрыЯзык озвучки: Английский, Китайский (традиционный)Язык субтитров: Русский, Английский, Тайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Тайский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DA5E27C7E54993DB77116C1AFDF9F1724EEC6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Зимняя Дискотека DFm (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997040.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Танцевальная Сборная Хитов. Зарубежный (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997028.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ VA-Зимний хит-парад звёзд Российской попмузы
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996989.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA-Шевели попой (2013) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996765.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA-Cупер новая сотка хитов Dfm (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996742.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Горячая 20 (22 Альбома) (1999-2012) [MP3|320 kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996658.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA-Golden Romance Collection (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996624.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA-Убойный Русский Хит (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996493.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA-Super Dance Hits DFM (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996474.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Шевели Попой 2 (Русский выпуск) (2013) [MP3|128 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_996455.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996163.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|1
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_995863.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Зажигательная вечеринка. Зимний выпуск. �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995236.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Митяевские песни. Часть 3 (2011) [MP3|320 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995182.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Радио Шторм - Русский Шторм - 85 (2013) [MP3|128-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994829.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA-Зимний марафон DFM №22 (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992290.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Радио Шторм - NeРусский Шторм - 86 (2013) [MP3|128-32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992259.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Зарубежный чарт TOP 100 German (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992212.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Исаак Шварц. Песенка Верещагина (Лучшие п
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991923.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Слушай и танцуй. Лучшие хиты 2 (2013) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991147.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - German Top 100 Single Charts 17.01.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990797.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ VA - Дискотека Зеленоглазое Такси Золотой вы�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990633.jpg" />
 </div>
 
 
@@ -764,7 +764,7 @@ VA - Клубная Zона №3 (2013) [MP3|256 кб/с]<Pop,Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990497.jpg" />
 </div>
 
 
@@ -799,7 +799,7 @@ VA-Двигай Попой! Часть 6 (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990303.jpg" />
 </div>
 
 
@@ -834,7 +834,7 @@ VA - Интернациональный сборник популярной му
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989858.jpg" />
 </div>
 
 
@@ -869,7 +869,7 @@ VA-Сотка любимой музыки. Зимний выпуск 50/50 (2013
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989442.jpg" />
 </div>
 
 

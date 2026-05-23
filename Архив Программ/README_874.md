@@ -6,7 +6,7 @@ Comodo Internet Security Premium 12.0.0.6818 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603044.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sandboxie 5.30 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603041.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Driver Booster Pro 6.4.0.394 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603039.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kaspersky Free Antivirus 19.0.0.1088 (d) Repack by LcHNextGen (24.04.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603019.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Aiseesoft Screen Recorder 2.2.82 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602978.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ save2pc Ultimate 5.4.9 Build 1569 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602962.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HyperSnap 8.13.02 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602955.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Perfectly Clear WorkBench 4.1.0.2278 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602952.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ iZotope - Neutron 3 Advanced 3.9.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602949.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SRWare Iron 100.0.5100.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602940.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VueScan Pro 9.7.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602933.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ CoolUtils Total Doc Converter 5.1.0.168 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602932.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Ashampoo WinOptimizer 15.00.03 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602923.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Slimjet 15.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602918.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ HitPaw Watermark Remover 1.3.8.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602909.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ OCCT 10.1.7 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602908.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ EagleGet 2.0.4.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602889.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Ashampoo WinOptimizer 15.00.03 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602885.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ GiliSoft Video Editor 8.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602882.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ AOMEI Partition Assistant Technician Edition 9.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602869.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ iZotope - Nectar 3 Plus 3.6.2a VST, VST3, RTAS, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602864.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Futuremark PCMark 10 Professional Edition 2.1.2556 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602863.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Native Instruments - Guitar Rig 6 Pro 6.2.2 STANDALONE, VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602856.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v6.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602853.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ K-Lite Codec Pack 13.3.3 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602846.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ The Bat! Professional 10.0.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602827.jpg" />
 </div>
 
 

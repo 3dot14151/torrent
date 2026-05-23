@@ -6,7 +6,7 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita | Геро
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904529.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903488.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aldnoah.Zero | Алдноа.Зеро [ТВ-2] [2015, TV, 12 из 12] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903469.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Бескрайний �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903467.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Aldnoah.Zero | Алдноа.Зеро [ТВ-1] [2014, TV, 12 из 12] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903461.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902878.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Maoyuu Maou Yuusha | Герой при Заклятом Враге [2013, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902877.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dakara Boku wa, H ga Dekinai | Говорю же, я не Извращенец! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901134.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Guilty Crown | Корона Греха [2011, TV, 22 ep + OVA] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897972.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895406.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894542.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Final Fantasy VII: Advent Children | Последняя фантазия VII: Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893333.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kono Subarashii Sekai ni Shukufuku wo! | Этот замечательный м�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893191.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 | Этот замечательный �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893153.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ou Dorobou Jing | King of Bandit Jing | Приключения Джинга | Д
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893095.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Gun x Sword | Gun Sword | Огнем и мечом [2005, TV, 26 эп.] DVDRip 4
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890681.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и Гроб [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890365.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Shinryaku! Ika Musume / Invasion! Squid Girl / Вторжение Кальмар
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_888976.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ixion Saga DT / Ixion Saga: Dimension Transfer / Иксион сага: Прос
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888825.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Nekopara (2020) | Кошачий рай (ТВ) [2020, TV, 12 из 12] WEB-DL 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886265.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Истории о магии: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886263.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Runway de Waratte | Улыбайся на подиуме [2020, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886257.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Lily C.A.T. | Lily Cat | К.О.Т. Лили [1987, OVA] LDRip 480p 10bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884563.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Tokyo Majin Gakuen Kenpuchou Tou / Tokyo Majin Gakuen Kenpucho To / Токийс
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883005.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Koukaku Kidoutai Arise: PYROPHORIC CULT / Ghost in the Shell ARISE: PYROPHORIC C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882024.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Angel Heart / Сердце ангела [2005, TV, 50 из 50] SDTV 576p raw + r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_881461.jpg" />
 </div>
 
 

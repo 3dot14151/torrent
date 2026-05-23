@@ -6,7 +6,7 @@ Chihayafuru 2 | Игра Тихайи 2 | Яркая Тихайя [ТВ-2] [2013
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481365.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shakunetsu no Takkyuu Musume | Scorching Ping Pong Girls | Знойный пин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481207.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / У этого кружка рисован�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481102.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Yami Shibai / Театр тьмы [ТВ-5] [2017, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481069.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Go-Toubun no Hanayome | The Quintessential Quintuplets | Пять невест [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481052.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Servamp | Сервамп [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480969.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480772.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sengoku Kidan Youtouden Gekijouban / Wrath of the Ninja / Гнев ниндзя 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480321.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Penguin Highway | Тайная жизнь пингвинов [2018, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479222.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479010.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Shokugeki no Souma: Ni no Sara / Shokugeki no Soma: The Second Plate / Кули�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478611.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Meitantei Conan: Zero no Tea Time | Detective Conan: Zero's Tea Time | Дете�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478487.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Moonlight Mile: 2nd Season - Touch Down | Лунная миля: Приземл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478416.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477979.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ New Game! | Новая игра! [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476655.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25] BDrip 720p Hi10b
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476437.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Neko no Dayan / Dayan the cat / Кот Даян [2014, TV, 1 из 52 серий]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475490.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Bakumatsu Rock | Рок эпохи Бакумацу [2014, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475150.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Penguin Highway | Тайная жизнь пингвинов [2018, Movie] BDrip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475080.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Qualidea Code [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474617.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ D.Gray-man Hallow | Грэй-мен: Святой [2016, TV, 13 эп.] HDTVRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474605.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Chocotto Sister / Чоко, сестрёнка [2006, TV, 24 эп.] DVDRip 480p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474501.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Haibane Renmei / Собор Пепельнокрылых / Союз Серокр
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474391.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Moonlight Mile: 1st Season - Lift off | Лунная миля [2007, TV, 12 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474312.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: Orion no Ya 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473154.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473153.jpg" />
 </div>
 
 

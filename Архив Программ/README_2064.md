@@ -6,7 +6,7 @@ Sumatra PDF 3.6.16067 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109820.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John’s Background Switcher 5.8.0.2  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109817.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Care 365 Pro 6.7.2.646 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109811.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Just Color Picker 6.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109808.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PilotEdit Lite & Pro 18.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109807.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Topaz Photo AI 3.0.2 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109806.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ RJ TextEd 16.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109773.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Brave Browser 1.65.132 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109658.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ YT Downloader 9.7.17 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109654.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Q-Dir 11.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109653.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PotPlayer 240510 (1.7.22227) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109650.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Fort Firewall 3.12.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109647.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wavesequencer - Theia 1.10 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109629.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Wavesequencer - Hyperion 1.53 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109624.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ FBackup 9.9.895 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109611.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Google Chrome 124.0.6367.208 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109599.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ GeoGebra 6.0.841.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109594.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Firefox Browser 126.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109591.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Google Chrome 124.0.6367.208 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109584.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Icecream Screen Recorder Pro 7.41 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109579.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.36 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109552.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Opera One 110.0.5130.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109550.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Microsoft .NET 6.0.30 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109548.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Perfectly Clear WorkBench 4.6.1.2660 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109547.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Microsoft .NET 8.0.5 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109546.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ FanControl V190 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109544.jpg" />
 </div>
 
 

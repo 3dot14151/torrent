@@ -1,29 +1,3 @@
-###  Публикация: 1737912   (49443) от 20.07.2024
-
-Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Scene PROPHET
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Call of Juarez The Cartel - игра-вестерн от первого лица. Играйте за работника правоохранительных органов в городе Лос-Анджелес. Сюжет разворачивается из-за одного террористического действия, подстроенного крупным наркоторговцем. Пострадало много невинных людей, и полиция решает не терпеть более подобных выходок.Тип издания: SceneРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5384F20094FAAA66C79339D2715F144D2A89931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737894   (49437) от 20.07.2024
 
 Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
@@ -32,7 +6,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49437.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pro Cycling Manager 2024 (2024) [Multi] (1.4.1.141/dlc) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49436.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49431.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49429.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49421.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dragon Chronicles: Black Tears (2024) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49419.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Under The Waves (2023) [Ru/Multi] (01.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49416.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49413.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49409.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Oxygen Not Included (2019) [Ru/Multi] (20240718/dlc) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49406.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Braid (2024) [Ru/Multi] (20240603) Repack dixen18 [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49404.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49400.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Apollo Justice: Ace Attorney Trilogy (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49390.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49381.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.051) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49380.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Stories from the Outbreak (2024) [En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49361.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Superscout (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49352.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ ReRoad (2020) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49339.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ USC: Counterforce (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49326.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Pacific Drive (2024) [Ru/Multi] (1.6.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49319.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Until Then (2024) [Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49308.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49303.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Serpent in the Staglands (2015) [En] (19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49268.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ SANABI (2023) [Ru/Multi] (1.3.35) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49267.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49253.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:928290767C53543F650D5A1C306A6C0747D767C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738339   (49220) от 22.07.2024
+
+Guns Demons (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guns Demons отправляет вас в мир, где скоростные пули заменяют визг шин. Здесь автомобили - это не просто обгон соперников, это ощетинившийся арсенал, готовый разнести дорогу в клочья. Эта игра выводит автомобильные бои на совершенно новый уровень. Так что пристегнитесь, любители машин, потому что вот-вот взревет вашими моторами. Сюжетный режим: Борьба за мрачное (   Читать дальше...   )Тип издания: RepackРазработчик: DokyЖанр: Экшены, ГонкиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179F467E45D9DE68541F2329D321F20929645D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

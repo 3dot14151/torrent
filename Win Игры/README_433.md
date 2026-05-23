@@ -1,29 +1,3 @@
-###  Публикация: 1730045   (53349) от 14.06.2024
-
-Lost Lands 9: Stories of the First Brotherhood / Затерянные земли 9: Истории о Первом Братстве (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей серии игр Lost Lands. Неведомая сущность рыщет по долинам, разрушая все на своём пути. Жители долин обеспокоены появлением таинственного злодея. Информация об инцидентах поступает из разных мест. Все свидетели говорят об одном и том же звере, который настолько быстр, что его невозможно увидеть.Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015ECC6A29CBCDFF7A0DDB1D7B19240B12ADAF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730049   (53348) от 14.06.2024
 
 Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Scene SKIDROW [Deluxe Edition]
@@ -32,7 +6,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Scene SKIDROW [Delux
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53348.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Star Stuff (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53341.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53339.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Wander Hero (2023) [Multi] (1.0.240608) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53334.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53307.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Shadow Hush (2024) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53291.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53287.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53261.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53258.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53184.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53126.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53097.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Q.U.B.E. 10th Anniversary (2022) [Ru/Multi] (1.4.24) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53080.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53066.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53063.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Whacking Hell! (2024) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53056.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cosmotroid (2024) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53053.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Pinball M (2023) [Multi] (1.0.4/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53052.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Loser Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53042.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ BYTES: The Reverse Tower Defense (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53030.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53025.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52959.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Redout II (2) (2022) [Ru/Multi] (1.3.1/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52956.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52929.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Chiyo (2024) [Multi] (1.0.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52925.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Chiyo - это посвященный японской мифологии инд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB5BF4D710B25F91176FA05483F90FF244BEC266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730958   (52900) от 18.06.2024
+
+Myth Or Reality 3: Snowbound Secrets / Мифы или реальность 3: Заснеженные тайны (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение сказочной, полной тайн приключений серии игр Myth or Reality. Вы исследователь мифов, разрушитель предрассудков и страж порядка. Ни призрак, ни чудовище не смогут спрятаться от вас. В городе Блу-Рош что-то происходит: странные следы, свидетельства очевидцев о монстрах и т.д. Вам нужно разобраться в этом. Среди холода, снега и льда кто-то затаился… Это (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C824CB3330CB20905670BEBB5EE2C507E5C95D
 ```
 
 https://mybot314.ru/tekegram_catalog/

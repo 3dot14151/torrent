@@ -1,57 +1,3 @@
-###  Публикация: 1497586   (862862) от 23.09.2021
-
-Посторонние / Intrusion (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Семейная пара переезжает в новый город, а вскоре после переезда в их дом проникает злоумышленник. После этого у героини развивается посттравматический синдром, и она начинает подозревать всех соседей и окружающих в злых намерениях.Производство: США / Sea Smoke Entertainment, Creator Media Entertainment, EMJAG ProductionsЖанр: ТриллерРежиссер: Адам СалкиАктеры: Логан Маршалл-Грин, Фрида Пинто, Сара Минник, Марк Сивертсен, Хэйес Харгров, Bonita King, Yvette Fazio-Delaney, Megan Elisabeth Kelly, Клинт Обенчейн, Дэвид ДеЛаоПеревод: Дублированный (Netflix)Язык озвучки: РусскийСубтитры: Русские (forced, full, хардсаб), Украинские (full), Английские (full, SDH) отдельными файламиПродолжительность: 01:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA277722C8D7DC9210D6D5143CEA7C636B8439EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494043   (862861) от 23.09.2021
-
-Суперстюард / Larry Gaye: Renegade Male Flight Attendant (2015) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ларри – стюард-казанова, совмещает приятное с полезным, путешествуя по миру на крыльях любви.
-
-Прекрасные стюардессы, роскошные пассажирки бизнес-класса и симпатичные девушки с чартерных рейсов не могут устоять перед обаянием обольстительного бортпроводника. Жизнь воздушного Жиголо складывалась просто великолепно, до тех пор, пока авиакомпания не решила заменить (   Читать дальше...   )Производство: США, Night and Day Pictures.Жанр: комедияРежиссер: Сэм ФридлендерАктеры: Марк Фойерстин, Джессика Лаундс, Стэнли Туччи, Кристофер Фицджералд, Тэй Диггз, Молли Миллард, Дэнни Пуди, Майкл Коттер, Стэйси Робертс, Кенни ЭллисПеревод: Дублированный (Лицензия)Язык озвучки: РусскийСубтитры: нетПродолжительность: 01:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC91F235F24372EB457C7646DC767EAB88A4B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108704   (862814) от 25.02.2017
 
 Изноугуд или Калиф на час / Iznogoud: Calife a la place du calife (2005) DVDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862814.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862810.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862807.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862806.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862760.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862757.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862754.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862750.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862746.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862743.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862700.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862667.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862639.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862633.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862632.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862627.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862626.jpg" />
 </div>
 
 
@@ -502,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862578.jpg" />
 </div>
 
 
@@ -528,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862511.jpg" />
 </div>
 
 
@@ -554,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862509.jpg" />
 </div>
 
 
@@ -580,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862487.jpg" />
 </div>
 
 
@@ -606,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862460.jpg" />
 </div>
 
 
@@ -632,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862458.jpg" />
 </div>
 
 
@@ -658,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862454.jpg" />
 </div>
 
 
@@ -670,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FCCCBCC29806B96FC5995675527F0FC9B7FCE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999514   (862406) от 23.03.2016
+
+Гуд бай, Ленин! / Good Bye Lenin! (2003) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать Алекса впала в кому незадолго до падения Берлинской стены. А когда, наконец, пришла в себя, не было уже ни ГДР, ни стран «победившего социализма». Тревожась за здоровье матушки, Алекс решил не сообщать ей о переменах: ведь что может стать более убийственным для убеждённой коммунистки, чем торжество капитализма?
+Сыну пришлось пойти на обман и превратить свою (   Читать дальше...   )Производство: ГерманияЖанр: Комедия, Драма, МелодрамаРежиссер: Вольфганг БеккерАктеры: Даниэль Брюль, Катрин Засс, Мария Зимон, Чулпан Хаматова, Флориан Лукас, Александр Байер, Бургхарт Клаусснер, Михаэль Гвиздек.Перевод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русский, Английский, НемецкийПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D21B4E99A60A69C7772112C1BF8A921FF18A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375990   (862355) от 16.04.2020
+
+Мир / Shijie / The World (2004) BDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парк Мира в Пекине — своеобразный китч, в котором находятся фальшивые Эйфелевы башни, эрзац пирамиды и копия венецианской площади Св. Марка — является декорацией для переполненной человеческими жизнями фрески. На ироничном фоне этого всемирного фэнтези-парка его работники, начиная от охранников и заканчивая танцовщицами, переживают обычные человеческие судьбы и трагедии (   Читать дальше...   )Производство: Китай, Япония, Франция / Office Kitano, Lumen Films, X Stream PicturesЖанр: ДрамаРежиссер: Цзя ЧжанкэАктеры: Чжао Тао, Чэнь Тайшэн, Джуе Джин, Чжонг-вэй Цзянь, Ицюнь Хуан, Ван Хунвэй, Лян Цзиндун, Шуай Цзи, Ван Ксинг, Алла Щербаков, Хань СаньминПеревод: Многоголосый профессиональный (Студия "Пифагор" по заказу ГТРК Культура)Субтитры: Английские - отдельным файломПродолжительность: 02:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBCBE70F7864105C4303A4CF92DCB8A76E7297C
 ```
 
 https://mybot314.ru/tekegram_catalog/

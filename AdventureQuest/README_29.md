@@ -1,29 +1,3 @@
-###  Публикация: 1221868   (691041) от 26.04.2018
-
-Inked (2018) [Multi] (20180425-1) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Инкэд - это рассказ о любви и мести, которые были написаны чернилами на бумаге. Вы играете как Безымянный Герой (Nameless Hero), который отправляется в путешествие по огромному ландшафту, наполненному головоломками. Каждая решенная головоломка приближает вас к вашей потерянной любви, распутывая историю, которая навсегда изменит вас.Тип издания: LicenseРазработчик: Somnium Games d.o.o.Жанр: Adventure, Puzzle, Logic, CasualЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E4C279F83D4137A43C34E1CA9C2D16744F839F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221786   (690961) от 26.04.2018
 
 INFRA (2016) [Ru/Multi] (3.3.0/dlc) License CODEX [Complete Edition]
@@ -32,7 +6,7 @@ INFRA (2016) [Ru/Multi] (3.3.0/dlc) License CODEX [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690961.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Fan (2017) [En/Fr] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690780.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dark Earth (1997) [Ru] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690010.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Peaky Blinders: Mastermind (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689874.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Battletoads (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689855.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Breached (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688095.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Asemblance (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688085.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688061.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Loom (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686745.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686515.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Re;Lord 2 ~The witch of Cologne and black cat~ (2021) [En] (1.00/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686021.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685860.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Room 404 (2016) [En/Pt] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685780.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Breached (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685775.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Monster Prom (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684561.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684361.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684351.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ The Bad, the Ugly and the Sober / Злой, плохой и трезвый [Ru] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683823.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681825.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680524.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679943.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679841.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678438.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Know by Heart... / Помни... (2022) [Ru/En] (1.03) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678063.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Tales of Monkey Island: Chapter 2 The Siege of Spinner Cay / Tales of Monkey Isl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678037.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ Tales of Monkey Island - это пятая часть знаменитой са�
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136121   (676484) от 21.05.2017
+
+Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Old Man’s Journey - это приключенческая игра с головоломками и внутренним поиском, рассказывающая историю о жизни, потере, примирении и надежде. Войдите в прекрасный и солнечный рукотворный мир, а затем отправляйтесь в настоящее путешествие, наполненное веселыми и ненавязчивыми головоломками. Графический рассказ о самых важных моментах жизни, разбитых мечтах и меняющихся (   Читать дальше...   )Тип издания: LicenseРазработчик: Broken RulesЖанр: Adventure, Indie, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9340B850B23568A541C4D398183C5E5C9201BBAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1158803   (490175) от 17.08.2017
-
-Тайгер Вудс: взлёты и падения / Tiger Woods: The Rise And Fall (2010) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о взлетах и падениях одного из величайших гольфистов в истории Тайгера Вудса. Вудс — многократный победитель чемпионатов по гольфу, первый из которых — «детский» — он выиграл в пять лет.Телекомпания: Великобритания / BBCЖанр: Документальный, Биография, СпортПеревод: Одноголосый закадровый, профессиональный (Вадим Прохоров)Субтитры: отсутствуютПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5F9095960398B52635CB122A10EF22F551015F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158664   (489593) от 17.08.2017
 
 History Channel: Проклятие острова Оук / The Curse of Oak Island (2016) HDTV [H.264/1080i-LQ] (Сезон 4, серии 1-17 из 18)
@@ -32,7 +6,7 @@ History Channel: Проклятие острова Оук / The Curse of Oak Isl
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489593.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery: Разрушители легенд. Специальный выпу�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489576.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489317.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489162.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Discovery: Производство: гонка со временем [10 из 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489065.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Discovery.Смертные грехи (7 серий из 7) / Discovery.Deadly S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489062.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ NGW: Тимбавати: мир диких кошек / Timbavati: An Epic Cat S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488629.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NGW: Пума! / Puma! (2012) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488628.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488508.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487736.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ BBC. Лицо человека (4-х серийный) / The Human Face (2001) D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487455.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487449.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Discovery. Смертельный улов / Deadliest Catch (2020) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486772.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ NGW: Намибия. Убежище гигантов / Namibia. Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486082.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486074.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ History Channel: Человек-калькулятор / The Human Calculator (2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485951.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ History Channel: Человек-калькулятор / The Human Calculator (2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485860.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ DV: Магия Гудини / Alan Davies: The Magic of Houdini (2014) IPTVRip [
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484830.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Discovery. Затерянные викинги Америки / America's Lost V
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484463.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Discovery: Раскрытие загадки могилы короля Тута 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483997.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ NG: Осушить океан: Корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483965.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTVRip (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483875.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ BBC: Нюрнбергский процесс. Нацистские престу�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483770.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ History Channel: Полководцы / Война вождей / Warlords (2005
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483434.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ NGW: Анаконда. Тихий убийца / Anaconda. Silent killer (2014) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482047.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ NGW: Анаконда. Тихий убийца / Anaconda. Silent killer (2014) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AA3630EC3E8AAA3C0298E8D2F71BD4E1B1E68E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054247   (481878) от 25.09.2016
+
+National Geographic. Зона риска. Фестиваль байкеров в Дайтона-Бич / Tthill Zone. Daytona Biker Rally (2007) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайтона-Бич штата Флорида - излюбленное место туристов со всего мира. Но они почти никогда не заглядывают на главную улицу города. Мэйн-стрит почти безлюдна 11.5 месяцев в году. Но в самом начале весны, в Дайтону в один день, прибудут почти полмиллиона мотоциклистов. И тихий городок превратится в место веселого пикника. Сотни тысяч мотоциклов. Сотни тысяч мотоциклистов. (   Читать дальше...   )Телекомпания: США, Big Fish Entertainment, National Geographic ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E676BE60D22F3883252D9E02985AC20858729C20
 ```
 
 https://mybot314.ru/tekegram_catalog/

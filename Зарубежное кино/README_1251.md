@@ -1,55 +1,3 @@
-###  Публикация: 1573251   (414005) от 30.08.2022
-
-Красный воробей / The Red Sparrow (2022) WEBRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Во второй половине 21 века разгорелся ожесточенный конфликт между людьми и искусственным интеллектом. Героиня Йи Ни приняла решение судьбы и повела армию роботов на решающую битву с могущественной группировкой Рон. история. Йи Ни — робот-гуманоид, рожденный в «Инциденте 2060 года», и единственная надежда помешать Группе Ронов захватить человеческую расу.Производство: Китай / The Deep Visual EffectsЖанр: фантастика, боевикРежиссер: Цзи ЧжичжунАктеры: Ли Мэн, Цзи Чжичжун, Чжу Хун, Цзян Чжэньхао, Хуан Яо, Хань Цунцун, У Яньлинь, Тун Ху, Ло Лэй, Ли ЧжунжуйПеревод: Многоголосый любительский (Head Pack Films)Язык озвучки: РусскийСубтитры: Китайские, английские (хардсаб)Продолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA55ED4BA53DAC2B36296FCAE7342391FF3394C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572878   (414002) от 30.08.2022
-
-Бесконечная буря / Infinite Storm (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Опытная альпинистка Пэм поднимается на гору Вашингтон, но решает повернуть назад, опасаясь сильной метели. По пути вниз она встречает застрявшего мужчину и берет на себя смелость помочь ему. Теперь им нужно спуститься с горы до того, как наступит ночь.Производство: Великобритания, Польша, Австралия, Jam, Tart Productions, Maven Screen Media, Off MediaЖанр: Триллер, драмаРежиссер: Малгожата Шумовска, Михал ЭнглертАктеры: Наоми Уоттс, Денис О’Хэр, Билли Хоул, Элиот Самнер, Паркер Сойерс, Джошуа Роллинз, Lina Kolenko, Karin Putrih, Arya Petric, Alja GacnikПеревод: многоголосый профессиональный (лицензия)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455FF8B3A1329A35EAFCB70F603477C15FA71B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573076   (414001) от 30.08.2022
 
 Война будущего / The Tomorrow War (2021) UHD WEB-DLRip [H.264/1080p-LQ] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414001.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413998.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413937.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413919.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413909.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413890.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_413777.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_413675.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413652.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413640.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413639.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_413551.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413538.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413486.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413461.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413460.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413457.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413373.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413330.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413323.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413314.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413310.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413251.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413247.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F3985400783B0C1F713F3FB376DED0F3591105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710948   (413240) от 15.10.2013
+
+Ярость / Rampage (2009) BDRip [720p] [Uncut Version]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл Уильямсон - обычный парень из тихого американского городка. Но в «один прекрасный день» он «вооружается до зубов» и выходит на улицу. Билл с упорством настоящего маньяка истребляет жителей города, полагая, что все они виновны в мировых политико-экономических катаклизмах, о которых каждый день говорят в новостях по телевизору... Эффект реалистичности происходящего (   Читать дальше...   )Производство: Канада, Германия / Event Film Distribution, Pitchblack Pictures, Amok ProductionsЖанр: боевик, триллер, драма, криминалРежиссер: Уве БоллАктеры: Брендан Флетчер, Шон Сайпос, Майкл Паре, Мэтт Фрюэр, Линда Бойд, Роберт Кларк, Малкольм Стюарт, Стеффен Меннекс, Кэти Грэйс, Лори БрунеттиПеревод: Профессиональный (Многоголосый) / Любительский (Одноголосый) / Оригинал (Английский)Субтитры: Русские (Forced), Русские (Full), Английские (Full)Продолжительность: 01:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4751C06235031B33FDFF9C8C614502852E07749F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948132   (413163) от 19.10.2015
+
+Наркобарон / Narc (2002) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полиция Детройта вызывает уволенного 18 месяцев назад спецагента для расследования перестрелки, в которой пострадала беременная женщина. Спецагент берет себе напарника, постоянно попадающего во внутренние полицейские передряги и оба идут по следу.
+Мафиози водят их за нос, завербованные информаторы погибают, начальники хотят закрыть дело. Докопаются ли агенты до правды (   Читать дальше...   )Производство: США, Канада, Paramount Pictures, Lions Gate Films, Splendid Pictures, Tiara Blue FilmsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Джо КарнаханАктеры: Рэй Лиотта, Джейсон Патрик, Ллойд Адамс, Миган Исса, Лина Фелис, Алан С. Петерсон, Карен Робинсон, Чи МакБрайд, Бут Сэвадж, Алан Ван СпрэнПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый) х2Язык субтитров: Русский, английскийПродолжительность: 01:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158DB7C0696A8A0A7F5708A6B61116D40E62E244
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1373705   (878428) от 07.04.2020
-
-Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Диктофон SnipBack идеально подойдет тем, кто устал прослушивать громоздкие записи, которые занимают много места в памяти устройства. К тому же, их трудно прервать и воспроизвести именно тот момент, который вам нужен. Это приложение поможет избежать подобных проблем, ведь оно имеет небольшой размер файлов, а сохранять вы сможете только тот материал, который вам реально (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 6.04.2020Разработчик: Cosmic Pie DesignПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFAEF93F5A5FFC1087F94AC86A3671639976348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373707   (878421) от 07.04.2020
-
-Password Depot For Android 14.0.2 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Приложение Password Depot for Android - Password Manager является безопасным менеджером паролей для Андроид. Если хотите спать спокойно и не переживать за свою безопасность, в таком случае обязательно воспользуйтесь этой программой.Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 6.04.2020Разработчик: AceBITПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAE66EA8E131A9AFAE5D80975B13EA65AFD74C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997103   (877075) от 15.03.2016
 
 Портретная живопись HD v1.3 [Ru/En] - 1187 картин, написанных великими художниками, жившими в различные эпохи
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877075.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876850.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Chess King - Шахматные курсы v 0.9.6 - 0.9.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875984.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875865.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875858.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ WiFi Map 3.2.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874379.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ Door Kickers: Action Squad 1.0.32 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874128.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873278.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872446.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ Chromatix (Black and White Photo Colorizer) v1.3.98 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872334.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868474.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867409.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866349.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866346.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864292.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ FolderSync Pro v3.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864276.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863285.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863282.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862817.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862802.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862719.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ RAR v6.10 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862625.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862505.jpg" />
 </div>
 
 
@@ -671,7 +619,7 @@ Garden Coloring Book v2.8.6 [En/Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862147.jpg" />
 </div>
 
 
@@ -682,6 +630,58 @@ Garden Coloring Book является отличным приложением р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:487B76525C5C6EA8A9B59FD3A235010621046FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446853   (861087) от 24.09.2021
+
+Bass Guitar Tutor Pro ver.Feels (134) [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bass Guitar Tutor Pro - приложение, с помощью которого вы будете учится играть на бас-гитаре! В приложении содержится около 150 песен, а также гибкие настройки бас-гитары под вас. Для начала используйте тренажер для новичков, отрегулируйте высоту грифа и ширину. Освойте шаблоны - регги, хард-рок и пр. Изучайте гаммы и пробуйте импровизировать в любой тональности.Тип издания: Paid / Pro с МаркетаРелиз состоялся: 23.09.2021Разработчик: Learn To MasterПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998691CE5FC0F2F6EC4E9AC1AB745AB538DF972E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057861   (860183) от 26.02.2017
+
+Root Essentials Premium 2.4.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовый набор для телефонов, планшетов и часов Android Wear с рут-доступом. Этот набор инструментов дает вам все, что нужно для работы с устройствами с рут-доступом.Тип издания: ПираткаРелиз состоялся: 26.02.17Разработчик: SuperThomasLabПоддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7180B8DCDA7DC2A8E0066B3205C36569DF9A90A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

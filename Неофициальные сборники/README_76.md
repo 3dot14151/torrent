@@ -1,32 +1,3 @@
-###  Публикация: 1091020   (944866) от 08.01.2017
-
-VA - Музыкальные новинки. Only Best Hits. Сборник № 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Clare - Bring Me Down 3:38
-002. Emeli Sande - Every Single Little Piece 4:03
-003. Bruno Mars - That's What I Like 3:27
-004. Никита Кунов - Воображение 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF35D48D34A3BD073063AD85B3C92E96EF1A917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090971   (944859) от 08.01.2017
 
 VA - Dance Of Fire Salamanders (2017) [MP3|320 Kbps] <Club, Dance, House>
@@ -35,7 +6,7 @@ VA - Dance Of Fire Salamanders (2017) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944859.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Piano Collection 2 (2017) [MP3|320 Kbps] <Classical, Piano>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944856.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Душевная музыка на радио Шансон. Выпуск �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944851.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Весна 2020. Hit Music от Мяу [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944757.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Winter Hits. Hot Dance Continues (2016) [MP3|320 Kbps] <Dance , Hands Up , 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944605.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - 100 Physical Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944573.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Club Dubstep №29 (2013) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944559.jpg" />
 </div>
 
 
@@ -243,7 +214,7 @@ VA - Exotic. The Finest Eastern Melodies (2012) [MP3|320 кб/с]<Chill Out, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944462.jpg" />
 </div>
 
 
@@ -278,7 +249,7 @@ VA - Top 100 Russian Hits (2017) [MP3|256~320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944372.jpg" />
 </div>
 
 
@@ -307,7 +278,7 @@ VA - Jam Jazz: Electro Swing (2017) [MP3|320 Kbps] <Jazz Swing, Electro Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944317.jpg" />
 </div>
 
 
@@ -336,7 +307,7 @@ Falco - 25 Best Songs (2014) [MP3|245 кб/с]<Europop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944309.jpg" />
 </div>
 
 
@@ -365,7 +336,7 @@ VA - HighLife Masters Ultimate Spire (2016) [MP3|192-320 кб/с] <Club, Bounce,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943941.jpg" />
 </div>
 
 
@@ -394,7 +365,7 @@ VA - Lucid Dreams: Mermaid Party (2016) [MP3|320 кб/с] <Electro, Club, Funky 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943871.jpg" />
 </div>
 
 
@@ -423,7 +394,7 @@ VA - Jazzy Lounge, Vol.2 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Lounge, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943866.jpg" />
 </div>
 
 
@@ -452,7 +423,7 @@ VA - EDM Immersion (2020) [MP3|320 Kbps] <Dance, Club, Techno, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943765.jpg" />
 </div>
 
 
@@ -481,7 +452,7 @@ VA - Breathe Fire: Beach Dance Classics Radio (2020) [MP3|320 Kbps] <Club, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943759.jpg" />
 </div>
 
 
@@ -510,7 +481,7 @@ VA - Dance Зарубежка.Top 150 (2016) [MP3|256-320 кб/с] <Club, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943742.jpg" />
 </div>
 
 
@@ -539,7 +510,7 @@ VA - 100% Рок Billboard (2016) [MP3|320 кб/с] <Pop, Pop-Rock, Electro, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943735.jpg" />
 </div>
 
 
@@ -568,7 +539,7 @@ VA - Драйвовый жаркий музон (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943734.jpg" />
 </div>
 
 
@@ -597,7 +568,7 @@ VA - Yet Another 100 Melodic Rock Anthems (2015) [MP3|320 кб/с] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943727.jpg" />
 </div>
 
 
@@ -626,7 +597,7 @@ VA - City Life: Extended Trance Party (2020) [MP3|320 Kbps] <Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943707.jpg" />
 </div>
 
 
@@ -655,7 +626,7 @@ VA - Beatport Trance: Electro Sound Pack #14 (2020) [MP3|192-320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943702.jpg" />
 </div>
 
 
@@ -684,7 +655,7 @@ VA - Beatport Progressive Trance: Electro Sound Pack #15 (2020) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943700.jpg" />
 </div>
 
 
@@ -713,7 +684,7 @@ VA - Italo Disco Hits Vol.9 (2016) [MP3|197-320 кб/с] <Italo Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943694.jpg" />
 </div>
 
 
@@ -742,7 +713,7 @@ VA - Инструментальное и оркестровое исполнен
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943608.jpg" />
 </div>
 
 
@@ -756,6 +727,35 @@ VA - Инструментальное и оркестровое исполнен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2ADD8BA051975951D7E0A19CCCDE4E6A2713948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983332   (943535) от 06.02.2016
+
+VA - Blues Forever vol.25 - vol.28 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregg Allman - Before The Bullets Fly
+02. Blindside Blues Band - Loving You
+03. Kenny Wayne Shepherd - Somehow, Somewhere, Someway
+04. Jay Jesse Johnson - Since My Baby's Gone(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDCFF1E1A9614BDEE14D1FDF8E24965158E5AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

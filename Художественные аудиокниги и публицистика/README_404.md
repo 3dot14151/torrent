@@ -1,82 +1,3 @@
-###  Публикация: 1138567   (662309) от 31.05.2017
-
-Александр Вампилов, Виктор Голявкин | Вечер короткого рассказа (сборник) (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Александр Валентинович Вампилов (1937-1972) — русский советский прозаик. Гениальный драматург, трагично окончивший земной путь, Александр Вампилов не издавался при жизни. В период 1968-1972 годы появляются самые известные пьесы: "Старший сын", "Утиная охота", "Прошлым летом в Чулимске". Их берутся ставить в провинциальных театрах, но (   Читать дальше...   )Жанр: Советская классическая прозаПродолжительность: 02:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9026CFFD1B0B304462434C329E53D77F25D767A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538562   (662308) от 21.03.2022
-
-Марджери Аллингем | Альберт Кэмпион. Избранное (2021) [MP3, Агния]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Английская писательница Марджори Эллингем и ее герой частный детектив Алберт Кэмпион доселе не были широко известны русскому читателю. Мистер Кэмпион сильно отличается от своих американских коллег, например Майкла Шейна из романов Б. Холлидея. Молодой детектив умён и благороден, как настоящий английский джентльмен, в то же время ему свойственны лукавство и способность (   Читать дальше...   )Жанр: Классические детективыПродолжительность: 19:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0910A02B92AB38F7A8C13400AD4E7CF2C31B8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538534   (662298) от 21.03.2022
-
-Адам Кристофер | Тьма на окраинах города (2022) [MP3, Вячеслав Задворных]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хоукинс, 1984 год. Шериф Джим Хоппер планирует насладиться Рождеством с Одиннадцать, но у приемной дочери свои планы на праздник. Из подвала на свет появляется коробка со старыми делами. Почему Хоппер уехал из Хоукинса? И почему никогда не рассказывает о своей работе детективом в Нью-Йорке?
-Нью-Йорк, 1977 год. Последнее громкое дело, изменившее все. Ветеран Вьетнама (   Читать дальше...   )Жанр: Зарубежные детективы, Мистика, Полицейские детективы, УжасыПродолжительность: 15:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414F0DC15914420FE474A98EC7DC89848B746ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538553   (662290) от 21.03.2022
 
 Ханс Русенфельдт, Микаэль Юрт | Себастиан Бергман (Книга 3). Могила в горах (2021) [MP3,  Станислав Иванов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662290.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662228.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662208.jpg" />
 </div>
 
 
@@ -167,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662122.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662110.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662109.jpg" />
 </div>
 
 
@@ -245,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662089.jpg" />
 </div>
 
 
@@ -271,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662026.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661970.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661955.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661847.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661817.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661739.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661398.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661395.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661286.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661278.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661197.jpg" />
 </div>
 
 
@@ -558,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661196.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661192.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661098.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661085.jpg" />
 </div>
 
 
@@ -663,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661072.jpg" />
 </div>
 
 
@@ -674,6 +595,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E5D2A0D29B7E524B3896DBDFF891CD8EDA1244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538862   (661070) от 22.03.2022
+
+Евгений Сухов | СМЕРШ – спецназ Сталина. Лесная банда (2022) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1944 год. В освобожденной от немцев Станиславской области Украины националисты устроили настоящий террор против офицеров и солдат Красной армии. Особо отличился в этом отряд «Черный лес» под командованием краевого старшины по кличке Филин. Возглавить операцию по уничтожению бандеровцев Ставка поручает полковнику СМЕРШ Алексею Михайлову. Оперативники понимают, что (   Читать дальше...   )Жанр: БоевикиПродолжительность: 10:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BD8F407170384AEF572DB5952B5C10A41B3A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513460   (661014) от 21.06.2012
+
+Евгений Гуляковский | Обратная сторона времени [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Трофимов всегда подозревал, что беды и невзгоды, неожиданно обрушившиеся на него лично и на всю Россию в целом,
+ невозможно объяснить исключительно земными причинами. Вчерашний ученый, а ныне - простой дворник сумел воочию убедиться в этом,
+ когда обитатели параллельного мира - Дейлы, воспользовавшись прорывом во Времени, навязали ему роль спасителя человечества.
+ Ведь истинные цели непрошеных "благодетелей" были весьма далеки от заявленных...2012Жанр: Научная фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22105D4E8DA70864E075924CE54F64504BC46E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139136   (660989) от 01.06.2017
+
+Григорий Рожков | Неравный бой (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его никто не спрашивал, хочет ли он оказаться в излюбленном историческом периоде — во Второй мировой. Но он оказался там. Никто не дал ему выбора — с кем быть. И он стал американцем. Никто не делал его солдатом той войны. Он сам им стал…
+Конец 1941 года. Вторая мировая в самом разгаре. Первый лейтенант Майкл Пауэлл (он же наш современник Артур Арсентьев) в буре кровопролитной (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 11: 13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1740936B3338799BBA748A343F66A185E9C04A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

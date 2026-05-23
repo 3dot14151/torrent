@@ -1,193 +1,3 @@
-###  Публикация: 497290   (253568) от 16.05.2012
-
-Ophcrack 3.4.0 (Взлом паролей Windows)[x86] (3xCD)
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-OPHcrack это ОС, созданная для взлома паролей Windows.
-
-Этот релиз содержит инструменты для взлома ОС, как XP так и Vista/7 ( LM and NTLM Windows hashes (local SAM files)), и отображает пароли в виде текста. Программа для взлома паролей, основанная на rainbow table (более подробно о принципе взлома  можно прочитать в журнале - http://www.xakep.ru/magazine/xa/082/050/1.asp). В новой версии улучшена производительность, авторы обещают взлом 99.9% алфавитно-цифровых паролей за считанные секунды.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF9DBF54CBA03EA1046713E30A93752F1C8549C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566773   (252022) от 26.05.2023
-
-Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-MATLAB – это высокоуровневый язык технических расчетов, интерактивная среда разработки алгоритмов и современный инструмент анализа данных. MATLAB по сравнению с традиционными языками программирования (C/C++, Java, Pascal, FORTRAN) позволяет на порядок сократить время решения типовых задач и значительно упрощает разработку новых алгоритмов. MATLAB представляет собой (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F506203185DB1AF4EED2662E354A1753ACBBC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624801   (251905) от 31.05.2023
-
-TrueNAS CORE 13.0-U4 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-TrueNAS CORE (ранее FreeNAS) — это бесплатная операционная система для хранения данных на базе ОС FreeBSD с открытым исходным кодом, которая дает возможность создать собственный сервер для хранения данных без затрат на программное обеспечение.
-
-Для нормальной работы системы TrueNAS на компьютере должно быть, как минимум 8 ГБ оперативной памяти, если планируется установка (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562695   (250316) от 10.07.2022
-
-Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 81 обновление с устранением проблем со стабильностью и 79 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 11.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CCF7C3FD41700A5C30187F86619E22F0897E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562692   (250305) от 10.07.2022
-
-Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 81 обновление с устранением проблем со стабильностью и 79 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 11.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD67E881832CEE7FDF1D2E9D3D4EC75DE413CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535119   (249347) от 26.03.2022
-
-Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит безопасности, хакинг.
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-14 февраля 2022 состоялся релиз обновления дистрибутива Kali Linux 2022.1, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39061023E6A63AB8F8AAABF991778463E54333B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493457   (249326) от 09.05.2012
-
-Sopcast 0.8.2 (ubuntu ppa,.tar.gz) [Multi/Русский]
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-SopCast Player - клиент, позволяющий смотреть видео-трансляции, которые распространяются по технологии p2p.Название программы: SopcastЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492547   (248306) от 06.05.2012
 
 GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
@@ -196,7 +6,7 @@ GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248306.jpg" />
 </div>
 
 
@@ -222,7 +32,7 @@ Fedora 36 Workstation Server Beta [x86_64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243659.jpg" />
 </div>
 
 
@@ -249,7 +59,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240592.jpg" />
 </div>
 
 
@@ -276,7 +86,7 @@ Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240559.jpg" />
 </div>
 
 
@@ -303,7 +113,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240518.jpg" />
 </div>
 
 
@@ -330,7 +140,7 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240254.jpg" />
 </div>
 
 
@@ -357,7 +167,7 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240245.jpg" />
 </div>
 
 
@@ -384,7 +194,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240228.jpg" />
 </div>
 
 
@@ -411,7 +221,7 @@ Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240167.jpg" />
 </div>
 
 
@@ -438,7 +248,7 @@ Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239989.jpg" />
 </div>
 
 
@@ -466,7 +276,7 @@ Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233365.jpg" />
 </div>
 
 
@@ -493,7 +303,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233177.jpg" />
 </div>
 
 
@@ -521,7 +331,7 @@ pfSense 2.2.5-RELEASE [i386, amd64] 2xCD, 16хIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229065.jpg" />
 </div>
 
 
@@ -549,7 +359,7 @@ SUSE Linux Enterprise Desktop Server 15
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228774.jpg" />
 </div>
 
 
@@ -575,7 +385,7 @@ Tor Browser 2.3.25-1 [x32, x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228770.jpg" />
 </div>
 
 
@@ -603,7 +413,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228765.jpg" />
 </div>
 
 
@@ -629,7 +439,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228519.jpg" />
 </div>
 
 
@@ -655,7 +465,7 @@ Kubuntu 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226885.jpg" />
 </div>
 
 
@@ -681,7 +491,7 @@ Lubuntu 15.04 Vivid Vervet  Alpha I (легкий дистрибутив) [i386,
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226697.jpg" />
 </div>
 
 
@@ -694,6 +504,193 @@ Lubuntu — это свободная операционная система н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3950FF7DEA404E2C55F92291BE8D128947BA4E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851683   (226681) от 19.12.2014
+
+Ubuntu Gnome 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел первый Alpha релиз 15.04 Vivid Vervet Alpha I, отличающийся от основного релиза DE, в котором вместо Unity используется традиционный Gnome. Комитет по техническому развитию Ubuntu (Ubuntu Tech Board) утвердил придание сборке Ubuntu с десктоп-окружением GNOME статуса официального ответвления от Ubuntu.
+
+Ubuntu — это разрабатываемая Canonical, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит все необходимые (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD75BA65E81009B7D59054B8B97A98EA3C5B6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736442   (226455) от 19.12.2013
+
+openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда OpenSUSE Education с гордостью представляет еще одну версию OpenSUSE - Education Li-f-e (Linux образования) на основе OpenSUSE 13.1 Li-f-e поставляется со всем, что может понадобится для студентов, родителей, учителей и системных администраторов образовательных учреждений. В релиз включено программное обеспечение для математики, химии, астрономии; а также ПО для образовательных серверов KIWI-LTSP, Fedena, ERP, система Moodle для управления образовательным курсом, с полной поддержкой мультимедиа , графики, офисный пакет, многих популярных языков программирования, в том числе AMP, Java, C, C + +, Python и Ruby, последние стабильные GNOME и KDE рабочие столы, добавлен Cinnamon.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017AF542CB49FE6B41693AE32461D2C64E850EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736561   (223895) от 20.12.2013
+
+Kubuntu 14.04 Alpha I [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел первый альфа релиз следующей версии Kubuntu Trusty. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 14.04 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667E8F1C1CBD5174F0063875A8C5D2483356C1EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966169   (222223) от 16.12.2015
+
+Tor Browser 5.0.5 [анонимный доступ в сети] [х86, x64] (bundle)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEE4337C7EB0A46017E81E645B375F835F5A935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514129   (219342) от 02.12.2021
+
+Ubuntu*Pack 20.04 GNOME (ноябрь 2021) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50131200867256C8AA90AE5F1C0CD2B30C7DAE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514125   (219317) от 02.12.2021
+
+Ubuntu*Pack 20.04 Budgie (ноябрь 2021) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B332389DF6594B55A60A186785EB5BAE1D80745B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514128   (219311) от 02.12.2021
+
+Ubuntu*Pack 20.04 (ноябрь 2021) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9760F1290940654EF355E26FC2FEAAA9B57CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

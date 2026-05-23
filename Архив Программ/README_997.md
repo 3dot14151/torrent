@@ -6,7 +6,7 @@ SoftOrbits Sketch Drawer Pro 4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543443.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Norton Internet Security 22.17.3.50 [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543397.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Norton AntiVirus 22.17.3.50 [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543390.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 PE (x64) v.4.7 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543372.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Macrorit Partition Expert 5.3.9 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543329.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 (v1809) x64 HSL/PRO by Kulhunter v21.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543262.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Windows 10 (v1809) x64 LTSC by KulHunter v21.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543253.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Windows 7 SP1 x86 x64 DVD-USB Release by StartSoft 10-11 2019 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543178.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Atomix Virtual DJ Pro Infinity 8.0.0 Build 2369.1038 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543082.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ QTranslate 5.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543074.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Google Chrome 44.0.2403.130 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543070.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VSO Blu-ray Converter Ultimate 3.6.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543006.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Download Master 6.5.2.1475 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542994.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ BlazeVideo SmartShow 2.0.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542993.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ FastStone Image Viewer 5.4 Final Corporate RePack (&Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542991.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Telegram Desktop 0.8.45 Stable + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542919.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Google Chrome 44.0.2403.130 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542912.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ AIDA64 Extreme / Engineer Edition 5.30.3508 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542907.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ OnTranslator 1.0.156 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542906.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Opera 88.0.4412.40 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542693.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ ToneBoosters Plugin Bundle 1.6.2 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542688.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Bat! Professional Edition 7.0.0.56 RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542674.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ IrfanView 4.40 (x86) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542671.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Driver Magician 4.7 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542669.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VidCoder 2.57 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542664.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft Edge 102.0.1245.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542584.jpg" />
 </div>
 
 

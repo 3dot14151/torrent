@@ -6,7 +6,7 @@ Joplin 2.10.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235596.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Media Encoder 2022 22.4.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235594.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Glarysoft Malware Hunter PRO 1.166.0.784 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235579.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adobe Audition 2022 22.4.0.49 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235576.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FastStone Capture 10.0 Final RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235567.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AVS Video Software 12.9.6.32 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235549.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Spotify 1.2.10.760 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235536.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Opera 98.0.4759.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235524.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ OneCommander Pro 3.44.1.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235518.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wondershare UniConverter 14.1.17.189 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235513.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tixati 3.18 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235508.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Icecream Screen Recorder PRO 7.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235503.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Transcend SSD Scope 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235501.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Kerish Doctor 2022 4.90 (Update 13.09.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235495.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ EarthView 7.7.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235483.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1706]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235480.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Fort Firewall 3.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235475.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ File & Image Uploader 8.3.2 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235471.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ OpenNumismat 1.8.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235446.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Krita 5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235443.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Opera 98.0.4759.39 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235442.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ashampoo Photo Commander 17.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235434.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ WinBin2Iso 6.11 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235425.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AllDup 4.5.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235418.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Glary Utilities Pro 5.205.0.234 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235412.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ DesktopDigitalClock 4.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235402.jpg" />
 </div>
 
 

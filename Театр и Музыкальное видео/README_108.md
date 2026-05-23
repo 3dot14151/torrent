@@ -1,119 +1,3 @@
-###  Публикация: 963528   (285196) от 09.12.2015
-
-Квартирник у Маргулиса. 5 выпуск. Чиж (2015) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сегодня в гостях у Евгения Маргулиса лучший, по его мнению, исполнитель блюза Чиж. В теплой и душевной атмосфере гость квартирника исполнит свои самые известные и любимые песни: Глазами и душой, Глупенькая песня (Ассоль), Солдат на привале, Прогулка по Одессе и многие другие.01. Урал байкер блюз
-02. Глазами и душой
-03. Глупенькая песня (Ассоль)
-04. Два тракториста (БГ)(   Читать дальше...   )Телекомпания: ЧеЖанр: КонцертПродолжительность: 0:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E95F87FF52DCC2CF775CB40067BC03F5DC2DB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963983   (285130) от 09.12.2015
-
-VA - Зимний марафон № 211: Коктейль Хитовых Новинок (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Зимние (09.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. 4G - Улыбайся (Премьера!) (00:03:48)
-02. Eros Ramazzotti - Buon Natale (Official Video) (00:04:25)
-03. Iva - Хочешь (Call Remix) (Премьера!) (00:03:16)
-04. Вера Брежнева - Мамочка (Live, 2015) (Премьера!) (00:02:54)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Dubstep, R'n'B, SoulПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B2001DAB6B330E405058C2B0D52223D7B74E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733657   (285105) от 13.12.2013
-
-Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Intro / Riches To Rags
- 02. Firebox
- 03. Not Supposed To Sing The Blues
- 04. Scream Of Anger(   Читать дальше...   )Жанр: МузыкаПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DD3B1CAB70C4CAFE991343DADBD6AD37AC624F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733711   (285022) от 13.12.2013
-
-Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. "Intro"
- 02. "Supremacy"
- 03. "Panic Station"
- 04. "Plug In Baby"(   Читать дальше...   )Режиссер: Matt AskemПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED3F3536BADE9C4C413701A9C4C399A9137C1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 733513   (285019) от 13.12.2013
 
 Сергей «Чиж» Чиграков - San Jose, CA. "Квартирник" 18.08.2002 (2013) CAMRip->DVD5
@@ -122,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285019.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284240.jpg" />
 </div>
 
 
@@ -177,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284071.jpg" />
 </div>
 
 
@@ -204,7 +88,7 @@ Joe Cocker - Cry Me A River (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284045.jpg" />
 </div>
 
 
@@ -233,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283918.jpg" />
 </div>
 
 
@@ -259,7 +143,7 @@ Pink Floyd: Live at Pompeii (1972) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283636.jpg" />
 </div>
 
 
@@ -285,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283483.jpg" />
 </div>
 
 
@@ -312,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283478.jpg" />
 </div>
 
 
@@ -338,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283472.jpg" />
 </div>
 
 
@@ -365,7 +249,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283470.jpg" />
 </div>
 
 
@@ -395,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282171.jpg" />
 </div>
 
 
@@ -424,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282100.jpg" />
 </div>
 
 
@@ -451,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282094.jpg" />
 </div>
 
 
@@ -478,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282093.jpg" />
 </div>
 
 
@@ -505,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282058.jpg" />
 </div>
 
 
@@ -531,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282030.jpg" />
 </div>
 
 
@@ -560,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281953.jpg" />
 </div>
 
 
@@ -587,7 +471,7 @@ Nightwish - Showtime, Storytime (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281367.jpg" />
 </div>
 
 
@@ -616,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280588.jpg" />
 </div>
 
 
@@ -643,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280458.jpg" />
 </div>
 
 
@@ -670,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280432.jpg" />
 </div>
 
 
@@ -696,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280431.jpg" />
 </div>
 
 
@@ -707,6 +591,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C6AC23B723FCCFDB29657B53F4A2E9EC26D0BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080534   (280417) от 11.12.2016
+
+Джузеппе Верди - Травиата / Giuseppe Verdi - La Traviata (1973) DVDRip [IT]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одно из лучших видео Травиаты. Таковым его делают 3 исполнителя. Рената Скотто обладает, перефразируя, огромным красивым голосом, ее Травиата одна из лучших даже среди аудио записей, количество великих среди которых делает еще более ценным ее исполнение. Хосе Каррерас делает Альфредо нежным и трепетным влюбленным и отлично справляется со всеми трудностями партируры (   Читать дальше...   )Производство: Япония, Германия, VAI, NHKЖанр: Фильм-опера, драма, экранизацияАктеры: Рената Скотто, Хосе Каррерас, Сесто Брускантини, Анна ди СтазиоПеревод: Не требуетсяСубтитры: Русские (отдельным файлом), японские (не отключаемые)Продолжительность: 02:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EC059AAA7596241951534B22A163AA10DC47EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210631   (280337) от 06.11.2019
+
+Кто-то должен (1984) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280337.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной повести Даниила Гранина. Об ученых, о моральном выборе. Проблемы у Даниила Гранина поставлены очень остро - о правде и неправде, о приспособленчестве, которое поощряется, о том, как трудно отстоять что-то настоящее в науке. История эта произошла с инженером Константином Селяниным, который пытается дать путевку в жизнь своему изобретению в области электротехники. (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программЖанр: ДрамаРежиссер: Никита ТягуновАктеры: Георгий Бурков, Вера Глаголева, Родион Нахапетов, Даниил ГранинСубтитры: отсутствуютПродолжительность: 01:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF57BDDDC84C7904D3D825E647EC1DE4C8EC5F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705308   (280180) от 06.11.2019
+
+Уильям Шекспир - Сэр Джон Фальстаф (Виндзорские Насмешницы) (1973) TVRip (2 части)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280180.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам комедии У. Шекспира "Виндзорские Насмешницы" и опере Дж. Верди "Фальстаф".
+Сэр Джон Фальстаф, развеселый пьяница, обжора и ловелас, становится жертвой трех предприимчивых леди - миссис Форд, миссис Пейдж и миссис Куикли. Решив приударить за прекрасным полом, Фальстаф оказывается втянутым в клубок остроумных розыгрышей, неожиданных событий (   Читать дальше...   )Жанр: Фильм-спектакль, комедия, костюмированный, 16 векРежиссер: Наталья БаранцеваАктеры: Михаил Жаров, Микаэла Дроздовская, Татьяна Брагина, Виктория Духина, Вячеслав Дугин, Гарри Дунц, Алексей Кузнецов, Александр Граве, Николай ПажитновПродолжительность: 00:58:21 + 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929FFAB1E793D9B31E656624B1D70CD69C2DD5AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080529   (280025) от 11.12.2016
+
+Пётр Чайковский - Лебединое озеро (2015) HDTVRip [H.264/720p] (Большой театр)
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Балет «Лебединое озеро» на музыку Петра Ильича Чайковского имеет свою уникальную историю в Большом театре. Премьера балета состоялась на сцене Большого в 1877 году. В феврале того года под руководством Владимира Бегичева было написано либретто на музыку Петра Чайковского, а хореографической постановкой балета занялся Варцлав Рейзингер. На удивление, премьера «Лебединого (   Читать дальше...   )Производство: Россия, Большой театрЖанр: БалетРежиссер: Юрий ГригоровичАктеры: Светлана Захарова, Денис Родькин, Артемий Беляков, Игорь Цвирко, Екатерина Барыкина, Алексей Лопаревич, Кристина Кретова, Елизавета Крутелева, Александр Фадеечев, Ангелина Карпова, Анна Ребецкая, Анна Тихомирова, Дарья Хохлова, Ольга Марченкова, Ана Туразашвили, Анна Воронкова, Юлия Лунькина, Светлана ПавловаПродолжительность: 02:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60151CF3F8811FEAD762A3A471070ED21E8238E
 ```
 
 https://mybot314.ru/tekegram_catalog/

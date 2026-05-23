@@ -1,81 +1,3 @@
-###  Публикация: 1347978   (147489) от 25.12.2019
-
-Наталья Калинина | Седьмой мост (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Существует множество свадебных обычаев. Один из них - проехать свадебным кортежем через семь мостов. Но никто не знает, что Седьмой мост лежит между миром живых и миром мертвых, и пролитая на нем кровь может открыть таинственные врата. Алевтина, обычная школьная учительница, и не собиралась разгадывать какие бы то ни было загадки и ходить по тонкой грани жизни и (   Читать дальше...   )Жанр: Мистика, фантастикаПродолжительность: 07:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50034B31A7F9800A210D0201B56919CC17A6FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678174   (147445) от 20.11.2023
-
-Биба Пирс | Детектив Роб Миллер (Книга 1). Сталкер из Суррея (2023) [MP3, Андрей Крупник]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Безумный серийный убийца, устроивший охоту на девушек в Лондоне. И детектив, для которого это дело может иметь слишком высокую цену. Когда юную девушку находят изнасилованной и задушенной на уединенной тропе вдоль Темзы, подозрение сперва падает на бывшего любовника жертвы. Но полное отсутствие улик и свидетелей наводит полицейских на совершенно иную мысль… После (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 07:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50B5D88F156DC64EE2D2797B3DB4F6E5C4E790F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678185   (147353) от 20.11.2023
-
-Сергей Басов | Предатель (2023) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Внешняя разведка России и ЦРУ США – два полюса непримиримой борьбы за интересы своих государств. Безжалостные жернова, сминающие на своём пути всё, что может повлиять на успешный исход смертельной схватки. И кто победит в этой войне рассудит не только время, но и люди, вращающие эти жернова. Преданность делу, профессионализм, длительная подготовка, готовность пожертвовать (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C78BDDD823C8ACC8176D18856F48BA8EA0CEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678181   (147306) от 20.11.2023
 
 Карина Демина | Не выпускайте чудовищ из шкафа (2023) [MP3, Людмила Солоха]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147306.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147282.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147261.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147249.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147243.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147211.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147151.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147112.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147081.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147075.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147028.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147022.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146900.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146855.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146795.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146782.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146752.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146738.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146665.jpg" />
 </div>
 
 
@@ -584,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146643.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146626.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146429.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146264.jpg" />
 </div>
 
 
@@ -674,6 +596,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21D91A12D8A17668651B71DB0720C2C739AF653F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348154   (146222) от 26.12.2019
+
+Кадзуо Исигуро | Погребенный великан (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое произведение Кадзуо Исигуро - событие в мировой литературе. Его романы переведены более чем на сорок языков. Тиражи книг "Остаток дня" и "Не отпускай меня" составили свыше миллиона экземпляров. "Погребенный великан" - роман необычный, завораживающий. Автор переносит нас в Средневековую Англию, когда бритты воевали с саксами, а (   Читать дальше...   )Жанр: Зарубежная литератураПродолжительность: 11:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E85486C0B78A2EF8DEE8D3E6BDA4F3745DAE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678414   (146206) от 21.11.2023
+
+Марина Серова | Частный детектив Татьяна Иванова. Сумерки большого города (2023) [MP3, Любовь Артемьева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146206.jpg" />
+</div>
+
+
+###  Подробнее
+
+У бизнесмена Мухина украли купленную недавно на московской выставке картину художника Гончарова «Сумерки». Мотив преступления выглядит малоубедительным: из всех полотен воры предпочли самое малоценное. Мухин просит помощи у частного детектива Татьяны Ивановой. Таня выясняет, что на московской выставке картин с названием «Сумерки» было… две! И принадлежали они кисти (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 06:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2823BB99D09D3FC68DCF8E6D27429F6624DD6594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199912   (146177) от 25.12.2018
+
+Владимир Войнович | Москва 2042 (2003) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146177.jpg" />
+</div>
+
+
+###  Подробнее
+
+"... Здешний пластмассовый Гениалиссимус был, я думаю, такого же калибра, что и тот, перед Большим театром, но в летной форме и без перчаток. В левой руке он держал пластмассовую книгу, на которой можно было прочесть слово: "Избранное". Правая рука автора книги покоилась на курчавой голове юноши Пушкина, который был совершенно лилипутского роста, но (   Читать дальше...   )Жанр: Сатира, АнтиутопияПродолжительность: 12:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620F5DE49C85B0DE0FFB773E4EB84EC922C7BA3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

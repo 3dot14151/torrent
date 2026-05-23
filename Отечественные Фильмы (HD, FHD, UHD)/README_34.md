@@ -1,81 +1,3 @@
-###  Публикация: 1115324   (827617) от 17.03.2017
-
-Три дня в Одессе (2007) HDTV [1080i]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Послевоенная волна бандитизма захлестнула лежащую в руинах страну. Особенно тяжёлая ситуация сложилась в Одессе. Днём город жил своей обычной жизнью, но с наступлением сумерек из тёмных закоулков, подвалов и бандитских «малин» выползало на улицы всё самое мрачное и жестокое, что было в городе.Грабежи, убийства, воровство, проституция - стали нормой жизни для Одессы. (   Читать дальше...   )Производство: Россия, Кинокомпания "Третья планета"Жанр: Криминал, ДетективРежиссер: Алексей ПимановАктеры: Ольга Погодина, Владимир Качан, Леонид Якубович, Глафира Тарханова (Майя), Александр Макогон (Влад Кольцов), Ксения Кузнецова, Дмитрий Жулин (Алексей Казарин), Александр Арефьев (майор НКВД) и др.Субтитры: отсутствуютПродолжительность: 01:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DBE38A91D8D0BF763A6FD50AEBD9CCACDAF3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115311   (827433) от 17.03.2017
-
-На Дерибасовской хорошая погода, или На Брайтон Бич опять идут дожди (1992) HDTV [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Президенты СССР и США должны встретиться для важных переговоров. Однако встреча оказалась под угрозой срыва из-за разгула русской мафии, обосновавшейся в США. Мафиози Рабинович даже вмешивается в разговор президентов по суперсекретной телефонной линии.Производство: Россия, СШАЖанр: Боевик, Комедия, КриминалРежиссер: Леонид ГайдайАктеры: Дмитрий Харатьян, Келли МакГрилл, Андрей Мягков, Михаил Кокшенов, Юрий Волынцев, Эммануил Виторган, Армен Джигарханян, Мамука Кикалейшвили, Евгений Весник, Наталья Крачковская, Леонид Куравлёв, Владимир Седов, Спартак Мишулин и др.Продолжительность: 01:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049A30CC1415736863BB90F209D1AF34AF37C890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502689   (826416) от 15.10.2021
-
-Джек and Чан (2020) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Беспечный мэр провинциального города наслаждается жизнью и недавно купленной иномаркой на отмытые деньги. В преддверии приезда имиджевой комиссии из столицы, занимающейся поднятием репутации страны, мэру дают понять, что требование найти и прописать в городе иностранную звезду — обязательно к выполнению. Ввиду отсутствия денег мэр делает суперзвезду из обычного рабочего (   Читать дальше...   )Производство: Россия / Свободное киноЖанр: Короткометражный, комедияРежиссер: Алексей ПетрашевичАктеры: Сергей Маховиков, Ксения Гаевская, Игорь Колесников, Александр Сериденко, Сергей Греков, Максим ЦхайСубтитры: ОтсутствуютПродолжительность: 00:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FF6FDFD16234516E739A8A2EF5F99D2F5B604C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115676   (826262) от 18.03.2017
 
 Осколки хрустальной туфельки (2015) WEB-DL [H.264/1080p-LQ]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826262.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826163.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826026.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825882.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825627.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825625.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824936.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824935.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824934.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824932.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824854.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824511.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824381.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824380.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824219.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823886.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823843.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823838.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823836.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822916.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822825.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ Escape (2020) WEBRip [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822820.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822721.jpg" />
 </div>
 
 
@@ -672,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6DC6A51E49CCC1392F5DEE81BA2BEA01E73E2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881675   (822487) от 26.03.2015
+
+Горячие новости (2009) BDRip [1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822487.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре Москвы группа оперативников под руководством майора Смирнова готовит операцию по захвату банды вооруженных преступников во главе с загадочным и неуловимым Германом. В неожиданно вспыхнувшей жестокой перестрелке стражи порядка терпят унизительное поражение, а случайно оказавшаяся на месте событий телевизионная съемочная группа снимает и передает в эфир репортаж (   Читать дальше...   )Производство: Россия, ШвецияЖанр: Боевик, Криминал, ДрамаРежиссер: Андерс БанкеАктеры: Cергей Гармаш, Андрей Мерзликин, Мария Машкова, Евгений Цыганов, Максим Коновалов, Алексей Франдетти, Юлия Кронрод, Юрий ШлыковПродолжительность: 01:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF748B24977433797A71D7701744538284141E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503012   (822440) от 17.10.2021
+
+Холодно (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822440.jpg" />
+</div>
+
+
+###  Подробнее
+
+В российской глубинке двое сотрудников полиции отправляются на задание. Задача перед ними стоит достаточно простая, но особенности местного климата создают серьезное препятствие для ее выполнения.Производство: РоссияЖанр: Короткометражный, драма, комедияРежиссер: Данил ИвановАктеры: Ольга Лапшина, Дмитрий Куличков, Павел Ворожцов, Анна Слю, Данил Стеклов, Юрий Колганов, Василий Шмаков, Юлия ЛеваковаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 00:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4427398BD1DBD0B611C714125B7D3FA65E5356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503047   (822436) от 17.10.2021
+
+Хорошая девочка Лида (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиде и Боре по двадцать лет, они обычная, ничем не примечательная пара. Он работает на заводе, она в кофейне. Проблемы у них как у всех, радости и мечты как у всех, и в общем жизнь как у всех. Но однажды утром Лида приходит домой с подозрительным пятном на шее.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Антон ЕлисеевАктеры: Виктория Лемешенко, Владислав Мелихов, Анастасия Панькова, Татьяна Бунькова, Валерий Петунин, Роман Цыруль, Анастасия Лыхенко, Анастасия Турховская, Владимир Лободин, Джагарханир УктомовичПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 00:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62565D368F4D79FEF4790C8DA3E06E459AE55D25
 ```
 
 https://mybot314.ru/tekegram_catalog/

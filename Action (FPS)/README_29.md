@@ -6,7 +6,7 @@ Welcome to Hanwell (2017) [En] (1.0/Hotfix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364697.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Inmates (2017) [Ru/Multi] (1.0.2) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364688.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (20181127/dlc) Repack CoD - MW2
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364517.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augm
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362659.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.20/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362650.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Crime Cities (2000) [En/Pl] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362563.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Operation Flashpoint: Red River (2011) [Ru] (1.2.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359746.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Serious Sam 3: BFE - Deluxe Edition [Ru/Multi 8] (Repack/3.0.3) 2011 l R.G. Reve
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359467.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Serious Sam 3: Before First Encounter - Deluxe Edition [Ru/En/Multi9] (Steam-Rip
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359447.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augm
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358368.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0.7/dlc) Repack R.G. Механ
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352748.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351749.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351668.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Gods Basement (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351568.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351565.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350489.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Final DOOM (1994) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348489.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DOOM II (1994) [En] (1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348361.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347636.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347205.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347033.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.0781467/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346179.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344012.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/Mu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343999.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340177.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Infliction (2018) [Ru/Multi] (3.0) Repack Other s [Extended Cut]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339200.jpg" />
 </div>
 
 

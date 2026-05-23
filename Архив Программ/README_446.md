@@ -6,7 +6,7 @@ SIV (System Information Viewer) 5.48 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811427.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF24 Creator 9.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811425.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CCleaner Browser 81.0.4054.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811420.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AnyMP4 Android Data Recovery 2.0.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811417.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Icecream Video Editor Pro 2.05 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811414.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Calibre 4.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811402.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ashampoo Snap 4.3.0 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811379.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Novicorp WinToFlash 0.8.0111 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811345.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ GridinSoft Anti-Malware 3.0.33 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811342.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wireless Network Watcher 1.97 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811338.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ashampoo Snap 8.0.2 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811332.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ ChromePass 1.36 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811324.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ MetaProducts Offline Explorer Enterprise 7.1.4470 SR1 Portable by punsh [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811320.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Flash Player 28.00.137 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811312.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VMware Workstation Pro 14.1.1 Build 7528167 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811299.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Avidemux 2.7.5 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811287.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PotPlayer 1.7.21212 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811286.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PotPlayer 1.7.21212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811273.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Advanced Renamer 3.76 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811217.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Google Chrome 41.0.2272.118 Enterprise (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811208.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WifiInfoView 1.97 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811189.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4815.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811187.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Java SE Runtime Environment 8 Update 92 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811180.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Autodesk AutoCAD Map 3D 2017 HF1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811176.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PDF-XChange Viewer Pro 2.5.317.1 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811172.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Altium Designer 20.1.7 build 139 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811140.jpg" />
 </div>
 
 

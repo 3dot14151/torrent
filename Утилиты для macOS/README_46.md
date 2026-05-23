@@ -6,7 +6,7 @@ Lasso 1.5.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171068.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pastebot 2.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171031.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SyncBird Pro 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170636.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ iMac Cleaner 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170616.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hasher 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170611.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170487.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Download Shuttle Pro for Mac 1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170424.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Disk Doctor Pro 1.0.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170393.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Window Focus 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170377.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Disk Space Analyzer Pro 4.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169858.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Duplicate File Finder Pro for Mac 7 v.7.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169843.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Manico 2.10.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169471.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ ProFind 1.18.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169366.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ BetterTouchTool 4.291 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169360.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ MacBooster 8 Pro 8.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169075.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ AppCleaner 3.6.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168802.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ iSnow 3.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168658.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Irvue 2.7.15 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168353.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ TogetherShare Data Recovery Professional for Mac 8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168337.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ FonePaw WhatsApp Transfer for iOS 1.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168221.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ iBeesoft Data Recovery Professional 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168071.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Magic Battery 7.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167990.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Disk Diet 5.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167940.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Magic Sort List 3.4.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167768.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ App Tamer 2.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167281.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Antivirus Zap - Virus Scanner for Mac 3.13.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167178.jpg" />
 </div>
 
 

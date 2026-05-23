@@ -6,7 +6,7 @@ PowerISO 6.8 RePacK by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896105.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EZ CD Audio Converter 5.1.1.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896100.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bulk Crap Uninstaller 3.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896071.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PowerISO 6.8 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896046.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Display Driver Uninstaller 17.0.5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895933.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ pdfFactory Pro 6.05 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895851.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AIMP 4.12 Build 1880 Final RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895844.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Recovery Partition for Acer Aspire 5253G / Windows 7 Home Basic (х64) SP1 [Russ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895783.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Uninstall Tool v2.9.6 build 5106 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895776.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Q-Dir 6.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895662.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Macrorit Partition Extender 1.6.1 Unlimited Edition RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895576.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Windows and Office ISO Download Tool 4.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895574.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft Edge 93.0.961.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895570.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Macrorit Partition Expert 5.7.1 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895550.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AdminPE10 1.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895476.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895450.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ SupRemo 4.5.2.7280 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895436.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FrostWire 6.9.5 build 308 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895428.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Macrorit Data Wiper 4.6.6 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895382.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ BELOFF 2017.2 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895371.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ PowerISO 6.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895368.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Macrorit Partition Extender 1.6.1 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895350.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PDFCreator 4.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895347.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ jv16 PowerTools X 4.0.0.1506 Final RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895345.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ YouTube Video Downloader PRO 5.2 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895331.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ WinToUSB Enterprise 2.8 Release 1 Portable by speedzodiac [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895312.jpg" />
 </div>
 
 

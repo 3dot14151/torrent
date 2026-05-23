@@ -6,7 +6,7 @@ Junkware Removal Tool 8.1.4 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593925.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kaspersky Secure Connectiоn 19.0.0.1088 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592898.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinPatrol PLUS 33.6.2015.18 [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569609.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SterJo NetStalker 1.2 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538505.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SecureAPlus Freemium 5.3.7 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527884.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525079.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bitdefender AntiVirus Plus 2015 19.2.0.151 [En]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508755.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Avast Free Antivirus 22.7.6025 (build 22.7.7403.736) Final [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475876.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Malwarebytes Premium 3.6.1.2711 RePack by elchupacabra [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441294.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ GridinSoft Anti-Malware 4.1.60.5018 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435487.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ HitmanPro 3.8.20 Build 314 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431416.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adguard Premium 7.5.1 (акция Comss 180 days) [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407012.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dr.Web Remover 11.2.0.201709040 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394655.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Kaspersky Anti-Virus 2021 21.1.15.500 [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380298.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Avira Free Antivirus 15.0.41.77 [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367595.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Shadow Defender 1.4.0.672 [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311449.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ntfs Drive protection 1.4 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296461.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BestCrypt Volume Encryption 3.72.01 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282129.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280864.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ ESET AV Remover 1.2.5.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264339.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Auslogics Anti-Malware Pro 1.23.0.3 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261289.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Antivirus Removal Tool 2025.11 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257490.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adguard 7.22.2 (7.22.5228.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256623.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Malwarebytes Windows Firewall Control 6.23.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255893.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Loaris Trojan Remover 3.2.49.1814 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254625.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Adguard 7.22.1 (7.22.5226.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251741.jpg" />
 </div>
 
 

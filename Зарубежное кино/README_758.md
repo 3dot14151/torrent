@@ -1,56 +1,3 @@
-###  Публикация: 1397837   (714765) от 07.08.2020
-
-С меня хватит / Enough (2002) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь официантки Слим коренным образом меняется, когда она встречает богатого незнакомца Митча. Они влюбляются, женятся, покупают красивый домик и у них рождается дочка. Но восхитительной счастливой новой жизни Слим вскоре приходит конец. Её муж - далеко не совершенство и Слим узнаёт о его изменах. Оскорблённая поведением мужа, Слим пытается убежать от него, а ожесточившийся (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Winkler FilmsЖанр: Триллер, драма, криминалРежиссер: Майкл АптедАктеры: Дженнифер Лопес, Билл Кэмпбелл, Тесса Аллен, Джульетт Льюис, Дэн Футтерман, Ноа Уайли, Фред Уорд, Джанет Кэрролл, Билл Коббс, Кристофер МехерПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94FF963A5EDBA97D95F7A937F96992205CAC9853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400830   (714749) от 07.08.2020
-
-Бог смерти / Matar a Dios / Killing God (2017) WEBRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В канун Нового года супруги Ана и Карлос выясняют отношения - босс Аны прислал ей смс, которое не даёт супругу покоя. Вечером на ужин приезжают брат и отец Карлоса, а после ужина в доме обнаруживается бомжеватого вида карлик, который заявляет, что он является Богом смерти, и человечество к утру прекратит существование. Но собравшейся компании выпадает редкий шанс (   Читать дальше...   )Производство: Испания, ФранцияЖанр: комедия, детектив, фэнтезиРежиссер: Кайе Касас, Альберт ПинтоАктеры: Эдуардо Антунья, Эмилио Гавира, Ициар ,Кастро Борис Руис, Дэвид Парейа, Франсеск Орелья, Anna Martí Casas, Bruna Sala, Макарена Гомес, Bernardo GuglielmettiПеревод: Многоголосый закадровый (Куценко - автор перевода; datynet, Кирилл Адылшин, Galina Vasyukova - голоса)
-Внимание! Присутствует ненормативная лексика!Субтитры: Английские (SDH)Продолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176CCF8A2B21B9DB319526A5B17B74010FE8D1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532388   (714735) от 19.02.2022
 
 Девушки, танцующие хулу / Hura garu / Hula Girls (2006) BDRemux [H.264/1080p] [DVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714735.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714731.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714719.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714686.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_714677.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_714670.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714653.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714651.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714650.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714643.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714636.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714624.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714622.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714617.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_714582.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714577.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_714568.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714566.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_714560.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714524.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714504.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714448.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714447.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714443.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:276BFB998D37E0D39B47CD6DBEF93C577AC1903A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286079   (714434) от 01.03.2019
+
+Король воров / King of Thieves (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа отошедших от дел мошенников решает провернуть последнее дерзкое ограбление. Никто не представлял, что спланированная операция станет самым громким событием криминальной хроники Великобритании за последние сто лет…Производство: Великобритания, StudioCanal, Working Title FilmsЖанр: Драма, криминалРежиссер: Джеймс МаршАктеры: Чарли Кокс, Майкл Гэмбон, Майкл Кейн, Джим Бродбент, Рэй Уинстон, Франческа Аннис, Том Кортни, Пол Уайтхаус, Келли Ширли, Бернардо СантосПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDDA301607775D71DA786174852BD52F28814FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285913   (714370) от 01.03.2019
+
+Подлинный Вермеер / A Real Vermeer (2016) WEB-DLRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aмcтeрдaм 20-е гoды ХХ столетия. Мoлoдoй худoжник Хaн вaн Мeeгeрeн никaк нe мoжeт дoбитьcя уcпeхa, пocкoльку риcуeт в cтилe Рeмбрaндтa и Вeрмeeрa, зa чтo критики нaзывaют eгo пoдрaжaтeлeм. Унижeнный и oгoрчённый тaким мнeниeм гeрoй рeшaeт выдaть cвoю кaртину зa рaбoту Вeрмeeрa. Вcё прoхoдит глaдкo, и фaльшивку блaгoпoлучнo принимaют зa пoдлинник. Злoрaдcтвующий вaн (   Читать дальше...   )Производство: Нидерланды, Бельгия, Люксембур, Cadenza Films B.V., Fu Works, Living StoneЖанр: драма, мелодрама, историяРежиссер: Рудольф ван ден БергАктеры: Ерун Шпиценбергер, Лизе Ферин, Рёланд Фернхут, Порги Франссен, Деви Рейс, Мингус Дагелет, Раймонд Тири, Клод Умберт, Ганс Кройсет, Вивиан де МюйнкПеревод: Многоголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC1D3953D234515B9C36F63FA9D55339114D70C
 ```
 
 https://mybot314.ru/tekegram_catalog/

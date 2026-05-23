@@ -6,7 +6,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743808.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Avira Scout 2016.05.03.00487b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743801.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The KMPlayer 4.2.2.42 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743779.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 Pro VL x64 v.2004.19041.388 2in1 July 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743776.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Photo Supreme 4.3.3.1949 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743747.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Firefox Quantum ESR 60.5.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743744.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mozilla Firefox Quantum 65.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743742.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CoolUtils Total Image Converter 7.1.128 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743692.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ EASEUS Partition Master 14.5 Unlimited Edition RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743682.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows 7 Home - Ultimate (x86/x64) UpdPack7R2 by ProDarks (20.7.15)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743651.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ThunderSoft GIF to Video Converter 4.1.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743646.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ThunderSoft Video to GIF Converter 3.6.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743633.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ File & Image Uploader 8.1.8 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743630.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Autorun Organizer 3.07 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743625.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Bandicam 4.3.2.1496 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743620.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ HWiNFO x32/x64 6.00-3620 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743613.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Mozilla Firefox 38.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743597.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ HitPaw Screen Recorder 1.3.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743565.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ XnViewMP 0.99.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743548.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v2.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743544.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Adobe XD 47.0.22.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743536.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Tixati 2.88 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743532.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Subtitle Edit 3.5.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743526.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Product Key Explorer 4.0.11.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743525.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Skype 8.39.0.180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743509.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ WinSnap 4.5.4 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743496.jpg" />
 </div>
 
 

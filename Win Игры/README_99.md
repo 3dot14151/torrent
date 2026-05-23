@@ -1,29 +1,3 @@
-###  Публикация: 765371   (876323) от 11.03.2014
-
-Mind Snares: Alice's Journey (2014) [En] Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Возвращаясь домой молодая женщина, при загадочных обстоятельствах, попадает в ужасную в автомобильную аварию. Очнувшись Алиса обнаружила себя запертой в заброшенной таинственной больнице. Помогите Алисе выбраться из интригующих, запутанных лабиринтов собственного сознания и понять, что за чудовищное создание в капюшоне управляет ее мыслями и действиями? Вам предстоит путешествие через загадочные и удивительные миры, чтобы помочь Алисе вернуться к любимому мужу Джеку и дочке Мэгги!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: World-LooMЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D878397F2664493714766DCBE1098479C51EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765340   (876265) от 11.03.2014
 
 Space Legends: At the Edge of the Universe (2014) [En] Unofficial
@@ -32,7 +6,7 @@ Space Legends: At the Edge of the Universe (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876265.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Wardrobe (2017) [En/It] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875880.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ X4: Foundations (2021) [Ru/Multi] (4.10.458643/dlc) Repack =alexalsp= [Updates P
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875606.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ ATOM RPG: Trudograd (2021) [Ru/En] (1.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875448.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Leeloo's Talent Agency / Агентство Талантов Лилу (2009) [Ru
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874818.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Others (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874770.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Eventide: Slavic Fable / На закате. Предания славян (2015)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874755.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Okhlos: Omega (2016) [Ru/Multi] (2.0.1) License GOG [Omega Olympus Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874513.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Eastward (2021) [Multi] (1.0.5) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874323.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Last Stand Legacy Collection (2021) [En] (1.04) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874227.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Flynn: Son of Crimson (2021) [Ru/Multi] (1.01b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874220.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Little Nightmares II (2021) [Ru/Multi] (1160/dlc) License GOG [Echanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874211.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874172.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874091.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874087.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Iron Danger (2020) [Ru/Multi] (1.00.31) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874026.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/En] (1.4.15.0.8/dlc) Repack xatab [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874022.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874018.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ White Night (2015) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873100.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ World of Tanks: Шкурки с зонами пробития (2016) [Ru] (0.9.1
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873091.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Shelter 2: Mountains (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872961.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Paint the Town Red (2016) [En] (0.4.2) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872792.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Knights of Pen & Paper (2014) [Multi] (1.0/dlc) License GOG [+1 Deluxier Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872636.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Nevertales 9: Hearthbridge Cabinet (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872569.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Hidden Folks / Скрытые Люди (2017) [Ru/Multi] (1.02) Repack John2s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872476.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Hidden Folks / Скрытые Люди (2017) [Ru/Multi] (1.02) Repack John2s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C982ADB27C655E892383C493D84FB4E025ACB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374595   (872276) от 10.04.2020
+
+Reflections of Life 9: Utopia / Отражения жизни 9: Утопия (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательное продолжение сказочной серии игр Reflections of Life. Вы получили приглашение на ярмарку механических игрушек. Однако радость вскоре сменяется ужасом - мастер из игрушечного театра крадет вашего механического летающего спутника. Вы пускаетесь в погоню за похитителем и попадаете в мир игрушечного театра, где во тьме скрыты бесчисленные волшебные существа. (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499EFE6BBD196CB2CC09254405815E72B7798FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

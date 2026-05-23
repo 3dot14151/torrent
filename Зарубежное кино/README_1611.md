@@ -1,55 +1,3 @@
-###  Публикация: 1342509   (223574) от 02.12.2019
-
-Когда звонит незнакомец / When a Stranger Calls (2006) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На некоторые звонки лучше не отвечать — проблема лишь в том, что порой узнаешь об этом, когда уже поднял трубку… Старшеклассница Джилл остается посидеть с детьми четы Мандракис в их доме, пока хозяева ужинают в ресторане. Отправив малышей спать, девушка отчаянно скучает в огромном пустом особняке, и если бы не телефон, по которому можно поболтать с друзьями, ей стало (   Читать дальше...   )Производство: США / Screen Gems, Davis EntertainmentЖанр: Ужасы, Триллер, Криминал, ДетективРежиссер: Саймон УэстАктеры: Камилла Белль, Томми Флэнаган, Кэти Кэссиди, Тесса Томпсон, Брайан Джерати, Кларк Грегг, Дерек де Линт, Кейт Дженнингс Грант, Дэвид Денман, Артур ЯнгПеревод: Дублированный, Двухголосый профессиональныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), Английские (full, sdh)Продолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A966358051A076A9E0C3D83A0C5A7C72F138ADBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965650   (223528) от 15.12.2015
-
-Байки из склепа: Демон ночи / Tales from the Crypt: Demon Knight (1995) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-История Рыцаря-демона разворачивается вокруг артефакта. Артефакт - это ключ, один из семи ключей, которые могут открыть врата Ада и выпустить Тьму. В начале, когда ещё не существовало Земли как таковой, демоны пытались использовать эти семь ключей,чтобы сконцентрировать силу космоса в их руках, но после того, как Бог создал ее, он разбросал семь ключей по всей Вселенной. (   Читать дальше...   )Производство: США, Universal PicturesЖанр: Ужасы, ФантастикаРежиссер: Эрнест Р. ДикерсонАктеры: Джон Кассир , Билли Зейн, Уильям Сэдлер, Джада Пинкетт Смит, Бренда Бакки, Си Си Эйч Паундер, Дик Миллер, Томас Хейден Чёрч, Джон Шак, Гэри Фармер, Чарльз Флайшер, Тим Де Зарн, Шерри Роуз, Райан О`Донохью, Тони Салом, Кен Болдуин, Чейси Лэйн, Реда Биби, Трэйси БингхэмПеревод: Профессиональный (многоголосый, закадровый) х 3, профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русский, английскийПродолжительность: 01:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B8CF2FD580F4AECE44867EFA19DD24CE0BC71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425150   (223478) от 19.11.2020
 
 Поезд в Пусан 2: Полуостров / Bando (Train to Busan 2) / Peninsula (2020) BDRip [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223478.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223465.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223448.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223425.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223392.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223377.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223348.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223337.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223331.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223323.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223296.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223288.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223284.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223275.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223268.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223257.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223253.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223243.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223238.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223235.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223231.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223222.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223221.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223197.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD8D4137DE473ED48B14CB6E95AD8F08ED6C1515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513575   (223188) от 29.11.2021
+
+Друзья по отпуску / Vacation Friends (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маркус привык всё в жизни планировать и в долгожданном отпуске в Мексике он собирался сделать Эмили предложение, но его планы нарушает безумная парочка — Рон и Кайла. Они случайно разрушили приготовленный для Маркуса с Эмили номер в отеле, поэтому приглашают их пожить в своём. Так начинается сумасшедший отрыв, в который все четверо кидаются с головой, и вскоре даже (   Читать дальше...   )Производство: США / 20th Century Studios, Broken Road ProductionsЖанр: Комедия, приключенияРежиссер: Клэй ТэрверАктеры: Лил Рел Ховери, Ивонн Орджи, Джон Сина, Мередит Хагнер, Роберт Уиздом, Линн Уитфилд, Эндрю Бэчелор, Тоуни Ньюсом, Бэрри Ротбарт, Камал Анджело БолденПеревод: Двуголосый любительский (Pazl Voice)Субтитры: АнглийскиеПродолжительность: 01:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D599B83F71A43DAABE560586801D789A178325D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342562   (223184) от 02.12.2019
+
+Голубая лагуна / Blue Lagoon: The Awakening (2012) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223184.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фокусе сюжетной линии двое подростков Эмма и Дин, которые оказались на необитаемом острове в Карибском море. Во время морской прогулки Эмма упала за борт корабля, и только Дин увидел это и прыгнул за ней в море. Проходят недели и молодые люди влюбляются, узнают многое о друг друге, а также познают себя.Производство: США / PeaceOut Productions, Silver Screen Pictures, Sony Pictures Television, Storyline EntertainmentЖанр: Мелодрама, драма, приключенияРежиссер: Микаэл СаломонАктеры: Индиана Эванс, Брентон Туэйтс, Дениз Ричардс, Патрик Ст. Эсприт, Фрэнк Джон Хьюз, Аликс Гиттер, Кэрри Уомплер, Хейли Киёко, Эйми Карреро, Энни ТедескоПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12743770A0043E11FF607C89E7835DCDBD2F4E74
 ```
 
 https://mybot314.ru/tekegram_catalog/

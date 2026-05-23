@@ -6,7 +6,7 @@ European Air War (1998) [En] (1.20) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195703.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skydrift Infinity (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195702.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195688.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195565.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195511.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191981.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kerbal Space Program (2015) [Ru/En] (1.12.4.03187/dlc) Repack dixen18
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189589.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Project Wingman (2020) [Ru/Multi] (1.0.3.20.1201.3199) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177795.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ X3: Litcube's Universe (2008-2018) [En] (3.3/1.7.2) Repack/Mod alexalsp
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177090.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ X3: Time Of The Truth (2008-2018) [Ru] (3.4/1.5.3) Repack/Mod alexalsp
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177076.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Project Wingman (2020) [Ru/Multi] (1.0.3.20.1201.3199) Repack xatab
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177016.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Search and Rescue: Vietnam Med Evac / Вьетнамский апокалипс�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172943.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ IXION (2022) [Ru/Multi] (1.0.0.3) Repack DjDI [Deluxe Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169437.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack dixen18
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159941.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Executive Assault 2 (2023) [En] (1.0.4.0) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159066.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft Flight Simulator 2004: A Century of Flight (2003) [Ru/En] (9.1) Repack
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150576.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Galaxy on Fire 2 Full HD [Ru/En/Multi11] (Steam-Rip/1.0.3) 2012 | R.G. Игро�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147184.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Air Conflicts: Pacific Carriers / Асы Тихого океана [Ru/En/Multi6
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147163.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Terminal Velocity: Boosted Edition (2023) [Multi] (1.0.4) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144464.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Kerbal Space Program (2015) [Ru] (1.11.0.03045/dlc) Repack xatab (обновля
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142956.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ X: Superbox (1999-2013) [Ru/Multi] (2.2/2.2/1.5/2.5а/3.4/3.3/4.30/dlc) Repack R
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139489.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kerbal Space Program (2015) [Ru/En] (1.8.1.2694/dlc) Repack Mr_Weegley
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138867.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Galaxy on Fire 2. Full HD [Ru/En/Multi11] (RePack/1.0.3) 2012 | Fenixx
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138266.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Tom Clancy's H.A.W.X. (2009) [Ru/En] (1.02) RePack =nemos=
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137213.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Space Engineers / Космические инженеры (2019) [Ru/En] (1.207.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128992.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125554.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Unreal Commander 2.02 Build 1082 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619630.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CPU Core Analyser 3.2.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619618.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CoolUtils Total Image Converter 7.1.1.151 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619611.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AVG Antivirus Free Edition 9.0.851a3009 [Rus, Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_619579.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Total Commander 10.00 LitePack & PowerPack + Portable 2022.4 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619573.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ RadioBOSS Advanced 5.6.0.7 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619509.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Avast Free Antivirus 17.5.2302 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619499.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Google Chrome 59.0.3071.115 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619496.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Adblock Plus 1.9 for Google Chrome / Opera / Safari [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619479.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6721.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619393.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ummy Video Downloader 1.8.0.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619374.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AIMP 4.13 Build 1897 DC 26.06.2017 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619368.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Acronis True Image 2016 19.0.6595 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619305.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sticky Password Premium 8.0.2.43 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619284.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VMware Workstation 11.1.2 Build 2780323 Lite + VMware-tools 9.9.3 RePack by alex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619282.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7151.5001
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619275.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Backup4all Professional 4.8 Build 278 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_619226.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Mozilla Thunderbird 10.0.6 Final (Extended Support Release) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_619222.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Sony Vegas Movie Studio HD Platinum 11.0 Build 220 Production Suite [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_619221.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Microsoft Office 2010 Standard 14.0.7151.5001 SP2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619198.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Adobe InDesign CC 2015 (v11.0) x86-x64 RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619195.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Microsoft Office 2007 Standard SP3 12.0.6721.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619191.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ K-Lite Codec Pack Update 9.0.5 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_619123.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_619031.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ qBittorrent 3.3.6 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618989.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Auslogics BoostSpeed 9.0.0.0 DC 18.07.2016 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618986.jpg" />
 </div>
 
 

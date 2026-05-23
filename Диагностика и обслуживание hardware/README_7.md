@@ -6,7 +6,7 @@ PassMark PerformanceTest 10.0 Build 1008 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714869.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reduce Memory 1.6 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714400.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Paragon HFS+ for Windows 11.1.75 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713919.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paragon Hard Disk Manager 15 Professional 10.1.25.1137 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642252.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.1137 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642227.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Paragon Домашний Эксперт 15 10.1.25.1137 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638440.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.1137 BootCD [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634565.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.1137 RePack by KpoJIuK [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630806.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.710 Recovery Boot Medias [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617354.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ashampoo HDD Control 3.10.00 + Corporate [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588496.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Acronis Disk Director 12 Build 12.0.3297 BootCD [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571800.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Acronis Disk Director 12 Build 12.0.3297 [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571797.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Hard Drive Inspector Professional 4.35 Build 243 + for Notebooks [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569614.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Hard Drive Inspector Professional 4.35 Build 243 + for Notebooks Portable by Por
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569545.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562204.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Paragon Hard Disk Manager 15 Suite 10.1.25.772 + Recovery Boot Medias Premium [E
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560302.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ D-Soft Flash Doctor 1.0.4 RC1 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535106.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ SsdReady 1.30 build 209 Pro [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529316.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ashampoo HDD Control 3.20.00 Corporate Edition [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527027.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ MiniTool Partition Wizard Server 9.1 RePack by WYLEK [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521259.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ MiniTool Partition Wizard Server 9.1 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517987.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Intel® Extreme Tuning Utility (Intel® XTU) 6.0.2.2 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506841.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Futuremark PCMark 8 Professional Edition 2.5.419 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498949.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Xinorbis Pro 8.1.14 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498430.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ SSDlife Pro 2.5.82 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495824.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481460.jpg" />
 </div>
 
 

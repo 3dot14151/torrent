@@ -6,7 +6,7 @@ Elf Seventeen | Эльф 17 [1987, OVA] VHSRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025071.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Majo no Tabitabi | Wandering Witch: The Journey of Elaina | Странствия
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024859.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ I-Chu: Halfway Through the Idol | Айчу: На полпути к айдолу 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024519.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hortensia Saga | Сага о гортензии [2021, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024496.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ LBX Girls | Soukou Musume Senki | Бронированные девушки [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024495.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Di Gi Charat | Ди Джи Карат [ТВ-1] [1999, TV, 16 эп.] BDRip 576p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024396.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Call Me Tonight | Позвони мне вечером [1986, OVA] LDRip 480p 10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024367.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Show by Rock!! Stars!! | Рок-шоу! Звёзды [2021, TV, 12] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024328.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024141.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Kai Byoui Ramune | Dr. Ramune Mysterious Disease Specialist | Доктор Ра�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024138.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024127.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ore dake Haireru Kakushi Dungeon / The Hidden Dungeon Only I Can Enter / Скр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024110.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023945.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Beastars 2 | Выдающиеся звери [ТВ-2] [2021, TV, 12] HDTVRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023925.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Yakusoku no Neverland (2021) | Обещанный Неверленд [ТВ-2] [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023911.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 1st | Magical Girl Lyrical Nanoha The Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023831.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 2nd A's | Лиричная волшебн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023821.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Mahou Shoujo Lyrical Nanoha A's | Magical Girl Lyrical Nanoha A's | Лиричн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023810.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mahou Shoujo Lyrical Nanoha StrikerS | Magical Girl Lyrical Nanoha StrikerS | Л
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023809.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Mahou Shoujo Lyrical Nanoha | Magical Girl Lyrical Nanoha | Лиричная в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023792.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка на час [ТВ-1] [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023746.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Wave!! Surfing Yappe!! | На волне! Сёрфинг! [2020, TV, 12] WEB-DL 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023594.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Toji no Miko + Mini Toji | Katana Maidens | Жрицы-мечницы + Мини
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023593.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023579.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Trinity Seven | Святая семёрка [2014, TV 12 эп. + 1 OVA + 2 Movie
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023567.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren'ai Zunousen | Кагуя: В л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023455.jpg" />
 </div>
 
 

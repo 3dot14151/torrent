@@ -6,7 +6,7 @@ UC Browser 5.2.2787.1029 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576912.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Advanced Installer 12.3 Build 64631 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576911.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Punto Switcher 4.1.0 Build 432 Final RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576908.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ EZ CD Audio Converter 3.1.0.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576904.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AnyDesk 2.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576899.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Bandicam 2.2.5.815 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576793.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ JetBrains PyCharm Professional 4.5.3 Build #PY 141.1899 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576784.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Advanced SystemCare 5.4.0.251 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_576777.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Re:Vision Effects Bundle CE RePack by Team VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576775.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.5.501 Beta + Portable [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576769.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ JetBrains IntelliJ IDEA 14.1.4 Build #IU141.1532.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576766.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ HWMonitor 1.28 Portable by Loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576667.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ UltraISO Premium Edition 9.6.5.3237 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576637.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Imagenomic Portraiture Plug-in 2.3.3 build 2330 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576625.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ V-Ray 3.20.02 for 3ds Max 2014-2016 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576616.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ PhotoInstrument 5.7 Build 573 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576524.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Wise Care 365 Pro 4.23.408 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576439.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ CCleaner 3.21.1767 Business | Professional Edition  [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576381.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Wise Care 365 Pro 4.23.408 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576298.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ SIV (System Information Viewer) 5.12 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576293.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Diskeeper 2011 Pro Premier 15.0.958.0 [Английский + Руссифика
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576256.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Adobe Flash Player 11.3.300.268 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576216.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Registry Trash Keys Finder 3.9.1.2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576188.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Glary Utilities Pro 5.80.0.101 RePack (& Portable) by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576187.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Avant Browser Ultimate 2019 build 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576161.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ MySecretFolder 5.3 Repack by Kopejkin [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576142.jpg" />
 </div>
 
 

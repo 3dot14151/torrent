@@ -6,7 +6,7 @@ Comodo Internet Security Premium 8.4.0.5076 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635714.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Easy2Boot 1.81 + RMPrepUSB 2.1.731 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635710.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat Pro DC 2015.017.20050 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635708.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Disk Cleaner 9.7.5.692 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635707.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PrivaZer 3.0.47 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635705.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Acrobat XI Pro 11.0.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635704.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ QuiteRSS 0.18.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635701.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Muse CC 2015.2 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635692.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TuneUp Utilities 2011 10.0.4100.92 [Русский / Английский] | REP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635606.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VMware Workstation 11.1.1 Build 2771112 Lite + VMware-tools 9.9.2 RePack by alex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635589.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ EximiousSoft Business Card Designer 5.01 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635586.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Ashampoo Photo Commander 12.0.11 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635585.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Athentech Perfectly Clear + Essentials + WorkBench 3.5.7.1210 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635576.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Advanced SystemCare Pro 8.3.0.806 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635568.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Telegram Desktop 1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635558.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PassMark BurnInTest Pro Pro 9.0 Build 1006(x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635552.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BestReminder v2019.04.04.10 Super Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635503.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ WinUtilities Professional Edition 15.53 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635501.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Zoner Photo Studio X 19.1904.2.140 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635492.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Notepad++ 6.1.5 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635474.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Daum PotPlayer 1.6.54549 Stable RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635438.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Adobe Flash Player 13.0.0.292 ESR [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635428.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VMware Workstation 11.1.1 Build 2771112 Lite + VMware-tools 9.9.2 RePack by qazw
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635424.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ K-Lite Codec Pack 14.2.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635423.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ R-Wipe & Clean 10.8 Build 1979 Corporate RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635416.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ oCam 470.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635362.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MKVToolNix 27.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424607.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Burning Studio 2015 1.15.3.18 (DC 28.09.2015) Portable by SpeedZodiac [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424569.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nero Video 2016 17.0.12000 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424567.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VSDC Free Video Editor 3.3.0.394 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424565.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Norton Security with Backup 22.0.2.17 OEM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424563.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AMD Catalyst Display Drivers 15.10 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424562.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ E-on LumenRT 2015.5 Bentley [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424554.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ USBboot Installer++ 1.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424552.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Internet Download Manager 6.31 Build 8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424483.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ K-Lite Codec Pack 14.5.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424474.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ MyPhoneExplorer 1.8.10  + Portable[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424472.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Acrobat Reader DC 2015.009.20069 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424425.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ DxO Optics Pro 10.5.1 Build 848 Elite (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424424.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Destroy Windows 10 Spying 1.5 Build 500 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424423.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BlueStacks App Player 0.10.3.4905 (Android 4.4.2) Mod by ajrys [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424420.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Norton Security 22.0.2.17 OEM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424414.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Adobe Acrobat XI Pro 11.0.13 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424409.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Mozilla Firefox 50.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424395.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VLC Media Player 2.1.0-git-20121005 (x32/x64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_424370.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424247.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424246.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Free Studio 5.7.5.1005 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_424188.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ O&O Defrag Professional 16.0 Build 151 RePack by KpoJIuK [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_424184.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Reg Organizer 8.20 Final RePack (& Portable) by elchupacabra (28.09.2018) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423943.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Everything 1.4.1.778 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423889.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ TapinRadio Pro 2.00 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423789.jpg" />
 </div>
 
 

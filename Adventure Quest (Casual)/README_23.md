@@ -6,7 +6,7 @@ Haunted Hotel 16: Lost Dreams (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670693.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vermillion Watch 4: In Blood (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670686.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nevertales 7: Creators Spark (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670578.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dark Tales 15: Edgar Allan Poe's. Speaking with the Dead (2019) [En] (1.0) Unoff
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670568.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fear for Sale 5: The 13 Keys / Страх на продажу 5: 13 ключей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670491.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dark Parables 9: Queen of Sands (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669352.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bonfire Stories: The Faceless Gravedigger / Истории у костра: Бе
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668950.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dark Parables 14: Return of the Salt Princess (2018) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668792.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mystery Tales 9: The Other Side (2017) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668790.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Edge of Reality 3: Fatal Luck / Край Реальности 3: Роковая 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668022.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Redemption Cemetery 10: Embodiment Of Evil / Кладбище искуплени
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667648.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Redemption Cemetery 9: Night Terrors / Кладбище искупления 9: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667635.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Dark Prophecy (2022) [Ru/En] (1.0.11) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667433.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cadenza 5: The Eternal Dance / Каденция 5: Вечный танец (2017
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664853.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Tearstone 2: Thieves of the Heart (2022) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664220.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ I Know a Tale (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662258.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Behind the Reflection 2: Witch's Revenge / Ведьма в зеркале 2. М�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662075.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Royal Detective 4: Borrowed Life / Королевский детектив 4: Ж
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662034.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Forgotten Fairytales. The Spectra World / Утерянные сказани�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662028.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Reflections of Life 2: Equilibrium / Отражения жизни: Равнов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661980.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Edge of Reality 2: Lethal Predictions / Край Реальности 2: Сме�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661967.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ League of Light 6: The Game / Лига Света 6: Что наша жизнь?
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661713.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Haunted Legends 10: The Black Hawk / Легенды о призраках 10: Ч
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661004.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Moonsouls: Echoes of the Past / Лунные души: Эхо прошлого (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660706.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Spirit of Revenge 4: Florrys Well / Месть духа 4: Колодец Фло
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660004.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Pride & Prejudice: Hidden Anthologies (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658229.jpg" />
 </div>
 
 

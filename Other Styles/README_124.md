@@ -6,7 +6,7 @@ Gavri - Global Inspiration (2006) [MP3|320 Kbps] <New age, World beat, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359061.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Classic Rock Orchester London - Classic & pop (1993) [FLAC|Lossless|image + .cue
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359026.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mick Gordon - DOOM (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358842.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Two Steps from Hell - Illumina (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358743.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ El Chido - Ghost Recon Wildlands: Corrido - The Sounds of Santa Blanca (2017) Ba
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358511.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357789.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que c
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356968.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356732.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356643.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356642.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356641.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356638.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356637.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивен
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356636.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356632.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356631.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356630.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Jennifer Thomas - The Fire Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356560.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356504.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ DJ Taz Rashid - A Story of Satori (2015) [MP3|320 Kbps] <New age, World music, A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356422.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356404.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356306.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356119.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355959.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355940.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Fridrik Karlsson - Chillout Heaven (2006) [APE|tracks+.cue]<New Age, Chillout, R
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355875.jpg" />
 </div>
 
 

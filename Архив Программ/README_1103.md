@@ -6,7 +6,7 @@ Wise Driver Care Pro 2.1.814.1005 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485686.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SolveigMM Video Splitter 6.0.1609.20 Beta Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485659.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox 49.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485654.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NVIDIA GeForce Experience 3.0.6.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485653.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CherryPlayer 3.1.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485629.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TeamViewer Corporate 10.0.47484 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485583.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mentor Graphics HyperLynx 9.2 Update 1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485569.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ K-Lite Codec Pack 13.4.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485543.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ PrivaZer 4.0.9 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485470.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Freemake Video Converter 4.1.11.68 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485467.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ YT Downloader 7.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485454.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ TeamViewer Server Enterprise 10.0.47484 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485435.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AVS All-In-One Install Package 3.0.1.127 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485419.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ESET NOD32 | ESET Endpoint 7.0/6.x/5.x (x32 x64) Offline Update 12258 (сент�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485417.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ The Bat! Professional 7.3.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485363.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Topaz DeNoise AI 2.2.9 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485325.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wise Registry Cleaner Pro 10.3.1.690 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485316.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Unreal Commander 3.57 build 1479 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485315.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ TeamViewer Premium 10.0.47484 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485306.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ AVG AntiVirus Free 2015 15.0.6140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485287.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ PicPick 3.1.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485262.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ NVIDIA GeForce Desktop 372.90 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485244.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CrystalDiskInfo 8.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485180.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Telegram Desktop 2.3.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485174.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485170.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Sprint-Layout 6.0 AIO Upd 07.09.2015 Repack (& Portable) by Robby [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485106.jpg" />
 </div>
 
 

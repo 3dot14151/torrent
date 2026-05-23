@@ -1,32 +1,3 @@
-###  Публикация: 1207142   (780854) от 17.02.2018
-
-VA - We Love Bossa Nova (2018) [MP3|320 Kbps] <Downtempo, Jazz, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Florito – A La Playa
-02. Alberto Dos Santos – Copa Brasil
-03. Rob Hayes, Angelina – Just Be Good To Me (Latin Breeze Remix)
-04. Ginger Tunes – Black Orpheus(   Читать дальше...   )Жанр: Downtempo, Jazz, HouseПродолжительность: 04:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CDEDF15D49C3986C54F17C05EF6C05E42158D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207089   (780810) от 17.02.2018
 
 VA - Vocal Trance Collestion Vol. 8 (2018) [MP3|320 Kbps] <Trance>
@@ -35,7 +6,7 @@ VA - Vocal Trance Collestion Vol. 8 (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780810.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Kiss FM: Top 40 Февраль (2018) [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780809.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Рок впрок 9 (2018) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780781.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Зайцев.Нет: Лучшие Новинки Февраля (2018) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780778.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Relax-Café (2008) [MP3|320 kbps]<ChillOut, Ambient, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780747.jpg" />
 </div>
 
 
@@ -185,7 +156,7 @@ VA - Старые Песни по-новому. Интернациональны
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780684.jpg" />
 </div>
 
 
@@ -214,7 +185,7 @@ VA - Express Train (2018) [MP3|320 Kbps] <House, Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780611.jpg" />
 </div>
 
 
@@ -243,7 +214,7 @@ VA - The Best Of Trance 65 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780608.jpg" />
 </div>
 
 
@@ -272,7 +243,7 @@ VA - The Official UK Top 40 Singles Chart 16.02.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780605.jpg" />
 </div>
 
 
@@ -301,7 +272,7 @@ VA - De Top 100 Aller Tijden 1981 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780566.jpg" />
 </div>
 
 
@@ -330,7 +301,7 @@ VA - Music Infection: Dance Culture 90's (Compiled by electro75) (2018) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780539.jpg" />
 </div>
 
 
@@ -359,7 +330,7 @@ VA - RockДрайв. Новинки русского рока. Часть 2 (201
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780511.jpg" />
 </div>
 
 
@@ -388,7 +359,7 @@ VA - Радио Шансон. Лучшее 2017 от DON Music (2018) [MP3|256-3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780496.jpg" />
 </div>
 
 
@@ -417,7 +388,7 @@ VA - Enigma Alive Vol.3 (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780487.jpg" />
 </div>
 
 
@@ -446,7 +417,7 @@ Gon Haziri feat Luar - DY (2018) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780448.jpg" />
 </div>
 
 
@@ -474,7 +445,7 @@ VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780431.jpg" />
 </div>
 
 
@@ -503,7 +474,7 @@ VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780424.jpg" />
 </div>
 
 
@@ -532,7 +503,7 @@ VA - Empire Records - Chill Progress 2 (2018) [MP3|320 Kbps] <Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780422.jpg" />
 </div>
 
 
@@ -561,7 +532,7 @@ VA - Empire Records - Tropical Disco 4 (2018) [MP3|256-320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780415.jpg" />
 </div>
 
 
@@ -590,7 +561,7 @@ VA - Best Club Hits: January (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780279.jpg" />
 </div>
 
 
@@ -619,7 +590,7 @@ VA - Lounge Of Sleep (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780269.jpg" />
 </div>
 
 
@@ -648,7 +619,7 @@ VA - Большой Мальчишник (2018) [MP3|320 Kbps] <Поп, Шанс
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780227.jpg" />
 </div>
 
 
@@ -677,7 +648,7 @@ VA - Музыкальный Деликатес (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780205.jpg" />
 </div>
 
 
@@ -706,7 +677,7 @@ VA - Winter Twilight: Eurodance Party (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780107.jpg" />
 </div>
 
 
@@ -735,7 +706,7 @@ VA - Hits Cocktail Vol.16 (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780103.jpg" />
 </div>
 
 
@@ -749,6 +720,35 @@ VA - Hits Cocktail Vol.16 (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC8E43F39E66F7B94E2F451DEBD7E99622F2E825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208165   (780073) от 21.02.2018
+
+VA - Сердцу В Такт: Лирика Шансона (2018) [MP3|256-320 Kbps] <Шансон, Лирика>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Курган - Сердцу в такт
+002. Сборная Союза - Разные Мы
+003. Ирина Аллегрова - Любовь Жадная Дура
+004. Виталий Гордей - Где-То Там(   Читать дальше...   )Жанр: Шансон, ЛирикаПродолжительность: 12:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570B3E9E5EC71CCF64BB3B0AB5B0167DE1C74249
 ```
 
 https://mybot314.ru/tekegram_catalog/

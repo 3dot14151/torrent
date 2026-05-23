@@ -6,7 +6,7 @@ Wise Disk Cleaner 10.1.3.759 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301067.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nox App Player 6.3.0.9005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301055.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HyperSnap 8.16.17 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301047.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reg Organizer 7.20 DC 01.12.2015 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301034.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ant Download Manager Pro 1.10.2 Build 54254 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300990.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NVIDIA GeForce Desktop 388.31 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300989.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Norton AntiVirus 22.11.2.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300986.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Norton Security 22.11.2.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300978.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Glary Utilities Pro 5.109.0.134 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300971.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Aiseesoft Video Converter Ultimate 9.2.58 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300969.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Norton Internet Security 22.11.2.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300963.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DFX Audio Enhancer 12.013 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300940.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ MKVToolNix 8.6.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300938.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Opera 33.0.1990.137 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300930.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Sputnik 1.9.154.4 [Multi/Ru] (Online-Installer)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300922.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ReviverSoft PC Reviver 2.3.0.16 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300921.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ ACDSee Video Converter Pro 3.0.34.0 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_300904.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mailbird.Pro 2.5.23.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300898.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Jetico BestCrypt 9.03.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300889.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300870.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ IObit Driver Booster Pro 5.1.0.488 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300860.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300851.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ RonyaSoft CD DVD Label Maker 3.01.32 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300810.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Zoom Player MAX 11.1 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300805.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NVIDIA GeForce Desktop 359.06 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300794.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NetLimiter 4.0.41  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300749.jpg" />
 </div>
 
 

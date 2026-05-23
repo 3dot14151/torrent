@@ -6,7 +6,7 @@ QOwnNotes 26.5.8 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069247.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Journal 8.0.0.1347 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069137.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF Suite Pro 20.0.55.21555 + Modules [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069064.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Atlantis Word Processor 5.0.4.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069029.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Emurasoft EmEditor Professional 26.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069027.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Emurasoft EmEditor Professional 26.1.0 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069020.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Notepad++ 8.9.5 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069001.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068894.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068893.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ UPDF 2.5.2.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068691.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ LibreOffice 26.2.3.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068685.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wondershare PDFelement Pro 12.1.17.4188 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068675.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Vim 9.2.0461 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068668.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Emurasoft EmEditor Professional 26.1.0 [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068632.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Wondershare PDFelement Pro 12.1.17.4188 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068475.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Sumatra PDF 3.7.18428 Pre-Release + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068461.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Eagle PDF 1.0.0 RePack [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068319.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Calibre 9.8.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068154.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Beyond Compare Pro 5.2.1.32035 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068117.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ PDFsam Basic 6.0.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067720.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Foxit PDF Editor Pro Subscription 2026.1.1.36485 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067676.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Jutoh 3.30.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067668.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Adobe Acrobat Pro 2026.001.21529 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067626.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Adobe Acrobat Pro 2026.001.21529 (x86|x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067618.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ WinScan2PDF 9.69 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067615.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ SoftMaker FlexiPDF 2025.418.0425 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067415.jpg" />
 </div>
 
 

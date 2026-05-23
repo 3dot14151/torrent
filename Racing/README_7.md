@@ -6,7 +6,7 @@ Moscow Racer: The Ultimate Racing Game [Ru] (L) 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563757.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Riptide GP: Renegade (2016) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562716.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack =nemos= [Complete Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562603.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RIDE 3 (2018) [Multi] (1.0/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555706.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Distance (2018) [En] (1.3) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555277.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ RDS - The Official Drift Videogame (2019) [Ru/En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555275.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RIDE 3 (2018) [Multi] (1.0upd10/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554543.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ocean City Racing: Redux (2016) [En] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550714.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Redout (2016) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544259.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Xpand Rally Xtreme [Ru] (RePack) 2007 | Skorp1oN
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539596.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537883.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537666.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537023.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Table Top Racing: World Tour (2016) [Ru/Multi] (1.0.2942/dlc) Repack Other s [Bu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535849.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Monster Energy Supercross - The Official Videogame (2018) [Multi] (1.0/dlc) Repa
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534608.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534069.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Need for Speed 3: Hot Pursuit (1998) [Ru/En] (1.3.0) Repack R.G. Механик�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532875.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532869.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Shift 2: Unleashed (2011) [Ru/En] (1.02) Repack R.G. Механики [Limited E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532868.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Need for Speed: High Stakes (1999) [Ru/En] (4.5) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532864.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Colin McRae Rally Remastered (2014) [Multi] SteamRip R.G. Games
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531303.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Project CARS (2015) [Ru/Multi] (2.5.0) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530921.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Gas Guzzlers: Combat Carnage / Gas Guzzlers: Убойные гонки (2012) [R
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529327.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NASCAR Racing 3 (1999) [En] (1.2.1.7/dlc) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521551.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518206.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ FIA European Truck Racing Championship (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514783.jpg" />
 </div>
 
 

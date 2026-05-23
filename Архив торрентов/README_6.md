@@ -6,7 +6,7 @@ Kazrog - True Dynamics 1.1.2 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045063.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Glary Utilities Pro 5.200.0.229 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045061.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ GoldWave 6.72 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045060.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Glary Disk Cleaner 5.0.1.285 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045059.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wondershare Filmora 12.0.7  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045053.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Aiseesoft Video Converter Ultimate 10.6.16 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045052.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Process Lasso Pro 12.0.2.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045046.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ RAR Extractor Max-Unzip File 10.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045045.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Auslogics Registry Cleaner Pro 10.0.0.2 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045043.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CRAX Commander 1.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045041.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ XnViewMP 1.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045038.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FoneLab HEIC Converter 1.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045025.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045003.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Keep It 2.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045001.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Stats 2.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044999.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Dropzone 4 Pro v.4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044997.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Timemator 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044996.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sketch 95 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044995.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Disk Xray 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044988.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AnyMP4 Audio Converter for Mac 8.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044986.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ NCH Switch Plus 11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044984.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ TechSmith Snagit 2023.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044982.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sandboxie 5.61.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044980.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Skype 8.93.0.403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044978.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ PrivaZer 4.0.62 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044976.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ AnyGo 5.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044966.jpg" />
 </div>
 
 

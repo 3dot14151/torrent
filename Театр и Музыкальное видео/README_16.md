@@ -1,115 +1,3 @@
-###  Публикация: 975845   (967783) от 19.01.2016
-
-Jacques Loussier Trio - Play Bach... and more (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Live from St. Thoma's Church, Leipzig01. Opening [1:03]
-02. Bach: Fugue No. 5 in D Major [5:52]
-03. Bach: Gavotte [8:49]
-04. Bach: Pastorale in C Minor [10:35](   Читать дальше...   )Производство: GermanyЖанр: Jazz, ClassicalАктеры: Jacques Loussier on piano
-Benoit Dunoyer De Segonzac on bass
-Andre Arpino on drumsПродолжительность: 01:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC2F5CB71DF2FCB3932E3A6020A4E4397A5DEC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619446   (967734) от 16.02.2013
-
-Paramore -  Now (2013) [1080p] HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Rock, Pop PunkПродолжительность: 00:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF4BC64CB693552EEA7868C2301C7BDE897517B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618404   (967688) от 16.02.2013
-
-Сборник видеоклипов / Symphonic, gothic  metal (female voice) HDTV 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Symphonic, gothic  metalПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F715757D101865CB0A7AF25DD7505E15283C042A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976788   (967665) от 19.01.2016
-
-Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip (MPEG-2, PCM)
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-The Best Of Videos of Depeche Mode 1980-200601. Just Can't Get Enough	   3:41
-02. Everything Counts	           3:59
-03. People Are People	           3:40
-04. Master And Servant	   3:50(   Читать дальше...   )Жанр: Synth-popПеревод: ОтсутствуетПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F9FEB579FD17DDEDF21E5CEB411F187FA8C3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 618158   (967560) от 16.02.2013
 
 Сборник видеоклипов Metal Rock 2012 / Metal Rock Clips 2012 (female fronted) HDTV 720p
@@ -118,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967560.jpg" />
 </div>
 
 
@@ -144,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967522.jpg" />
 </div>
 
 
@@ -174,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967348.jpg" />
 </div>
 
 
@@ -200,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967200.jpg" />
 </div>
 
 
@@ -226,7 +114,7 @@ Roger Taylor - The Lot (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967150.jpg" />
 </div>
 
 
@@ -256,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967117.jpg" />
 </div>
 
 
@@ -283,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966951.jpg" />
 </div>
 
 
@@ -312,7 +200,7 @@ Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966183.jpg" />
 </div>
 
 
@@ -338,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966128.jpg" />
 </div>
 
 
@@ -367,7 +255,7 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965412.jpg" />
 </div>
 
 
@@ -396,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965409.jpg" />
 </div>
 
 
@@ -425,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964996.jpg" />
 </div>
 
 
@@ -454,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964934.jpg" />
 </div>
 
 
@@ -483,7 +371,7 @@ Gregorian - Epic Chants Tour 2013 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964828.jpg" />
 </div>
 
 
@@ -512,7 +400,7 @@ BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964048.jpg" />
 </div>
 
 
@@ -538,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964011.jpg" />
 </div>
 
 
@@ -567,7 +455,7 @@ UFO - On Air At The BBC TV 1979-1982 (Disc Six) (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963749.jpg" />
 </div>
 
 
@@ -596,7 +484,7 @@ James Last - Live at the Royal Albert Hall (2008) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963738.jpg" />
 </div>
 
 
@@ -622,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963225.jpg" />
 </div>
 
 
@@ -652,7 +540,7 @@ Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962993.jpg" />
 </div>
 
 
@@ -681,7 +569,7 @@ Roxette - Live, Travelling the World (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962532.jpg" />
 </div>
 
 
@@ -710,7 +598,7 @@ Roxette - Live, Travelling the World (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962328.jpg" />
 </div>
 
 
@@ -724,6 +612,117 @@ Roxette - Live, Travelling the World (2013) Blu-Ray [1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D8C790F72A8AF1326E7022611E5BBACE2B57C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277249   (962314) от 01.01.2011
+
+Новый год в деревне Глухарёво (Части: 2 из 2)  (2010) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в деревню Глухарёво! Только здесь под ногами скрипит снег, елки не синтетические, а пушистые, и люди тоже живые и настоящие. Прямо из премьерной новогодней серии «Глухаря» его заводилы — Аверин и Рожков — выезжают в деревню Глухарёво. Они торопятся, ведь опаздывать и встречать Новый год в подмосковной пробке никому не хочется: примету про «так и (   Читать дальше...   )Жанр: Новогодняя программаПродолжительность: 04:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A00FCEEE1712ECAA13F63A0DD2F25A67D8F95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978714   (962107) от 24.01.2016
+
+Квартирник у Маргулиса. 4 выпуск. Крематорий (2015) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня в гостях у Евгения Маргулиса группа Крематорий. Говорят, что поиски названия для группы — «Крематорий» — заняли у музыкантов больше времени, чем написание всех песен первого альбома. В теплой и душевной атмосфере гости квартирника исполнят свои самые известные и любимые песни: 2001 год, Мусорный ветер, Амстердам, Пиноккио и многие другие. Дата эфира: 28.11.2015.01. Катманду
+02. 2001 год
+03. Сексуальная кошка
+04. Мусорный ветер(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AF0E25BFC78D4550DE811A3118158F7F00B7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425727   (962010) от 01.01.2015
+
+Старые Песни о Главном - 1,2,3,4 Постскриптум /  (1996 - 2000) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962010.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Старые песни о главном» — цикл новогодних музыкальных телефильмов канала ОРТ российского телевидения, выходивших в 90-е годы. Продюсерами и авторами идеи цикла были Константин Эрнст и Леонид Парфенов.
+Передачи представляли собой мюзиклы с участием известных артистов эстрады. Мюзиклы состояли из популярных советских песен разных лет. Каждый выпуск представлял собой (   Читать дальше...   )Жанр: КонцертПродолжительность: 07:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2EEFC736107AA8461D66B8FD7FBE5DA7874FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621822   (961654) от 21.02.2013
+
+"O2label" /Pulsar (vol.1.) (2013) HDTV 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar & Strannik - Dance Of Galaxies
+02. Back To Reality
+03. Belt Of Orion
+04. Canaan(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA88FECA02352DBDD5865E607C7D271FED8E6AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

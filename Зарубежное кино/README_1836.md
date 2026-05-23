@@ -1,55 +1,3 @@
-###  Публикация: 1373449   (176488) от 03.12.2022
-
-Жадность / Greedy (1994) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Жадность часто толкает на неблаговидные поступки в погоне за вожделенными деньгами. Это отлично понимает старый лукавый миллионер Джо МакТиг. У него нет своих детей и прямых наследников. Зато, есть куча дальних и близких родственников, стаей кружащихся вокруг него в надежде отхватить лакомый кусок от дядюшкиного наследства. Старик играет с ними, как кошка с мышками. (   Читать дальше...   )Производство: США / Imagine EntertainmentЖанр: КомедияРежиссер: Джонатан ЛиннАктеры: Майкл Дж. Фокс, Кирк Дуглас, Нэнси Трэвис, Оливия д’Або, Фил Хартмен, Эд Бегли мл., Джер Бернс, Коллин Кэмп, Боб Бэлабан, Джойс ХайзерПеревод: Многоголосый профессиональный, авторскийСубтитры: Русские, английские (полные, SDH, SDH Colored) - отдельными файламиПродолжительность: 01:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E716C14B0D8C2B615C1660732ECEAACB61F0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595018   (176453) от 03.12.2022
-
-Корсаж / Corsage (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об одном годе из жизни Елизаветы Баварской, жены австрийского императора Франца Иосифа I, знаменитой красавицы и сумасбродки. В 1877 году императрице исполнилось 40 лет, но она категорически отказывалась признать, что уже немолода. Всеми силами императрица пыталась сохранить свой имидж... Фильм получил главный приз на Лондонском кинофестивале. (   Читать дальше...   )Производство: Австрия, Люксембург, Германия, Франция, ARTE, Arte France Cinéma, Eurimages...Жанр: драма, биография, историяРежиссер: Мари КройцерАктеры: Вики Крипс, Флориан Тайхтмайстер, Катарина Лоренц, Джинн Вернер, Альма Хасун, Мануэль Руби, Финнегэн Олдфилд, Колин Морган, Аарон Фриш, Ивана УрбанПеревод: дублированный (студия Кипарис)Субтитры: русские (надписи и полные), немецкие SDH, английскиеПродолжительность: 01:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D545376DD1F6AA720F95DD7F61CA2A01E7D04E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594963   (176452) от 03.12.2022
 
 Шлюха / Jade (1995) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176452.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176444.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176435.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176430.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176426.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176422.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176420.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176419.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176410.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176406.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176402.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176391.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176378.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176376.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176358.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176340.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176335.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176333.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176328.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176324.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176279.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176272.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176248.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176240.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F1F3DE638E6C8F4473073324F8560CB4F79EEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429416   (176235) от 06.12.2020
+
+Напугай меня / Scare Me (2020) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Решив начать новую главу жизни, Фрэд снимает на выходные дом на природе и пытается писать книгу. Во время утренней пробежки он знакомится с живущей в соседнем домике девушкой Фанни, и она оказывается успешной писательницей, у которой недавно вышел нашумевший хоррор-роман. Этим же вечером после внезапного отключения электричества Фанни приходит в гости к Фрэду и предлагает (   Читать дальше...   )Производство: США / Irony Point, Artists First, Last Rodeo StudiosЖанр: КомедияРежиссер: Джош РубенАктеры: Ая Кэш, Ребекка Дрисдейл, Крис Редд, Джош Рубен, Лорен СишковскиПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68BD1F0A2347961CB2DD50558FC4FDB80BA81DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429275   (176222) от 06.12.2020
+
+Король Стейтен-Айленда / The King of Staten Island (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176222.jpg" />
+</div>
+
+
+###  Подробнее
+
+24-летний инфантил по имени Скотт живёт с мамой и младшей сестрой в нью-йоркском районе Стейтен-Айленд. С самого детства парень не может смириться со смертью отца-пожарного и теперь всё время проводит за курением травки и набиванием друзьям кривых татуировок. Когда сестра уезжает в колледж, а его мама впервые после смерти мужа начинает встречаться с мужчиной, тоже (   Читать дальше...   )Производство: США / Apatow Productions, Perfect World (Beijing) Pictures Co., Universal PicturesЖанр: Драма, комедияРежиссер: Джадд АпатоуАктеры: Пит Дэвидсон, Мариса Томей, Билл Бёрр, Бел Паули, Мод Апатоу, Стив Бушеми, Рики Велес, Мойзес Ариас, Лу Уилсон, Карли Аквилино и др.Перевод: ДублированныйСубтитры: Русские (Forced, Full (FOCS)), английские (SDH)Продолжительность: 02:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D985D310A47A05856E5097ADEFCAC1960475A58
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Rhinoceros 7 v7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016775.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ScreenToGif 2.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016770.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Q-Dir 9.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016766.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ GPU-Z 2.39.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016762.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Infernalizer - The Ugly Truth (2021) [MP3|320 Kbps] <Industrial Metal, Synth, El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016761.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ File & Image Uploader 8.1.0 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016757.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ FreeFileSync 11.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016756.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ FontViewOK 6.88 + Portable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016755.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Comodo Dragon 89.0.4389.128 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016754.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Cut Out Photo Background Changer, Cut Paste Image v1.8 [En] (обновляем�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016687.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PhotoDiva Pro 3.15 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016662.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VLC Media Player 3.0.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016661.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016659.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ ArtMoney 8.09.04 Pro / Vip [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016622.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Cisdem Duplicate Finder 5.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016621.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Feeder 4 v4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016620.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ GoodNotes 5 v5.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016618.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Hookshot 1.22.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016615.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ SyncTime 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016612.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Network & Battery 12.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016611.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Blocs 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016607.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Color Wheel 6.0 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016600.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ FoneLab Data Retriever 1.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016587.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Moho Pro for Mac 13 v13.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016575.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Joplin 1.8.5 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016552.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Google Chrome 90.0.4430.212 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016551.jpg" />
 </div>
 
 

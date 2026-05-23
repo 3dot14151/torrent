@@ -6,7 +6,7 @@ GreenShot 1.0.0.1914 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675376.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Vivaldi 1.0.178.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675272.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ashampoo WinOptimizer 12.00.10 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675263.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ HWiNFO/32/64 4.62-2500 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675258.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ RadioGet 3.3.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675226.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ashampoo WinOptimizer 12.00.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675178.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675172.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SeaMonkey 2.49.3 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675110.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AMD Radeon Software Adrenalin Edition 18.4.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675105.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Soft Organizer 7.15 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675100.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ ProgDVB 7.09.1 Professional Edition + Channels [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675027.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Avira Antivirus Free 2015 15.0.10.434 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675022.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Edge 99.0.1150.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675012.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Chromium 99.0.4844.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675004.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PdfFactory Std & Pro 8.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674987.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ FinePrint 11.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674984.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ KakaoTalk 2.2.2.1248 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674972.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ AS SSD Benchmark 2.0.6694.23026 Portable [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674928.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Total Commander 9.20 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674917.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ TheAeroClock 2.65 RuS  Portable  [ML + RuS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674887.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ XMedia Recode 3.1.1.0 RuS + Portable x32/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674877.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Miranda IM 0.9.52 [Eng/Rus(Руссификатор)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674876.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ ASoft .NET Version Detector 12 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674873.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Tanida Demo Builder 10.0.3.0 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674827.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674822.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ PortableApps.com Platform 21.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674769.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1280043   (758612) от 04.02.2019
-
-Александр Чаковский | Свет далекой звезды (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-А. Чаковский — мастер динамичного сюжета. Герой повести летчик Владимир Завьялов, переживший тяжелую драму в годы культа личности, несправедливо уволенный из авиации, случайно узнает, что его любимая — Ольга Миронова — жива. Поиски Ольги и стали сюжетом, повести. Пользуясь этим приемом, автор вводит своего героя в разные сферы нашей жизни — это помогает полнее показать (   Читать дальше...   )Жанр: Русская классикаПродолжительность: 09:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08D4CACA7693C745C384FE5049FAB4FE110ACC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522395   (758534) от 07.01.2022
-
-Николай Леонов, Алексей Макеев | Привычка к темноте (2021) [MP3, Евгений Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На охоте при невыясненных обстоятельствах погибает сын губернатора Павел Саблин. Официальная версия — случайный выстрел егеря. Но расследующие дело полковники МВД Гуров и Крячко считают иначе. Смерть Павла, претендующего на место в правительстве, была выгодна кому-то из его конкурентов. Оперативники спешат допросить свидетелей происшествия. Но те неожиданно один (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3E373C3E6047A46E8DAAD1525F5C922AA470AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 321101   (758159) от 09.04.2011
-
-Джон Стейнбек | Зима тревоги нашей (2007) [MP3, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Последний роман лауреата Нобелевской и Пулитцеровской премий Джона Стейнбека(1902–1968). Роман не похожий на его предыдущие книги. Место действия – старинный городок Новой Англии. Герой романа – отпрыск основателей городка, неплохо устроенный человек, словом, средний добропорядочный американец. Итен Аллен Хоули, получивший высшее гуманитарное образование, знаток (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 11:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B44DEBFAD2D7A92922CF7BC65965956B53C6748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522504   (758150) от 07.01.2022
 
 Сергей Васильев | Император из стали (Книга 3). Сталь императора (2021) [MP3, Ярослав Лукашев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758150.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758100.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757930.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757857.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757850.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757786.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757633.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757630.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757628.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757598.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757591.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757558.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757557.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757555.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757457.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757452.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757449.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757447.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757372.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757187.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757117.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756827.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756741.jpg" />
 </div>
 
 
@@ -679,6 +601,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87CBB31BE57D2522480B9882E47B0EB8E0C4A98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215773   (756594) от 27.03.2018
+
+Грэхэм Мастертон | Дьяволы Судного дня (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756594.jpg" />
+</div>
+
+
+###  Подробнее
+
+В маленькой французской деревне со времен второй мировой войны стоит на пьедестале старый американский танк. Люди боятся вечером и ночью близко подходить к нему, им кажется, что они слышат, как мертвые стонут и разговаривают друг с другом, а в танке находится сам дьявол.
+Грэхэм Мастерсон — признанный мастер остросюжетного детектива. Главное, что его отличает от других (   Читать дальше...   )Жанр: Триллер, мистикаПродолжительность: 04:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27CD105ADBF13D38EC30F19A1A58C933A9EFFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781456   (756157) от 28.04.2014
+
+Дэвид Герберт Лоуренс | Женщины в любви (2014) [MP3, Людмила Панкратова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый скандальный роман Лоуренса, для которого не нашлось издателя - и автору пришлось его публиковать за собственный счет. Роман, который привел автора на скамью подсудимых - за нарушение норм общественной морали.
+Времена меняются - и теперь в истории двух сестер из английской глубинки, исповедующих идею «свободных отношений», не осталось ничего сенсационного. Однако (   Читать дальше...   )Жанр: Зарубежная классикаИздательство: Азбука-КлассикаПродолжительность: 27:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF05353158E84A1A0BE27477BFA9584C5AE1CD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018226   (756024) от 20.05.2016
+
+Анна Саакянц | Спасибо Вам (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756024.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли рассказы о встречах с А. Эфрон, А. Ахматовой, И. Одоевцевой, В. Сосинским, П. Антокольским, И. Андронниковым и др., а также письма и документы, в большинстве своем относящиеся к периоду работы с дочерью М. Цветаевой над изданиями поэта - и вообще к цветаевской теме.
+Памяти Анны СаакянцЖанр: Воспоминания, письма, эссеПродолжительность: 13:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD16C11C6E24EEBF3F3F6E16EFD4FEC4C3B0EB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Kaleidoscope 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171438.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Blocs 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171436.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VideoProc Converter 4K 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171431.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Aiseesoft Mac FoneTrans 9.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171427.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Wondershare Recoverit for Mac 12.0.15.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171425.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Wondershare UniConverter for Mac 15.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171423.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ TinkerTool System 8 v.8.87 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171421.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ High-Logic FontCreator Professional 15.0.0.2945 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171419.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VideoProc Converter 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171417.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ PeaZip 9.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171395.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Privacy Eraser Free 6.0.0 Build 4760 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171392.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ PrivaZer 4.0.79 Donors Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171390.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Waterfox Current G6.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171388.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ WinCatalog 2024.3.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171387.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ FreeFileSync 13.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171382.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ SRWare Iron 117.0.5950.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171381.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ YT Downloader 9.5.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171380.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Wise Program Uninstaller 3.1.6.260 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171378.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ TheAeroClock 8.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171376.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Google Chrome 118.0.5993.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171374.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Floorp Browser 11.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171373.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sumatra PDF 3.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171371.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ KeepStreams 1.1.9.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171368.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Firefox Browser ESR 115.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171364.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ FileZilla 3.66.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171363.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ SupRemo 4.10.4.2202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171361.jpg" />
 </div>
 
 

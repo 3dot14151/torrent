@@ -6,7 +6,7 @@ Sticky Password Premium 8.0.5.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479356.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream Video Editor 1.35 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479341.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox 49.0.1 Final Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479299.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Opera 70.0.3728.144 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479279.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RegCool 1.127 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479274.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Format Factory 5.4.0 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479264.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 8 Manager 2.2.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479258.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rowbyte Plexus 2.0.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479255.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ uTorrent Pro 3.4.5 build 41073 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479250.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AntiDupl.NET 2.3.8.200 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479246.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ SpeedFan 4.52 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479244.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479239.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ YouTube By Click Premium 2.2.111 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479232.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Topaz Studio 2.0.10 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479228.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Mozilla Firefox Quantum ESR 68.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479227.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ YouTube By Click Premium 2.2.111 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479225.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Auslogics Disk Defrag Ultimate 4.11.0.1 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479221.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Ashampoo Snap 9.0.2 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479178.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ WinCatalog 19.8.1.831 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479148.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WinCatalog 19.8.1.831 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479138.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ CrystalDiskInfo 8.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479137.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VueScan Pro 9.7.32 (DC 31.08.2020) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479134.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ TeamViewer 10.0.47484 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479121.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DAEMON Tools Pro Advanced 6.2.0.0496 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479120.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Security Task Manager 2.1d + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479116.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Total Commander 8.52a LitePack | PowerPack | ExtremePack 2015.9.3 Final + Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479105.jpg" />
 </div>
 
 

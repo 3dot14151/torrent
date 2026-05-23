@@ -1,29 +1,3 @@
-###  Публикация: 917948   (949374) от 02.02.2016
-
-Sim Aquarium 3.8 Build 63 Platinum RePack by Trovel [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Sim Aquarium - реалистическая 3D экранная заставка, которая воссоздает красоту среды кораллового рифа. В составе экранной заставки 5 различных аквариумов с кораллами, с большими фонами и большим разнообразием среды и кораллов. Вы можете заполнить ваш аквариум до 100 особей из 30 высоко детализированных видов рыб со сложным поведением и искусственным интеллектом. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8970A593B0FA668EA18737B35CB7A5C0A80E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090207   (946820) от 06.01.2017
 
 3Planesoft 3D Screensavers 11.2016 [Multi/Ru]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946820.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Detwinner 2.04.002 (& Portable) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946433.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945491.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Design Pack By Leha342 & Stason v.01.2016 [Ru] (Авторская раздач�
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944647.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Alternate Calculator 3.480 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942061.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ RuntimePack Lite 20.3.3 by jameszero (x86-x64) [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889803.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Stitch Art Easy 4.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876505.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ VerseQ 2011.02.23.226 Multiuser [Rus] RePack by elchupacabra
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875386.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ IPTV Checker v 2.5 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867577.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ RuntimePack 21.7.30 Full [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862513.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Qemu Simple Boot 1.3 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847359.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Colors Pro 2.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844732.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Microtest PentaScanner+ (firmware & manual) 5.0.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802475.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800539.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795902.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ VanDyke SecureCRT 8.0.1 build 1082 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794287.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Posteriza 1.1.1 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792790.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ Muscle Premium 4.0.09 Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789597.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ Shutter Pro 4.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767215.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.2.4 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761577.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ Stardock ShadowFX 1.2 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725890.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ Windows Logon Editor 1.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_680674.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ Stardock Multiplicity 3.43 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602319.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599566.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Sim Aquarium 3.8 Build 63 Platinum [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588983.jpg" />
 </div>
 
 
@@ -677,6 +651,33 @@ Sim Aquarium - реалистическая 3D экранная заставка
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C9E53E4DDDE053CF56DBC7835960734EB68C688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200041   (586512) от 21.05.2022
+
+Natura Sound Therapy 3.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Natura Sound Therapy - программа поможет вам отвлечься от работы и хорошенько расслабиться под звуки океанских волн, шума леса, шторма и т.д., при этом выдаются красивейшие видео сцены природы в HD Video качестве с использованием стереозвука.
+У пользователя есть возможность смешивать "плеск волн", "шум леса" и другие аудио-составляющие, накладывать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C64A920BE178281BE21EA197893AEECA7793E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

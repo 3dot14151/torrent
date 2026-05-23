@@ -1,29 +1,3 @@
-###  Публикация: 1628494   (254869) от 23.04.2023
-
-Star Ocean: The Divine Force (2022) [Multi] (01.01/dlc) Repack DjDI
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Square Enix и Tri-Ace представляют последнюю часть серии RPG Star Ocean. Вы можете перемещаться в трех измерениях, летая по самому большому миру. Летаете ли вы и исследуете скалы и крыши зданий в городе или прыгаете со скал, чтобы беспрепятственно вступить в бой, у вас будет больше свободы как в приключениях, так и в сражениях. В то время как игра даст вам возможность (   Читать дальше...   )Тип издания: RepackРазработчик: Square Enix, tri-AceЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Французский, Корейский и другиеЯзык интерфейса: Английский, Японский, Французский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC7C6E4172B79E04A25BF657E75365AC9367F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628470   (254867) от 23.04.2023
 
 Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
@@ -32,7 +6,7 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254867.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Archvale (2021) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254828.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254794.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.9.0/dlc) Repack DjDI
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254793.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Wytchwood (2021) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254791.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.6.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254768.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Cynthia: Hidden in the Moonshadow (2023) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254726.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Marvel’s Avengers (2020) [Ru/Multi] (2.8.1/dlc) Repack DjDI [Definitive Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254685.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Organs Please (2022) [Ru/En] (1.02) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254662.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ I Know This Place..? (chapter I) (2023) [Ru/En] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254648.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Project Nightmares Case 36: Henrietta Kedward (2021) [Ru/Multi] (1.06) License G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254626.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Between (2023) [Ru/En] (1.1.3.200423) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254623.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254616.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Chernobyl: Origins (2023) [Ru/Multi] (Build 10809098/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254599.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.4.0.4c/dlc) License GOG [Premium
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254557.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complet
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254523.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sherlock Holmes The Awakened (2023) [Ru/Multi] (2204_1.1/dlc) License GOG [Premi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254522.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.002.003.77876/dlc) Repack DjDI [Premium Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254519.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Arto (2023) [En] (1.0.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254492.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Joyride (2022) [Ru/Multi] (2023.5.1/dlc) Scene Tinyiso
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254487.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ City of Beats (2023) [Multi] (20230427) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254486.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254480.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.0.49820) Scene Fairlight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254478.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Serial Cleaners (2022) [Ru/Multi] (1.2.3404/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254461.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Lost in Darklight (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254387.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Lost in Darklight - это увлекательная интерактивная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A95A0751A7735E782A08C374E12F64B26ECD7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836581   (254361) от 11.11.2025
+
+Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254361.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роли единственного выжившего из Убежища 111 вам предстоит отправиться в путешествие по миру, испепеленному ядерной войной. Опасности поджидают на каждом шагу, а каждое решение имеет свои последствия. Стройте, восстанавливайте и покоряйте Пустошь - так, как захотите. Добро пожаловать домой.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7067B3EA45237BADD95FF438A43380A3A8F086FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

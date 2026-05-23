@@ -1,55 +1,3 @@
-###  Публикация: 1691970   (122927) от 14.01.2024
-
-Убить императора / Ye yan / The Banquet (2006) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В результате дворцового переворота убит императора Танг, и на престол воцаряется его жестокий брат. Молодая вдовствующая императрица принимает предложение стать женой нового правителя. Но у убитого императора есть взрослый сын, законный наследник, бывший возлюбленный своей прекрасной мачехи. Чтобы помочь юноше вернуть престол, императрица надевает маску преданной (   Читать дальше...   )Производство: Китай / Huayi Brothers, Media Asia Films Ltd.Жанр: фэнтези, драма, мелодрама, боевикРежиссер: Сяоган ФэнАктеры: Цзыи Чжан, Гэ Ю, Дэниэл Ву, Сюнь Чжоу, Цзину Ма, Сяомин Хуан, Чжоу Чжонгэ, Цзэн Цюшэн, Сюй Сиянь, Лю ЯньбиньПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A94E31AC1BB285ED16640073125A0A8853BACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197909   (122866) от 15.01.2024
-
-Уотергейт. Крушение Белого дома / Mark Felt: The Man Who Brought Down the White House (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм о главном звене самого громкого скандала ХХ века «Уотергейт», который привел к преждевременной отставке президента Ричарда Никсона. Личность человека, передававшего прессе обличительную информацию на главу государства, долгое время была окутана тайной и установлена лишь спустя 30 лет после его собственного признания. Шокирующая невероятная история, основанная (   Читать дальше...   )Производство: США / Endurance Media, MadRiver Pictures, PlaytoneЖанр: Триллер, Драма, Биография, ИсторияРежиссер: Питер ЛандесманАктеры: Лиам Нисон, Дайан Лэйн, Мартон Чокаш, Тони Голдуин, Айк Баринхолц, Венди МакЛендон-Кови, Кейт Уолш, Майка Монро, Майкл С. Холл, Том Сайзмор, Джош Лукас, Брайан Д’Арси ДжеймсПеревод: Профессиональный многоголосый (iTunes)Субтитры: АнглийскиеПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D067914CA960649ACD65AD34C55C249892C1680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692170   (122864) от 15.01.2024
 
 Фанаты / Фабрика футбола / The Football Factory (2004) BDRip [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122864.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122861.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122858.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122848.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122841.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122836.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122835.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122834.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122831.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122830.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122810.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122800.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122756.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122694.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122691.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122688.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122687.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122686.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122685.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122684.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122683.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122681.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122678.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122674.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:571D4A304A141018E68287C7DA1C374479B8661D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692366   (122668) от 16.01.2024
+
+Черный шум / Black Noise (2023) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элитную команду службы безопасности отправляют на закрытый частный остров с поручением спасти важную персону. По прибытии отряд обнаруживает, что остров в запустении, но вскоре им приходится столкнуться с незнакомыми смертоносными технологиями и жутким звуком, который невозможно выкинуть из головы.Производство: США / MSR Media, Sherborne MediaЖанр: фантастика, боевикРежиссер: Филиппе МартинесАктеры: Джексон Рэтбоун, Уэйн Энтони Гордон, Фрэнк Корби, Томас Дауни, Джин Фриман, Эштон Ли, Ив Мауро, Сэди Ньюман, Ники СпиридакосПеревод: Дублированный (Zone Vision)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B277242F92751FD3BC6DB42F6275E7D6A47E7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692415   (122662) от 16.01.2024
+
+Луна / Deo mun (2023) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122662.jpg" />
+</div>
+
+
+###  Подробнее
+
+2029 год. Пять лет назад Южная Корея пыталась отправить экспедицию на Луну, но ракета взорвалась вскоре после старта, поэтому на новую миссию возлагаются большие надежды. Уже выведенный на окололунную орбиту космический корабль попадает под действие сильного солнечного ветра, происходит утечка топлива и взрыв, в результате которого погибают два из трёх членов экипажа. (   Читать дальше...   )Производство: Корея Южная / BLAAD StudiosЖанр: Фантастика, драма, триллерРежиссер: Ким Ён-хваАктеры: Соль Гён-гу, То Гён-су, Ким Хи-э, Пак Пён-ын, Чо Хан-чхоль, Чхве Бён-мо, Хон Сын-хи, Чхве Джон-у, Брэд Литтл, Пол де ХэвиллэндПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские, английские (отдельно)Продолжительность: 02:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA91EED7BDD5180F227B94D4ACD442043A12E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

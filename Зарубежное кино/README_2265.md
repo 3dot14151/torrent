@@ -1,55 +1,3 @@
-###  Публикация: 90758   (8562) от 30.09.2025
-
-...А в душе я танцую / Внутри себя я танцую / Inside I'm Dancing / Rory O'Shea Was Here (2004) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Майклу 24 года, и почти всю свою жизнь он провел в доме для инвалидов, куда попал с церебральным параличом. Он знакомится с новым пациентом клиники — Рори О’Ши, которого приковала к инвалидной коляске мышечная атрофия. Как и Майкл, он практически не может передвигаться, но это не мешает Рори по-своему наслаждаться жизнью. Его смелость и безразличие к ударам судьбы (   Читать дальше...   )Жанр: драма, комедия, мелодрамаРежиссер: Дэмиен О’Доннелл / Damien O'DonnellВ ролях: Джеймс МакЭвой, Стивен Робертсон, Ромола Гарай, Джерард МакСорли, Том Хикки, Бренда Фрикер, Алан Кинг, Рут МакКейб, Анна Хили, Сара Джейн Драмми, Рэйчел Ханна, Эммет Кирван, Пэт Шорт, Стэнли Таунсенд, Дербл Кротти, Фрэнк МакКаскер, Дирдри О’КейнСубтитры: Русские (x2), английские (full, SDH), французские, испанские, португальские, голландские, немецкиеПродолжительность: 01:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440ACA8955B661EB088015B42FEEA89D6ABEE90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821022   (8555) от 30.09.2025
-
-Беспутная Роза / Rambling Rose (1991) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Когда девушку Розу наняли служанкой в зажиточный дом в штате Джорджия, вряд ли кто-нибудь из семьи Хиплеров предполагал, что их жизнь кардинально изменится. Роза привносит в их пресный быт такой заряд нерастраченной сексуальной энергии, что заряжает ею как благонравного отца семейства, так и его 13-летнего сына Бадди.Производство: США | Carolco Pictures Inc., Edgar J. Scherick AssociatesЖанр: драмаРежиссер: Марта КулиджАктеры: Роберт Дювалл, Лора Дерн, Лукас Хаас, Дайан Лэдд, Джон Хёрд, Кевин Конуэй, Роберт Джон Бёрк, Лиза Якуб, Эван Локвуд, Мэттью СазерлендПеревод: Многоголосый (CP Digital), авторский (А. Гаврилов)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C241720B63B272456D01BE05D0CC1C86FED81EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821024   (8554) от 30.09.2025
 
 Пандемия / Pandemic (2016) WEB-DL [H.264/1080p] [МVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8554.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8536.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8481.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8323.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8302.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8296.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8289.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8183.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8164.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8136.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8123.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8122.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8120.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8114.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8084.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7952.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7951.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7930.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7927.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7922.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7913.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7905.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7900.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7804.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9127A130EC9B56415A8DA890DD17F3DCD053BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812471   (7762) от 15.08.2025
+
+Каскадёр / Mou tai dou / Stuntman (2024) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отошедший от дел постановщик трюков Лэй Сам по просьбе режиссёра и бывшего партнёра возвращается в профессию. Попав на съёмочную площадку спустя много лет, он понимает, что индустрия кино сильно изменилась. Он знакомится с молодым каскадёром Лэй Сай-Луном. Несмотря на разницу в поколениях, они находят общий язык и вместе хотят вернуть былую славу гонконгским боевикам. (   Читать дальше...   )Производство: Гонконг / Film Development Fund of Hong Kong, Stuntman Film ProductionЖанр: боевик, драмаРежиссер: Альберт Люн, Херберт ЛюнАктеры: Терренс Лау, Тун Вай, Сесилия Чой, Филип Нг, Макс Чун, Ту Иньго, Лам Иу-Син, Рэйчел Люн, Терри Цзоу, Кит НгПеревод: Многоголосый любительский (Колобок)Язык озвучки: русский, китайскийСубтитры: русские (full - AI), английскиеПродолжительность: 01:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D6259109176A8BCC9E46D11B9833302CBACD95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503370   (7580) от 16.08.2025
+
+Машина времени / The Time Machine (2002) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Александр Хартдеген изобрёл машину времени и отправился в прошлое, чтобы спасти свою невесту от случайной пули. Но это ему не удалось - прошлое нельзя изменить. Хартдеген попадает в будущее и видит Землю в ужасающем состоянии. После ранения и беспамятства он не заметил, как его машина прошла сквозь восемьсот тысяч лет истории Земли...Производство: США, ОАЭ /  Warner Bros, Dreamworks Pictures, Parkes/MacDonald Image NationЖанр: Фантастика, боевик, приключенияРежиссер: Саймон УэллсАктеры: Гай Пирс, Саманта Мамба, Орландо Джонс, Марк Эдди, Джереми Айронс, Сиенна Гиллори, Макс Бейкер, Филлида Ло, Лаура Кирк, Джош СтэмбергПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийЯзык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (pgs)Продолжительность: 01:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C70B052334AEA80FFDB5C36B1F591B027D4C82FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

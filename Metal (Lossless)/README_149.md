@@ -6,7 +6,7 @@ Whipstriker - Merciless Artillery (2018) [FLAC|Lossless|image + .cue] <Heavy, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480548.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dimmu Borgir - Puritanical Euphoric Misanthropia (2001) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480423.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thy Gate Beyond - The Power To Thrash (2003) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480237.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Helltrain - 3 альбома (2004-2012) Дискография [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480200.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Ad Hominem - Antitheist (2015) [FLAC|image+.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480098.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Shining - IX - Everyone, Everything, Everywhere, Ends (2015) [FLAC|image+.cue]<B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480003.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Jungle Rot - Order Shall Prevail (2015) [FLAC|image+.cue]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480002.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Voices Of Destiny - Crisis Cult (2014) [FLAC|Lossless|image + .cue] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479711.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Stratovarius - Eternal (2015) Japan SHM-CD Edition [FLAC|image+.cue]<Melodic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479688.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Annihilator - Suicide Society (2015) Limited Edition 2CD [FLAC|image+.cue]<Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479679.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Coroner - R.I.P. (1987) 2005 Reissue [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478805.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Whipstriker - Only Filth Will Prevail (2016) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478652.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ A Feast For Lampreys - Graveyard Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478649.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Abstract Dream - A Vision Among The Stars (2021) [FLAC|Lossless|image + .cue] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478648.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Alcoholator - Escape from Reality (2015) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478647.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Alcoholator - Coma (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478645.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Einherjer - North Star (2021) [FLAC|Lossless|image + .cue] <Black Metal, Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478642.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Crystal Gates - Torment & Wonder: The Ways Of The Lonely Ones (2022) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478638.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Lacrimosa - Revolution (2012) [FLAC|Lossless]<Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478380.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Doro - Calling The Wild (2000) 2CD, Reissue, 2010, Steamhammer [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478189.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ The Ugly - Thanatology (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478179.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Diaboli - Wiking Division (2015) [FLAC|image+.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478028.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ TesseracT - Polaris (2015) [FLAC|tracks+.cue]<Progressive Math Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477910.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Self-Hatred - Theia (2016) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477723.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Distant Past - Rise Of The Fallen (2016) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477719.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Nova Enterprise - The Everlasting Paradox Of Spacetime (2022) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476520.jpg" />
 </div>
 
 

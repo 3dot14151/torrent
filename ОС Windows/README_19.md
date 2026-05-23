@@ -6,7 +6,7 @@ Recovery DVD for Samsung 300V4A / Windows 7 Home Basic (х64) SP1 [русски�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517471.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ Microsoft Windows 10.0.18362.239 Version 1903 (July Update 2019) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514621.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512495.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Recovery USB-flash for Acer Aspire E5-521 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509851.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Recovery USB-flash for Asus T100TAM / Windows 8.1 with Bing (х86) 6.3 (сбор
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508803.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Recovery USB-flash for Acer One 10 S1002 / Windows 8.1 (х86) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508762.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Microsoft Windows Server 2012 (Volume) + Языковые пакеты (x64) [Ru
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502968.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Windows 7 Professional VL SP1 x86 (build 6.1.7601.26022) by ivandubskoj 14.07.20
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500262.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Microsoft Windows 10.0.19043.1826, Version 21H1 (Updated July 2022) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499588.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Microsoft Windows 10.0.19043.1826, Version 21H1 (Updated July 2022) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499516.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Windows Server, Version 20H2 (10.0.19042.1826) (Updated July 2022) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499270.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Microsoft Windows 11 [10.0.22000.795], Version 21H2 (Updated July 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497410.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Microsoft Windows 10.0.19044.1826, Version 21H2 (Updated July 2022)  - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497409.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Recovery DVD for Dell Inspirion N5050 / Windows 7 Home Basic (х64) SP1 [Рус�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475546.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Windows 10 x64 Full-Lite Release by StartSoft USB 18-2019 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470661.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Microsoft Windows 7 Ultimate-Enterpise E - Оригинальные образы
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468180.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Windows 7 Professional VL SP1 x64 (build 6.1.7601.26065) by ivandubskoj 11.08.20
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454909.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Microsoft Windows 10.0.17763.1457 Version 1809 (Updated Sept 2020) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447126.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Microsoft Windows 10.0.18362.1082 Version 1903 (Updated Sept 2020) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447034.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Microsoft Windows 10.0.17763.1457 Version 1809 (Updated Sept 2020) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446944.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Microsoft Windows 10.0.18363.1082 Version 1909 (Updated Sept 2020) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446843.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft Windows 10.0.19041.508 Version 2004 (Updated Sept 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446840.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Windows Server, Version 2004 (10.0.19041.508) (Updated Sept 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446830.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1457 (Updated Sept 2020) Ор�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446682.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Windows 7 Профессиональная SP1 x64 [OA CIS and GE] (Original) 6/
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446255.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Microsoft Windows 10.0.19043.1889, Version 21H1 (Updated August 2022) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445000.jpg" />
 </div>
 
 

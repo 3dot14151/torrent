@@ -6,7 +6,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781320.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781029.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780993.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780900.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780899.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780898.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780895.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780894.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780893.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780892.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780890.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780887.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780825.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780824.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780607.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780604.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780598.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780430.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780429.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780416.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780378.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780312.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780309.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780307.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780306.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780305.jpg" />
 </div>
 
 

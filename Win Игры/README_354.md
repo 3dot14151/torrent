@@ -1,29 +1,3 @@
-###  Публикация: 1595319   (175918) от 04.12.2022
-
-Living Legends 10: The Blue Chamber / Живые легенды 10: Синяя комната (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей сказочной серии игр Living Legends. Алекс отправляется навестить сестру в замок «Птичье гнездо», но узнаёт, что она пропала, а на её мужа напали существа, сошедшие с полотен, и это только начало! Помогите Алексу раскрыть все тайны из мрачного прошлого замка и спасти сестру! Вам потребуются все поисковые навыки и умение решать головоломки (   Читать дальше...   )Тип издания: UnofficialРазработчик: FriendlyFox StudioЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CB85B894D37926A7BD23B6F8B9D80A27AAB8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595238   (175916) от 04.12.2022
 
 Mystery Case Files 24: The Last Resort / За семью печатями 24: Последний отдых (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Mystery Case Files 24: The Last Resort / За семью печатями 24: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175916.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (1.1.15.5/dlc) License FLT [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175747.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Base One (2021) [Ru/Multi] (1.4.0.8_e41965c41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175744.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175522.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pentiment (2022) [Multi] (1.0.1212) License Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175226.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174930.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174866.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174698.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Starri (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174369.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174362.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174338.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Christmas Wonderland 10 / Рождество. Страна Чудес 10 (2019) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173742.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173726.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173603.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173543.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173532.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173450.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173448.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (1.0.0-s.45+15021/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173438.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173437.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Supper: New Blood (2025) [En] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173434.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Supper (2020) [En] (1.01a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173433.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173432.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Icebound Secrets 2: Soul Hunter / Тайны ледяного мира 2: Охо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173426.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Enchanted Stories 2: PAWisoned Kingdom / Зачарованные Истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173403.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Enchanted Stories 2: PAWisoned Kingdom / Зачарованные Истории
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B18C5F6E2DC5112C2C2A1CE51EEDF94DD8053745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826490   (173399) от 20.10.2025
+
+Train Sim World 6 (2025) [Ru/Multi] (build 20097146/dlc) Repack seleZen
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Train Sim World 6 предлагает освоить три уникальные международные железнодорожные сети. Игрокам предстоит работать на электрифицированной американской линии NJ TRANSIT Morristown, управляя электропоездами Arrow III EMU и локомотивами ALP-46. Маршрут Английской Ривьеры включает рейсы GWR вдоль побережья Девона на поездах Intercity Class 802. Немецкий участок Bahnstrecke (   Читать дальше...   )Тип издания: RepackРазработчик: Dovetail GamesЖанр: СимуляторыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC337DA4BB19A08155D3D2984C6ED1D8C982987
 ```
 
 https://mybot314.ru/tekegram_catalog/

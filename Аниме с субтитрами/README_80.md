@@ -6,7 +6,7 @@ Ai no Utagoe o Kikasete | Sing a Bit of Harmony | Спой немного гар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381457.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381451.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381448.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381414.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ W'z | Уиз [2019, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380919.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Meiji Tokyo Renka | Любовь эпохи Мэйдзи [2019, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380916.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Karakuri Circus | Цирк марионеток [2018, TV, 36 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380908.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Amanchu! / Аманчу! [2016, TV, 12 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380799.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ No Guns Life (2020) | Жизнь без оружия [ТВ-2] [2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380464.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Joshikousei no Mudazukai | Wasteful Days of High School Girl | Бездельн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380375.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Highlander: The Search for Vengeance / Горец: В поисках мести 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380265.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Ghost in the Shell: Stand Alone Complex 2nd GIG / Призрак в доспех
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379748.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Liz to Aoi Tori | Liz and the Blue Bird | Лиз и синяя птица [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378643.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Asagao to Kase-san. | Kase-san and Morning Glories. | Сияние утра и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378642.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378213.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377859.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Eiga Odd Taxi: In the Woods | Необычное такси (фильм) [2022, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376925.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376746.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Aggressive Retsuko: We Wish You a Metal Christmas | Aggretsuko: We Wish You a Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376703.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Aggressive Retsuko (2019) | Агрессивная Рэцуко (2019) [2019, We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376618.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Aggressive Retsuko (2018) | Aggretsuko | Агрессивная Рэцуко (20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376608.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Under the Dog | Побитые псы [2016, OVA] BD-rip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376259.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1993-1996
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372470.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Mahou Yuugi / Magical Witchland / Magical Play / Волшебная страна
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372195.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Suzumiya Haruhi-chan & Nyoron Churuya-san / Меланхолия Суздуми 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371792.jpg" />
 </div>
 
 

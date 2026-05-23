@@ -1,58 +1,3 @@
-###  Публикация: 935763   (497205) от 10.09.2015
-
-Роковая женщина / Femme Fatale (2002) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Она — соблазнительная красавица, «роковая женщина». Через семь лет после дерзкого похищения брильянтов, авантюристка мирового класса возвращается в Париж под новым именем.
-Но когда бывший папарацци делает фотографию таинственной красотки для модного скандального журнала, он ставит под угрозу ее жизнь…Производство: Франция, Швейцария / Epsilon Motion Pictures, Quinta CommunicationsЖанр: Триллер, КриминалРежиссер: Брайан Де ПальмаАктеры: Ребекка Ромейн, Антонио Бандерас, Питер Койот, Эрик Эбони, Эдуард Монтут, Рье Расмуссен, Тьерри Фремон, Грегг Генри, Фиона Курзон, Даниэль МильграмПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7F7B78AFC398DA5E48C930EAB3479C0F818A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542947   (497197) от 04.09.2012
-
-Лопе де Вега: Распутник и соблазнитель / Lope (2010) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-XVI век, Испания. Одаренный молодой драматург Лопе де Вега возвращается в Мадрид с войны, полный амбиций, стремления жить и писать… Но за душой у него ни гроша, поэтому он вынужден работать переписчиком при более известных авторах. Лопе влюбляется в Елену, восхитительную дочь своего босса. Ее отец, руководящий самой успешной театральной труппой в городе, никогда не одобрил бы такой связи, поэтому Лопе и Елена вынуждены видеться тайком. Но у Елены есть и другая тайна: она уже замужем за другим. Лопе просит возлюбленную рассказать всем об их любви и расторгнуть брак, но получает отказ. Уязвленный, он придает огласке лицемерие Елены и ее отца, а в ответ получает обвинение в клевете. Последний способ уйти от расправы — пуститься в бега.
-
-Единственный, кто готов помочь Лопе в его несчастьях, — его подруга детства Изабелла. Но и у нее есть тайна — она много лет влюблена в Лопе… За время странствий Лопе де Вега, наконец, осознает, кому же в действительности принадлежит его сердце, но судьба преподносит молодому человеку (   Читать дальше...   )Жанр: ДрамаРежиссер: Андруча УэддингтонАктеры: Альберто Эмманн, Леонор Уотлинг, Пилар Лопес де Айяла, Рамон Пуйоль, Антонио де ла Торре, Хуан Диего, Луис Тосар, Антонио Дечент, Селтон Меллу, Мигель Анхель МуньосПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7768C85ABA3CEFC4AD0FA7F9E162697E1B7AFE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935862   (497143) от 10.09.2015
 
 Красотки в бегах / Hot Pursuit (2015) Blu-ray [H.264/1080p]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497143.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497141.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497140.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497129.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497092.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497087.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_497086.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497064.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497025.jpg" />
 </div>
 
 
@@ -295,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_497015.jpg" />
 </div>
 
 
@@ -322,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497014.jpg" />
 </div>
 
 
@@ -348,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497002.jpg" />
 </div>
 
 
@@ -374,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496983.jpg" />
 </div>
 
 
@@ -400,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496973.jpg" />
 </div>
 
 
@@ -426,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496939.jpg" />
 </div>
 
 
@@ -452,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496934.jpg" />
 </div>
 
 
@@ -478,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496905.jpg" />
 </div>
 
 
@@ -504,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496871.jpg" />
 </div>
 
 
@@ -530,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496829.jpg" />
 </div>
 
 
@@ -556,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496692.jpg" />
 </div>
 
 
@@ -582,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496653.jpg" />
 </div>
 
 
@@ -609,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496643.jpg" />
 </div>
 
 
@@ -635,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496634.jpg" />
 </div>
 
 
@@ -661,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496630.jpg" />
 </div>
 
 
@@ -672,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235818   (496612) от 13.09.2010
+
+22 пули: Бессмертный / L'immortel (2010) [1080p] BDRip [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Боевик, Драма, КриминалРежиссер: Ришар БерриАктеры: Жан Рено, Габриэлла Райт, Кад Мерад, Ришар Берри, Марина Фоис, Жан-Пьер Дарруссен, Клод Жансак, Доминик Томас, Фани Коларова, Венантино ВенантиниПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565192   (496582) от 22.07.2022
+
+Неделя до... / The Week Of (2018) WEBRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496582.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о двух отцах, чьи дети решили пожениться. За неделю до события будущие родственники объединяют усилия, чтобы сделать финальные приготовления.Производство: США / Happy Madison Productions, NetflixЖанр: КомедияРежиссер: Роберт ШмигельАктеры: Адам Сэндлер, Крис Рок, Стив Бушеми, Рэйчел Дрэч, Эллисон Стронг, Роланд Бак, Кэти Хартман, Джим Бароне, Chloe Himmelman, Jake LippmannПеревод: Многоголосый профессиональныйСубтитры: Английские, французские, немецкие, испанские, нидерландские, датские, финские, норвежские, шведские, японские, корейские, китайскиеПродолжительность: 01:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D193865584F5AAD0BF08DBEF16BE81AE668F02
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Jan Urschel | Введение в движок рендеринга Octane дл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021150.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WingFox, Gavin O'Donnell | Стилизованная иллюстрация - �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021093.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CG Cookie, Jonathan Lampel | Основы текстурирования в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020939.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CG Cookie | Кузница шейдеров - Создание материал�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020929.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CG Cookie, Wayne Dixon | Основы риггинга - Узнай как со�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020918.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Udemy, Mislav Majdandžić | Pixel Art Master Course - Beginner to Professional/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020544.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VideoSmile, Александр Коляса | Супер Substance (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019847.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Schoolism, Justin Goby Fields | Введение в ZBrush с Justin Goby Fields
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019694.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Gumroad, Simon Fuchs | Создание дрона в Blender 2.9 и Substance P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019199.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cream-Motion | VoluMax v6 3D Photo Animator Tutorial (2021) HDRip [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019038.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Udemy, Brent Eviston | The Art & Science of Drawing / BASIC SKILLS  (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018884.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Udemy, Scott Harris | Manga Art School: How to draw Anime and Manga Course (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018861.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Chocofur, Lech Sokolowski | Секреты визуализации интерь
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018521.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Creative Shrimp | Создание стилизованного 3D арта в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017823.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ CG Fast Track | Создание автомобиля в Blender 2.90 части
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017812.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ YanSculpts | Анатомия и форма в Blender 2.91 - Курс по ск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016820.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Alejandro Perez | Sand Tutorial Grains Solver (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016751.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Simon Verstraete | City Building With OSM Data (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016750.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016744.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Tyler Bay | Pyro I - Smoke & Steam (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016735.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Steven Knipping | Applied Houdini Liquids I (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016713.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Maria Rogue-One | How to render correctly in ZBRUSH (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016519.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Tyler Bay | Learning Solaris (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016414.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Franco Pizzani | VEX Traffic Simulation in Houdini 18 (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016393.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Steven Knipping | Applied Houdini Liquids II (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016259.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Michael Goldfarb | Houdini 16 Rigging Part 1-7 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016091.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ OBS Studio 29.0.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042854.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ FastStone Capture 9.9 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042852.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FreeFileSync 11.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042777.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ExamDiff Pro Master Edition 11.0.1.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042773.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Allavsoft Video Downloader Converter 3.23.2.7668 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042766.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CrystalDiskMark 8.0.0a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042753.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ CameraBag Pro 2021.00 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042752.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ By Click Downloader Premium 2.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042705.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Epic Pen Pro 3.9.115 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042698.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Caramba Switcher + Corporate + Lab 2020.12.01-24 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042694.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ BurnAware Professional 16.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042659.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Sandboxie 5.62.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042656.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sandboxie plus 1.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042653.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Cockos REAPER 6.75 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042623.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ ISO Workshop 11.8 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042621.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Brackets 2.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042613.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Topaz Video AI 3.1.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042612.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ IObit Uninstaller Pro 12.3.0.9 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042609.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ PDFCreator 5.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042604.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ MeinPlatz 8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042602.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ GPU Caps Viewer 1.58.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042597.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Etcher 1.14.3 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042594.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ YT Downloader 7.21.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042588.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Spotify 1.2.4.905 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042587.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Maxon ZBrush 2023.0.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042583.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.3 Build 8 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042581.jpg" />
 </div>
 
 

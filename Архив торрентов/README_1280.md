@@ -6,7 +6,7 @@ Reg Organizer 8.25 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766689.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Notepad++ 7.6.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766687.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox Quantum 65.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766684.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinTools.net Premium 19.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766679.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Reg Organizer 8.25 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766673.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Illustrator 2020 24.2.1.496 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766660.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ qBittorrent 4.1.5 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766643.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ priPrinter Professional 6.5.0.2457 Final RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766641.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Wondershare Filmora 9.0.7.2 (x64) Repack by elchupacabra + Effect Pack [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766640.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SoftPerfect WiFi Guard+Portable 2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766636.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Windows 10 Manager 3.0.1 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766632.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ RuntimePack Lite 17.3.14 (x86-x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766624.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FPS Monitor 5020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766617.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Airmail 3 v3.6.57(543)[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766611.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Matter Of Taste - Jack Of Spades (1998) [FLAC|Lossless|image + .cue] <Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766599.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766598.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Iris Dee Jay - Get Away (2018) [FLAC|Lossless|tracks] <Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766585.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Sonic Trichomes Vol.2 (Compiled by DJ Kush)(2018) [MP3|320 Kbps] <Psy-Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766578.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Bitkit - Convoluted Universe (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766575.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Glary Utilities Pro 5.94.0.116 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766567.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Total Uninstall 6.22.1 Professional Edition RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766560.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ MediaHuman Audio Converter 1.9.6.5 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766557.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dism++ 10.1.1000.62 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766547.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Duplicate File Detective 6.1.67 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766544.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Total Uninstall 6.22.1 Professional Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766532.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Notepad++ 7.5.6 Final + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766524.jpg" />
 </div>
 
 

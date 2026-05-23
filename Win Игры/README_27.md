@@ -6,7 +6,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack Other s [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055832.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.3) Repack Pioneer
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055831.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cozy Caravan (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055828.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Flowstone Saga (2024) [Multi] ((163f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055827.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cosplayer’s Quest (2026) [Multi] (1.0.1/dlc) License GOG [16+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055826.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ephemeral / 蜉蝣之国的囚徒 (2026) [Multi] (Build 21423814) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055808.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Midnight Girl (2023) [En] (1.6.1) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055805.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Illuminaria (2022) [Ru/Multi] (1.301) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055739.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.4) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055735.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gunfire Reborn (2021) [Ru/Multi] (21791900/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055672.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.12459) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055669.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack Other s [Gold Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055668.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ God Forsaken (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055661.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Grim Tales 27: The Cursed Bloodline (2026) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055660.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Maelstrom: The Battle for Earth Begins (2026) [Ru/Multi] (1.3.0) Repack FitGirl 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055655.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Saviorless (2024) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055645.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.22/dlc) Repack Necros [Advanced Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055571.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Resident Evil Village (2021) [Ru/Multi] (Build 21519280/dlc) Repack Wanterlude [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055563.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Halloween: Trick or Treat 3 / Хэллоуин: Кошелек или жизнь
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055520.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (2.4.8/dlc) Repack FitGirl [Digital D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055513.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.5.0.0/dlc) Repack FitGirl [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055502.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (1.0.1) Repack FitGirl [Collector's Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055498.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack seleZen [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055491.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack seleZen [Gold Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055487.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Being and Becoming (2026) [Ru/Multi] (2023.2.20f1) Repack Necros [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055472.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Resident Evil Village (2021) [Ru/Multi] (1.1.0.6/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055424.jpg" />
 </div>
 
 

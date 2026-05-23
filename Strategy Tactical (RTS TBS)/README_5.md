@@ -6,7 +6,7 @@ Jagged Alliance: Rage! (2018) [Ru] (34445.663) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775552.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crookz - The Big Heist (2015) [Ru/En] (1.0.0.24360) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771310.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771199.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Valkyria Chronicles 4 (2018) [Multi] (1.0/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771196.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warhammer 40,000: Armageddon (2014) [En] (1.05/dlc) License SKIDROW [Untold Batt
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769679.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TASTEE: Lethal Tactics (2016) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769441.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tank Warfare: Tunisia 1943 (2017) [Ru/En] (11.30.21/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765004.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764040.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763201.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Re-Legion (2019) [Ru/Multi] (1.0.0.194-j) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763197.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sudden Strike 4 (2017) [Ru/En/Ger] (1.14.29902/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754713.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Jagged Alliance: Rage! (2018) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745965.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.1.5hf/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745064.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BATTLETECH (2018) [Ru/Multi] (1.4.0/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744828.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Excubitor (2016) [En/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744507.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Excubitor (2016) [En/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742916.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Panzer Corps: U.S. Corps (2016) [Ru/Multi] (1.26/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742870.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Worms W.M.D (2016) [Ru/Multi] (1.0.0.273а/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741871.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Empires Apart (2018) [Ru/Multi] (1.0.4) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741694.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Valkyria Chronicles (2014) [Ru/En] (1.0.0.1/upd3/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741623.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Empires Apart (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741621.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ XCOM: Chimera Squad / XCOM: Отряд «Химера» (2020) [Ru/Multi] (15321
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736755.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731466.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Halo Wars (2017) [Ru/Multi] (1.2033.2.0) License CODEX [Definitive Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731354.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Halo Wars (2017) [Ru/En] (1.2033.2.0) Repack xatab [Definitive Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731346.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Tales from the Void (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731302.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Topaz DeNoise AI 2.2.10 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472939.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 5.5.7.552 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472935.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1827 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472929.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Topaz Mask AI 1.3.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472927.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ S U R V I V E - RR7349 (2016) [MP3|320 Kbps] <Ambient, Darksynth, Synthwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472917.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ TSR Watermark Image Software Pro 3.5.6.8 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472915.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Scrivener 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472911.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Aurora HDR Pro 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472908.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ MacX Video Converter Pro 6.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472907.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Adobe Shockwave Player 12.2.5.195 (Ful/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472906.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ XYplorer 17.20.0100 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472902.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472878.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ GoodSync Enterprise 10.10.6.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472860.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ ABBYY FineReader 12.0.101.388 Corporate Lite RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472838.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Muffin Icon Pack 1.2.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472797.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472787.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Wise Disk Cleaner 10.3.3.785 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472777.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Topaz Sharpen AI 2.1.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472775.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Topaz Mask AI 1.3.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472770.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Topaz DeNoise AI 2.2.11 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472769.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Trojan Killer 2.1.38 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472760.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Topaz Sharpen AI 2.1.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472758.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Resonic Player 0.7.7b Build 1264 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472750.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Launchpad Manager Yosemite Pro 1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472748.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Adobe Prelude CC 2015.4.1 5.0.1.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472741.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Adobe Bridge CC 2015 6.3.0.177 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472740.jpg" />
 </div>
 
 

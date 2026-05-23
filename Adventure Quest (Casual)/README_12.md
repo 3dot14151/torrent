@@ -6,7 +6,7 @@ Solitaire Mystery: Four Seasons / Магия Пасьянса: Времена Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788281.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Donna Brave 2: And the Deathly Tree / Донна Браве 2: Древо Сме
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788087.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Redemption Cemetery 13: The Cursed Mark (2019) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787590.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mystery Case Files 23: Incident at Pendle Tower (2021) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787364.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Undungeon (2021) [Ru/En] (1.0.1) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787288.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Skyland: Heart Of The Mountain / Небесные Земли: Пробужден
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787186.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Criminal Archives: City on Fire (2021) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787054.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ms. Holmes 2: Five Orange Pips / Мисс Холмс 2: Пять апельси�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786680.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Maze 2: The Broken Tower / Лабиринт 2: Сломанная башня (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786072.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chimeras 7: New Rebellion / Химеры. Козни зла (2018) [Ru] (1.0) Un
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784954.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Beyond the Invisible 2: Darkness Came / За гранью невидимого 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784872.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Unseen Fears 2: Outlive / Невидимые страхи 2: Суметь в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784830.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chimeras 10: The Price of Greed / Химеры 10: Расплата за алч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784763.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dark Romance 8: Winter Lily / Мрачная история 8: Зимняя ли
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784606.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Persian Nights 2: The Moonlight Veil / Персидские Ночи 2: Лунн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783872.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Прокл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783444.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sable Maze 7: Nightmare Shadows / Темный лабиринт 7: Тени ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782888.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Amaranthine Voyage 8: The Burning Sky / Вечное путешествие 8: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782059.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Haunted Hotel 19: Lost Time (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781834.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Deja Vu (2020) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781373.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Everlasting Summer / Бесконечное лето (2014) [Ru/Multi] (1.2/dlc)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780698.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Phantasmat 10: Curse of the Mist / Фантазмат 10: Проклятие т�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780526.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mystery of the Ancients 7: Black Dagger / Тайны древних 7: Черн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780519.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Facility 47 / Объект 47 (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780038.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Shadowplay 3. The Forsaken Island / Театр теней 3: Покинутый 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779776.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Demon Hunter 4: Riddles of Light / Охотник на демонов 4: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779604.jpg" />
 </div>
 
 

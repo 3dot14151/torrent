@@ -6,7 +6,7 @@ Mystic Prophecy - War Brigade (2016) Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864906.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Carcass - Torn Arteries (2021) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864883.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Omnium Gatherum - Grey Heavens (2016) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864812.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Leather Heart - Comeback (2015) Japanese Edition 2017 [FLAC|lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864648.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Amon Amarth - Jomsviking (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864511.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Leeched - To Dull the Blades of Your Abuse (2020) [FLAC|Lossless|tracks] <Sludge
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864020.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Amberian Dawn - Looking for You (2020) [FLAC|Lossless|image + .cue] <Symphonic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863986.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Axxis - Virus of a Modern Time (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863897.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ice Age - The Great Divide (1999) [WavPack|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863596.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Wanton Attack - Wanton Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863168.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Obscenity - Summoning The Circle (2018) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863167.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Kankar - Dunkle Millennia (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863166.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Flame, Dear Flame - Aegis (2021) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863165.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Metal Church - From The Vault (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863163.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Insomnium - Heart Like A Grave (2019) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863161.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rage - Resurrection Day (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863155.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Thornbridge - What Will Prevail (2016) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863142.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Bonjour Tristesse - Par Un Sourire (2011) [FLAC|Lossless] <Depressive Black, Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863122.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Eternal Valley - Kingdom Of Misery (2021) [FLAC|Lossless|image + .cue] <Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863068.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Arthur Falcone' Stargazer - Straight to the Stars (2021) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862881.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Leeched - You Took the Sun When You Left (2018) [FLAC|Lossless|tracks] <Sludge M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862360.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Order of Ennead - Order of Ennead (2008) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862165.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Shadow Gallery - Tyranny (1998) [WavPack|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862049.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Nightwish - HUMAN. :II: NATURE. (2020) 3 CD, Limited Earbook Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861609.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Axxelerator - Heads Or Tails (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861434.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Carchosa - Realms (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861433.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Star Wars: Battlefront 2 (2005) [En] (1.1) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534673.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Slime Rancher (2017) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533032.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Titanfall 2 (2016) [Ru] (2.0.7.0) Rip Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532887.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dusk (2018) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530348.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Descent - Silence of Mind (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529355.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Requiem: Avenging Angel (1999) [Ru/En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528770.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.6/upd4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528316.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Metro Redux Dilogy (2014) [Ru/Multi] (1.0.0.3/1.0.0.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527699.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Space Hulk: Deathwing (2016) [Multi] (1.74) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526814.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Battlefield Hardline (2015) [Ru/Multi] (1.07.15.00) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523773.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520860.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Clive Barker's Undying / Клайв Баркер: Проклятые (2001/2014)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520193.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/upd8/dlc) License PROPHET [Complete Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519142.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Original Strife: Veteran Edition (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518955.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Forsaken Remastered (2018) [Multi] (1.4.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518915.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Deus Ex™ GOTY Edition (2000) [En] (1.112fm/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518842.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Red Orchestra 2: Heroes of Stalingrad Game of the Year Edition [Ru/En] (Steam-Ri
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518587.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Serious Sam HD: The Second Encounter - Complete Edition [Ru/En] (L/Steam-Rip/1.1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518586.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517995.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ The Forest (2018) [Ru/Multi] (1.09) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517814.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ The Darkness II (2012) [Ru] (1.1/dlc) Repack Other s [Special Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517766.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Monstrum (2015) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517015.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BioShock (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516758.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Homefront (2011) [Ru/En] (1.5.500001.0/dlc) RePack =nemos= [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515792.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Ghostrunner (2020) [Ru/Multi] (42507_446/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515417.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Sir, You Are Being Hunted (2013) [Ru/En] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514748.jpg" />
 </div>
 
 

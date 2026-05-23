@@ -6,7 +6,7 @@ Square Home Launcher 3.0.11 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60358.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.0 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60356.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Photoshop Express 13.4.404 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60345.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TrustViewer 2.12.1.5195 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60340.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ventusky: Прогноз погоды v33.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60339.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SoundSwitch 6.10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60338.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 12.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60330.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ HiBit Uninstaller 3.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60327.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MAGIX Vegas Pro 21.0 Build 300 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60299.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Snappy Driver Installer Origin R763 | Драйверпаки 24.04.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60297.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ExperienceIndexOK 4.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60283.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ RustDesk 1.2.3-2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60279.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ AIMP 5.30 Build 2541 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60278.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Psiphon 3 build 182 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60275.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VueScan Pro 9.8.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60271.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ HiBit Startup Manager 2.6.40 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60262.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ GPU-Z 2.58.1 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60260.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Change MAC Address 24.04 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60259.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60249.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ IK Multimedia - TONEX MAX 1.6.0 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60247.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ JetBrains DataSpell 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60245.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Telegram Desktop 4.16.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60241.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Fitify: Фитнес тренировки дома 1.69.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60240.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ K-Lite Codec Pack Update 18.2.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60238.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ GPU-Z 2.58.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60231.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ O&O Defrag Professional 28.0 Build 10007 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60230.jpg" />
 </div>
 
 

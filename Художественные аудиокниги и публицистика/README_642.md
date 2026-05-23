@@ -1,83 +1,3 @@
-###  Публикация: 1184663   (299146) от 18.11.2017
-
-Фергюс Хьюм | Зеленая мумия (2017) [MP3, Надежда Винокурова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сонная деревушка неожиданно становится предметом сплетен для всей Англии: еще бы, ведь здесь произошло неслыханное преступление! Местный ученый отправил ассистента на Мальту купить уникальную перуанскую мумию в зеленом саркофаге. Вот только когда профессор вскрыл ящик, то вместо груза обнаружил внутри труп своего помощника…
-Окажись поблизости великий детектив вроде (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 10:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7144C4F603B8DACFDF992784D6B17F117E4428E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184713   (299138) от 18.11.2017
-
-Александр Варго | Пуповина (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Внецикловый роман и два рассказа Сергея Давиденко.
-Сергей очень был рад полученному предложению: некий, наверняка выживший из ума, старик нанял их с приятелем Максом похитить и доставить к нему одну женщину по имени Олеся. За хорошие деньги разумеется. Плевое дело. Приехав домой к жертве, Сергей требует от нее кое о чем рассказать. Олеся, пусть и не сразу и с неохотой, (   Читать дальше...   )Жанр: ХоррорПродолжительность: 05:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B590E30E1A60F74201D802758E3847A8E856792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184752   (298999) от 18.11.2017
-
-Луиза Пенни | Старший инспектор Арман Гамаш (Книга 8). Эта прекрасная тайна (2017) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В этом уединенном монастыре, затерянном в дебрях Квебека, почти всегда царит тишина, прерываемая лишь старинными песнопениями. Прекрасные голоса монахов зачаровывают всех, кому посчастливится их услышать, и кажется, что рядом с этой красотой нет места злу. Однако в монастыре происходит убийство, и старший инспектор Арман Гамаш начинает расследование, не подозревая, (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 14:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C1243A3EEF0BAE066EBB8D2649638AED22A62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184745   (298996) от 18.11.2017
 
 Луиза Пенни | Старший инспектор Гамаш (Книга 6). Хороните своих мертвецов (2017) [MP3, Сергей Кирсанов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298996.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298911.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298898.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298888.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298857.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298832.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298798.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298784.jpg" />
 </div>
 
 
@@ -294,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298770.jpg" />
 </div>
 
 
@@ -320,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298759.jpg" />
 </div>
 
 
@@ -346,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298741.jpg" />
 </div>
 
 
@@ -372,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298737.jpg" />
 </div>
 
 
@@ -398,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298725.jpg" />
 </div>
 
 
@@ -424,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298703.jpg" />
 </div>
 
 
@@ -450,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298683.jpg" />
 </div>
 
 
@@ -478,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298669.jpg" />
 </div>
 
 
@@ -504,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298665.jpg" />
 </div>
 
 
@@ -530,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298661.jpg" />
 </div>
 
 
@@ -556,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298639.jpg" />
 </div>
 
 
@@ -583,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298605.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298594.jpg" />
 </div>
 
 
@@ -638,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298352.jpg" />
 </div>
 
 
@@ -665,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297951.jpg" />
 </div>
 
 
@@ -676,6 +596,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FE503665BF987E56A8F7585116AF035E8C73354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423306   (297754) от 14.11.2020
+
+Антон Чехов | Чёрный монах (1999) [MP3, Иннокентий Смоктуновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Васильевич Коврин, магистр, заболевает нервным расстройством. Его “посещает” черный монах и внушает мысль о том, что он - гений, избранник божий. В периоды обострения Коврин весел, бодр и счастлив, а когда болезнь затухает, и черный монах покидает его, Коврин становится капризен и мелочен, несправедлив и жесток. Наконец, черный монах приносит ему утешение (   Читать дальше...   )Жанр: Отечественная классикаИздательство: АрдисПродолжительность: 01:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D14AF20552D5DC0E166BF301C5B9DE4AF363985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422884   (297743) от 14.11.2020
+
+Сергей Александрович Непушкин | Плевок и валаклам (2020) [MP3, Татьяна Янчук]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Явь и сон, правда и ложь. Как трудно порой их различить. Вторые всегда стараются быть похожими на первых..Жанр: сатираПродолжительность: 00:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077B98C717A30DA7AEC8366762173CF145B15C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 420430   (297724) от 09.12.2011
+
+Михаил Задорнов | Тырлы и глоупены (2011) [MP3, Михаил Задорнов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297724.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом концерте Михаил Задорнов вновь касается проблем образования в нашей стране, своеобразия русского менталитета и культуры.Жанр: Юмор, Сатира
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70F7A6A6F3D932BF790D810E62722B672236474
 ```
 
 https://mybot314.ru/tekegram_catalog/

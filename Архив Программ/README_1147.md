@@ -6,7 +6,7 @@ TechSmith Camtasia 22.0.4 (Build 39133) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AquaSoft Stages 13.2.08 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461796.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BitTorrent Pro 7.9.5 Build 41163 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461768.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Media Creation Tool 10.0.10240.16480 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461764.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nero Burning ROM 2016 17.0.5000 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461756.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Apache OpenOffice 4.1.1 SecFix 1 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461754.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Google Earth Pro 6.2.2.6613 Final + PortableApps [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461743.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AVG Anti-Virus Pro 2013 2013.0.2677 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461740.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ XviD4PSP 7.0.302 DAILY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461714.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ACDSee Ultimate 9.0 Build 565 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461684.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Nero Burning ROM & Nero Express 2016 17.0.5.0 Portable by PortableAppZ [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461683.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Realtek High Definition Audio Driver 6.0.8978.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461621.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AIMP 3.60 Build 1503 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461598.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ uTorrent Pro 3.4.5 build 41162 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461596.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft .NET Framework 1.1 - 4.6 Final RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461589.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ uTorrent Pro 3.4.5 build 41162 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461584.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Zver 2015.8 Windows 8.1 Pro x64 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461575.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Privacy Eraser Free 4.17.0 Build 2150 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461544.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Comodo Dragon 68.0.3440.106 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461481.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Icecream Image Resizer Pro 2.07 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461474.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ ACDSee Ultimate 10.0 Build 839 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461459.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Cent Browser 2.1.9.50 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461456.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ oCam 416.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461447.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Wise Program Uninstaller 2.13.112 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461440.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ CoolUtils Total Image Converter 7.1.1.154  RePack (& Portable) by elchupacabra  
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461436.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tipard Total Media Converter 9.2.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461431.jpg" />
 </div>
 
 

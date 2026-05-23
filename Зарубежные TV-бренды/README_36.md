@@ -1,29 +1,3 @@
-###  Публикация: 1281578   (751609) от 08.02.2019
-
-Animal Planet: Дом для рептилий. Террариум юрского периода / Scaled (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6FED649EDCD0A754A9ECC9975926693B9BDA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216366   (750937) от 30.03.2018
 
 NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
@@ -32,7 +6,7 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750937.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750833.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC. Horizon: Война против науки / A War On Science (2006) DVBRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750647.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ BBC: Величайшие явления природы (эпизоды 1-6 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750310.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Discovery. Техногеника. Ту-144. Первый пассажирски
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749957.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Discovery. Рыбацкие легенды Якуба Вагнера / Rybi Lege
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749911.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ BBC: Суперстая / Swarm: Nature's Incredible Invasions (Megaschwaerme. D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749819.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ PBS. Природа - Дом животных / Nature - The Animal House (2007)
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749733.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ BBC: Горькое озеро / Bitter Lake (2015) Web-DLRip [H.264/720p] [EN /
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749620.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ BBC: Сокрытые миры / Hidden Kingdoms (2014) BDRip [H.264/1080p] (С�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749094.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748662.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748586.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748583.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ BBC: Глубина / Deep Blue (2003) [720p]BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748582.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ NG: Спасти Титаник с Бобом Баллардом / Save the Tita
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748459.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748187.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748153.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ NG: Китайская мегагробница. Секреты терракот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748126.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748068.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip [H.264/720p-LQ] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747936.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip (1-4 серия 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747834.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747830.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ BBC: Жизнь на земле / Life on Earth (1979) BDRip [H.264/720p-LQ] (Э
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747488.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747055.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ BBC: Что такое свет / Light Fantastic (2004)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746588.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ BBC: Что такое свет / Light Fantastic (2004)
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396392   (746533) от 15.07.2020
+
+Царство мумий / Kingdom of the Mummies (2020) WEB-DL [H.264/1080p] (серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746533.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тени древнейших в мире пирамид группа археологов во главе с доктором Рамаданом Хусейном совершила открытие всей своей жизни, найдя прекрасно сохранившийся погребальный комплекс, скрытый под толщей песка. Этот комплекс, наполненный сокровищами и невероятными находками, способен переписать историю мумификации, открыв перед археологами секреты времен фараонов. Теперь (   Читать дальше...   )Производство: Великобритания, BBC Studios, National Geographic ChannelЖанр: Документальный, история, археология, египтологияРежиссер: Джеймс Лавель, Бьянка ЗамфираПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: Английские, английские (hardsub - на арабскую речь)Продолжительность: 4 x ~00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78292B1B530518023A96723845F552E7D430FAED
 ```
 
 https://mybot314.ru/tekegram_catalog/

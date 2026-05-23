@@ -6,7 +6,7 @@ Product Key Explorer 4.2.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360102.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pano2VR Pro 6.1.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360094.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rob Papen - eXplorer v6.1.1d VST, VSTi, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360091.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nvidia GeForce/Desktop 310.54 Beta [Мульти/Русский] Х86 - X64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360083.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360079.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AIMP 3.20 Build 1155 Final  RePack/Portable by D!akov [Rus/Ukr/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360074.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ DriverPack Solution Online 16.7.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360022.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ DriverEasy Professional 4.9.6.35549 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360021.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DVDFab 10.0.6.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360003.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tor Browser Bundle 7.0.8 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359999.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.0.0.10 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359992.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ TNOD User & Password Finder 1.6.4 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359983.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PotPlayer 1.7.21295 (x64) Stable Portable by Lisabon [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359982.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359978.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BELOFF [dp] 2020.10.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359977.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ TrustViewer 2.3.0.3881 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359973.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Microsoft Desktop Optimization Pack for Software Assurance 2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_359942.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ RusTV Player 3.0 Final Portable by Valx [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359877.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ OCCT 7.0.3 beta 1 Portable [Multi/Ru] (Обновляемая раздача б�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359874.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359861.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft Windows 10 Insider Preview 10.0.10576 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359845.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Adobe Audition CC 2018. 11.0.0.199 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359832.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Adobe Software Suite 2018 (Unpack Version) by Azbukasofta 2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359830.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ CyberLink PowerDVD Ultra 15.0.2211.58 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359756.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Adobe Acrobat Pro DC 2015.009.20077 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359748.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Adobe Photoshop Lightroom 6.2.1 Portable by PortableWares [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359740.jpg" />
 </div>
 
 

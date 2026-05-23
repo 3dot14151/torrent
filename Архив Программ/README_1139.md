@@ -6,7 +6,7 @@ JetBrains PhpStorm 5.0.1 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BarTender Enterprise Automation V 10.0 SR1 Build 2845 [Rus / Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466328.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nik Software HDR Efex Pro 2.003 Rev 20894 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466327.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adblock Plus 2.6.11 for Mozilla Firefox [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466302.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mirillis Action! 1.26.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466288.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CodeLobster IDE 1.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466275.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Re-Loader Activator 1.4 RC 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466272.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ PowerISO 7.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466269.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Foxit Reader 7.2.0.722 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466266.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Autodesk Sketchbook Designer 2013 x32 x64  [Multi ,русского нет]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466187.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Alien Skin Exposure™ 4.0.0.470 Revision 21602 RuPack by Stalevar [Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466178.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Adblock Plus 1.9.3 for Google Chrome / Opera / Safari [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466140.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Foxit PhantomPDF Business 7.2.0.722 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466136.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Zentimo xStorage Manager 2.3.3.1281 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466126.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ WinTools.net Premium 20.7.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466125.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ AquaSoft Stages 11.8.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466122.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Topaz Sharpen AI 2.1.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466117.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MKVToolNix 50.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466111.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ CCleaner 5.10.5373 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466057.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ AAF DCH Optimus Sound 6.0.9003.2 Realtek Mod by AlanFinotty1995 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466021.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ PicPick 4.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465970.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ KMSAuto Net 2015 1.3.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465942.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ AVG PC TuneUp 20.1 Build 2064 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465926.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Balabolka 2.11.0.609 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465864.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Cumulative Update KB3195781 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465798.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Hosts File Editor 1.1.4 Portable [En/Rs]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465767.jpg" />
 </div>
 
 

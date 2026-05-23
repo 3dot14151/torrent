@@ -6,7 +6,7 @@ Opera One 103.0.4928.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175146.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Master PDF Editor 5.9.70 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175143.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Macrorit Partition Extender 2.3.1 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175139.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Macrorit Disk Scanner 6.6.8 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175135.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe InCopy 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175131.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Firefox Browser 118.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175128.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Balabolka 2.15.0.761 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175099.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Zoc Terminal 8.01.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175096.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VSDC Video Editor Pro 8.3.1.482 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175094.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Vivaldi 3.5.2115.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175092.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Auslogics Driver Updater 1.26.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175090.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Edge 87.0.664.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175088.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Macrorit Partition Expert 8.0.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175087.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Auslogics Windows Slimmer 4.0.0.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175083.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Skype 8.67.0.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175076.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Psiphon 3 build 179 (09.10.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175075.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ JRiver Media Center 27.0.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175073.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Triple Triad Trading Card Game v1.8.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175067.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Adobe XD 35.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175061.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Format Factory 5.15.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175059.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Exposure X6 Bundle v6.0.2.124 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175053.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Revo Uninstaller Pro 5.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175044.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ GoldWave 6.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175043.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Skype 8.67.0.87 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175037.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ FontViewOK 8.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175032.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ HiBit Uninstaller 3.0.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175022.jpg" />
 </div>
 
 

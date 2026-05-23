@@ -6,7 +6,7 @@ Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585120.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585091.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Titan Quest (2016) [Ru/Multi] (2.1/dlc) License PLAZA [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584945.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.5.16.6) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577512.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573976.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573967.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Final Fantasy XIII-2 / Final Fantasy 13-2 (2014) [Ru] (1.0/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572132.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Children of Zodiarcs (2017) [En] (1.0.0.4) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571920.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Two Worlds (2007) [Ru/En] (1.07/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571877.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Children of Zodiarcs (2017) [Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570087.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ICY (2015) [En] License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569530.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Pathologic 2 (2019) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568462.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Anima: Gate of Memories (2014) [Ru/Multi] (1.0) Repack Valdeni
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568320.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Xuan-Yuan Sword EX: The Gate of Firmament (2016) [En/Multi] (1.0) Repack АRMENI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568312.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Kyn (2015) [En/De] License FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567801.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566810.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566432.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ICY (2015) [En] (1.0) Rip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566011.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564847.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Fall of the Dungeon Guardians (2015) [En/Multi] (1.0e) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564668.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Rage of the Battlemage (2016) [Ru/Multi] (1.0) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562717.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.2.6.3610r) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558881.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmente
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558318.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557751.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Blood & Gold: Caribbean! (2015) [Ru/En] (2.065/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557413.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556904.jpg" />
 </div>
 
 

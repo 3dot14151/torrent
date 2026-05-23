@@ -1,81 +1,3 @@
-###  Публикация: 965473   (225448) от 14.12.2015
-
-Кадриль (1999) HDTVRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В деревне по соседству живут две пары. Дружат они годами и домами, все друг про друга знают. Но вот однажды, соседи решают, что так дальше жить нельзя: скучно. И жены решают обменяться мужьями, а мужья - женами. Получается как в известном танце "кадриль": временный обмен партнерами. Короче говоря, незамысловатая чепуха...Производство: Россия, МосфильмЖанр: КомедияРежиссер: Виктор ТитовАктеры: Станислав Любшин, Любовь Полищук, Олег Табаков, Валентина Теличкина, Нина УсатоваПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ED25A2B73FC8BBF4F98B0C12D76A446324620C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513282   (225265) от 28.11.2021
-
-Побочный эффект (2020) BDRip [H.264/720p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Однажды в размеренную и счастливую жизнь архитектора и его жены вламываются грабители. Теперь единственная мечта Андрея - стереть ту кошмарную ночь из памяти Оли. Отчаянные поиски решения приводят его в жутковатую квартиру в Доме на набережной к таинственной Маре, которая обещает «особое» лекарство.Производство: Россия / OKKO Studios, Друг ДругаЖанр: УжасыРежиссер: Алексей КазаковАктеры: Александра Ревенко, Марина Васильева, Семён Серзин, Анатолий Журавлёв, Мария Карпова, Мария Абрамова, Степан Девонин, Наталья Дедейко, Сергей Черданцев, Константин ГвоздковПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE2C9F5B68814BFD1E6EAB63A17166B80A30C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513279   (225200) от 28.11.2021
-
-Побочный эффект (2020) BDRip [H.264/1080p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Однажды в размеренную и счастливую жизнь архитектора и его жены вламываются грабители. Теперь единственная мечта Андрея - стереть ту кошмарную ночь из памяти Оли. Отчаянные поиски решения приводят его в жутковатую квартиру в Доме на набережной к таинственной Маре, которая обещает «особое» лекарство.Производство: Россия / OKKO Studios, Друг ДругаЖанр: УжасыРежиссер: Алексей КазаковАктеры: Александра Ревенко, Марина Васильева, Семён Серзин, Анатолий Журавлёв, Мария Карпова, Мария Абрамова, Степан Девонин, Наталья Дедейко, Сергей Черданцев, Константин ГвоздковПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F93866456BB7AE1D4C39683583A3102E9ED4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513287   (225119) от 28.11.2021
 
 Побочный эффект (2020) BDRemux [H.264/1080p] [GER Transfer]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225119.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224856.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224136.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223202.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223195.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223125.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222994.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222973.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222865.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222752.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222478.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222164.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222050.jpg" />
 </div>
 
 
@@ -423,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221950.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221929.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221886.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221849.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221770.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221747.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220936.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220621.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220339.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220304.jpg" />
 </div>
 
 
@@ -668,6 +590,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E25D0CF72F0606B4F0F816783644B3FD51305DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585653   (220127) от 23.10.2022
+
+Камень, ножницы, бумага (2019) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две актрисы — две судьбы. Мать и дочь одержимы актёрской профессией. Мать уже готова расстаться со сценой и мечтой о кино, но не желает повторения своей судьбы у Дочери. Она делает молодой и талантливой актрисе главный подарок в её жизни — знакомит её с Наставником, после уроков которого не будет места отчаянью, зато будет место подлинному искусству.Производство: Россия / Продюсерская компания Николая РасторгуеваЖанр: драмаРежиссер: Татьяна ЛютаеваАктеры: Агния Дитковските, Татьяна Лютаева, Владимир Ильин, Доминик РаманаускасСубтитры: отсутствуютПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDCA428450895CF06A10E41DAFF88BB08555C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084451   (220015) от 18.12.2016
+
+Судьба напрокат (2016) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Рита в чем-то похожа на англичанку Бриджит Джонс. Она добродушна и безотказна, готова помочь всем и каждому, чем ее мама, сестра, сердечный друг постоянно пользуются. Однажды разряд электрического тока превращает Риту в Марго — девушку успешную, и для которой появление на публике не шок, а скорее удовольствие.Производство: Россия, Украина | Star MediaЖанр: Комедия, МелодрамаРежиссер: Олег ШтромАктеры: Юлия Кокрятская, Александр Пашков, Нина Касторф, Любовь Зайцева, Илья Оболонков, Олег Загородний, Людмила Нильская, Юрий Осипов, Елена Бушуева, Михаил Богдасаров, Максим Карушев, Даниил КоноваловПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F687B49BF2225C644EF28B1EB147BDED6A9E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425468   (219513) от 21.11.2020
+
+Аутло (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник и загадочная бунтарка пытаются добиться взаимности одного и того же парня. Генерал и танцовщица-трансгендер в 1980-х ставят на кон карьеру и жизнь, чтобы быть вместе.Производство: Россия / Irony ProductionЖанр: ДрамаРежиссер: Ксения РатушнаяАктеры: Виктор Тарасенко, Елизавета Кашинцева, Евгений Шварцман, Глеб Калюжный, Сергей Епишев, Виталий Кудрявцев, Андрей Москвичёв, Евгений Даль, Николай Сахаров, Сергей ДвойниковПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6BD26123DBA6EFFFFA514AF0B5D4C8DFDCD22F
 ```
 
 https://mybot314.ru/tekegram_catalog/

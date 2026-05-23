@@ -6,7 +6,7 @@ Process Lasso Pro 12.2.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232736.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare PDFelement 9.5.8.2267 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232732.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Feeder 4 v.4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232731.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Exif Pilot 6.20.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232730.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ExamDiff Pro Master Edition 14.0.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232725.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wondershare PDFelement 9.5.8.2267 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232724.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Things 3 v.3.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232720.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ScreenToGif 2.38.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232718.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ LibreOffice 7.5.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232715.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Topaz Video AI 3.2.7 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232708.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Firefox Browser 115.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232704.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ LightX - Фоторедактор 2.2.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232700.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ iShowU Instant (Advanced) 1.4.14 (beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232699.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.4.0 Stable RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232698.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PDF24 Creator 11.12.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232692.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Simple Sticky Notes 6.0.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232689.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Grids for Instagram 8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232687.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Disk Xray 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232684.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Viber 18.5.0.10 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232679.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ WinSCP 6.1 Build 13674 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232675.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ DMG Canvas 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232673.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Perfectly Clear WorkBench 4.5.0.2550 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232671.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232659.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ System Toolkit 5.10.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232647.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ EdgeView 4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232645.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ SiteSucker Pro 5.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232637.jpg" />
 </div>
 
 

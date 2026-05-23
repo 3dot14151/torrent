@@ -6,7 +6,7 @@ Telegram Desktop 1.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674200.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox Quantum ESR 60.6.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674199.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox Quantum 66.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674195.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CDBurnerXP + Portable 4.5.8.7041 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674187.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VLC Media Player 3.0.17.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674175.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Telegram Desktop 0.9.56 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674161.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Comodo IceDragon 47.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674157.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Air Explorer Pro 1.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674150.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Linux Live USB Creator 2.8.13 + Portable [[Многоязычный (в т.ч. �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_674137.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Opera 58.0.3135.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674078.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Bandizip 6.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674074.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cent Browser 3.9.2.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674064.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ LibreOffice 6.2.2.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674063.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Seagate DiscWizard 2019.17160 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674062.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ CocCoc 56.3.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674036.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skype 7.25.0.106 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674032.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Norton AntiVirus 22.7.0.76 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674025.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ YouTube Video Downloader PRO 5.7.1 (20160624) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674024.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Cacheman 10.0.1.5 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674023.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Insofta Cover Commander 4.0.0 Portable by Valx [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674020.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Multi Flash Kit v.2.6.11 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_674003.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Internet Download Manager 6.32.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673954.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NVIDIA GeForce Desktop 419.67 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673936.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Windows Firewall Control 4.8.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673933.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Windows and Office ISO Download Tool 3.00 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673931.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ StartIsBack++ 1.3.1 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673926.jpg" />
 </div>
 
 

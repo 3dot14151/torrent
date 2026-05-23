@@ -6,7 +6,7 @@ Mozilla Thunderbird 68.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169030.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CherryPlayer 3.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169029.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ HiBit Uninstaller 3.0.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169026.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BetterTouchTool 3 v3.213 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169024.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 26) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169020.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Melon VPN - Secure Proxy VPN 7.9.535 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169014.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ WinCatalog 2024.3.4.1023 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169012.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ KeepStreams 1.1.9.7 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169008.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Live Home 3D Pro Edition 4.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168988.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SophiApp 1.0.90 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168972.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168969.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ RAR for Linux 6.24 [x32, x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168962.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Waves - Complete V13 13.0.10 (2021.12.05) VST, VST3, AAX, STANDALONE (x64) Onlin
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168933.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Balabolka 2.15.0.832 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168931.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Microsoft Visual Studio 2019 Professional 16.3.9 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168930.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ CherryPlayer 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168927.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Microsoft Visual Studio 2019 Enterprise 16.3.9 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168925.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ RAM Saver Professional 23.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168918.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VueScan Pro 9.8.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168915.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Mailbird Pro 2.9.92.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168913.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Autorun Organizer 5.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168911.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ DxO PureRAW 2 for Mac v.2.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168908.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ AIDA64 Extreme Edition  6.80.6226 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168907.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168899.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Wise Care 365 Pro 5.4.5.541 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168898.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Athentech Perfectly Clear Complete 3.9.0.1707 Repack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168893.jpg" />
 </div>
 
 

@@ -1,86 +1,3 @@
-###  Публикация: 1592510   (183476) от 22.11.2022
-
-Серг Усов | Алерния (Книга 6). Артефакт Смотрителей (2022) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-«Артефакт Смотрителей» – фантастический роман Серга Усова, шестая книга цикла «Алерния», жанр боевое фэнтези, попаданцы.
-
-Заключительная книга серии про попаданку в мир магического средневековья.Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 10:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1367D103A674A7428A37D3CEB6D481538C5D219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592520   (183365) от 22.11.2022
-
-Григорий Володин | Возрождение Феникса (Книга 1) (2022) [MP3, Никита Петров (Петроник)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-«Возрождение Феникса» – фантастический роман Григория Володина, первая книга одноименного цикла, жанр попаданцы, бояръ-аниме, альтернативная история.
-
-Ты покорил сотни миров. От взмахов твоего меча рассыпались звёздные крепости. Имя твое стало синонимом непоколебимости и совершенства. А затем ты потерял всё, низвергся в тело увечного аристократа.
-Встать на колени? (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыПродолжительность: 11:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0873EC435C4FAC9E484DA0FFB2DE53CD0CC3ABE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665102   (183251) от 29.09.2023
-
-Дмитрий Лазарев | Пандемониум (Книга 2). Нашествие (2023) [MP3, Сергей Ермилов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Через потери, боль и предательство идет неразлучная троица главных героев – Дмитрий Рогожин и его верные соратницы-подруги инфер-убийца Селена и эльфийка Аллерия. Многие испытания и сражения суждено им пережить вместе, хотя у каждого – своя война. Такие разные от природы, постепенно они становятся сплоченной командой. Но Тьма наступает, и кажется, нет силы, способной (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 18:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C2A1841F959D43E407B1AD6177BC7120141F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665150   (183197) от 29.09.2023
 
 Джек Гельб | Пеликан (Книга 1). Месть замка Ратлин (2023) [MP3, Михаил Золкин]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183197.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183192.jpg" />
 </div>
 
 
@@ -142,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183177.jpg" />
 </div>
 
 
@@ -168,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183166.jpg" />
 </div>
 
 
@@ -194,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183163.jpg" />
 </div>
 
 
@@ -220,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183162.jpg" />
 </div>
 
 
@@ -246,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183153.jpg" />
 </div>
 
 
@@ -272,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183111.jpg" />
 </div>
 
 
@@ -298,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183103.jpg" />
 </div>
 
 
@@ -324,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183068.jpg" />
 </div>
 
 
@@ -350,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183062.jpg" />
 </div>
 
 
@@ -376,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183002.jpg" />
 </div>
 
 
@@ -402,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182968.jpg" />
 </div>
 
 
@@ -431,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182955.jpg" />
 </div>
 
 
@@ -457,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182942.jpg" />
 </div>
 
 
@@ -483,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182925.jpg" />
 </div>
 
 
@@ -509,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182919.jpg" />
 </div>
 
 
@@ -535,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182916.jpg" />
 </div>
 
 
@@ -561,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182897.jpg" />
 </div>
 
 
@@ -588,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182892.jpg" />
 </div>
 
 
@@ -614,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182822.jpg" />
 </div>
 
 
@@ -640,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182814.jpg" />
 </div>
 
 
@@ -666,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182468.jpg" />
 </div>
 
 
@@ -677,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32420540947D40D71E5624115859F0AA55A198C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592830   (182459) от 24.11.2022
+
+Александр Зубенко | Фея Амазонки. Тайна алмаза (2022) [MP3, Олег Лобанов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о пропавшей советской экспедиции в 1966 году в джунглях Амазонки, в ходе которой геологи находят алмаз, ставший впоследствии бриллиантом весом 82 карата, и агентах четвёртого рейха, охотящихся за ним. В живых остаются два последних участника похода. Местонахождение бриллианта до сих пор остаётся загадкой.Жанр: ФантастикаПродолжительность: 05:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA1525475CD76A48D1144E565A20BC42E8F9524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665241   (182421) от 30.09.2023
+
+Зинаида Гаврик | Проклятая сказкой (2023) [MP3, Софья Шамаева]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писательница Варвара вдруг получает дар оживлять написанное. Радость быстро сменяется паникой – единожды вызванная к жизни история не желает заканчиваться, превращая жизнь Вари в кошмарный сюжет книги. С трудом доведя сюжет до логического конца, она даёт себе обещание – никогда больше не связываться с даром. Но однажды в гости приходит подруга с бутылкой вина и предлагает (   Читать дальше...   )Жанр: Городское фэнтези, Любовное фэнтезиИздательство: АРДИСПродолжительность: 15:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFA100C8881D9FFD50CB2457E6B5CCA430E5318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427732   (182411) от 29.11.2020
+
+Екатерина Радион | Метка северного ветра (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попасть на отбор по ошибке и выбраться сухой из воды? Амала решила, что все неприятности уже позади, как на руке расцвела еще одна метка. Неизвестный маг хочет, чтобы она срочно вышла замуж… Иначе превратит ее в ледяную статую. Ее вновь обязывают выйти замуж, опять угрожают смертью. Но где найти жениха, если единственный мужчина – это наглый темный маг, который видит (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 08:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D16E344A61AC40A0BA93D805977699A9F792E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1032819   (643354) от 08.07.2016
-
-Fossil Echo (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Следуйте в путешествие за мальчиком, в котором он поднимается на древнюю башню простирающуюся над облаками. Сюжетно-короткая игра является сложным 2D платформером с рисованной графикой. Почему и зачем он туда идет? Что он найдет на самой вершине?Тип издания: RepackРазработчик: AwacebЖанр: Adventure, Arcade, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0597FA169CB1C27B4C50CEA7747EAB41BB9977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032794   (643350) от 08.07.2016
 
 Hieroglyphika (2016) [Ru/Multi] (1.2.1) Repack Other s
@@ -32,7 +6,7 @@ Hieroglyphika (2016) [Ru/Multi] (1.2.1) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643350.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Furi (2016) [Ru/Multi] (1.0.46) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643256.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Zeno Clash 2 (2013) [Ru/En] (1.04) SteamRip Let'sРlay [Special Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642949.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Pinball FX2 (2013) [Multi] (1.0.28/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642945.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Killer is Dead (2014) [Ru/Multi] (1.0) SteamRip Let'sРlay [Nightmare Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642942.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Fright Chasers 2: Soul Reaper / Ловцы Страхов 2: Капкан (2018)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642775.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Midnight Calling 3: Valeria / Полуночный Зов 3: Валерия (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642709.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Football Club Simulator - FCS 18 (2017) [En] (3.6.1.0) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642626.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ The Lost Crown: A Ghosthunting Adventure / The Lost Crown: Призраки из
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642600.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Haunted Hotel 13: The Thirteenth / Проклятый отель 13: Трина�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642571.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Xenon Racer (2019) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642531.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Evil Tag (2017) [Ru/En] (1.02f) License POSTMORTEM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642450.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Age of Wonders III / Age of Wonders 3 (2014) [Ru/Multi] (1.800) SteamRip Let'sPl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642260.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ ASTROKILL (2016) [En] (0.5.0.6) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641492.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Metamorphic (2016) [En] (1.0.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641411.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Furi (2016) [Ru/Multi] (1.0) Repack Dok2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641409.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ RWBY: Grimm Eclipse (2016) [En] (1.0.01rc2) Repack Dok2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641408.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Cadenza 4: Fame Theft and Murder / Каденция 4: Слава, кража, �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640900.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640826.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Colle
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640717.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640712.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Hand of Fate (2015) [Ru/Multi] (1.3.19/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640710.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Windstorm / Ostwind - Ari's Arrival (2019) [Multi] (1.1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640640.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Warparty (2019) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640626.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Vessel [Multi5\+] (RePack/1.13) 2012 l R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640590.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Vessel [Multi5\+] (RePack/1.13) 2012 l R.G. ReCoding
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1853390788C4BE651B0AEAAF80E6B720DE0D6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292961   (640498) от 01.04.2019
+
+The Andersen Accounts 2: The Price of a Life / Досье Андерсена 2: Цена жизни (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение интригующей серии The Andersen Accounts. После того как Андерсен спас город от опасных преступников, его имя стало известно всем. Однажды он получил странное сообщение, пошел по следам того, кто его прислал - и оказался в ловушке. Удивительно и то, что напавший тоже обладал магическими способностями. Сможет ли Андерсен раскрыть загадку нападения и снова (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A99BF60367EBE152442A4173E3736BC697E8B87
 ```
 
 https://mybot314.ru/tekegram_catalog/

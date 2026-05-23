@@ -6,7 +6,7 @@ Darkest Dungeon (2016) [Ru/Multi] (24839/dlc) License CODEX [Ancestral Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638699.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Two Worlds II / Два Мира 2 (2010) [Multi] (2.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638598.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Survivalist (2015) [Ru/Multi] (57) SteamRIP ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637536.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.5/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636527.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Smoke and Sacrifice (2018) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635129.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634650.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631929.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Moonlighter (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631517.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Witcher: Anthology / Ведьмак: Антология (2008-2015) [Ru/En/P
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630817.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Moonlighter (2018) [Ru/Multi] (1.4.4.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629566.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ City of Brass (2018) [Ru/Multi] (1.5.1/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629325.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ys Origin [En] (L) 2012 | Reloaded
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628437.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625445.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0/3dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625310.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623358.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622517.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622419.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Grimshade (2019) [Ru/En] (1.0.5) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621948.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621227.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620429.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ I am Setsuna (2016) [En/Ja] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620419.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ I am Setsuna (2016) [En/Ja] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620311.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Final Fantasy XV / Final Fantasy 15 (2018) [Ru/Multi] (1138403/dlc) Repack R.G. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618672.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.3.1/dlc) License GOG [Enhanced Co
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618247.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Book of Demons (2018) [Ru/Multi] (1.01.18203) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614815.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ South Park: The Fractured but Whole (2017) [Ru/Multi] (1.0/dlc) License CODEX [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613007.jpg" />
 </div>
 
 

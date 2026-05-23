@@ -1,81 +1,3 @@
-###  Публикация: 1538454   (663432) от 20.03.2022
-
-Екатерина Островская | Сверх отпущенного срока (2021) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Актеру Алексею Дальскому в последнее время не везло. В театре он играл мало, в кино почти не снимался. Но новая роль изменила судьбу… Один из самых богатых людей страны, Максим Потапов, предложил Дальскому на пару месяцев стать его двойником, заменяя на второстепенных встречах. Сходство действительно было поразительным! Никто из близких людей не догадался о подмене, (   Читать дальше...   )Жанр: Современный детективПродолжительность: 11:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AC5819212E1D6F4086A0CDCA2394FFC11CA7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538470   (663431) от 20.03.2022
-
-Екатерина Островская | Следствие ведет Павел Кудеяров (Книга 1). Демоны прошлой жизни (2020) [MP3, Андрей Леонов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Павел Кудеяров начинал свою службу участковым в маленьком городке. Именно с этим местом связана самая большая трагедия его жизни – гибель любимой жены… Спустя несколько лет Павел вернулся в Ветрогорск: его неспешную жизнь нарушило жестокое убийство девушки. Кудеярову предстоит выяснить, появился ли в окрестностях Ветрогорска маньяк или кому-то Карина Сорокина – первая (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAD965C03580743A4462022EAE66D3C330A4433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538486   (663371) от 20.03.2022
-
-Екатерина Островская | Женское лицо частного сыска. Детектив Вера Бережная (Книга 2). Помолвка с чужой судьбой (2018) [MP3, Вероника Чепегина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В тот вечер Вероника напрасно ждала мужа домой. Глава крупной корпорации Николай Ракитин найден на берегу реки без сознания, одежда оказалась испачкана кровью его компаньона Гасилова, часом ранее зверски зарубленного топором. Видео­камеры зафиксировали, что внедорожник Ракитина незадолго до убийства подъезжал к особняку Гасилова. Экстрасенсу, приглашенному по просьбе (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B54DE18ECA5BC4150982AA9EC0500BA33FD713C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538321   (663358) от 20.03.2022
 
 Дмитрий Видинеев | Изнанка (2022) [MP3, Виктория Зайченко]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663358.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663356.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663323.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663287.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663284.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663279.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663273.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663206.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663204.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663202.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663083.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662892.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662880.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662820.jpg" />
 </div>
 
 
@@ -457,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662762.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662749.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662700.jpg" />
 </div>
 
 
@@ -538,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662506.jpg" />
 </div>
 
 
@@ -564,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662417.jpg" />
 </div>
 
 
@@ -590,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662328.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662319.jpg" />
 </div>
 
 
@@ -643,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662318.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662312.jpg" />
 </div>
 
 
@@ -680,6 +602,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A7A4C770B1DAD3AAAC09E4D876A4EAF11EEEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138567   (662309) от 31.05.2017
+
+Александр Вампилов, Виктор Голявкин | Вечер короткого рассказа (сборник) (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Валентинович Вампилов (1937-1972) — русский советский прозаик. Гениальный драматург, трагично окончивший земной путь, Александр Вампилов не издавался при жизни. В период 1968-1972 годы появляются самые известные пьесы: "Старший сын", "Утиная охота", "Прошлым летом в Чулимске". Их берутся ставить в провинциальных театрах, но (   Читать дальше...   )Жанр: Советская классическая прозаПродолжительность: 02:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9026CFFD1B0B304462434C329E53D77F25D767A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538562   (662308) от 21.03.2022
+
+Марджери Аллингем | Альберт Кэмпион. Избранное (2021) [MP3, Агния]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английская писательница Марджори Эллингем и ее герой частный детектив Алберт Кэмпион доселе не были широко известны русскому читателю. Мистер Кэмпион сильно отличается от своих американских коллег, например Майкла Шейна из романов Б. Холлидея. Молодой детектив умён и благороден, как настоящий английский джентльмен, в то же время ему свойственны лукавство и способность (   Читать дальше...   )Жанр: Классические детективыПродолжительность: 19:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0910A02B92AB38F7A8C13400AD4E7CF2C31B8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538534   (662298) от 21.03.2022
+
+Адам Кристофер | Тьма на окраинах города (2022) [MP3, Вячеслав Задворных]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоукинс, 1984 год. Шериф Джим Хоппер планирует насладиться Рождеством с Одиннадцать, но у приемной дочери свои планы на праздник. Из подвала на свет появляется коробка со старыми делами. Почему Хоппер уехал из Хоукинса? И почему никогда не рассказывает о своей работе детективом в Нью-Йорке?
+Нью-Йорк, 1977 год. Последнее громкое дело, изменившее все. Ветеран Вьетнама (   Читать дальше...   )Жанр: Зарубежные детективы, Мистика, Полицейские детективы, УжасыПродолжительность: 15:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414F0DC15914420FE474A98EC7DC89848B746ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

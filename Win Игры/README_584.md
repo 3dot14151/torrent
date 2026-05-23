@@ -1,29 +1,3 @@
-###  Публикация: 1762206   (7947) от 14.08.2025
-
-Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (0.5) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-До четырех игроков могут принять участие в игре создавая свою кебабную империю. Неважно, вы играете как шеф-повар-одиночка или в команде грильщиков, главное - строить свой бизнес шаг за шагом. Помимо обычного приготовления блюд, вы также можете стать владельцем ресторана, составив меню с экзотическими блюдами со всего мира, которые соседствуют с классическим донером.Тип издания: RepackРазработчик: Biotech GameworksЖанр: СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5630FD01809B22047AA5FD96ED651A7BBEAA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812293   (7945) от 14.08.2025
 
 Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack FitGirl
@@ -32,7 +6,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7945.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7943.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7940.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7935.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7931.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Uplink OS (2021) [Ru] (21.04) Mod/Русификатор kesha4
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7917.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (29915/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7916.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Kao the Kangaroo (2022) [Ru/Multi] (Build 11272397/dlc) Repack Let'sРlay [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7912.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Slormancer (2021) [Multi] (1.0.2c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7828.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7826.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.06.06/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7824.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7823.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Witchfire (2024) [Ru/En] (0.7.3) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7822.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Vagrus: The Riven Realms (2021) [En] (1.2100730/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7816.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7814.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7801.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Impaler Gold (2022) [Ru/Multi] (1.1.653) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7799.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ CraftCraft: Fantasy Merchant Simulator (2025) [Multi] (1.1.23) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7790.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Tennis Manager 25 (2025) [Multi] (5.0.1007) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7789.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7784.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Tiny Witch (2023) [Ru/Multi] (1.1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7783.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack Decepticon [Campaig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7778.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7776.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Pinball Spire (2024) [Ru/Multi] (1.02.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7770.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.710170/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7768.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.710170/dlc) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50619397B16D9970F03CF1EFD28F91D434822CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812515   (7754) от 15.08.2025
+
+Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за глобального катаклизма портовая служба решает расконсервировать старый маяк, чтобы сохранить судоходство. Герой отправляется на остров, чтобы стать смотрителем маяка. От его решений зависит судьба кораблей и города. Дома его ждут жена и дочь. С каждой ночью служба на маяке становится всё хуже.Тип издания: RepackРазработчик: solarsuit.gamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C560C51B13BE5023BF5E2E0D254C6E5B318C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

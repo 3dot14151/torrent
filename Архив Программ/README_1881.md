@@ -6,7 +6,7 @@ FL Studio Producer Edition 20.5.0.1142 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166820.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MusicBee 3.5.8698 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166815.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JRiver Media Center 27.0.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166796.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser ESR 78.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166793.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Textify 1.8.9 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166776.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Free Download Manager 6.12.1.3374 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166773.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Viber 14.4.0.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166765.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mirillis Action! 4.24.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166764.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166758.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Firefox Browser 84.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166757.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ TweakPower 1.166 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166742.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Volume2 1.1.7.443 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166741.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ WhatsApp 2.2049.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166690.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ SIV (System Information Viewer) 5.54 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166684.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NIUBI Partition Editor 7.6.7 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166668.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ ASoft .NET Version Detector 21 R1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166664.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ The Bat! Professional 9.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166661.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ XnViewMP 0.98.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166653.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tixati 2.87 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166643.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Opera 93.0.4585.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166638.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Wondershare Filmora 13.0.25.4414 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166629.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Visual Studio Code 1.63.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166614.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ AOMEI Backupper Technician Plus 7.1.1 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166612.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Macrorit Partition Extender 1.6.7 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166599.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ FinePrint Software (FinePrint 11.33 / pdfFactory Pro 8.33) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166588.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Google Earth Pro 7.3.6.9326 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166582.jpg" />
 </div>
 
 

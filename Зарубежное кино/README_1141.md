@@ -1,58 +1,3 @@
-###  Публикация: 545715   (484661) от 10.09.2012
-
-Черная зависть / Envy (2004) [H.264] HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Тим и Ник — закадычные друзья, соседи и коллеги по работе. Они настолько дружны, что во всем стараются походить друг на друга — даже семьи и машины у них похожи.
-
-Но внезапно это идеальное равновесие нарушается: одна из сумасшедших идей Ника начинает работать и приносить своему создателю барыши. Тиму, который раньше посмеивался над сумасбродными проектами своего друга, теперь остается только завидовать…Жанр: КомедияРежиссер: Барри ЛевинсонАктеры: Бен Стиллер, Джек Блэк, Рейчел Вайс, Эми Полер, Кристофер Уокен, Эриель Гейд, Сэм Лернер, Лили Джексон, Коннор Матеус, Гектор Елиас...Перевод: Профессиональный (двуголосый, закадровый)Язык субтитров: Русские, английскиеПродолжительность: 01:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C877B8B9A4DC06EECEABFFB73C38F78B0E56A688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545635   (484657) от 10.09.2012
-
-Звонок / Ringu / The Ring (1998) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодая женщина-репортер расследует загадочное суеверие о смертоносной видеокассете. В доме того, кто посмотрит ее, сначала раздается странный звонок по телефону, еще чуть позже его находят мертвым.
-После того, как, видимо, такой же смертью умирает ее племянница, репортерша решает взяться за расследование и сама смотрит злополучную кассету. Чуть позже в ее квартире (   Читать дальше...   )Производство: Япония / Asmik Ace Entertainment, Imagica Corp., Omega Project, Pony Canyon Enterprises (I), Toho CompanyЖанр: Ужасы, Триллер, ДетективРежиссер: Хидео НакатаАктеры: Нанако Мацусима, Мики Накатани, Юко Такэути, Хитоми Сато, Ёити Нумата, Ютака Мацусигэ, Кацуми Мурамацу, Рикия Отака, Масако, Дайскэ БанПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14330BF19802C81D3558934DB55C441EF93341CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545401   (484653) от 10.09.2012
 
 Все самое лучшее / All Good Things (2010) DVD5
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484653.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484582.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484575.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484543.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484537.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484534.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484527.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484523.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484508.jpg" />
 </div>
 
 
@@ -297,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484502.jpg" />
 </div>
 
 
@@ -323,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484465.jpg" />
 </div>
 
 
@@ -349,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484461.jpg" />
 </div>
 
 
@@ -375,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484452.jpg" />
 </div>
 
 
@@ -401,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484417.jpg" />
 </div>
 
 
@@ -427,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484391.jpg" />
 </div>
 
 
@@ -453,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484381.jpg" />
 </div>
 
 
@@ -481,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484353.jpg" />
 </div>
 
 
@@ -507,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484338.jpg" />
 </div>
 
 
@@ -533,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484335.jpg" />
 </div>
 
 
@@ -559,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484300.jpg" />
 </div>
 
 
@@ -585,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484296.jpg" />
 </div>
 
 
@@ -611,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484288.jpg" />
 </div>
 
 
@@ -637,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484283.jpg" />
 </div>
 
 
@@ -664,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484242.jpg" />
 </div>
 
 
@@ -675,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC296DD3C39E1B701DFAFD73C03CFA6F25AECF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545746   (484220) от 10.09.2012
+
+Семя Дьявола / Devil Seed (2012) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окончание летних каникул совпало для трёх студенток с переездом в новый дом. Возвращаясь с клубной вечеринки в честь новоселья, подвыпившие подруги решили шутки ради заглянуть к местной гадалке. Визит закончился невесело — Алекс, одна из девушек, потеряла сознание, а уже на следующий день вокруг неё начала твориться разная чертовщина, в итоге натолкнувшая Алекс на мысль, что она одержима демоном.Жанр: УжасыРежиссер: Грег А. СейджерПродюсер: Дуайт Кохлан, Гари Элмер, Джофф ХартАктеры: Ванесса Броце, Мишель Аргирис, Сантеле Канцанезе, Кевин Джейк Уолкер, Вейн КонройПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: xixidokПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9B22DC444BCE226B4E8DF87C37CFC43B1EBE33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159411   (484037) от 20.08.2017
+
+Где-то там / Elsewhere (2009) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сара и Джилиан были лучшими друзьями на протяжении столь длительного времени, что даже не могут вспомнить, когда их дружба началась. Жизнь двух девочек в небольшом городке в Индиане очень разная: Сара является талантливой ученицей и спортсменкой, в то время как Джилиан является звездой смутьян. Несмотря на то, что девочки так долго не могут вырваться из небольшого (   Читать дальше...   )Производство: США / Lost ToysЖанр: Драма, Криминал, ТриллерРежиссер: Нэйтан ХоупАктеры: Анна Кендрик, Чак Картер, Таня Рэймонд, Джон Грайз, Оливия Доун Йорк, Пол Уэсли, Джеффри Дэниэл Филлипс, Шеннон Холт, Кинна МакИнро, Дэн ФлэннериПеревод: Двуголосый (Virus)Субтитры: ИспанскиеПродолжительность: 01:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2D6BEBB3791A7333774A2F01EAD04D9283F25E
 ```
 
 https://mybot314.ru/tekegram_catalog/

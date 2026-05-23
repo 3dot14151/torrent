@@ -6,7 +6,7 @@ tinyCam Monitor PRO 15.3.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179056.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander 3.40b2d-BETA [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat Reader для PDF 22.10.0.24437 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178890.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PixelLab Pro - Text on pictures 2.0.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178709.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ vpnify - Безлимитный VPN 2.1.4.6 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178665.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Seal 1.6.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178654.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Moviebase Premium 3.6.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178562.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 10.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178540.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Lucky Patcher 10.3.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178496.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AIDA64 1.89 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178489.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Speedtest от Ookla 4.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178468.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Minecraft 1.19.21.01 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178291.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fitify: Фитнес тренировки дома 1.57.0 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178117.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Seal 1.7.0-beta.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177878.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ PDF Extra - Сканнер и редактор 9.7.1722 Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177779.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NewPipe 0.24.1 Mod by ItzSetnex [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177696.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ FiLMiC Pro 6.20.5 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177649.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Plus Messenger (Telegram+) v10.1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177374.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VIP Notes 9.9.67 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177152.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Smart Launcher 6 Pro 6.1 build 048 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177128.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ AIMP для Android v 3.30.1238 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175954.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Polarr v6.8.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175928.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VLC for Android 3.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175893.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Telegram for Android 9.1.6 (2929) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175405.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Triple Triad Trading Card Game v1.8.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175067.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Soul Knight v2.9.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174973.jpg" />
 </div>
 
 

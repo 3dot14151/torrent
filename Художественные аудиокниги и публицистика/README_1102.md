@@ -1,85 +1,3 @@
-###  Публикация: 1812180   (8033) от 13.08.2025
-
-Дмитрий Парсиев | Профсоюз водителей грузовых драконов. Город Богов. (Книга 2). (2025) [MP3, Антон Родин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Кто бы отказался стать богом? Божественность сулит много приятных преимуществ, но это пока не влетишь головой в суровую реальность бытия. Я влетел.
-В чем-то мир богов очень схож с миром людей. А в чем-то отличается, сильно отличается.
-Вот скажем, боги бессмертны. Это здорово, да? Но, как говорят, есть нюанс. Личный дракон - круто, но есть нюанс. Вокруг прекрасные (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцы, детективы, триллерыИздательство: ЛитРесПродолжительность: 09:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A04E621FEAD4191393967920A6DC3519C781A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812185   (8031) от 13.08.2025
-
-Дмитрий Парсиев | История одного эволюционера. (Книга 2). Демон (2024) [MP3, Сергей Ермилов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Это только в голливудском сериале горстка отважных американцев пытается выжить в окружении кровожадных орд зомби на протяжении десяти бесконечных сезонов. Наши люди сообразительны, изобретательны и с готовностью объединяются в охоте за ценным ресурсом, дающим опыт и добычу.
-- * - * - * -
-Уже через три месяца после начала зомбокалипсиса уцелели только те зомби, что (   Читать дальше...   )Жанр: Фантастика, боевикИздательство: ЛитРесПродолжительность: 07:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B693086FF371E413C0C1FC7C228039D6B00A1F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812169   (8030) от 13.08.2025
-
-Алекс Кош | Вампиры (Книга 1). Если бы я был вампиром (2021) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сколько случайностей может подкинуть нам жизнь? Много! А какова вероятность того, что проскользнувшая где-то в уголках сознания мысль сможет соединить незримой нитью двух существ: вампира и человека — так похожих внешне и настолько различных внутри? Что произойдет, если они поменяются местами? А вот и не угадали. Вампир, к примеру, пойдет в библиотеку или будет с (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 17:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA952432A5B5B6E25993E68A4B1C6990184CC752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812066   (8029) от 13.08.2025
 
 Александра Лисина | Гибрид (Книга 8). Мастер порталов (2025) [MP3, Максим Полтавский]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8029.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8028.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8027.jpg" />
 </div>
 
 
@@ -166,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8025.jpg" />
 </div>
 
 
@@ -192,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8024.jpg" />
 </div>
 
 
@@ -219,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8022.jpg" />
 </div>
 
 
@@ -245,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8021.jpg" />
 </div>
 
 
@@ -271,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8020.jpg" />
 </div>
 
 
@@ -297,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8019.jpg" />
 </div>
 
 
@@ -323,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8018.jpg" />
 </div>
 
 
@@ -349,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8016.jpg" />
 </div>
 
 
@@ -375,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8015.jpg" />
 </div>
 
 
@@ -401,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8014.jpg" />
 </div>
 
 
@@ -427,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8013.jpg" />
 </div>
 
 
@@ -453,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8008.jpg" />
 </div>
 
 
@@ -479,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8006.jpg" />
 </div>
 
 
@@ -505,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8003.jpg" />
 </div>
 
 
@@ -531,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7998.jpg" />
 </div>
 
 
@@ -558,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7997.jpg" />
 </div>
 
 
@@ -584,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7994.jpg" />
 </div>
 
 
@@ -610,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7993.jpg" />
 </div>
 
 
@@ -638,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7992.jpg" />
 </div>
 
 
@@ -665,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7991.jpg" />
 </div>
 
 
@@ -679,6 +597,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9332DF63F78053FDB998FD84CF9943C0D9827A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812162   (7988) от 13.08.2025
+
+Алекс Кош | Одиночка (Книга 6). Лёд и Гром (2025) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий меч уже практически в руках Фалька, но квест богини судьбы перестал быть основной целью. И плевать на любые угрозы. Один из немногих друзей мёртв, и если будет шанс его вернуть, то Фальк ради этого пойдёт на всё. Даже если это сделка с демоном, объявившим себя богом мёртвых и повергнувшим всю Арктанию в пучину хаотичной войны всех против всех. Но что демон (   Читать дальше...   )Жанр: фэнтези, приключенияИздательство: ИДДКПродолжительность: 08:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DE9B401E77FCCFFCBD9C0FF0BEF5E6CF8FD4A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811985   (7986) от 13.08.2025
+
+Валерий Гуров | Древний Рим: Легионер. Дорога в Помпеи (Книга 1) (2025) [MP3, Дмитрий Поляков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний Рим. Отгремели Гражданские войны. Диктатор Сулла издает эдикт о проскрипциях с фамилиями врагов Республики. В Риме начинается резня. Под корень вырезают сторонников Мария и всех сочувствующих.
+В теле знатного патриция, внесенного в «списки смерти», оказывается наш современник.
+
+Битвы и сражения, интриги и заговоры, смерть врагам Республики!(   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: ЛитРесПродолжительность: 07:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A92C2B13A59FB035D799FFD4A17943ED8ABD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811994   (7984) от 13.08.2025
+
+Валерий Гуров | 1917 год. Последний министр. (Книга 2) (2025) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений нашего современника в теле самого скандального министра Российской Империи - Александра Протопопова в разгар событий 1917 года. На его пути псевдопатриоты, буржуи, радикалы и ворох неразрешенных проблем.
+Но Империя должна выстоять.
+За Веру, Царя и Отечество!Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 06:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA02071D84F4979343BC78B3D13046CE327D96D
 ```
 
 https://mybot314.ru/tekegram_catalog/

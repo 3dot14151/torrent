@@ -6,7 +6,7 @@ Internet Download Manager 6.25 Build 24 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604844.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 7.40 Portable by Kopejkin [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604843.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VSO ConvertXtoDVD 6.0.0.54 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604841.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ad-Aware Free Antivirus+ 11.7.485.8398 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604793.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.07.5261 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604784.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604773.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Slimjet 11.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604769.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Avira Antivirus Free 15.0.18.354 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604767.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ WinZip Pro 19.5 Build 11532 Final RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604715.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe SpeedGrade CC 2015.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604708.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Technical Communication Suite 2015 Release [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604704.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ PTC Creo Schematics 3.0 M010 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604699.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Reg Organizer 7.40 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604678.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cakewalk SONAR Platinum 22.7.0 Build 41 (2016.07) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604677.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Unity Pro 2018.3.13f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604649.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The KMPlayer 4.2.2.24 repack by cuta (build 4) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604646.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BELOFF [dp] 2019.4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604639.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Android Studio 3.4  Build #AI-183.5452501 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604627.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Avidemux 2.6.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604617.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AMD Radeon Software Crimson Edition 16.7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604577.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Surf Anonymous Free 2.5.4.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604572.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Advanced SystemCare Pro 9.4.0.1130 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604562.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604541.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Psiphon 3 bild 143 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604529.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Microsoft Windows 7 SP1 Build 7601.24411 with Update April 2019 by adguard [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604520.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Advanced SystemCare Pro 9.4.0.1130 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604466.jpg" />
 </div>
 
 

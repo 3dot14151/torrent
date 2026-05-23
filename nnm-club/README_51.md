@@ -1,107 +1,3 @@
-###  Публикация: 1870832   (1068859) от 
-
-Skillbox, Виталий Флоренцев, Александр Исупов | Программист микроконтролле­ров (2026) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Освойте востребованную профессию программиста микроконтроллеров и научитесь создавать электронные устройства, умные системы и IoT‑решения. Курс сочетает программирование на языке C, практическую электронику и проектирование печатных плат — всё, что нужно для старта карьеры в embedded‑разработке.Производство: SkillboxЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 48:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A01FA0BDACB639B702C9C0009D04D8919BD5C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870835   (1068858) от 
-
-Slurm (Слёрм), Марсель Ибраев, Артём Прима | Kubernetes: продвинутый уровень (2026) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Программа охватывает полный цикл работы с Kubernetes 1.30 и Kubespray 1.29.5, включая архитектуру, сетевые механизмы, масштабирование и устранение сложных инцидентов. Обучение построено вокруг практики и регулярно обновляется, чтобы соответствовать требованиям production‑среды 2025 года.Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 20:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A8D5D1386D45FFFAB37C5D4EF87C6FDAA00BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870837   (1068857) от 
-
-balun.courses, Александр Пряхин | Начинающий TeamLead (2026) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Этот курс для начинающих тимлидов помогает быстро и безопасно войти в роль руководителя команды, понять свои обязанности и освоить ключевые практики управления без стресса и выгорания. Материал основан на подходах BigTech и ориентирован на реальные задачи, с которыми сталкивается лидер каждый день.Производство: balun.coursesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BC7F9BE66D082B92ADA0E25F4FACFE730C17BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870377   (1068856) от 
-
-Кадкина всякий знает (1976) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После войны возвращается домой Кузьма Кадкин - живой, здоровый, но не один, а с ребенком. Растерянно объявляет он, что на последнем перегоне отстала от поезда мать младенца. Никто не верит Кадкину - ни односельчане, ни собственные дети. Но меньше всех, конечно, жена...Производство: СССР / ЛенфильмЖанр: мелодрамаРежиссер: Анатолий Вехотко, Наталья ТрощенкоАктеры: Георгий Бурков, Людмила Зайцева, Елена Фетисенко, Майя Булгакова, Борис Новиков, Степан Крылов, Варвара Каргашева, Юрий Дубровин, Иван Шарин, Вера Липсток и др.Субтитры: русские (отдельным файлом)Продолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658D4B6C65A9BD54C60F3B4BFC774E614EC67C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870822   (1068855) от 
 
 Стальной гигант / The Iron Giant (1999) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Handmade Upscale AI]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068855.jpg" />
 </div>
 
 
@@ -138,7 +34,7 @@ Windows 11 SE 24H2 (build 26100.8328) DiskExpansion by Alexandr1235 [04.2026] [R
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068854.jpg" />
 </div>
 
 
@@ -165,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068853.jpg" />
 </div>
 
 
@@ -191,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068851.jpg" />
 </div>
 
 
@@ -217,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068850.jpg" />
 </div>
 
 
@@ -243,7 +139,7 @@ VA - DOWN LOW 10 (2026) [MP3|320 Kbps] <Bass House, Dark Techno, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068849.jpg" />
 </div>
 
 
@@ -272,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068848.jpg" />
 </div>
 
 
@@ -298,7 +194,7 @@ Deep Purple - Arrogant Boy (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068847.jpg" />
 </div>
 
 
@@ -324,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068846.jpg" />
 </div>
 
 
@@ -350,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068845.jpg" />
 </div>
 
 
@@ -376,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068844.jpg" />
 </div>
 
 
@@ -402,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068843.jpg" />
 </div>
 
 
@@ -430,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068842.jpg" />
 </div>
 
 
@@ -456,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068841.jpg" />
 </div>
 
 
@@ -482,7 +378,7 @@ Quick 'n Easy Web Builder 13.0.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068840.jpg" />
 </div>
 
 
@@ -508,7 +404,7 @@ Dark Dominion (2026) [Ru/Multi] (Build 23191896) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068839.jpg" />
 </div>
 
 
@@ -534,7 +430,7 @@ FiberShop Studio Perpetual 3.1.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068838.jpg" />
 </div>
 
 
@@ -563,7 +459,7 @@ RWT, Михаил Павленко, Владимир Бабошкин, Миха�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068837.jpg" />
 </div>
 
 
@@ -589,7 +485,7 @@ Chromium 148.0.7778.168 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068836.jpg" />
 </div>
 
 
@@ -615,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068835.jpg" />
 </div>
 
 
@@ -641,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068834.jpg" />
 </div>
 
 
@@ -667,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068833.jpg" />
 </div>
 
 
@@ -678,6 +574,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5794B5B7D2151D4432A42F1793F3F08F44C59C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870732   (1068832) от 
+
+Каратель: Последнее убийство / The Punisher: One Last Kill (2026) WEB-DL [H.265/2160p] [4K, HDR10, DV 8.1, 10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Касл пытается оставить путь мести в прошлом и начать новую жизнь. Однако старые демоны и непредсказуемые обстоятельства затягивают его обратно в пучину насилия. Преследуемый галлюцинациями, он сталкивается с необходимостью вернуться к борьбе с преступностью. В этом ему пытается помочь близкий друг — Кёртис Хойл, бывший сотрудник спецподразделения разведки ВМС (   Читать дальше...   )Производство: США / Marvel Studios Inc., Marvel TelevisionЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Рейнальдо Маркус ГринАктеры: Джон Бернтал, Джудит Лайт, Дебора Энн Уолл, Джейсон Р. Мур, Келли Баррет, Андре Ройо, Джон Дуглас Томпсон, Colton Hill, Nick Koumalatsos, Addie BernthalПеревод: Дублированный (WinMedia), Многоголосый (HDrezka Studio, Coldfilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA30A3930D64B9B564ADFCAE6A41CC8CEBB54DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870706   (1068831) от 
+
+Каратель: Последнее убийство / The Punisher: One Last Kill (2026) WEB-DL [H.265/2160p] [4K, DV 5, 10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Касл пытается оставить путь мести в прошлом и начать новую жизнь. Однако старые демоны и непредсказуемые обстоятельства затягивают его обратно в пучину насилия. Преследуемый галлюцинациями, он сталкивается с необходимостью вернуться к борьбе с преступностью. В этом ему пытается помочь близкий друг — Кёртис Хойл, бывший сотрудник спецподразделения разведки ВМС (   Читать дальше...   )Производство: США / Marvel Studios Inc., Marvel TelevisionЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Рейнальдо Маркус ГринАктеры: Джон Бернтал, Джудит Лайт, Дебора Энн Уолл, Джейсон Р. Мур, Келли Баррет, Андре Ройо, Джон Дуглас Томпсон, Colton Hill, Nick Koumalatsos, Addie BernthalПеревод: Дублированный (WinMedia), Многоголосый (HDrezka Studio, Coldfilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7964AC6A1883609C9353FAE3CB4932EDFE67DF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870878   (1068830) от 
+
+Заклятый враг / Nemesis (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Movie Dubbing
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неутомимый полицейский из Лос-Анджелеса одержим идеей поймать опытного вора, стоящего за серией дерзких ограблений. И победитель в этой схватке будет лишь один.Производство: США / End of Episode, MVP Entertainment, Warm Blood SundayЖанр: боевик, драма, криминалРежиссер: Марио Ван Пиблз, Милисент Шелтон, Роб Харди, Рубен ГарсиаАктеры: Мэттью Лоу, И'лан Ноэль, Габриэль Деннис, Клеопатра Коулмэн, Софина Браун, Ариана Герра, Доменик Ломбардоцци, Седрик Джо, Джонни Пак, Майкл ПоттсПеревод: Дублированный (Movie Dubbing, укр. Так Треба Продакшн)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, 2xFull), английские (Forced, Full, SDH), украинские (Forced, 2xFull)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B6938EE938FD7C43A582214B1D4F3BAD9E4CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870886   (1068829) от 
+
+Brave Browser 1.90.122 Portable by Cento8 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC56DDF99F7B66B252E3CA18C4E8511C86C98D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

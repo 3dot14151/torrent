@@ -6,7 +6,7 @@ Telegram Desktop 1.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555914.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555906.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ InPixio Photo Maximizer 5.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555882.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics BoostSpeed 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555865.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ XaKeR_CD_2019 v.13.3 (19.04.2019)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555855.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ BusyCal 3 v3.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555833.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555830.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Find Any File (FAF) 1.9.4b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555827.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ iTrash 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555826.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Persecond 1.4.5 (119) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555824.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555821.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Allavsoft Video Downloader Converter 3.17.5.7090 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555817.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Master PDF Editor 5.4.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555809.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Mozilla Firefox Quantum 67.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555797.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Cinemagraph Pro 2.8.2 (221) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555792.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Adguard Premium 2.0.4 (552) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555791.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Native Instruments Reaktor 6 v6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555790.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Alfred 4 Powerpack v4.0.1 (1078) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555787.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Format Factory 4.7.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555780.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Imperator: Rome (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555772.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Jump Force (2019) [Ru/Multi] (1.07) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555714.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555708.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PDF Expert 2.4.24 (617) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555707.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ B(if)tek - Sub-Vocal Theme Park (Acid Unravelled) (1996) [MP3|320 Kbps] <Trance,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555689.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Fine Art Rascal - BM9 (2019) [FLAC|Lossless|Web-DL|tracks] <Underground Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555684.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Wise Disk Cleaner 10.2.1.772 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555680.jpg" />
 </div>
 
 

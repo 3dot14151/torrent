@@ -6,7 +6,7 @@ VSO Blu-ray Converter Ultimate 3.6.0.47 RePack & Portable by FoXtrot [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974354.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Intel Network Connections Software 20.6 WHQL [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974350.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VSO DVD Converter Ultimate 3.6.0.47 RePack & Portable by FoXtrot [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974345.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ QuiteRSS 0.19.3 +Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974330.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ K-Lite Codec Pack Update 15.3.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974296.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ iMazing 1.4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974289.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IObit Uninstaller Pro 9.2.0.20 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974286.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ IObit Uninstaller Pro 9.2.0.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974284.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.3 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974267.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Visual Studio 2019 Community 16.4.3 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974262.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ IObit Malware Fighter PRO 7.5.0.5834 (акция comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974199.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Subtitle Workshop 6.0b Build 131121 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974191.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ K-Lite Codec Pack 11.8.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974189.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ W10Privacy 3.4.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974109.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Native Instruments - Raum 1.0.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974106.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Textify 1.8.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974102.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Acrobat XI (v11.0.14) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974097.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Adobe Acrobat Professional DC (v15.10) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974091.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Microsoft Visual Studio 2019 Professional 16.4.3 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974016.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Paint.NET 4.2.9 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974014.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Air Explorer Pro 2.8.1 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974001.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ GeoGebra 4.9.103 RC [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973971.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Duplicate Cleaner Pro 4.1.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973924.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ SereneScreen Marine Aquarium 3.3.6369 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973913.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Air Explorer Pro 2.8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973912.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Avira Phantom VPN Pro 2.31.3.21251 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973894.jpg" />
 </div>
 
 

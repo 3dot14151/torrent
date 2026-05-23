@@ -1,55 +1,3 @@
-###  Публикация: 1453374   (1026908) от 11.03.2021
-
-Луноскоп v12.0 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая, интерактивная 3D-имитация Луны вплоть до теней на кратерах и земного сияния на темной стороне. Управление с сенсорного экрана изменяет дату и время так, как они видны из места вашего расположения - фаза отслеживает каждое ваше перемещение. Двумя пальцами можно вращать саму Луну (см. дальнюю сторону) и увеличивать масштаб, чтобы вблизи рассмотреть все (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 18.02.2021Разработчик: Udell Enterprises, IncПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5610B316030183241693597CC41E13D50E3C8C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453867   (1026706) от 12.03.2021
-
-Starman v1.1 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Starman – занимательная головоломка на андроид, где вы будете путешествовать по архитектурным пейзажам с неповторимой атмосферой. В этой игре вы будете помогать главному герою Звездному человеку пройти через все испытания и восстановить освещение.Тип издания: PaidРелиз состоялся: 9 марта 2021 г.Разработчик: nada studioПоддерживаемая ОС: Android 7.0 и вышеЖанр: ГоловоломкаЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37628DC3110BB056870D28BC2FAF96617FC20EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453818   (1026691) от 12.03.2021
 
 Scythe: Digital Edition v1.9.40 [Ru/En]
@@ -58,7 +6,7 @@ Scythe: Digital Edition v1.9.40 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026691.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026565.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ Easy Text Scanner - Распознавание текста (OCR) v1.1.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026563.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ ToonApp v1.0.29 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026538.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ First Strike: Classic v3.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026530.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ AVG Cleaner v5.5.0 Pro [Ru/Multi] - Ускорение телефона, Очи�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026495.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Avast Cleanup v5.5.0 Premium [Ru] - очистка, ускорение и опт
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026476.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Into The Badlands Champions v1.5.123 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026349.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ Legend of Solgard v2.17.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026336.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ Vanced YouTube Music v4.18.50 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026302.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Perfect Player IPTV v1.5.9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025887.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ WiFi Analyzer Pro v3.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025721.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Piano Ear Training Pro ver.Improved UI (118) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025612.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025537.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ Map Marker v2.19.1 [Ru/Multi] - создание собственных мето
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025444.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ First Coloring book \ Первая книжка-раскраска v3.0.2 [Ru/Mu
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025398.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ Radardroid Pro v3.73 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025204.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ Cinema HD TV v2.3.6.1 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025156.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ BackCountry Navigator TOPO GPS v7.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025150.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ VOA Learning English v4.9.1 [En] - Practice listening everyday
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025065.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024982.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ Rock Identifier v1.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024903.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ Picture Bird v2.1 [Ru/Multi] - Bird Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024893.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024871.jpg" />
 </div>
 
 
@@ -680,6 +628,60 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72BF177C5CD127BEC8E37892A65004E3747912AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377379   (1024835) от 23.03.2021
+
+Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслабления (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя мир ASMR – новый способ расслабления и повышения качества сна. Помогает лучше, чем медиация. Намного эффективнее, чем белый шум. Самый популярный тренд в сфере релаксации и расслабления. Приложение Tingles – лучший способ ощутить на себе все преимущества ASMR. Лучшие ASMR-исполнители. Без рекламы. Работает с выключенным экраном, и поддерживает множество (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 01.02.2021Разработчик: Tingles, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876F09A40B61EB535A724C85D23AEE5874E4F99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457251   (1024550) от 25.03.2021
+
+Car Radio v1.1.3 [En] - for Android Stereo Head Units
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-радио, разработанное специально для автомобильных головных устройств Android для имитации FM-радио.
+Приложение предназначено для использования с головными стереосистемами 2 Din, такими как автомобильные аудиоустройства Joying или MTCD PX5.
+.Тип издания: Пиратка (Premium)Релиз состоялся: 21 февраля 2021 г.Разработчик: 3D Magic LLC.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FAFE7901F3700F09413C389003D89281FA593F
 ```
 
 https://mybot314.ru/tekegram_catalog/

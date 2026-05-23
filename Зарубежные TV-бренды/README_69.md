@@ -1,29 +1,3 @@
-###  Публикация: 916708   (560717) от 02.08.2015
-
-Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTVRip [Серии 1-8] [Обновляемая]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой программы «Что у вас в гараже?» Дейл Уокслер снова приглашает зрителей в увлекательное путешествие по Америке в поисках классических мотоциклов и автомобилей. Дейл, коллекционер со стажем и эксперт во всем, что связано с техникой, посещает гаражи по всей стране в надежде обнаружить среди груд хлама редкие модели четырех- и двухколесного транспорта, (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D90EFB1F19ABDA40C5A2237CFFAAAC757CEA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916911   (560707) от 02.08.2015
 
 Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTV [H.264/720p] [Серии 1-8] [Обновляемая]
@@ -32,7 +6,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560707.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560663.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Мир природы. Из жизни крабов / The Natural World. Cl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560253.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_560230.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ NGW: Дикие охотники. Рыбы / Wild Hunters. Fish (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559646.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Animal Planet: В дикие края с Эваном. Лечение носор
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559514.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Animal Planet: Спасти орангутана / Red Ape. Saving the Orangutan
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559513.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559432.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559416.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559319.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558988.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Discovery: Правда о Бермудском треугольнике / Bermu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558652.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ BBC: Как устроена природа / BBC. How Nature Works (2012) BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558517.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ NG. Ограбление по-египетски / The Egyptian Job (2011) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558516.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ BBC: Чудеса животного мира / Wonder of Animals (2014) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558499.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558373.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTVRip (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557739.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ BBC. Длинные тени Первой мировой войны / The Long S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557471.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Discovery. Катастрофа на колесах / Wheels That Fail (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557377.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ BBC. Может ли питание насекомыми спасти мир? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557283.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557062.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557006.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556952.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ BBC: Атом / BBC: Atom (2007) HDTVRip (Сезон 1, эпизод 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556546.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556403.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E38F900FDAB207F341C364D9E6689864021E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305445   (556399) от 31.05.2019
+
+NG: Человечество из космоса / Mankind from Space (2015) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что человечество из космоса. Мы сейчас живем в поразительно сложном, взаимосвязанном мире. Он сформирован уникальными новшествами, введенными за тысячи лет. Изобретения помогли нам образовать запутанные паутины сетей, подарив успешную жизнь. Сейчас уже можно проследить незримые связи, соединяющие нас. Это история того, как наша изобретательность создала (   Читать дальше...   )Производство: Канада, Великобритания, Handel Productions Inc., Darlow Smithson Productions Ltd., PBSЖанр: Документальный, история, социология, наукаРежиссер: Дункан КоппПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B35344124DE71A2DBD692117FCA66A7396A550E
 ```
 
 https://mybot314.ru/tekegram_catalog/

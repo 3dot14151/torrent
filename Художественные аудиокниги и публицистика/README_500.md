@@ -1,84 +1,3 @@
-###  Публикация: 1053454   (524431) от 18.09.2016
-
-Кристоф Хайн | Вилленброк (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бернд Вилленброк, успешный продавец машин, привык наблюдать чужие драмы со стороны. Но однажды его удобная жизнь - с прибыльным бизнесом, домиком в деревне, терпеливой женой и двумя любовницами - дает трещину. Кто-то похитил у него машины, в дом ворвались грабители, они с женой чуть не погибли, полиция отнеслась к нему пренебрежительно, его бросила любовница, жена (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C749A2BD17282D933269569218F99BC34F2F0CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559524   (524419) от 25.06.2022
-
-Джиллиан Макаллистер | Всё, кроме правды (2021) [MP3, Ирина Воробьева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Все началось с письма.
-Рейчел не собиралась читать почту Джека.
-Они любят друг друга, и у них будет ребенок.
-Но Рейчел не может забыть увиденного и теперь должна узнать правду любой ценой.(   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПродолжительность: 09:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11CD9451974D054CD4A95C30C0C3A17721BB006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559538   (524415) от 25.06.2022
-
-Салли Хэпворс | Моя любимая свекровь (2021) [MP3, Ирина Воробьева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это было незаметно, но Люси чувствовала, что не пришлась ко двору, и изо всех сил пыталась завоевать расположение свекрови, мечтая обрести в ее лице давно умершую мать и доброго друга. И каждый раз натыкалась на холодную стену равнодушия. Так было десять лет назад. Теперь же Диана найдена мертвой в собственном доме. Предсмертная записка гласит, что она устала бороться (   Читать дальше...   )Жанр: Зарубежные детективыПродолжительность: 08:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894C7153D903E730D999D0B274413EBCDD78FD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559551   (524413) от 25.06.2022
 
 Антон Чехов | Зеленая коса (2022) [MP3, Джахангир Абдуллаев]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524413.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524411.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524376.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524362.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524349.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524346.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524314.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524268.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524243.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524203.jpg" />
 </div>
 
 
@@ -351,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524186.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524018.jpg" />
 </div>
 
 
@@ -403,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523928.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523847.jpg" />
 </div>
 
 
@@ -455,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523814.jpg" />
 </div>
 
 
@@ -481,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523753.jpg" />
 </div>
 
 
@@ -507,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523709.jpg" />
 </div>
 
 
@@ -533,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523699.jpg" />
 </div>
 
 
@@ -559,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523689.jpg" />
 </div>
 
 
@@ -585,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523656.jpg" />
 </div>
 
 
@@ -611,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523638.jpg" />
 </div>
 
 
@@ -637,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523604.jpg" />
 </div>
 
 
@@ -663,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523593.jpg" />
 </div>
 
 
@@ -674,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF366B65E662FA1504395DE117D58DA7BE319A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313526   (523567) от 09.07.2019
+
+Евгений Щепетнов | Справедливости – Всем (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший участковый Каргин становится оперуполномоченным. Под руководством некоего загадочного супермена Сазонова он набирает команду своих ровесников, с которыми в изнурительных тренировках оттачивает мастерство в боевых искусствах. Каргин ненавидит бандитов всех мастей и, чтобы раскрыть типичные преступления, зачастую идет на превышение власти. Согласно собственным (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 10:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B422E8165D35DD047157585470E1A71669C78555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313434   (523564) от 09.07.2019
+
+Владимир Поселягин | Школа (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Граф Арни Ки Сон в чужом незнакомом мире, где идёт 1941 год, начало той самой войны. Западные области и молодой маг на пути нацистских войск. Как он поступит, что сделает, как поведёт себя? Пока это неопределённо, но одно становится ясно: перед захватчиками не разбитые советские части, а всего лишь юнец с чарующей улыбкой и взглядом убийцы, и ещё неизвестно, кто (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 09:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DAD12659101CDAC9DBD0CD8F8952E15F5750A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559736   (523544) от 26.06.2022
+
+Александр Дюма | Женщина с бархоткой на шее (2017) [MP3, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Женщина с бархоткой на шее», также известная под названием «Мёртвая голова» была написана в 1849 году и вошла в состав сборника «Тысяча и один призрак» – литературный сборник, включающий пять мистико-приключенческих повестей и новелл Александра Дюма. Эти произведения впервые публиковались в парижской газете «Конституционалист». Сборник отражает интерес автора (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 06:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78207AB25BDCABBB54C0635F8CCB9E6A1CD4C27
 ```
 
 https://mybot314.ru/tekegram_catalog/

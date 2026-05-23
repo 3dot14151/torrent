@@ -6,7 +6,7 @@ BBEdit 13 v13.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733885.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VideoDuke 1.12 (build 286) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733884.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tagr 5 v5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733881.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ PrivaZer 4.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733872.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rhinoceros 6 v6.28.20199 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733871.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Beach Bar Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733869.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Say Hi - 7 альбомов (2002-2011) [FLAC|Lossless|tracks + .cue]<Indie Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733866.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ AusLogics Disk Defrag Pro 9.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733855.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ GeoGebra 6.0.596.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733854.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Topaz DeNoise AI 2.2.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733851.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ CudaText 1.108.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733850.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Auslogics File Recovery 9.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733849.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Everything 1.4.1.987 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733842.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ save2pc Ultimate 5.6.1.1606 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733839.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733819.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ UltraISO Premium Edition 9.7.5.3716 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733814.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Auslogics Disk Defrag Ultimate 4.11.0.7 Repack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733805.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Honeyview 5.34 Build 5543 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733803.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ UltraISO Premium Edition 9.7.5.3716 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733800.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Auslogics Duplicate File Finder 8.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733798.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Auslogics Disk Defrag Pro 9.5.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733797.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733776.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Kaspersky Lab Products Remover 1.0.1513 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733775.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ UltraISO Premium Edition 9.7.5.3716 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733774.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Topaz Video Enhance AI 1.4.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733766.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733746.jpg" />
 </div>
 
 

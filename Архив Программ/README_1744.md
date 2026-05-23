@@ -6,7 +6,7 @@ MEmu 9.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199237.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blender 3.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199235.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VMware Workstation Player 17.0.2 Build 21581411 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199210.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Adobe Photoshop 2023 24.4.1.449 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199206.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Windows 11 Manager 1.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199204.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ PC Cleaner Pro 9.2.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199200.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Hex Editor Neo Ultimate 7.31.00.8528 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199196.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Foobar2000 2.0 final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199189.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Extreme Picture Finder 3.64.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199182.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ CareUEyes 2.2.5.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199178.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kaspersky Small Office Security 21.13.5.506 (Web Installer)  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199171.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ CyberLink PowerDirector Ultimate 21.4.2812.0 (x64) RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199164.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ IObit Driver Booster Pro 10.4.0.128 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199154.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ IObit Driver Booster Pro 10.4.0.128 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199141.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ MKVToolNix 76.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199135.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ WhatsApp (outdated) 2.2318.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199130.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Universal USB Installer 2.0.1.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199101.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ BlueLifeHosts editor 1.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199096.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ PassMark RAMMon 2.3 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199086.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Ashampoo Music Studio 10.0.0.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199082.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ FotoSketcher 3.90 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199072.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Luminar Neo 1.9.0.11355 (Repack & Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199057.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Alt SwitchER 19.1 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199047.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Topaz Photo AI 1.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199045.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ MAGIX Vegas Pro 20.0 Build 402 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199043.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ JRiver Media Center 30.0.93 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199035.jpg" />
 </div>
 
 

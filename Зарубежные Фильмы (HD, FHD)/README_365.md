@@ -1,56 +1,3 @@
-###  Публикация: 1523375   (735778) от 30.01.2022
-
-Танкистка / Tank Girl (1995) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Будущее после экологической катастрофы. В результате вода стала источником жизни в прямом смысле слова, так как ее было очень мало и на всех не хватало. А заправляет всем корпорация «Вода-Энергия-Власть».
-Ренегаты воровали воду и воевали со злодеями. Среди ренегатов была и остроумная, красивая и отвязная девушка Ребекка, у которой на всё готов ответ. Её близких и (   Читать дальше...   )Производство: США / Image Comics, Trilogy Entertainment GroupЖанр: Фантастика, Боевик, КомедияРежиссер: Рейчел ТэлалейАктеры: Лори Петти, Айс-Ти, Наоми Уоттс, Дон Харви, Джефф Кобер, Рег Э. Кэти, Скотт Коффи, Малкольм МакДауэлл, Стэйси Линн Рэмсойер, Энн КьюсакПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийСубтитры: русские, английские (полные, для слабослышащих), немецкие, французские, испанские, итальянские, португальские (европейские, бразильские), болгарские, венгерские, голландские, датские, иврит, индонезийские, китайские, корейские, норвежские, польские, румынские, сербские, турецкие, урду, финские, хорватские, чешские, шведские, эстонскиеПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47E87218507245D75D02828A65FEF82A880A0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522919   (735773) от 30.01.2022
-
-Дэдпул 2 / Deadpool 2 (2018) BDRip [H.265/1080p] [10-bit] [Super Duper Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Единственный и неповторимый болтливый наёмник вернулся! Ещё более масштабный, ещё более разрушительный и даже ещё более голозадый чем прежде! Когда в его жизнь врывается суперсолдат с убийственной миссией, Дэдпул вынужден задуматься о дружбе, семье и о том, что на самом деле значит быть героем, попутно надирая 50 оттенков задниц. Потому что иногда, чтобы делать хорошие (   Читать дальше...   )Производство: США, Канада / 20th Century Fox Film Corporation, Donners' Company, Kinberg Genre, Marvel EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Дэвид ЛитчАктеры: Райан Рейнольдс, Джош Бролин, Морена Баккарин, Джулиан Деннисон, Зази Битц, ТиДжей Миллер, Лесли Аггамс, Каран Сони, Брианна Хилдебранд, Джек КесиПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (full, forced), английские (full, forced, SDH)Продолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A271029B3802067E5A92CCC42DACDD195213DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 416784   (735769) от 30.01.2022
 
 Битва за империю / The Malay Chronicles: Bloodlines (2011) [1080p] Blu-ray
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735769.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735766.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ CODA: Ребёнок глухих родителей / CODA (2021) BDRip [H.264/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735763.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735760.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735621.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735584.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735552.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735551.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735544.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735537.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735528.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735527.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735504.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735473.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735466.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735463.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735348.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735335.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735330.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735306.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735294.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735292.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735287.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735280.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4818B25C6A38F50890FEAF9B2ACBE6F3143174FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398717   (735165) от 27.07.2020
+
+Мой любимый марсианин / My Favorite Martian (1999) WEB-DLRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселые приключения начались в тот день, когда честолюбивый репортер Тим О`Хара наткнулся на марсианина, который только что совершил вынужденную посадку на землю. Поняв, что в его руки попал самый сенсационный материал за всю историю человечества, Тим замышляет разоблачить марсианина, принявшего человеческий облик под именем «дяди Мартина». Однако невероятные проделки (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: Фантастика, комедия, семейныйРежиссер: Дональд ПитриАктеры: Кристофер Ллойд, Джефф Дэниелс, Элизабет Хёрли, Даррел Ханна, Уолас Шоун, Кристина Эберзоль, Майкл Лернер, Рэй Уолстон, Шелли Мэлил, Джереми ХотцПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Русские, украинские, английские, финскиеПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCAD69647EDD7D04B258EF31F2A2793CFA7B0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394960   (735112) от 27.07.2020
+
+Ликвидаторы / Eliminators (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший агент ФБР должен выйти из программы защиты свидетелей, когда в его дом ошибочно вламываются. Это событие заканчивается несколькими трупами и освещается в новостях, и за ним посылают самого опасного наемника в Европе. На кону оказывается жизнь его дочери, теперь отец должен спасти ее, пока за ней не пришли те, кто начал охоту на него.Производство: Великобритания, США, Мексика / Tea Shop & Film Company, WWE StudiosЖанр: Боевик, триллерРежиссер: Джеймс НаннАктеры: Скотт Эдкинс, Стю Беннет, Даниэль Кальтаджироне, Джеймс Космо, Ти Глейсер, Оливия Мейс, Мем Ферда, Стивен Маркус, Ник Неверн, Lily Ann StubbsПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887A4B4D03437B0172CB562B58AD96483453D2B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Cities XL Platinum 2013 [En] (L) 2013 | COGENT
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963680.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953284.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953277.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sid Meier's Railroads! (2006) [Multi] (1.100) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953211.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Impire + 2 DLC [Ru] (Repack/1.0.1.2) 2012 | Fenixx
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953130.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kingdom: New Lands (2016) [Ru/Multi] (1.2.1) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950033.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Prison Architect (2015) [Ru/Multi] (1.0/dlc) SteamRip Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949252.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Tropico 5 (2014) [Ru/En] (1.10/dlc) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946485.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Tropico 5 (2014) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst [Complete Collection
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939440.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cities XL Platinum [En/Multi7] (L) 2013 | PROPHET
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937865.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Impire [Ru/En] (Repack/1.0.1.1) 2013 | R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936179.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wonderburg / Вандербур (2009) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922079.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hell Architect (2021) [Ru/Multi] (1.0.2) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919899.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Caesar (1993) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888799.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Caesar 2 (1995) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888746.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888638.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886305.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ As Far As The Eye (2020) [Ru/Multi] (1.0.5c2) License GOG [Supporter Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885659.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Fallout Shelter (2016) [Ru/Multi] (1.10) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884344.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Dice Legacy (2021) [Ru/Multi] (7195733) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883928.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Holy Potatoes! A Weapon Shop?! (2015) [En/Jp] (1.0.8.9828/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879379.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865937.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Age Of Gladiators (2016) [En] (1.006.2) Repack ALiAS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865525.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Weedcraft Inc (2019) [Ru/Multi] (1.3.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865085.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864293.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Punch Club (2016) [Ru/Multi] (1.31/dlc) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863675.jpg" />
 </div>
 
 

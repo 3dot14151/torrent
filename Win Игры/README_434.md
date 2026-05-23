@@ -1,29 +1,3 @@
-###  Публикация: 1730958   (52900) от 18.06.2024
-
-Myth Or Reality 3: Snowbound Secrets / Мифы или реальность 3: Заснеженные тайны (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сказочной, полной тайн приключений серии игр Myth or Reality. Вы исследователь мифов, разрушитель предрассудков и страж порядка. Ни призрак, ни чудовище не смогут спрятаться от вас. В городе Блу-Рош что-то происходит: странные следы, свидетельства очевидцев о монстрах и т.д. Вам нужно разобраться в этом. Среди холода, снега и льда кто-то затаился… Это (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C824CB3330CB20905670BEBB5EE2C507E5C95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731105   (52870) от 19.06.2024
 
 HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
@@ -32,7 +6,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52870.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52836.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ DNF Duel (2022) [Multi] (1.81/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52822.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Night is Grey (2024) [En] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52819.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ A Castle Full of Cats (2022) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52765.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52760.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52755.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52748.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (3.00.01/dlc) Scene FairLigh
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52745.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Tricky Doors / Хитрые двери (2024) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52726.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ House Builder (2021) [Ru/Multi] (20240619/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52653.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52648.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Homebody (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52608.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Alisa (2021) [Multi] (1.18) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52597.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52591.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ A Tower Full of Cats (2024) [Ru/Multi] (1.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52589.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52584.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52555.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Arena Renovation (2023) [Ru/Multi] (1.0.164) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52526.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Nucleares (2023) [En] (0.2.16.137) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52523.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52522.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.9.1@143028/dlc) Scene FAiRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52512.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Scene FAiRLIGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52499.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Vanity Fair: The Pursuit / Игра славы и богатства (2024) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52496.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52495.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Baten Kaitos: Eternal Wings and the Lost Ocean и Baten Kaitos Origins тепе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7442F6B6477296502517E352F1B6825AEB1BFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731740   (52483) от 22.06.2024
+
+Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые в серии: огромные архипелаги! Управляйте несколькими островами сразу и отвечайте на новые вызовы. Отправляйте своих агентов за границу на охоту за чудесами света – пора расширить вашу коллекцию. Стройте мосты и тоннели, перевозите граждан и туристов на такси, автобусах и канатных дорогах.Тип издания: SceneРазработчик: Limbic EntertainmentЖанр: Strategy, SimulationЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9360AB6F970A9B13502E67F0C6C4911504D0E479
 ```
 
 https://mybot314.ru/tekegram_catalog/

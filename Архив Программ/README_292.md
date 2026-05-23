@@ -6,7 +6,7 @@ YouTube By Click Premium 2.2.125 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910542.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WhatsApp 0.4.1302 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910540.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 8.58.0.93 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910537.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics BoostSpeed Pro 11.4.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910529.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Freemake Video Converter 4.1.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910523.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Auslogics Duplicate File Finder 9.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910457.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Notepad++ 8.1.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910456.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Revo Uninstaller Free 2.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910454.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Light Image Resizer 6.0.8.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910452.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Krita 4.4.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910450.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Insofta Cover Commander 4.0.0 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910414.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Uninstall Tool 3.5.2 Build 5554 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910411.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ PrivaZer 3.0.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910408.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WinOrganizer 4.4 Build 1900 RePack by AlekseyPopovv [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910387.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AAF DCH Optimus Sound 6.0.9215.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910346.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ System Ninja 3.2.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910345.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Comfort Keys Pro 7.0.3.0 RePack by AlekseyPopovv [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910328.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Display Driver Uninstaller 17.0.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910301.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Icecream Ebook Reader Pro 5.20.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910243.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Uninstall Tool 3.5.2 Build 5554 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910164.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bandicam 4.5.7.1660 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910158.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Topaz Video Enhance AI 2.4.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910082.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Serif Affinity Photo 1.10.1.1142 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910074.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Serif Affinity Designer 1.10.1.1142 by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910027.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Rainlendar Pro 2.13.1 Build 147 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910024.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Adobe Photoshop 2020 v21.1.1.121 Repack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909961.jpg" />
 </div>
 
 

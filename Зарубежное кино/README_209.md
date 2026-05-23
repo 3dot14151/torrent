@@ -1,55 +1,3 @@
-###  Публикация: 1486081   (1004798) от 30.07.2021
-
-Пространство между / The Space Between (2021) WEB-DL [H.264/1080p-LQ] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Эксцентричный рок-музыкант Микки Адамс никак не может примириться с мыслью, что его звукозаписывающий лейбл больше не хочет с ним работать. Сотрудник компании Чарли Портер, надеясь на повышение, отправляется к Микки домой, чтобы убедить его расторгнуть контракт. Так начинается неожиданная дружба, которая изменит обоих мужчин.Производство: США / Night and Day Pictures, Real by Fake, Samuels Media, Seine Pictures, Tangerine PicturesЖанр: Драма, комедияРежиссер: Рэйчел ВинтерАктеры: Келси Грэммер, Джексон Уайт, Джулия Голден Теллес, Пэрис Джексон, Эндрю Дэйли, Уильям Фихтнер, Джимми Вальдес, Гэбриел Хеммет, Даллас Блейк, Дерек БергПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full), английские (full)Продолжительность: 01:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087ECC033CAA537E54EC00F3B0C9153AFFADE739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486413   (1004746) от 31.07.2021
-
-Хэллоуин: 20 лет спустя / Halloween H20: 20 Years Later (1998) BDRip [H.264/720p] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Спустя 20 лет Лори Строуд опять вынуждена бороться со своим прошлым! Эти годы она жила под вымышленным именем вместе с сыном Джоном. Но Майкл Майерс внезапно вернулся в ее жизнь с местью. С местью не только к Лори. Ужас начался для всего города! Когда группа студентов отправляется на праздник Хэллоуин, они оказываются в кровавой реке. И снова Лори должна спасти всех (   Читать дальше...   )Производство: США, Dimension Films, Nightfall Productions, Trancas International Films Inc.Жанр: Ужасы, триллерРежиссер: Стив МайнерАктеры: Джейми Ли Кёртис, Адам Аркин, Мишель Уильямс, Адам Хэнн-Берд, Джоди Лин О’Киф, Джанет Ли, Джош Хартнетт, ЭлЭл Кул Джей, Джозеф Гордон-Левитт, Брэндон УильямсПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238B00032D380E835A6A6CBBE62D8B69C7F64FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479423   (1004719) от 31.07.2021
 
 Асфальтовые джунгли / Asphaltgorillas (2018) BDRip [H.264/1080p] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004719.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004713.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004710.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004705.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004703.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004699.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004694.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004692.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004684.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004683.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004669.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004668.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004664.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004662.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004659.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004657.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004644.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004641.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004636.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004622.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004560.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004542.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004541.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004517.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BDB7F0314B69A17DE83CA49AAC8DC1FCB47BADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486824   (1004515) от 01.08.2021
+
+Новейший завет / The Brand New Testament / Le tout nouveau testament (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Да, Бог существует. Но он совсем не такой, каким мы его представляли. Он живет в Брюсселе, и у него есть не только сын, но и дочь. Она сбегает из дома и отправляется в наш мир искать приключения и испытывать терпение своего отца на прочность. Надолго ли его хватит?Производство: Бельгия, Франция, Люксембург / Belga Films Fund, Caviar Films, Juliette Films, La Wallonie, Le PacteЖанр: Фэнтези, комедияРежиссер: Жако ван ДормельАктеры: Бенуа Пульворд, Катрин Денёв, Франсуа Дамиенс, Иоланда Моро, Пили Груан, Лаура Верлинден, Серж Ларивьер, Дидье Де Нек, Марко Лоренцини, Ромен Желен, Анна Тента, Йохан Хелденберг, Давид МуржиаПеревод: Дублированный (iTunes)Субтитры: Английские, французскиеПродолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29024A5F30CC300D0E5836623B55A059440591CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486698   (1004513) от 01.08.2021
+
+Беги, прячься, бей / Run Hide Fight (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004513.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-летняя Зои живёт с отцом и никак не может смириться с недавней смертью матери, её даже не особо волнует предстоящий выпускной. Очередной день в школе внезапно оборачивается захватом заложников: вооружённые школьники-террористы удерживают одноклассников Зои и заставляют их вести онлайн-трансляцию происходящего. Тут-то девушке и пригодятся навыки охоты и выживания, (   Читать дальше...   )Производство: США / Bonfire Legend, Media Finance CapitalЖанр: Боевик, триллерРежиссер: Кайл РанкинАктеры: Изабель Мэй, Томас Джейн, Рада Митчелл, Эли Браун, Олли Шолотан, Трит Уильямс, Барбара Крэмптон, Сайрус Арнольд, Бриттон Сир, Кэтрин ДэвисПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (SDH), французские (Full)Продолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A1AC38145F12CAFE907CAE59ADA327235ABF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

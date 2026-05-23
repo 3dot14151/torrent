@@ -6,7 +6,7 @@ FIVE: Guardians of David (2015) [En] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313830.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dreamcast Collection (2011-2012) [Multi] License TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313014.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Marvel Super Heroes 3D: Grandmaster's Challenge [Wii] [PAL] [Multi 9] [2010]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312914.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ARAYA (2016) [En/Thai] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312908.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Torchlight II [Ru/En/Pl] [Steam-Rip/1.19.5.7] 2012 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_312454.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Road to Fame / Двойной фор$аж [Ru] (L) 2005
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311948.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Baldur's Gate: Enhanced Edition [En] (RePack/1.0) 2012 | Rick Deckard
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311775.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Minecraft [Ru/En/Multi56] (L/1.4.5) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311584.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ FTL: Faster Than Light [Ru] (RePack/1.0.2.8) 2012 l Dark@ssassin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311581.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.196) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309060.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repa
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309013.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Satellite Reign (2015) [Ru/Multi] (1.06) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309006.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ All Star Cheerleader 2 [Wii] [PAL] [En] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308909.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308622.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308322.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Multi6\-] (RePack)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308101.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Zero: Shinku no Chou (零 ~眞紅の蝶~) [Wii] [NTSC-J] [JPN] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307188.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Fantastic Fishing / Фантастическая рыбалка (2013) [Ru] (1.1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306841.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Black lightning / Черная молния [Ru] (RePack) 2010  | Ultra
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306010.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru] (RePack) 2010 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305912.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru] (RePack) 2010 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305794.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Farming Simulator 19 (2018) [Ru/Multi] (1.5.1.0/dlc) Repack xatab [Platinum Edit
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304568.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Torchlight II [Ru/En] (RePack/1.19.5.7) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304527.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304187.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.6.0-f4/dlc) License SKIDROW [Deluxe Editio
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303942.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Bastion (2011) [Ru/En] (build 0.12367) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303915.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Capo 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273628.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AirMail 3 v3.6.73 (557) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273626.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Slimjet 24.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273623.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ XYplorer Pro 20.50.0300 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273622.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ReviverSoft Driver Reviver 5.31.3.10 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273621.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Acme CAD Converter 2019 8.9.8.1501 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273620.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NASCAR-2019. 35-й Этап. Финикс, Аризона. Гонка / Monster 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273619.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ GiliSoft Video Editor 12.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273617.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Otto A. Totland - The Lost (2017) Sonic Pieces [FLAC|Lossless|WEB-DL|tracks] <Mo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273607.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Pheek - Intra (2017) Archipel [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273604.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273602.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ SiteSucker 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273565.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Comedy Woman (2016.12.16) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273558.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Adguard 1.4.0 (370) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273557.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Cher - Living Proof (2001) [FLAC|Lossless|image + .cue] <Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273556.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273552.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273550.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ DriverMax Free 9.13 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273549.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Dataland CD Label Designer 7.0.0.737 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273548.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Microsoft Visual Studio 2019 Professional 16.3.7 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273547.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Acme CAD Converter 2019 8.9.8.1501 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273544.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Adobe XD 24.1.22.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273541.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Multi Commander Full Edition 9.2 Build 2555 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273535.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ MKVToolNix 40.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273534.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Adobe Dreamweaver 2020 v20.0.0.15196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273532.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ GiliSoft Video Editor 12.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273530.jpg" />
 </div>
 
 

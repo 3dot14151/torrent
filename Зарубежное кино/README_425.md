@@ -1,56 +1,3 @@
-###  Публикация: 1105406   (876106) от 17.02.2017
-
-Как выйти замуж за 3 дня / Високосный год / Leap Year (2010) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В англоязычных странах есть традиция — 29 февраля женщина может сделать предложение мужчине, и он не имеет права отказаться. И вот чопорная дама едет в Дублин, чтобы именно в этот день попробовать сделать предложение своему бойфренду.
-Но погода меняет её планы, и чтобы осуществить задуманное, ей приходится прибегнуть к помощи ворчливого ирландца — хозяина гостиницы. (   Читать дальше...   )Производство: США, Ирландия / Universal Pictures, Spyglass EntertainmentЖанр: мелодрама, комедияРежиссер: Ананд ТакерАктеры: Эми Адамс, Мэттью Гуд, Адам Скотт, Джон Литгоу, Ноэль О`Донован, Тони Рор, Пэт Лаффан, Алан Девлин, Йен МакЭлхинни, Доминик МакЭллиготПеревод: Дублированный (Лицензия R5)Язык субтитров: Русский, АнглийскийПродолжительность: 01:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEE3985B7CDFF01B39C937F94D4B41EA2224A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105181   (876083) от 17.02.2017
-
-По соображениям совести / Hacksaw Ridge (2016) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Медик американской армии времён Второй Мировой войны Дезмонд Досс, служивший во время битвы за Окинаву, отказывается убивать людей и становится первым идейным уклонистом в американской истории, удостоенным Медали Почёта.Производство: Австралия, США, Cross Creek Pictures, Demarest Media, IM GlobalЖанр: Военный, Драма, ИсторияРежиссер: Мэл ГибсонАктеры: Эндрю Гарфилд, Ричард Пирос, Джейкоб Уорнер, Мило Гибсон, Дарси Брайс, Роман Геррьеро, Джеймс Лагтон, Касия Стелмах, Хьюго Уивинг, Рэйчел ГриффитсПеревод: Авторский (одноголосый, закадровый) (Д.Есарев)Язык субтитров: Русские, АнглийскиеПродолжительность: 02:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698B36C8380671AE3422708EF9E1E48BFD813210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765368   (876022) от 11.03.2014
 
 Мария Верн: Чёрная бабочка / Maria Wern: Svart fjaril (2011) DVDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876022.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875994.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875986.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875961.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875919.jpg" />
 </div>
 
 
@@ -193,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875911.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875876.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875875.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875866.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875820.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875775.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_875768.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875759.jpg" />
 </div>
 
 
@@ -403,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_875663.jpg" />
 </div>
 
 
@@ -429,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875617.jpg" />
 </div>
 
 
@@ -455,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875616.jpg" />
 </div>
 
 
@@ -481,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875613.jpg" />
 </div>
 
 
@@ -507,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875609.jpg" />
 </div>
 
 
@@ -533,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875605.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875596.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875588.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875534.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875483.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875481.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 
 Сколько стоит президент США?
 Ответ на этот непростой вопрос даст Вам Ник Джеймс, вынужденный участвовать в захвате заложника № 1. Попав в ловко расставленные сети преступников, Ник должен совершить ограбление банка, иначе, бандиты обещают убить его жену. После удачного ограбления, не желая отпускать Ника, они вновь шантажируют его, на этот раз, заставляя участвовать (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, криминал, приключенияРежиссер: Джозеф Мерхи/Joseph MerhiАктеры: Майкл Мэдсен, Рой Шайдер, Кит Дэвид, Энджи Эверхарт, Дэйтон Калли, Кэти Кристоферсон, Гарет Уильямс, Роберт Миано, Маттиас Хьюз, Майк Дженовезе, Джекобсен Харт, Джессика Кашман, Яна Роббинс, Сэл Ланди, Лэнс ЛеГолт и др.Перевод: Профессиональный (многоголосный, закадровый)Язык субтитров: ОтсутствуютФормат: DVD5Продолжительность: 01:31:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495743   (875441) от 15.09.2021
+
+Вуайеристы / The Voyeurs (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переехав в квартиру своей мечты, Пиппа и Томас замечают, что их окна выходят прямо на квартиру напротив, невольно приглашая их стать свидетелями изменчивых отношений привлекательной пары соседей. Но опрометчивая попытка анонимного вмешательства в чужую жизнь запускает цепь событий, неизбежно ведущих к катастрофе.Производство: США / Divide/Conquer, Amazon StudiosЖанр: триллерРежиссер: Майкл МоханАктеры: Сидни Свини, Наташа Лю Бордиццо, Бен Харди, Джастис Смит, Кэйтлин Александр, Кэтрин Кинг, Мадлен Харви, Дэниэл Гроган, Джиллиан Харрис, Jimmy CaspeurПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 01:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D1D25A91464C41E8D1BFBD0047970AAC5F372B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643196   (875359) от 13.04.2013
+
+Фантомы / Phantoms (1998) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некая страшная сила, веками дремлющая в недрах земли, однажды пробуждается от сна. Это зловещее Нечто, способное уничтожать целые цивилизации, выбирает себе первую жертву - маленький миролюбивый городок Сноуфилд в штате Колорадо. В одночасье сотни его жителей умирают ужасной смертью, а горстка оставшихся в живых людей, среди которых две девушки, местный шериф со (   Читать дальше...   )Производство: СШАЖанр: Ужасы, фантастика, триллер, драмаРежиссер: Джо Чаппелль/Joe ChappelleАктеры: Бен Аффлек, Питер О’Тул, Роуз МакГоун, Джоэнна Гоуинг, Лив Шрайбер, Никки Кэтт, Клифтон Пауэлл, Рик Отто, Валери Чоу, Адам Нельсон, Джон Хэммил, Джон Скотт Клоф, Майкл ДеЛоренцо, Уильям Хан, Роберт Химбер и др.Перевод: Профессиональный (многоголосный, закадровый)Язык субтитров: Русский, украинскийФормат: DVD5Продолжительность: 01:32:07
 
 ## Скачать торент
 ```bash

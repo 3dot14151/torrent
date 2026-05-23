@@ -6,7 +6,7 @@ Candlemass - Psalms For The Dead (2012) [FLAC|Lossless] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_683693.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ Tobias Sammet (Edguy & Avantasia) - 18 Albums, 3 Compilations, 3 Lives, 6 Single
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683512.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ Stream of Passion - Darker Days (2011) Japanese Edition [FLAC|Lossless]<Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_683456.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Voyager - Ghost Mile (2017) [FLAC|Lossless|tracks] <Melodic Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682898.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Ozzy Osbourne - Scream [Japanese Edition] (2010) [FLAC|Lossless]<Heavy Metal/Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682736.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Spirit Of The Forest - Kingdom Of Despair (2010) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682590.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Farseer - Crowned By The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682515.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Spirit Of The Forest - A Brew Of Lightning And Terror (2007) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682228.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Hollowheart - Hollowheart (2016) [FLAC|Lossless|WEB-DL|tracks] <Love, Gothic Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682156.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Darkwater - Human (2019) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682085.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Rammstein - Liebe Ist Fur Alle Da (2009) [FLAC|Lossless|image + .cue] <Rock, Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681853.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Eunomia - The Chronicles Of Eunomia, Part I (2018) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680520.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Burial - Relinquished Souls (1993) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680441.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ In Flames - I, The Mask (2019) Japanese Edition [FLAC|lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680218.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Delain - We Are The Others (2012) Special Edition [FLAC|Lossless]<Symphonic Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678940.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Nuclear Revenge - Dawn of the Primitive Age (2021) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678785.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Balrog - Gorgon (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678664.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Master - Vindictive Miscreant (2018) Reissue, 2021, Awakening Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678652.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Pallbearer - Heartless (2017) [FLAC|Lossless|tracks + .cue] <Doom Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678484.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Last In Line - II (2019) Japanese Edition [FLAC|lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678479.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rammstein - Paris (2017) Live [FLAC|Lossless|image + .cue] <Industrial>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678450.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Sabaton - The War to End All Wars (2022) 2CD, Limited Edition, Earbook [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678380.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Fear Factory - Demanufacture+Remanufacture (1995) Digipack, 25th Anniversary Rei
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678114.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Preludiо Аnсеstrаl - Оbliviоn (2018) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677423.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Masterstroke - Sleep (2007) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676792.jpg" />
 </div>
 
 
@@ -751,7 +751,7 @@ Starkill - Fires of Life (2013) Japan [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676791.jpg" />
 </div>
 
 

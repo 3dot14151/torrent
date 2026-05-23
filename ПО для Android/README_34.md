@@ -1,56 +1,3 @@
-###  Публикация: 1094099   (930433) от 17.01.2017
-
-P4P 7 Minute Workout PRO 1.3.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь думали о возможности тренировки всего вашего тела всего за 7 минут, сжигании максимума калорий и достижении желаемых результатов? Научное обоснование тренировки «7 минут» не только гласит, что это возможно, но и утверждает, что это один из лучших способов тренировок из когда-либо придуманных!
-«Больше» не всегда означает «лучше». Даже изобилие здоровой (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 10 января 2017 г.Разработчик: Passion4Profession AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30306A8B80E7ABDEC3A6885563F80370DD9BE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365426   (930272) от 07.03.2020
-
-TinyCam Monitor PRO v14.2.2 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-TinyCam Monitor PRO – это программа позволяющая вести видеонаблюдение с любых камер на любом андроид гаджете, а также управлять и записывать изображение с ip-камер, виды деятельности в которых может быть использована данная программа - безграничны. Вы можете удалённо смотреть за вашим ребёнком, домом, следить за офисом, бизнесом.Тип издания: PremiumРелиз состоялся: 6.03.2020Разработчик: Tiny Solutions LLCПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB35CA5A9ED02984DD0642F6E479D3E22D5F8994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329823   (929859) от 07.03.2020
 
 Xcast.tv v1.4.0.4 [Ru/Multi] - трансляция на телевизор
@@ -59,7 +6,7 @@ Xcast.tv v1.4.0.4 [Ru/Multi] - трансляция на телевизор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929859.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ Blend Photo Editor Pro 2.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928925.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ Pedometer - GPS Tracker v1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927103.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ VK mp3 mod v94/657 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927023.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ Dr.Web v12.5.1 + Activation Key [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926624.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ Files v1.0.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925754.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ Time Calculator Cardamon v1.0.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925722.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ NotifyBuddy - AMOLED Notification Light v1.50 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925523.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ Five Hundred English Words v0.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925513.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ Backup Apk - Extract Apk v1.2.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925417.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ Equalizer Music Player Pro v2.9.22 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925388.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ AiScan: All QR Code Scanner & Barcode Reader v1.0.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925384.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ File Manager Pro v1.40 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925330.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ Speed Test & WiFi Analyzer v9.0.27615 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925212.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924916.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924912.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923992.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ Lingua Book Reader 1.2.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923964.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ Randomizer+ Random Pick Generator - Decision Maker v4.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923903.jpg" />
 </div>
 
 
@@ -561,7 +508,7 @@ Fast Charge Pro v1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923867.jpg" />
 </div>
 
 
@@ -587,7 +534,7 @@ Fallout File Manager v1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923567.jpg" />
 </div>
 
 
@@ -613,7 +560,7 @@ WiFi Overview 360 Pro 3.40.01 - Универсальный инструмент 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923201.jpg" />
 </div>
 
 
@@ -641,7 +588,7 @@ Cuticon Drop - Icon Pack v1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922129.jpg" />
 </div>
 
 
@@ -667,7 +614,7 @@ Regex Finder v0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922115.jpg" />
 </div>
 
 
@@ -678,6 +625,60 @@ Regex Finder - Весьма занятное приложение которое
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D478598572DF3B05E8F86C848A6C6EB091BF6F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366614   (922026) от 12.03.2020
+
+MyScript Calculator II 2.1.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calculator 2 превратить ваше устройство в интерактивный лист бумаги. Просто записывайте вычисления и сразу получайте результаты. Используйте жесты редактирования и добавляйте новые элементы в любом месте. Используйте результаты предыдущих вычислений, перетаскивая их. Calculator 2 обрабатывает все ваши действия на лету.
+
+В основе Calculator 2 лежит технология MyScript (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13 февраля 2019 г.Разработчик: MyScriptПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04FB38FC6E24C0B6086D59D66253FDD2B5290F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366605   (922011) от 12.03.2020
+
+Magic DosBox v1.0.79 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922011.jpg" />
+</div>
+
+
+###  Подробнее
+
+DosBox - высоко оптимизированный и быстрый эмулятор MS-DOS для Android с уникальной системой управления для воспроизведения в любом месте вы находитесь без необходимости внешнего оборудования. Играть в любимые игры для DOS и Windows теперь стало намного проще. Если играть на сенсорном экране вам не удобно, то в DosBox имеется поддержка геймпадов, мыши, клавиатуры. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.09.2019Разработчик: bruenorПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE3C8E7E28464AD88D3726C427347070B15D5EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

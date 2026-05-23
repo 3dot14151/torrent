@@ -6,7 +6,7 @@ FinePrint 11.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238039.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FastFlix 5.5.2 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238029.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ StartAllBack 3.6.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238021.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Video AI 3.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238020.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RogueKiller Anti-Malware 15.9.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238016.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Draw.io 21.3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238006.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HiBit Startup Manager 2.5.15 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238003.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ foobar2000 1.5.5 DarkOne + DUIFoon Portable by MC Web (22.03.2022) (Облегч
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238001.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NetLimiter 5.2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238000.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ HiBit System Information 2.1.10 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237980.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Icecream Video Editor Pro 2.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237977.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ CyberLink PowerDirector Ultimate 21.4.2812.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237971.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ IObit Smart Defrag Pro 8.4.0.262 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237962.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MSI Kombustor 4.1.24.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237955.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Psiphon 3 build 178 (26.04.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237948.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Icecream PDF Editor Pro 2.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237941.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Aiseesoft Data Recovery 1.6.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237940.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Rename Expert 5.29.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237932.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Fort Firewall 3.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237928.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FileZilla 3.64.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237925.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ WinToHDD 6.0 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237917.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Perfectly Clear WorkBench 4.4.0.2503 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237898.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Opera Crypto Browser 99.0.4788.77 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237897.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ CPU-Z 2.06.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237876.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Text Edit Plus 12.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237872.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ PotPlayer 220901 (1.7.21795) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237861.jpg" />
 </div>
 
 

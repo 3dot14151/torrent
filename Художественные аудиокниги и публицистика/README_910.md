@@ -1,86 +1,3 @@
-###  Публикация: 364765   (121384) от 23.01.2024
-
-Генрих Бёлль | Глазами клоуна (Радиоспектакль) (2006) [MP3, Геннадий Бортников и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Золотой фонд радиоспектаклей. Зарубежная классика. XX век.
-«Глазами клоуна» – один из самых известных романов лауреата Нобелевской премии Генриха Белля. Главный герой романа – клоун Ганс Шнир – талантливый, тонко чувствующий человек, который очень остро ощущает несовершенство окружающей действительности. Его оставила любимая, и отвергли близкие, но он (   Читать дальше...   )Жанр: Зарубежная литература, классика, романВ ролях: Геннадий Бортников, Маргарита Терехова и др.Издательство: ИДДК, Бизнессофт, ГостелерадиофондПродолжительность: 02:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A954B323363309858687F4B7B1735E997C907C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364783   (121373) от 23.01.2024
-
-Генрих Бёлль | Приглашение на чай к доктору Борзигу. Час ожидания (2005) [MP3, Александр Быков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Зарубежная классика. XX век.
-Литературное наследие немецкого писателя, лауреата Нобелевской премии Генриха Белля (1917-1985) велико и разнообразно: это романы, рассказы, пьесы, стихи, памфлеты, переводы и критические статьи. Мало кто из писателей был так тесно связан с ходом истории так горячо откликался на происходящее в нашем тревожном, противоречивом мире. (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаВ ролях: Александр Быков, Алексей Михайлов, Андрей Данилюк, Анна Яновская и Лада МошароваИздательство: Парадигма C&T, AURAVOX, Радио РоссииПродолжительность: 02:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06BC6F62D02CF89772B0E9784FCD9941194DBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694146   (121371) от 23.01.2024
-
-Михаил Николаев | Вторжение на Землю (2024) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Что же сможет объединить трех крупнейших игроков на мировой арене? Вторжение внеземной цивилизации?
-Сможет ли человечество дать достойный отпор?
-
-2025 год. Наглый разбойничий набег, в ходе которого погибло около трёх миллионов землян и ещё четверть миллиона человек были увезены в неизвестном направлении. Война миров обязательно будет, но позже. Смогут ли Россия, (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 08:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9332CBFE57D82FC9E595564F18D209E64B0893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 364785   (121366) от 23.01.2024
 
 Генрих Бёлль | Под конвоем заботы (2015) [MP3, Валерия Лебедева]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121366.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121363.jpg" />
 </div>
 
 
@@ -142,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121344.jpg" />
 </div>
 
 
@@ -170,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121338.jpg" />
 </div>
 
 
@@ -196,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121331.jpg" />
 </div>
 
 
@@ -222,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121292.jpg" />
 </div>
 
 
@@ -248,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121270.jpg" />
 </div>
 
 
@@ -275,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121267.jpg" />
 </div>
 
 
@@ -302,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121223.jpg" />
 </div>
 
 
@@ -330,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121203.jpg" />
 </div>
 
 
@@ -358,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121195.jpg" />
 </div>
 
 
@@ -385,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121173.jpg" />
 </div>
 
 
@@ -413,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121172.jpg" />
 </div>
 
 
@@ -439,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121163.jpg" />
 </div>
 
 
@@ -465,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121151.jpg" />
 </div>
 
 
@@ -493,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121144.jpg" />
 </div>
 
 
@@ -520,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121142.jpg" />
 </div>
 
 
@@ -548,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121136.jpg" />
 </div>
 
 
@@ -577,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121131.jpg" />
 </div>
 
 
@@ -606,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121130.jpg" />
 </div>
 
 
@@ -634,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121129.jpg" />
 </div>
 
 
@@ -663,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121127.jpg" />
 </div>
 
 
@@ -691,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121111.jpg" />
 </div>
 
 
@@ -702,6 +619,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFACDCE07F17779CDCB505FA65C8C3F6E3DF38EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694252   (121110) от 24.01.2024
+
+Хелена Хейл | Сердце лета (2023) [MP3, Ксения Большакова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, которая напомнит вам о детстве на даче или в деревне, о лете и первой любви. «Сердце лета» — это история о любви, но она поднимает вопросы домашнего насилия, жизни в маленьких деревнях и проблемы самоопределения.Жанр: современные любовные романы, романтическая эротикаИздательство: CLEVERПродолжительность: 09:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C80CEF538BB5351867631DB823D42C0A899F31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694297   (121105) от 24.01.2024
+
+Александр Беляев | Голова профессора Доуэля (2019) [MP3, Александр Хорлин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможна ли жизнь человеческого разума вне тела? И, если да, то что ждёт этот разум под властью морально нечистоплотного человека? Ставя свои дерзкие эксперименты, профессор Доуэль и не предполагал, что однажды в роли подопытного животного окажется он сам, а его бывший ученик получит в полную собственность голову своего учителя, чтобы безнаказанно распоряжаться его (   Читать дальше...   )Жанр: научная фантастика, повестиИздательство: Литрес ПаблишингПродолжительность: 07:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FA0B4FBFCF84ABF84FC29D5C6AC8D479C1FA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694286   (121089) от 24.01.2024
+
+Викентий Вересаев | Рассказы (2006) [MP3, Вера Васильева, Виктор Татарский и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театральный фонограф.
+Викентий Викентьевич Вересаев (1867–1945) – прозаик, поэт-переводчик, критик, литературовед. Родился в городе Туле. В 1894 г. получил диплом врача и несколько лет практиковал в больницах Тулы и Петербурга. В 1904 г. участвовал в войне с Японией. Благодаря своему богатому жизненному опыту и хорошему знанию человеческой психологии, (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вокс Рекордс, 1С-Паблишинг, «Радио России»Продолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA83283371CE2AF296323916E26B0E07ABC58FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

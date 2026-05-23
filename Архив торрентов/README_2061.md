@@ -6,7 +6,7 @@ Slimjet 4.0.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590917.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows Repair (All In One) 3.2.4 Pro + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590908.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DU Meter 7.08 Build 4749 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590903.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Internet Download Manager 6.23 Build 14 + Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590901.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WonderFox HD Video Converter Factory Pro 9.1 Re-Pack by FoXtrot [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590894.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Russian Rider 1.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590892.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ UC Browser - быстрый Cерфинг v10.3.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590890.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ocenaudio 2.0.16 build 7900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590885.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ The KMPlayer 3.9.1.137 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590884.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Punto Switcher 4.0.1 Build 420 Beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590878.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AIDA64 v1.22 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590872.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ CopyQ 2.4.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590870.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AusLogics BoostSpeed 8.0.1.0 DC 07.07.2015 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590862.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NVIDIA GeForce Desktop 353.45 Hotfix driver + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590858.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Akunin Book от Бориса Акунина 4.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590855.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Wondershare MobileGo 7.7.1.36 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590846.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adobe Flash Player 18.0.0.203 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590844.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ uTorrent Pro 3.4.3 Build 40633 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590840.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ DAEMON Tools Ultra 3.1.0.0368 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590833.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ AV Uninstall Tools Pack 2015 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590824.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FL Studio Mobile  v2.0.2 [Eng]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590822.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Synapse Audio Dune 2.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590821.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adobe Illustrator CC 2015 19.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590808.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Audition CC 2015 8.0.0.192 Portable by JFK2005 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590806.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ ReVision Effects Twixtor Pro 6.2.1 CE RePack by Team VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590802.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ CyberLink AudioDirector Ultra 12.4.2906.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590665.jpg" />
 </div>
 
 

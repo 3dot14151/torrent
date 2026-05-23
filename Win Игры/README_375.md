@@ -1,29 +1,3 @@
-###  Публикация: 1088607   (137373) от 31.12.2016
-
-Grave Danger (2016) [En] (1.0.1) Repack Other s
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Разыскиваются Данте, Мэлис и Эллиот – они были объявлены преступниками, и теперь вам предстоит очистить их имена. Grave Danger является логическим платформером, где вы управляете тремя совершенно разными героями, каждый из которых наделен уникальными способностями. Только правильное совмещение их умений поможет найти решение всех задачек на уровнях. Данте может взбираться (   Читать дальше...   )Тип издания: RepackРазработчик: JB Gaming Inc.Жанр: Arcade (Platform)Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D957CB8A14548BA6A07B4C681476B95785113787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970807   (137360) от 31.12.2015
 
 Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. Механики [Episodes 1-4]
@@ -32,7 +6,7 @@ Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137360.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NecroVisioN + NecroVisioN: Lost Company (2009-2010) [Ru/En] (1.2/1.1) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137346.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.33.2.12s/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137342.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Cramped Room of Death (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137294.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Vaccine Rebirth (2023) [Multi] (1.3.4) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137278.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137259.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137256.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Duke of Alpha Centauri (2016) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137232.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137217.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137205.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137182.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137073.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137066.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137032.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (1.1.7f.48-1.3.3e.587,1.3.4
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137031.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137013.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dark Light (2020) [Multi] (1.0.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137012.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Legacy (2025) [Ru/Multi] (0.4971) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136987.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Resident Evil 3 (2020) [Ru/Multi] (11960962/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136928.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Baby Steps (2025) [Ru/Multi] (HotFix 2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136925.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Total War: THREE KINGDOMS (2019) [Ru/En] (1.7.1/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136921.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.2/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136895.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136875.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136874.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Project Hunt (2024) [Ru/Multi] (2025-9-25/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136867.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Project Hunt - приближенный к реализму симулятор �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825034   (136844) от 16.10.2025
+
+Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за глобального катаклизма портовая служба решает расконсервировать старый маяк, чтобы сохранить судоходство. Герой отправляется на остров, чтобы стать смотрителем маяка. От его решений зависит судьба кораблей и города. Дома его ждут жена и дочь. С каждой ночью служба на маяке становится всё хуже, моряки находят неизвестных науке существ, корабли возвращаются из (   Читать дальше...   )Тип издания: RepackРазработчик: solarsuit.gamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD25022680770E294211DFB5F22A91B1F337EF00
 ```
 
 https://mybot314.ru/tekegram_catalog/

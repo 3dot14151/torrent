@@ -1,113 +1,3 @@
-###  Публикация: 1025605   (709322) от 12.06.2016
-
-The Alan Parsons Symphonic Project - Live In Colombia (2016) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алан Парсонс - британский музыкант, звукорежиссёр, продюсер. Известен своей работой с группой Pink Floyd — альбом Dark Side of the Moon, который стал звёздным часом для группы, Полом Маккартни и другими музыкантами, а также собственным музыкальным проектом The Alan Parsons Project.Жанр: Progressive RockПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3958B42C2820A7B102994F6372D5B40C32787727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329772   (709212) от 29.04.2011
-
-VH1 All Classics Hits (2005) 10xDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286610   (708974) от 04.03.2019
-
-Квартирник НТВ у Маргулиса. Zdob si Zdub (02.03.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла популярная рок-группа Zdob si Zdub. В России группа известна благодаря кавер-версии песни «Видели ночь». Участники команды исполнили известные композиции и поделились со зрителями интересными воспоминаниями из жизни и творчества. Евгений Маргулис признался, что очень давно знаком с музыкальным коллективом из Молдавии и их солистом (   Читать дальше...   )00:05 — Хаитура
-07:55 — Zubii bateti tare
-14:25 — Миорица
-20:27 — Видели ночь(   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656FBE971CBBC994EF265FE86E5E736E51518805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286385   (708721) от 04.03.2019
-
-Сборник клипов - Multinational Dance Hits - Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Интернациональный сборник танцевальных клипов, во имя мира во всем мире. Лучшее 2014 - 2019 г. Много позитива, тропического солнца и теплого моря в зимнюю стужу. Это 1я часть. Обложка и блины для дисков в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Multinational Dance Hits - Intro
-01. Dan Balan & Tany Vander & Brasco - Lendo Calendo
-02. Andrew Rayel & Emma Hewitt - My Reflection
-03. Jorge Gonzalez - Tu Boquita(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 05:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAE013E8E5CE504BCC9B3E06EE6AAC4D3EC494C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130910   (708359) от 05.05.2017
 
 Олег Винник - Я не устану (2016) DVB
@@ -116,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708359.jpg" />
 </div>
 
 
@@ -145,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707774.jpg" />
 </div>
 
 
@@ -171,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706846.jpg" />
 </div>
 
 
@@ -197,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706317.jpg" />
 </div>
 
 
@@ -226,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705643.jpg" />
 </div>
 
 
@@ -255,7 +145,7 @@ VA - Millenium Melody 6 (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705582.jpg" />
 </div>
 
 
@@ -284,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705325.jpg" />
 </div>
 
 
@@ -314,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705259.jpg" />
 </div>
 
 
@@ -344,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705168.jpg" />
 </div>
 
 
@@ -374,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_704558.jpg" />
 </div>
 
 
@@ -400,7 +290,7 @@ Bryan Ferry - Live At Glastonbury Festival (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703824.jpg" />
 </div>
 
 
@@ -430,7 +320,7 @@ The Alan Parsons Symphonic Project - Live In Colombia '2013 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703689.jpg" />
 </div>
 
 
@@ -459,7 +349,7 @@ Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703392.jpg" />
 </div>
 
 
@@ -487,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703243.jpg" />
 </div>
 
 
@@ -516,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703123.jpg" />
 </div>
 
 
@@ -545,7 +435,7 @@ Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702674.jpg" />
 </div>
 
 
@@ -571,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702569.jpg" />
 </div>
 
 
@@ -597,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702539.jpg" />
 </div>
 
 
@@ -626,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702079.jpg" />
 </div>
 
 
@@ -652,7 +542,7 @@ A-HA прощальный концерт / A-Ha - Ending on a High Note - The Fi
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_701063.jpg" />
 </div>
 
 
@@ -678,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700702.jpg" />
 </div>
 
 
@@ -707,7 +597,7 @@ Nightwish - End Of An Era (2005) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_700610.jpg" />
 </div>
 
 
@@ -721,6 +611,114 @@ End of an Era — последний концертный альбом финс�
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401275   (699693) от 15.08.2020
+
+Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: MyGoodEyeЖанр: Black Metal, GrindcoreРежиссер: David BrodskyАктеры: Anaal NathrakhПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1141B903DA7A6AD07330B137CCE10293C73F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 331787   (699526) от 04.05.2011
+
+Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADD91DFA5D21456D273FD65BC6390C32065FEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534010   (699419) от 27.02.2022
+
+Квартирник у Маргулиса. Татьяна Зыкина (26.02.2022) WEBRip [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атмосферный камерный концерт рок-певицы, резидента крупнейших музыкальных фестивалей. Татьяна Зыкина стала известна в конце нулевых. С момента выхода первого альбома прошло больше 10 лет, но ее чувственный соул-рок по-прежнему невероятно подкупает публику и поклонников артистки. В феврале 2022 года вышел новый альбом певицы под названием «Седьмой альбом». Как отметила (   Читать дальше...   )0:00:00 Квартирник
+0:00:05 Химия
+0:06:28 Пока ты снишься
+0:12:36 Водопадами(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, Pop-Rock, Soul-RockЯзык озвучки: РусскийПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B84CF4B1D7EE524D3E04D4106601E2D70C94D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332050   (699290) от 04.05.2011
+
+Концерт Федерико Мондельчи - Волшебный саксофон (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699290.jpg" />
+</div>
+
+
+###  Подробнее
+
+29.04.2011 в эфире телеканала «Культура» прозвучали произведения Роберто Молинелли и Астора Пьяццоллы в исполнении Федерико Мондельчи, популярнейшего саксофониста из Италии, и Государственного камерного оркестра России под управлением дирижера Константина Орбеляна.
+Имя Федерико МОНДЕЛЬЧИ, самобытного музыканта из Италии, прочно ассоциируется у слушателя с музыкой (   Читать дальше...   )Жанр: Концерт, ClassicПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32413312DD5278305C836FDCBF23B0D88DED958E
 ```
 
 https://mybot314.ru/tekegram_catalog/

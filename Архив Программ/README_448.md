@@ -6,7 +6,7 @@ Aiseesoft Video Converter Ultimate 10.3.12 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810070.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OCCT 9.1.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Maxthon Cloud Browser 4.9.3.100 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810052.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Q-Dir 6.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810036.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dashcam Viewer 3.4.1 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809965.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Emurasoft EmEditor Professional 19.8.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809957.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ WinToUSB Technician 6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809917.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Ashampoo Snap 9.0.0 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809901.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Glarysoft Malware Hunter 1.8.0.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809894.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FigrCollage Professional Edition 2.5.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809848.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ EasyUEFI Technician 4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809747.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Eraser 6.2.0.2982 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809728.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ LDPlayer 4.0.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809701.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Balabolka 2.15.0.743 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809693.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ WinTools.net Premium 16.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809653.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft .NET Framework 4.7.1 Update [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809582.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Pano2VR Pro 6.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809573.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ ESET SysInspector 1.4.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809564.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ashampoo Snap 9.0.0 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809545.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WinTools.net Premium 16.4.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809538.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Defender Tools 1.0.8 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809486.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809372.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VSDC Free Video Editor 4.0.1.475 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809367.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ WirelessKeyView 1.76 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809359.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Symantec Endpoint Protection 14.3 build 558 (14.3.558.0000) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809245.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Windows 7 (13in2) Sergei Strelec x86/x64 6.1 (build 7601.24553) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809238.jpg" />
 </div>
 
 

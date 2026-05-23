@@ -1,107 +1,3 @@
-###  Публикация: 1692370   (122645) от 16.01.2024
-
-Мужчина к Новому году (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лера успешна, красива и умна, но одинока. В отношениях с мужчинами она предпочитает руководствоваться советами подруг. Поэтому, разорвав очередные «зависшие» взаимоотношения, Лера спорит, что сможет найти мужчину мечты к Новому году. Есть лишь одно но: до праздника осталась неделя.Производство: Россия / Творческий центр Андрея НосковаЖанр: комедия, мелодрамаРежиссер: Андрей НосковАктеры: Кира Кауфман, Кристина Кузьмина, Илья Носков, Андрей Носков, Сергей Перегудов, Ангелина Дебор, Роберто Флейтес, Алексей ВоскресенскийСубтитры: отсутствуютПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666D783917AF0AC0717D8FB935900FA1B565C6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692363   (122639) от 16.01.2024
-
-Мужчина к Новому году (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лера успешна, красива и умна, но одинока. В отношениях с мужчинами она предпочитает руководствоваться советами подруг. Поэтому, разорвав очередные «зависшие» взаимоотношения, Лера спорит, что сможет найти мужчину мечты к Новому году. Есть лишь одно но: до праздника осталась неделя.Производство: Россия / Творческий центр Андрея НосковаЖанр: комедия, мелодрамаРежиссер: Андрей НосковАктеры: Кира Кауфман, Кристина Кузьмина, Илья Носков, Андрей Носков, Сергей Перегудов, Ангелина Дебор, Роберто Флейтес, Алексей ВоскресенскийСубтитры: отсутствуютПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC721A71677E3D850469CE46D653DA8C04B2B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692499   (122601) от 16.01.2024
-
-Ф.О.Т.О.Г.Р.А.Ф. (2018) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Агент миротворческих сил по прозвищу Фотограф прибывает в Зону отчуждения, чтобы предотвратить катастрофу глобального масштаба. По мотивам компьютерной игры "S.T.A.L.K.E.R."Производство: Россия / Omut FilmsЖанр: короткометражный, боевик, драма, фантастикаРежиссер: Максим ФащенкоАктеры: Александр Родин, Юрий Херувимов, Вячеслав ЗгурскийСубтитры: ОтсутствуютПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE9C49DB298F16932A99EA54BABBE8CEEB2328B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692305   (122599) от 16.01.2024
-
-Кадриль (1999) HDTVRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Кадриль - танец с переменой партнеров… Русский народный вариант «любви вчетвером». В далекой прибайкальской деревушке живут две семьи: Коля Звягинцев с женой Лидой и его сосед Саня Арефьев с женой Валей. Две соседки решили в сердцах «махнуться» своими непутевыми, подвыпившими мужиками...Производство: Россия / МосфильмЖанр: комедияРежиссер: Виктор ТитовАктеры: Станислав Любшин, Любовь Полищук, Олег Табаков, Валентина Теличкина, Нина УсатоваСубтитры: отсутствуютПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B4387F820A7DF7CB7748CC7DBA2A224612C382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692353   (122590) от 16.01.2024
 
 S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264]
@@ -110,7 +6,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264]
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122590.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122452.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122318.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122289.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122207.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122062.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122058.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121724.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121484.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121299.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120784.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119962.jpg" />
 </div>
 
 
@@ -422,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119878.jpg" />
 </div>
 
 
@@ -448,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119876.jpg" />
 </div>
 
 
@@ -474,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119864.jpg" />
 </div>
 
 
@@ -500,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118975.jpg" />
 </div>
 
 
@@ -526,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118890.jpg" />
 </div>
 
 
@@ -552,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118864.jpg" />
 </div>
 
 
@@ -578,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118862.jpg" />
 </div>
 
 
@@ -604,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118856.jpg" />
 </div>
 
 
@@ -630,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118844.jpg" />
 </div>
 
 
@@ -656,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118711.jpg" />
 </div>
 
 
@@ -667,6 +563,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6851EFE76382953F3D975FE6AA3CA72154B3EE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698309   (118679) от 08.02.2024
+
+Мерцание (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кажущаяся незначительной травма головы приводит к тому, что молодая красивая девушка заболевает психическим расстройством, проявление которого именуется медицинским термином «мерцание». Теперь в ее теле живут два совершенно противоположных человека. Одна из них любит и готова любить, другая готова убивать всех ради достижения своей цели. Неизвестно, уживутся ли они (   Читать дальше...   )Производство: Россия / Берг СаундЖанр: триллер, фантастикаРежиссер: Павел ЕреминАктеры: Марианна Васильева, Кристина Беккер, Владимир Кочуров, Тимофей Якомульский, Игорь Лебедев, Наталья СамойловаСубтитры: отсутствуютПродолжительность: 01:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57017F10EBEBFE9C337C9BC269F0F921577C749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698260   (118646) от 08.02.2024
+
+Панические атаки (2023) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вика страдает паническими атаками и нервными проявлениями. В её родном городе это связывают с экологией или древним проклятием. Но попадая в другую страну, она совершает преступление, найти причины которого оказывается совсем не просто.Производство: Россия /  ВЕГА ФильмЖанр: драмаРежиссер: Иван И. ТвердовскийАктеры: Лена Тронина, Сергей Двойников, Дарья Савельева, Светлана Камынина, Ксения Мери, Аня Нова, Сергей Уусталу, Алина Шульга, Елизавета Медведева, Марина КлещёваПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B5DA33A3C5663CF5E2F411DAD19EC783DD2B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698409   (118533) от 09.02.2024
+
+Панические атаки (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вика страдает паническими атаками и нервными проявлениями. В её родном городе это связывают с экологией или древним проклятием. Но попадая в другую страну, она совершает преступление, найти причины которого оказывается совсем не просто.Производство: Россия /  ВЕГА ФильмЖанр: драмаРежиссер: Иван И. ТвердовскийАктеры: Лена Тронина, Сергей Двойников, Дарья Савельева, Светлана Камынина, Ксения Мери, Аня Нова, Сергей Уусталу, Алина Шульга, Елизавета Медведева, Марина КлещёваСубтитры: РусскиеПродолжительность: 01:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1F9B1509515BE3CD6DF804F84380DEC2962A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699765   (117693) от 14.02.2024
+
+Русский характер (2014) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117693.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013-й год. Украина. Военный моряк Максим Фадеев приезжает из Санкт-Петербурга в Крым, получив телеграмму о смерти деда. Здесь, в Крыму, прошло детство Максима. Отсюда он уехал поступать в Суворовское училище. Здесь живут его друзья и близкие... Максим узнает, что расположенный на берегу моря поселок терроризирует банда некоего Волощука, жестокого и беспринципного (   Читать дальше...   )Производство: Россия / Триикс МедиаЖанр: драма, криминалРежиссер: Александр ЯкимчукАктеры: Александр Фисенко, Сергей Никоненко, Евгений Бакалов, Наталья Мартынова, Александра Никифорова, Любовь Завадская, Кирилл Полухин, Егор Баринов, Глеб Степан Каллистов, Витас ЭйзенахСубтитры: РусскиеПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650ACF470EE5613D5A5AD739B82BD34C0BFA21CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

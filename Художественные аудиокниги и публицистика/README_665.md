@@ -1,82 +1,3 @@
-###  Публикация: 1190812   (265988) от 11.12.2017
-
-Антон Леонтьев | Дворец, где разбиваются сердца (2017) [MP3, Татьяна Ненарокомова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В монастыре Непорочного Зачатия творилось что-то жуткое и непонятное. Убийства монахинь, исчезновения святынь… Комиссары полиции Эльке и Николетта никак не могли понять, что происходит в этом заштатном городишке. Пока не обнаружили разрытую могилу ювелира Альваро Мендозы и не нашли его письмо потомкам. Следы уводили в XIX век, в блистательные и грозные времена правления (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 18:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8262BBEE4BAB572E7E7EA86D31B20AAA62EF8E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190828   (265929) от 11.12.2017
-
-Алан Брэдли | Тайны Букшоу (Книга 4). О, я от призраков больна (2017) [MP3, Мария Абалкина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Есть такие места, с виду тихие и сонные, но постоянно словно по волшебству притягивающие всяческие неприятности и происшествия. Старинное английское поместье Букшоу, где обитает нелюдимый полковник де Люс с тремя дочерьми, — как раз такое. И главный магнит для неприятностей — это младшая дочь, одиннадцатилетняя умница Флавия де Люс, любительница чужих дел, химии (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 07:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D580EDE989EAC530475B6A63CB3BEBA9F0B01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190960   (265921) от 11.12.2017
-
-Ева Никольская | Магическая академия. Достать василиска! (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Если ты юная ведьма, но дар твой с изъяном, родня со странностями, неприятности следуют по пятам, да еще и характер мстительный,— все твои дороги ведут в магическую Академию Разрушения и Созидания. Если ты талантливая стихийница, но жизнь твоя перевернулась с ног на голову, разбив все надежды и мечты,— тебе тоже будут рады в АРиС!
-В этом учебном заведении вас обеспечат (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 17:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A630483B93993B2801B41A23C9AF68E279283054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190850   (265912) от 11.12.2017
 
 Гиллиан Флинн | Темные тайны (2017) [MP3, Сергей Кирсанов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265912.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265853.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265840.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265800.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265766.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265724.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265334.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265305.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265234.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265230.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265228.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265114.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265030.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264863.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264619.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264618.jpg" />
 </div>
 
 
@@ -505,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264563.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264463.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264455.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264447.jpg" />
 </div>
 
 
@@ -609,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264431.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264424.jpg" />
 </div>
 
 
@@ -661,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264421.jpg" />
 </div>
 
 
@@ -673,6 +594,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8A1C2CA7F219D6F5EAD4335A4840AF4234C13BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340077   (264280) от 22.11.2019
+
+Виктор Бердинских | Русские у себя в доме (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель, историк и этнограф Виктор Бердинских сделал попытку показать русского крестьянина таким, какой он был и есть в собственном доме, в естественной обстановке, наедине с собой. В его книге внимание уделено прежде всего быту, нравственным устоям, обычаям, традициям, устному народному творчеству, разговорной речи - и даже приведены словарь народного говора образца (   Читать дальше...   )Жанр: Антропология. ЭтнографияПродолжительность: 13:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BF77F9E2127508C15B9DDFF7F7BDD22FC64B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340166   (264275) от 22.11.2019
+
+Андрей Молчанов | Экспедиция в один конец (2018) [MP3, Юрий Леханов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беглый каторжник и журналист-неудачник, бывшие кагэбэшник и офицер-подводник — они все очень разные, и у каждого своя цель. Под флагом «Гринпис» на борту научно-исследовательского судна они плывут в составе команды к затонувшим в Атлантике российским ядерным подводным лодкам. Корабль начинен взрывчаткой. Основная часть команды — террористы. От экспедиции веет смертью. (   Читать дальше...   )Жанр: БоевикПродолжительность: 14:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4FFB95C286938BDB6B545416D912F1D018438E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340132   (264213) от 22.11.2019
+
+Михаил Ланцов | Красный Император. «Когда нас в бой пошлет товарищ Царь…» (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взойдя на трон Российской Империи, «попаданец» из будущего поднимает над Евразией победное Красное знамя!
+Даешь Стамбул, которому давно уже пора вновь стать Царьградом! Даешь Париж! Даешь Индию, где разгорается восстание против британских колонизаторов, а русских встречают как освободителей! Государь Император пришел дать вам волю! Когда нас в бой пошлет товарищ (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыПродолжительность: 11:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE689DFB79F5748B4A4BA4D04DA1467D166BECF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

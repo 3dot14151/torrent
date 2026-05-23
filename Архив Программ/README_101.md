@@ -6,7 +6,7 @@ CudaText 1.132.0.5 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020655.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Balabolka 2.15.0.781 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020654.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Free Download Manager 6.14.1.3935 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020645.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Internet Download Manager 6.38 Build 21 Final + Retail + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020634.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Microsoft Edge 90.0.818.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020633.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Internet Download Manager 6.38 Build 21 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020629.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VueScan Pro 9.7.52 + OCR Languages [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020628.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Aiseesoft Data Recovery 1.2.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020623.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Universal USB Installer 2.0.0.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020618.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Adobe Acrobat Reader DC 2021.001.20149 (x86) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020611.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Icecream PDF Editor PRO 2.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020608.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020597.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CPU-Z 1.96.0 Portable by ALEX [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020595.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Acrobat Reader DC 2021.001.20149 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020592.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ UltraUXThemePatcher 4.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020590.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Adobe Acrobat Pro DC 2021.001.20149 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020583.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Adobe XD 39.0.12.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020575.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ WebBrowserPassView 2.11 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020573.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Adobe Acrobat Reader DC 2021.001.20149 (x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020559.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Adobe Acrobat Pro DC 2021.001.20149 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020527.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ CherryTree 0.99.36 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020494.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ LDPlayer 3.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020478.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AVG Clear (AVG Remover) 21.3.6164.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020475.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ LDPlayer 4.0.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020468.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Internet Download Manager 6.38 Build 21 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020463.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Avast Clear 21.3.6164.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020462.jpg" />
 </div>
 
 

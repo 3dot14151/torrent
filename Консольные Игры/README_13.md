@@ -1,56 +1,3 @@
-###  Публикация: 647833   (854328) от 24.04.2013
-
-Star Trek: The Video Game [PS3] [USA] [En] [4.31 CFW] (2013)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Экшен «Стартрек» предлагает игрокам выступить в роли культовых героев «Звездного пути» — капитана Кирка и коммандера Спока — и вместе отправиться навстречу приключениям.
-События игры происходят в альтернативной вселенной «Звездного пути», начало которой положил полнометражный фильм режиссера Дж. Дж. Абрамса, вышедший на экраны в 2009 году. Фанатов ожидает захватывающий (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Digital ExtremesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD90C85BA56BEF59322D0713A7FAF71657BF2DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306245   (852456) от 09.03.2011
-
-Mushroom Men: The Spore Wars [Wii] [PAL] [Multi 5] (2009)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сценарная завязка Mushroom Men: The Spore War выполнена в знакомом ключе «а вы и не знали». То есть нам предлагается взглянуть себе под ноги и выяснить, что там, в траве, кипит удивительная жизнь. Формальные дебютанты из Red Fly Studios рассказывают историю эпической схватки... грибов. Согласно сюжету, пролетевшая над Землей комета не возымела, как показалось человечеству, (   Читать дальше...   )Разработчик: Red Fly StudioЖанр: action, platformerЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: Образ в формате
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25AF8CB3270B1C169DA5F6F165B7F2236A34753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001811   (851720) от 29.03.2016
 
 The Last Remnant (2008) [Xbox360] [Region Free] Freeboot / 7371 [Unofficial] [Ru] | R.G.DualShock
@@ -59,7 +6,7 @@ The Last Remnant (2008) [Xbox360] [Region Free] Freeboot / 7371 [Unofficial] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851720.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ Overlord: Raising Hell (2008) [Xbox360] [Region Free] Freeboot / 7371 [Unofficia
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851712.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ Sonic Unleashed (2008) [PS3] [USA] 2.40 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849072.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ Sonic Unleashed (2008) [PS3] [EUR] 2.40 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849056.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848065.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ Saints Row IV: Game of the Century Edition (2014) [Xbox360] [Region Free] 16537 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847929.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ Never Alone / Kisima Ingitchuna (2015) [PS3] [EUR] 4.21+ [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846421.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ Labyrinth Legends  (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846419.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ Watchmen: The End Is Nigh. Parts 1 and 2 (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846334.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ Monopoly Plus (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [XBLA / 2 DLC] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846212.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ LittleBigPlanet: GOTY Edition / Little Big Planet: GOTY Edition [PS3] [USA] [RUS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844897.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ Robert Ludlum's The Bourne Conspiracy / Конспирация Борна (2008)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844658.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ Infernal: Hell's Vengeance / Infernal: Дьявольщина (2007) [Xbox360] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844654.jpg" />
 </div>
 
 
@@ -403,7 +350,7 @@ The Nameless Game (2008) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844495.jpg" />
 </div>
 
 
@@ -429,7 +376,7 @@ Active Life: Explorer [Wii] [NTSC] [ENG] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843505.jpg" />
 </div>
 
 
@@ -455,7 +402,7 @@ Disney Princess: Enchanted Journey [Wii] [NTSC] [ENG] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843433.jpg" />
 </div>
 
 
@@ -475,34 +422,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 878466   (841942) от 15.03.2015
-
-Tom Clancy’s Rainbow Six: Vegas (2007) [PS3] [USA] 1.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Биологическое оружие попало в руки террористов. Смертельно опасный вирус, созданный при помощи нанотехнологии, угрожает человечеству. На парижских улицах, островах в Средиземноморье и пустыне Сахара оперативники Rainbow сражаются с террором, спасая заложников и обезвреживая бомбы.
-
-В новой игре у вас будет грозный и беспощадный противник. Радикальная террористическая (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft MontrealЖанр: Action, tactical shooter, 1st persion, 3rd persionЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Aнглийский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BABCE692EA8928071C00578959CAEF8E52ACFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 772160   (840155) от 31.03.2014
 
 Kidz Sports: Ice Hockey [Wii] [English] [NTSC-U] (2008)
@@ -511,7 +430,7 @@ Kidz Sports: Ice Hockey [Wii] [English] [NTSC-U] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840155.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ Ace Combat: Assault Horizon [PS3] [+3D] [EUR] [RUS/ENG] [3.70] [Cobra ODE / E3 O
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839715.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ Tales from Space: Mutant Blobs Attack (2014) [Xbox360] [FreeRegion] 16537 [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839430.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ The Bridge (2013) [Xbox360] [RegionFree] 16537 [FreeBoot] [XBLA] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839421.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ Far Cry 3: Blood Dragon [Xbox360] [RUS] [FreeBoot] (2013)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839118.jpg" />
 </div>
 
 
@@ -641,7 +560,7 @@ Naruto Shippuden: Ultimate Ninja Storm 4 Road To Boruto (2020) [Switch] [EUR] 9.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838916.jpg" />
 </div>
 
 
@@ -667,7 +586,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837969.jpg" />
 </div>
 
 
@@ -680,6 +599,85 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:842FA444C526234B58718668EB27612F071E6D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335869   (837627) от 08.10.2021
+
+Diablo III: Eternal Collection (2018) [Switch] [USA] 10.2.0 [NSP] [License / 2.7.1.76692 / DLC] [Ru/En]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сражайтесь за Санктуарий! И ощутите безграничное могущество.
+Сотрясайте землю, обрушивайте на врагов огонь и лед, призывайте прислужников из загробного мира и наводите ужас на противников с помощью разрушительных способностей вашего героя. Единое Зло бьется в мрачных оковах черного камня души, взыскуя свободы и отмщения. Зловещий артефакт должен был быть спрятан (   Читать дальше...   )Тип издания: LicenseРазработчик: BlizzardЖанр: RPG (Rogue, Action), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8ABB13734309658EA4031EA918DD14FD5FE515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004555   (837622) от 06.04.2016
+
+Racquet Sports  (2010) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MOVE]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Racquet Sports состоит из 5 увлекательных спортивных игр. Это большой и настольный теннис, сквош, бадминтон, а также пляжный теннис. В игре вас ждет около 40 разнообразных красочных локаций, таких как марокканский дворец, Нью-Йоркский пентхаус, казино в Лас-Вегасе и даже круизный пароход, 6 различных режимов игры, от Quick Match до Party Mode, разнообразные настройки (   Читать дальше...   )Тип издания: LicenseРазработчик: Asobo StudioЖанр: SportЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E453A8BC0267F49531FC136DD578B66C17DDE56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004678   (836032) от 07.04.2016
+
+007 Legends  (2012) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый игровой блокбастер 007 Legends, подготовленный к пятидесятилетию всемирно известной франшизы, позволит игрокам вспомнить ключевые моменты и выполнить самые захватывающие задания из популярных фильмов о Джеймсе Бонде. Первая и единственная игра подобного масштаба, 007 Legends отличается оригинальным сюжетом, основанным на событиях шести классических кинокартин (   Читать дальше...   )Тип издания: LicenseРазработчик: Eurocom Entertainment SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8B3B70F2C944B254AB809BD4F1811B15F5973E
 ```
 
 https://mybot314.ru/tekegram_catalog/

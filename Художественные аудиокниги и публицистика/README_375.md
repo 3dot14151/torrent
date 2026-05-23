@@ -1,84 +1,3 @@
-###  Публикация: 1131751   (704704) от 07.05.2017
-
-Надежда Мамаева | Неприятности по алгоритму (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Неприятности по алгоритму" – фантастическая повесть Надежды Мамаевой, жанр боевая фантастика, космическая фантастика.
-Ты кадет училища, что на отшибе галактики, но на ежегодных гонках удалось обставить явного фаворита, выпускника летной академии, да еще после этого ославить неудачного соперника? Что ж, сама напросилась, жди крупных неприятностей, нарастающих (   Читать дальше...   )Жанр: Боевая фантастика, космическая фантастикаПродолжительность: 08:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4570911AFA8CBF471BBD39A97209CC86696DF4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131816   (704703) от 07.05.2017
-
-Бернар Вербер | Завтрашний день кошки (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В своем новом романе Бернар Вербер рассказывает историю кошек, которые пытаются спасти человеческий мир от разрушительного безумия.
-Главные герои – кошка Бастет, уставшая от жизни в квартире и мечтающая научиться понимать людей и с ними общаться, и кот Пифагор, который живет в соседнем доме. Именно они хотят спасти мир от человеческих пороков, которые (   Читать дальше...   )Жанр: Фантастика, детективПродолжительность: 11:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24CDE8CCFD2FFA7C85158DBC0CF80DB5BC68069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131825   (704702) от 07.05.2017
-
-Владимир Корн | Страж Либерилля (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Владимир Корн – российский писатель, автор нескольких циклов приключенческих фантастических романов. Предлагаемая книга – первая в цикле «Кристиан Флойд».
-Либерилль – мир, созданный воображением автора. Он чем-то напоминает Америку 1920-х годов: гангстеры, джаз, модернизация. Главный герой романа молодой парень Кристиан Флойд, бывший музыкант, а ныне безработный, (   Читать дальше...   )Жанр: Детективная фантастикаПродолжительность: 10:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5353C5F6A4D52F303DB7241F1CFDB556BC6F0EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131752   (704610) от 07.05.2017
 
 Елена Звёздная | О магах-отступниках и таинственных ритуалах (2017) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704610.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704607.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704605.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704543.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704540.jpg" />
 </div>
 
 
@@ -218,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704526.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704490.jpg" />
 </div>
 
 
@@ -270,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704486.jpg" />
 </div>
 
 
@@ -297,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704399.jpg" />
 </div>
 
 
@@ -324,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704394.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704257.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704255.jpg" />
 </div>
 
 
@@ -403,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704089.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704072.jpg" />
 </div>
 
 
@@ -455,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703826.jpg" />
 </div>
 
 
@@ -481,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703815.jpg" />
 </div>
 
 
@@ -507,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703802.jpg" />
 </div>
 
 
@@ -533,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703799.jpg" />
 </div>
 
 
@@ -559,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703798.jpg" />
 </div>
 
 
@@ -586,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703797.jpg" />
 </div>
 
 
@@ -613,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703796.jpg" />
 </div>
 
 
@@ -639,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703688.jpg" />
 </div>
 
 
@@ -665,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703390.jpg" />
 </div>
 
 
@@ -676,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E72003D338DB4576EFCEA05DE946B18B3DF78BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402109   (703389) от 13.08.2020
+
+Александр Никонов | Исчезнувшие цивилизации. Взаимосвязь культур и парадоксы истории (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо ли человечеству известно его собственное прошлое? История нашей цивилизации, которую мы все изучали в школе, представляется нам в виде увесистого академического тома, успокаивающего душу. Она просматривается вся – от палки-копалки до покорения атома. Но что, если у нас позади больше неизвестного, чем известного? Тогда этот том превращается в несколько жалких (   Читать дальше...   )Жанр: ИсторияПродолжительность: 11:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9536B75E364B721842A40F091289EDB0D6BC7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220622   (702545) от 20.04.2018
+
+Валентин Распутин | Дочь Ивана, мать Ивана (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702545.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре новой остросюжетной повести В. Г. Распутина - судьба рядовой современной семьи, выброшенной на обочину рыночной жизни. Мать семейства, защищая честь и безопасность своих детей, вершит над преступниками собственный суд справедливостиЖанр: Современная прозаПродолжительность: 09:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77112055FDFE44A9E5404E11FBA9F70F7E6C7E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026652   (702509) от 16.06.2016
+
+Наум Синдаловский | На языке улиц (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге Наума Синдаловского собраны пословицы, поговорки, каламбуры, чье появление связано с Петербургом. Некоторые из них восходят к первым годам существования города, но бытуют в речи петербуржцев и по сей день. Фольклор предлагает нам свою историю города и его жителей, в которой политические и культурные события соседствуют с деталями повседневного быта. Равно (   Читать дальше...   )Жанр: Рассказы о петербургской фразеологииПродолжительность: 09:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AAE3FE604DE429317A9AC656CC92F4430C6532
 ```
 
 https://mybot314.ru/tekegram_catalog/

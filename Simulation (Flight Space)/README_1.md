@@ -6,7 +6,7 @@
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678416.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Medicopter 117 / Альпийский патруль [Ru] (L) 2004
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676511.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Parkan: Хроника Империи (1997) [Ru] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675697.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IL-2 Sturmovik / Ил-2 Штурмовик [Ru] (L) 2001
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673741.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Starship Corporation (2018) [Ru/En/De] (2.6.8) License SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672943.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Dovetail Games Flight School (2016) [En/Multi] (1.0.8470.0) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669753.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Everspace (2017) [Ru/Multi] (1.0.6.32482) Repack xatab
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667383.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ EVERSPACE (2017) [Ru/Multi] (1.0.6.32482) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666222.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Flying Tigers: Shadows Over China (2017) [Ru/Multi] (1.0) Repack =nemos=
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664097.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FLYING TIGERS: SHADOWS OVER CHINA (2017) [Ru/Multi] (1.0/dlc) Repack Other s [DE
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664045.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Flying Tigers: Shadows Over China (2017) [Ru/En] (1.0/dlc) Repack xatab
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664040.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Iron Wings (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655506.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Iron Wings (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655502.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ SimplePlanes (2015) [En] (1.7.0.6) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644495.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Air Missions: HIND (2017) [Ru/Multi] (1.01) License SKIDROW [Deluxe Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640386.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Air Missions: HIND (2017) [Ru/Multi] (1.01) Repack Other s [Deluxe Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640378.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Vector Thrust (2015) [Ru/Multi] (1.500) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627871.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ SUNLESS SKIES (2019) [En] (1.2.1.2) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619943.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Digital Combat Simulator: Black Shark / Ка-50 "Черная акула" (2008)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616785.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Kerbal Space Program (2015) [Ru/Multi] (1.7.0.2483/dlc) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614714.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Helium Rain (2018) [Ru/Multi] (1.3.6) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607900.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9537.0) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603212.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Vector Thrust (2015) [Ru/Multi] (1.0) Repack xGhost
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595658.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594106.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Everspace (2017) [Ru/Multi] (1.3.4.36508/dlc) Repack R.G. Catalyst
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582885.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ X4: Foundations (2018) [Ru/Multi] (2.21) Repack R.G. Catalyst
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561406.jpg" />
 </div>
 
 

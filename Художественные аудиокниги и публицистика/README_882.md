@@ -1,81 +1,3 @@
-###  Публикация: 1682497   (131472) от 07.12.2023
-
-Чингиз Абдуллаев | Тимур Караев (Книга 1). Хранители холода (2023) [MP3, Валентина Крылова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Когда у отставного полковника госбезопасности Тимура Караева бесследно пропал его близкий друг и коллега, а его самого попытались убить, он сразу почувствовал руку спецслужб. Ведь разведчики бывшими не бывают, рано или поздно они попадают в поле зрения «коллег». Вот только какая служба заинтересовалась ими? Чтобы это выяснить, пожалуй, придется встретиться с кое-какими (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 07:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE16B8D622CC49318AC8720D1F2F2C2C6EFCE08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682569   (131470) от 07.12.2023
-
-Александр Беляев | Изобретения профессора Вагнера. Чёртова мельница (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Профессор Вагнер изобретает "увечный двигатель", чем создал панику в отдельно взятой деревне.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90C631CEF3A8D23E17E1F6EFB9235FB2649944D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682397   (131459) от 07.12.2023
-
-Игорь Евдокимов | Доктор Фальк. Тайна серого монаха (2023) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь: доктор Василий Оттович Фальк. Эстет, педант, скептик, совершеннейший зануда – и сыщик поневоле. В дачном поселке на побережье Финского залива, куда он переезжает летом из Петербурга, найдена мертвой пожилая вдова. За день до гибели она жаловалась Фальку, что по ночам в ее саду появляется серый монах – верный предвестник смерти. Но доктор быстро понимает, (   Читать дальше...   )Жанр: Исторические детективыИздательство: ЛитРес: чтецПродолжительность: 05:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF446ECB29D7B029CD22C3492C8F5C44CC9F042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682529   (131401) от 07.12.2023
 
 Виталий Свадьбин | Воскрешение (Книга 2). Иосиф Сталин (2023) [MP3, Фенид Ладосский]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131401.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131394.jpg" />
 </div>
 
 
@@ -143,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131369.jpg" />
 </div>
 
 
@@ -171,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131363.jpg" />
 </div>
 
 
@@ -200,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131351.jpg" />
 </div>
 
 
@@ -228,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131348.jpg" />
 </div>
 
 
@@ -255,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131141.jpg" />
 </div>
 
 
@@ -282,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131134.jpg" />
 </div>
 
 
@@ -310,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131128.jpg" />
 </div>
 
 
@@ -339,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131127.jpg" />
 </div>
 
 
@@ -368,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131120.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131112.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131108.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131004.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130994.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130990.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130839.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130829.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130754.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130645.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130515.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130498.jpg" />
 </div>
 
 
@@ -692,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130484.jpg" />
 </div>
 
 
@@ -703,6 +625,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FADD86E55DD7920CBBFA7F88B846469A668153B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491625   (130452) от 03.05.2012
+
+Денис Цепов | Держите ножки крестиком, или Русские байки английского акушера (2012) [MP3, Кирилл Радциг]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он с детства хотел быть врачом - то есть сначала, как все - космонавтом, а потом сразу - гинекологом. Ценить и уважать женщин научился лет примерно с четырех, поэтому высшим проявлением любви к женщине стало его желание помогать им в минуты, когда они больше всего в этом нуждаются. Он работает в Лондоне гинекологом-онкологом и специализируется на патологических беременностях (   Читать дальше...   )Жанр: Юмористическая прозаПродолжительность: 05:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A80ED483B48A6EF6A3A250D43589B3E3566C3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524873   (130451) от 18.01.2022
+
+Андрей Ефремов | Фантазия (Книга 1). Техномагия (2022) [MP3, Станислав Федорчук]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте мир, в котором не существует преступности и бедности, мир, где людям платят деньги за их мечты. Фантастика, скажете вы. Нет, это мир фантазий, в котором любая мечта может осуществиться, стоит только захотеть. Но так ли хорош мир грёз будущего? Принесёт ли пользу человечеству технология управляемых фантазий и нет ли скрытых от обычных людей механизмов (   Читать дальше...   )Жанр: Боевая фантастика, LitRPGПродолжительность: 11:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64596C1B13F224F0289A078BE9219936B534F178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524870   (130446) от 18.01.2022
+
+Российский аудиофонд | Коллекция "Старое Радио" [Г] (2022) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции сайта  "Старое Радио" по состоянию на январь 2022 года.Жанр: РадиозаписиПродолжительность: 1545:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F407730F0E54EE0F6207F0292C9FB65ED55DEF4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

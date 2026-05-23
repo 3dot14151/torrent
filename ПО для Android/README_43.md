@@ -1,55 +1,3 @@
-###  Публикация: 956793   (777803) от 03.05.2016
-
-Песни с аккордами Pro v2.7.5847 [Ru] - Оффлайн песенник с аккордами
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Одно из лучших оффлайновых приложений. Не требует подключения к Интернету для доступа к базе песен. Даже если у вас нет гитары - нажимайте на аккорды и напевайте любимые песни!Тип издания: Пиратка (Pro)Релиз состоялся: 23.03.2016Разработчик: RUSABПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B21BA8AA8D478893D2BE365FF40FB977EFD2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836669   (777687) от 06.03.2018
-
-VideoMix v2.7.7 Ad-Free [Ru/En] - просмотр видео онлайн
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-VideoMix - это приложение позволит вам смотреть фильмы, сериалы, мультфильмы и ТВ передачи онлайн бесплатно без всякой рекламы (версия AD-Free) из популярных ресурсов www.iwannawatch.net (для англо-язычных пользователей), filmix.net и ekranka.tv, представляющих собой бесплатные каталоги описаний видео-контента со ссылками на сторонние онлайн ресурсы (videorockerz.com, (   Читать дальше...   )Тип издания: Free и Ad-Free (без рекламы)Релиз состоялся: 05.03.2018Разработчик: CentumПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA47A0A144257956CBC7D9DB1722395617CEA9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636988   (774382) от 23.05.2013
 
 [Программа] Adobe Flash Player v11.1.115.58/v11.1.111.54 (Android от 2.х+)
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774382.jpg" />
 </div>
 
 
@@ -93,7 +41,7 @@ Strive Intervals v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772951.jpg" />
 </div>
 
 
@@ -119,7 +67,7 @@ SPB TV Russia v1.9.5 AdFree [Ru] - онлайн ТВ каналы, фильмы 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772767.jpg" />
 </div>
 
 
@@ -145,7 +93,7 @@ Essential Anatomy 3 v1.1.3 [En] - справочник по анатомии ч�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772763.jpg" />
 </div>
 
 
@@ -171,7 +119,7 @@ NRG Player Full 2.0.3 [Ru] - Аудио плеер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770882.jpg" />
 </div>
 
 
@@ -197,7 +145,7 @@ Global Equalizer & Bass Booster Pro v0.03 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770570.jpg" />
 </div>
 
 
@@ -223,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769008.jpg" />
 </div>
 
 
@@ -249,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768999.jpg" />
 </div>
 
 
@@ -278,7 +226,7 @@ DevCheck Hardware and System Info Pro 2.61 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768864.jpg" />
 </div>
 
 
@@ -304,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768854.jpg" />
 </div>
 
 
@@ -330,7 +278,7 @@ FullReader Premium 4.2.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768848.jpg" />
 </div>
 
 
@@ -356,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768492.jpg" />
 </div>
 
 
@@ -385,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768488.jpg" />
 </div>
 
 
@@ -414,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768356.jpg" />
 </div>
 
 
@@ -443,7 +391,7 @@ Language Translator v1.5 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767550.jpg" />
 </div>
 
 
@@ -469,7 +417,7 @@ RealVisor / Детектор движения v5apr2017 Full [Ru/En] - Виде�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767522.jpg" />
 </div>
 
 
@@ -498,7 +446,7 @@ TikTok v16.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767478.jpg" />
 </div>
 
 
@@ -524,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767451.jpg" />
 </div>
 
 
@@ -550,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767443.jpg" />
 </div>
 
 
@@ -576,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767150.jpg" />
 </div>
 
 
@@ -602,7 +550,7 @@ Pulsar - Музыкальный плеер / Pulsar - Music Player v1.8.10 [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766200.jpg" />
 </div>
 
 
@@ -628,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766007.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766003.jpg" />
 </div>
 
 
@@ -683,7 +631,7 @@ myRouteMap 8.1.2 [En/Ru] - интерактивный планировщик м�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765996.jpg" />
 </div>
 
 
@@ -694,6 +642,60 @@ myRouteMap 8.1.2 [En/Ru] - интерактивный планировщик м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:837FEB79E949A8C3A197488E7FB26BF6B7BCBC77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767673   (765920) от 17.04.2017
+
+All-In-One Toolbox Pro 7.2.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа включает в себя целый комплекс методов, которые помогут вам добиться максимальной производительности.
+Простой и интерактивный пользовательский интерфейс.Тип издания: ПираткаРелиз состоялся: 17.04.17Разработчик: AIO Software Technology CO., Ltd.Поддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8823C1E5D0119EE5599D23282B985ABB639725CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521197   (765855) от 01.01.2022
+
+Assistant Pro for Android v24.14 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие 18 функций, которые помогут вам легко и эффективно управлять телефоном Android.
+Android Assistant является одним из самых мощных и универсальных инструментов управления для повышения производительности вашего телефона Android. Он ускоряет скорость работы вашего телефона, а также позволяет экономить заряд аккумулятора.Тип издания: Пиратка (Paid)Релиз состоялся: 31 декабря 2021 г.Разработчик: AA MobileПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7C182E6BFFA33FA64A0A8193524CFC12CA156F
 ```
 
 https://mybot314.ru/tekegram_catalog/

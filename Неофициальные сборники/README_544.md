@@ -1,32 +1,3 @@
-###  Публикация: 1189329   (271282) от 05.12.2017
-
-VA - Cyberatonica: Ultimate Synthwave and Syntpop (2017) [MP3|192-320 Kbps] <Synthpop, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Danger mode - Meridian cruisin'
-002. Scandroid - Neo-Tokyo (Dance With The Dead Remix)
-003. Oscillian - Ad Astra
-004. NightStop - Flesh(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 08:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46D4314B3B158B16B286081A34D5739530190AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189266   (271256) от 05.12.2017
 
 VA - По волне моей памяти 2: Том28 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
@@ -35,7 +6,7 @@ VA - По волне моей памяти 2: Том28 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271256.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - С музыкой, в Новый Год!!! (2010) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271244.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ VA - По волне моей памяти 2: Том29 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271220.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ VA - Hit Music от Мяу: Зима (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271208.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ VA - Vintage Jazz Deluxe (2017) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271129.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ VA - Взаимные Лайки: Русский Сборник Популярн
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271063.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ VA - The Official UK Top 40 Singles Chart 30.11.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271034.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ VA - Collection Of Great Songs: RnB & Soul (2018) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271006.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ VA - Новая Современная Классика Выпуск № 1-4 (20
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270939.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ VA - Shazam Хит-парад Russia Top 100 Ноябрь (2018) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270814.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ VA - 50 Лучших Баллад Навсегда (2014) [MP3|320 кб/с]<Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270742.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ VA - Trance In The Road (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270433.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ VA - Seasons To Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270429.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ VA - Dance Charts - Dance 50 (Dazu Tanzt Ganz Deutschland) (26.11.2017) [MP3|192
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270416.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ VA - Лучшие клубные новинки Vol.5 (2017) [MP3|320 Kbps] <Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270386.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ VA - Хиты под водочку: Круговороты судьбы (2018) 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270363.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ VA - Good Story Rock And Roll (2017) [MP3|256-320 Kbps] <Rock and Roll>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270358.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ VA - По волне моей памяти 2: Том32 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270348.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ VA - По волне моей памяти 2: Том30 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270347.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ VA - По волне моей памяти 2: Том31 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270343.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ VA - Absolute 80s Unwind (3 CD) (2017) [MP3|320 Kbps] <New Wave, Blue-Eyed Soul,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270279.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ VA - По волне моей памяти 2: Том33 (Compiled by Виктор
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270278.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ VA - Record Super Chart 564 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270032.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ VA - Holiday Of City (2019) [MP3|320 Kbps] <House, Trance, Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269895.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ VA - Pure Winter Bass (2019) [MP3|320 Kbps] <Drum & Bass, Bassline>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269883.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ VA - Pure Winter Bass (2019) [MP3|320 Kbps] <Drum & Bass, Bassline>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB1CF8A74E958EB6EBED9E275DED20E6DA873ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337690   (269863) от 15.11.2019
+
+VA - Natural Order: Progressive Trance Edition (2019) [MP3|320 Kbps] <Trance, Progressive, Electro, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269863.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Groove - The Knot (Omniks Edit)
+002. David Forbes - Spheres (Extended Mix)
+003. Project Vega - Quantum Theory
+004. F.G. Noise - Falcon Heavy(   Читать дальше...   )Жанр: Trance, Progressive, Electro, Vocal TranceПродолжительность: 09:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84BC56E03C08886C2950F43E5622A817D41EAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

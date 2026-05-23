@@ -6,7 +6,7 @@ Autodesk AutoCAD 2020 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642354.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Animate CC 2017.5 16.5.0.100 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642343.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tor Browser Bundle 7.0.1 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642332.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JetBrains PhpStorm 2017.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642329.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PrivaZer 3.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641898.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mozilla Firefox 39.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641844.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Panda Free Antivirus 2016 16.1.3 DC 07.07.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641669.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ DVDFab 9.2.0.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641616.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ CDBurnerXP 4.5.5.5666 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641610.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ UltraSearch 2.1.1.375 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641593.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ StartIsBack++ 1.3.1 RePack by CRD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641591.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Paint.NET 4.0.10 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641583.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ DU Meter 7.15 Build 4757 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641566.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NVIDIA GeForce Experience 2.4.5.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641519.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Comodo Dragon 42.2.2.138 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641504.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Chromium 54.0.2793.0 (x86) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641496.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Easy2Boot 1.80g + RMPrepUSB 2.1.731 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641491.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Freemake Video Converter 4.1.6.5 repack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641478.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Soft Kit 1.1.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641470.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ F-Secure Freedome 1.0.1517.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641459.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hornil StylePix 1.10.0 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_641439.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Uninstall Tool 3.5.0 Build 5473 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641421.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ ReviverSoft PC Reviver 2.0.3.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641389.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ AI RoboForm Enterprise 7.9.14.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641384.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe Components: Flash Player 18.0.0.160 + AIR 18.0.0.144 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641375.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ ACDSee Pro 8.2 Build 287 Lite RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641373.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Movavi Video Converter 18.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302907.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 2.13.163 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302906.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DisplayFusion Pro 9.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302895.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Raise Data Recovery for FAT/NTFS 5.5.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302892.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Cumulative Update kb4048955 for Windows 10 1709 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302887.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ SketchUp Pro 2018 v18.0.16976 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302883.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Windows System Control Center 2.1.0.0 Portable [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302882.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Q-Dir 6.45.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302844.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302839.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ SteerMouse 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302837.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Luther Allison - Live In Chicago (1999) 2 CD, Live [APE|Lossless|image + .cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302833.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Renamer 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302830.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Internet Download Manager 6.26 Build 14 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302829.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Shogun Audio Presents: 2016 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302827.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Synapse Audio - DUNE 3.2.0 VSTi, AAX (x86/x64) Repack by VR (Rev.4) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302820.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302785.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Graebert ARES Commander Edition 2018 18.3.1.4063 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302766.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Microsoft Office Professional 2003 SP3 (2017.11) RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302763.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Capture One Pro 9.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302756.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Wing IDE Professional 5.1.8 [Multi/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302754.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ DriverPack Solution Online 17.1.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302740.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ KMS Tools Portable 16.11.2017 by Ratiborus  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302727.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Adobe Illustrator Draw 1.1.118 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302723.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302722.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Weather Timeline - Forecast 1.5.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302705.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ K-Lite Codec Pack 11.7.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302704.jpg" />
 </div>
 
 

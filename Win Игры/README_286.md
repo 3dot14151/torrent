@@ -1,29 +1,3 @@
-###  Публикация: 1184716   (298778) от 18.11.2017
-
-Fright Chasers: Dark Exposure / Ловцы страхов: Темная сущность (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По заданию редакции блога Ловцов Страхов Вы отправляетесь с подругой Лизой расследовать случай паранормальной активности в заброшенном особняке четы известных астрономов Килборнов... Блог Ловцов Страхов был создан с четко сформулированной целью: документировать всевозможные жуткие и пугающие события и места. Изучая дома с привидениями и исследуя странные и необъяснимые (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7A47DA7E2AE74EF2B684C90348F6EB68ECDCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334025   (298662) от 27.10.2019
 
 Family Mysteries: Poisonous Promises (2019) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Family Mysteries: Poisonous Promises (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298662.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.7.0.1280/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298528.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Injustice: Gods Among Us (2013) [Ru/Multi] (1.0.2787.0) Repack xatab [Ultimate E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298443.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Hollow (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298439.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298435.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298430.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10715/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298399.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Sword Art Online: Lost Song (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298338.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298331.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Order of Battle: World War II  (2016) [Ru/Multi] (13112018/dlc) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298322.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ FIM Speedway Grand Prix 15 (2015) [En] (1.0.0) License RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298265.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Valentino Rossi The Game (2016) [Multi] (1.000/dlc) License CODEX [Special Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297427.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297417.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297374.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Maize (2016) [En] (1300) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297278.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ SHENZHEN I/O (2016) [En] (1.3) Repack Siberia
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297262.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ WRC: FIA World Rally Championship [Ru] (L) 2010 | TRiViUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297204.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ The Keeper of Antiques 2: The Imaginary World / Антиквар 2: В мире 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296742.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296519.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296447.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ Saint Seiya: Soldiers' Soul (2015) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296446.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296375.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ Cityconomy: Service for your City (2015) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296318.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Betrayer (2014) [Multi] (1.8.5816) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295247.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295132.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6C80523857D7F83A1CAE40B650B9C31AD7E524C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731915   (295120) от 08.12.2013
+
+The Fog / Туман (2013) [Ru] Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел месяц из тумана, вынул ножик из кармана..." - знакомо с детства, с той лишь разницей, что туман в этом приключении уж больно странный, ядовитый даже. Помогите же героине, хрупкой и одурманенной токсичными испарениями женщине, разобраться: что к чему, почему и откуда, собственно, ноги растут той аварии, в которую она попала, мирно следуя на авто, никого при этом не трогая и тихо напевая - "Ой, туманы мои растума-а-аны!"(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Alawar Games, CreobitЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02740601A011DC8D2350E419EBB4A265A3E74505
 ```
 
 https://mybot314.ru/tekegram_catalog/

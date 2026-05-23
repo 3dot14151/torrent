@@ -1,29 +1,3 @@
-###  Публикация: 1241659   (347033) от 25.10.2018
-
-ShadowSide (2018) [Ru/En] (1.1/dlc) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-ShadowSide - это приключенческая игра от первого лица. Игра о приключениях полицейского Алекса, в атмосферных и одновременно жутких локациях. Казалось бы, полицейские будни главного героя Алекса не отличались ничем особенным друг от друга. Но в один из таких дней, с главным героем происходит событие, которое не снилось даже в самом страшном сне опытным служителям (   Читать дальше...   )Тип издания: LicenseРазработчик: AdroVGamesЖанр: Adventure, Action (Detective), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE89E85168F17F5F5BD4BB83C2E4CDFC6F4FCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073146   (346885) от 15.11.2016
 
 Volume (2015) [Ru/Multi] (1.1.04) Repack R.G. Механики
@@ -32,7 +6,7 @@ Volume (2015) [Ru/Multi] (1.1.04) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346885.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Firewatch (2016) [Ru/Multi] (1.04) Repack R.G. Revenants
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346868.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346761.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ God Eater: Resurrection (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346752.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Myths of the World 5: Black Rose / Мифы народов мира 5: Черн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346729.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Mystery Tales 8: Dangerous Desires / Загадочные истории 8: Оп
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346573.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Cognition: An Erica Reed Thriller (2013) [Multi] (2.1.0.9/dlc) License GOG [GOTY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346462.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Mortal Shell (2020) [Ru/Multi] (1.09676/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345994.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ City Legends 2: Trapped in Mirror / Городские легенды 2: Узн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345383.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345113.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Sniper Elite V2 Remastered (2019) [Ru] (1.0.2797) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345112.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Pilgrims / Пилигримы (2019) [Ru/Multi] (1.0.6.267) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345110.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345108.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345038.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Lantern (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344951.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Pid [Ru/En] (RePack/3.5.6) 2012 | Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344849.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Tony Hawk's Pro Skater HD [Ru/En/Multi5] (Lossless Repack/1.0.8788.0) 2012 | R.G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344847.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ Assault Squad 2: Men of War Origins (2016) [En] (3.260.1/dlc) License SKIDROW Go
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344724.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ F1 2013 (2013) [En] (1.06/dlc) Repack R.G. Catalyst [Classic Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344619.jpg" />
 </div>
 
 
@@ -538,7 +512,7 @@ Tales (2016) [Ru/Multi] (1.0.1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344490.jpg" />
 </div>
 
 
@@ -564,7 +538,7 @@ Lantern (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344488.jpg" />
 </div>
 
 
@@ -590,7 +564,7 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344478.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u4) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344367.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ Motorsport Manager (2016) [Ru/Multi] (1.5.1/dlc) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344222.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ Hob (2017) [Ru/Multi] (1.16.3.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344131.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ Hob (2017) [Ru/Multi] (1.16.3.0) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB31226F49AD0F8470DC757CA59E4EB76DB9A166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180067   (344118) от 02.11.2017
+
+Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идет 790 год нашей эры. Небольшой отряд воинов-северян высаживается на берегах Англии. В истории не сохранились их имена, но подвиги их вошли в легенды... Вы только что стали вождем небольшого клана викингов, и под вашим началом есть собственная деревня. Но для того, чтобы выбить свое имя на рунных камнях истории, вам понадобится великая сила и великое богатство. (   Читать дальше...   )Тип издания: RepackРазработчик: Logic ArtistsЖанр: RPG, Strategy (Turn-Based)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C474D8CF4471494B74259155354A9364917FAC32
 ```
 
 https://mybot314.ru/tekegram_catalog/

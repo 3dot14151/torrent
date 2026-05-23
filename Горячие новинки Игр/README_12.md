@@ -6,7 +6,7 @@ Heart of the Forest (2026) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056628.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Disciples Domination (2026) [Ru/Multi] (1.3.1.3350/dlc) Repack Let'sРlay [Delux
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056619.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sector Unknown (2025) [Ru/Multi] (2.0.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056614.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reanimal (2026) [Ru/Multi] (354342.5/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056585.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hordes of Hunger (2025) [Ru/Multi] (Build: MS19.5738_5640f4d4e9) Repack Let'sРl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056581.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hordes of Hunger (2025) [Ru/Multi] (Build MS19.5738) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056576.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ God Forsaken (2026) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056520.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Jackal (2026) [Ru/Multi] (0.9.9) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056481.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Jackal (2026) [Ru/Multi] (0.9.9) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056480.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Disciples: Domination (2026) [Ru/Multi] (1.2.0.3271/dlc) Repack seleZen [Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056479.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Red Passport: Ticket to Russia (2026) [Ru/Multi] (1.0/dlc) Repack FitGirl [Delux
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056461.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FRONT MISSION 3 Remake (2026) [Ru/Multi] (Build 21087935) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056408.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Crisol: Theater of Idols (2026) [Ru/Multi] (build 21866503) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056371.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Relooted (2026) [Ru/Multi] (Build 21884112) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056368.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Crisol Theater of Idols (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056294.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Crisol: Theater of Idols (2026) [Ru/Multi] (build 21866503) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056262.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mewgenics (2026) [Ru/Multi] (0.0.20622) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056241.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Souper Game (2026) [Ru/Multi] (1.0.25) Repack Other s [18+]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056194.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ MIO: Memories in Orbit (2026) [Ru/Multi] (r21606) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056174.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056143.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056142.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Jackal (2026) [Ru/Multi] (0.9.10) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056139.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Nioh 3 (2026) [Ru/Multi] (1.02.02/1.03/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055968.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Nioh 3 (2026) [Ru/Multi] (1.03/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055967.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Nioh 3 (2026) [Ru/Multi] (1.03/dlc) Repack Let'sРlay [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055939.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055921.jpg" />
 </div>
 
 

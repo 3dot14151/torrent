@@ -1,38 +1,3 @@
-###  Публикация: 516111   (654580) от 27.06.2012
-
-VA - XXXL Music Box. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001 А-Студио и Quest Pistols - Медведица
-002 Lady GaGa - Glitter & Grease
-003 Varda - Я Тебе Не Верю
-004 Arash Ahangari - Ahange Zamoone
-005 Дискотека Авария и Нюша - Moscow Never Sleeps
-006 Fly Project - Back In My Life (Radio Edit)
-007 Dress Code - Кучерявое Лето
-008 Taio Cruz & Flo Rida - Hangover (Hardwell radio edit)
-009 Varda & Виталий Козловский - Потанцуй
-010 Roman Bellezzo vs Slam DJs feat. Irene - Frozen (Radio mix)(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 05:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E04BB0C74D7E734F903495FFC926B3B5C050161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516105   (654575) от 27.06.2012
 
 VA - Курортный Хит (2012) [MP3|128 kbps]<Pop>
@@ -41,7 +6,7 @@ VA - Курортный Хит (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654575.jpg" />
 </div>
 
 
@@ -76,7 +41,7 @@ VA - Зарубежный Хит В Машину Выпуск 2 (2018) [MP3|256-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654550.jpg" />
 </div>
 
 
@@ -105,7 +70,7 @@ VA - Хит парад Союз лето (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654512.jpg" />
 </div>
 
 
@@ -131,7 +96,7 @@ VA - Club Dance Ambience Vol.148 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654421.jpg" />
 </div>
 
 
@@ -160,7 +125,7 @@ VA - Шоферской Хит 8 (2012) [MP3|128 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654406.jpg" />
 </div>
 
 
@@ -195,7 +160,7 @@ VA - Extra House (episode 2) (2015) [MP3|320 кб/с]<House, Deep House, Club Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654380.jpg" />
 </div>
 
 
@@ -224,7 +189,7 @@ VA - Новинки русского Рэпа. Музыкальный Капри
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654346.jpg" />
 </div>
 
 
@@ -250,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654132.jpg" />
 </div>
 
 
@@ -280,7 +245,7 @@ VA - Лето в кайф. Сборник 50/50 (2015) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654123.jpg" />
 </div>
 
 
@@ -309,7 +274,7 @@ VA - Beatport Top 100 Big Room May (2017) [MP3|320 Kbps] <House, Trance, Big Roo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653937.jpg" />
 </div>
 
 
@@ -338,7 +303,7 @@ VA - Beatport Top 100 Drum & Bass May (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653934.jpg" />
 </div>
 
 
@@ -367,7 +332,7 @@ VA - Emotional Healting: Spa Music Paradise (2017) [MP3|320 Kbps] <New Age, Down
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653852.jpg" />
 </div>
 
 
@@ -396,7 +361,7 @@ VA - Beatport Top 100 Dance May (2017) [MP3|320 Kbps] <Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653851.jpg" />
 </div>
 
 
@@ -425,7 +390,7 @@ VA - Alternative Digest June 2017 Mix (2017) [MP3|192-320 Kbps] <Alternative Roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653849.jpg" />
 </div>
 
 
@@ -454,7 +419,7 @@ VA - Beatport Top 100 Downloads May (2017) [MP3|320 Kbps] <Electro, Deep House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653840.jpg" />
 </div>
 
 
@@ -483,7 +448,7 @@ VA - Step Into This: Drum And Bass Session (2018) [MP3|256-320 Kbps] <Drum and B
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653773.jpg" />
 </div>
 
 
@@ -512,7 +477,7 @@ VA - My Favorite Blues: Soul Collection (2017) [MP3|320 Kbps] <Blues, Rock Blues
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653751.jpg" />
 </div>
 
 
@@ -541,7 +506,7 @@ VA - Дискотека 2018 Dance Club Vol.179 от NNNB (2018) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653483.jpg" />
 </div>
 
 
@@ -570,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653473.jpg" />
 </div>
 
 
@@ -599,7 +564,7 @@ VA - Суперхиты (2017) [MP3|320 Kbps] <Downtempo, Ambient, Vocal, Chillo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653443.jpg" />
 </div>
 
 
@@ -628,7 +593,7 @@ VA - DEEP'КАЧ 90-х от NNNB (2017) [MP3|256-320 Kbps] <Deep House, Nu Disco
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653441.jpg" />
 </div>
 
 
@@ -657,7 +622,7 @@ VA - Радио Чарт Energy - Жгучий Танцевальный Сбор
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653109.jpg" />
 </div>
 
 
@@ -692,7 +657,7 @@ VA - A State Of Vocal Trance Volume 01 - 50 (2012-2015) [MP3|320 кб/с]<Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652783.jpg" />
 </div>
 
 
@@ -721,7 +686,7 @@ VA - German Top 50 Party Schlager Charts 25.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652663.jpg" />
 </div>
 
 
@@ -750,7 +715,7 @@ VA - Ultimate Dance House (2019) [MP3|320 Kbps] <Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652658.jpg" />
 </div>
 
 
@@ -764,6 +729,35 @@ VA - Ultimate Dance House (2019) [MP3|320 Kbps] <Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0F34038C0CBE29273AEF59A45FC04395665ED05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291744   (652655) от 26.03.2019
+
+VA - Record Super Chart 579 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ilkay Sencan - Do It
+02.  Calvin Harris & Rag'n'Bone Man - Giant
+03.  David Guetta - Better When You're Gone (feat. Brooks & Loote)
+04.  Duke Dumont & Shaun Ross - Red Light Green Light(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2929F27F1A216DE0A71E44BCCBC8DAF388FE3B3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

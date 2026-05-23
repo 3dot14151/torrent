@@ -1,55 +1,3 @@
-###  Публикация: 759770   (906241) от 22.02.2014
-
-Первопроходец / Pioneer (2013) BDRip [720p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Начало 1980-х гг. В Северном море обнаружены огромные запасы нефти и газа. В начале норвежского нефтяного бума власти намерены любой ценой доставлять на берег «черное» и «голубое золото» планеты по трубопроводу с глубины 500 метров, перед этим проводя разведку месторождения. Профессиональный дайвер Петтер, одержимый идеей достижения дна Норвежского моря, — полон (   Читать дальше...   )Производство: Норвегия, Германия, Швеция, Франция, ФинляндияЖанр: ТриллерРежиссер: Эрик ШёлдбьергАктеры: Уэс Бентли, Стивен Лэнг, Аксель Хенни, Джонатан ЛаПалья, Стефани Сигман, Ёрген Лангхелле, Эни Даль Торп, Андре Эриксен, Эндре Хеллествейт, Арни Линдтнер Нэсс ...Перевод: Одноголосый закадровый, любительскийСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, НорвежскийПродолжительность: 01:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90FDCC5796062291BBF9ADDB8E5AE8075AEE54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759739   (906237) от 22.02.2014
-
-Как я теперь люблю / How I Live Now (2013) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в недалеком будущем. Пятнадцатилетняя Дэйзи приезжает из Нью-Йорка в Лондон к тете с дядей. И влюбляется без памяти в своего кузена Эдмонда. Но на пути первой любви встает внезапно разворачивающаяся Третья Мировая Война.Производство: Великобритания | BFI Film Fund, Cowboy Films, Film4Жанр: Фэнтези, Драма, ПриключенияРежиссер: Кевин МакДональдАктеры: Сирша Ронан, Джордж МакКэй, Том Холлэнд, Харли Бёрд, Анна Чэнселлор, Сара Барнетт, Эми Доусон, Кори Джонсон, Наташа Йонас, Дэнни МакЭвойПеревод: Многоголосый закадровый, профессиональный + одноголосый любительский (А. Матвеев | ненормативная лексика)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский (Fill, SDH)Продолжительность: 01:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC1204BB7371122E892F6C20AD1809F3A5EFFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 759753   (906211) от 22.02.2014
 
 Как я теперь люблю / How I Live Now (2013) BDRip [1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906211.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906182.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906180.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906173.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906166.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906101.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906062.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906047.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906045.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906044.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906041.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905983.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905977.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905974.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905970.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905962.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905948.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905939.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905835.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905767.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905759.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905754.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905727.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905718.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E12684C07D885DC52154537998E1635F3FA8352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991491   (905716) от 28.02.2016
+
+Существо / La Entidad (2015) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа студентов изучает "реакции на видео", что приводит их к старой пленке, спрятанной в архивной комнате кладбища. Похоже, что каждый, кто стал свидетелем фильма, встретил свою смерть при загадочных обстоятельствах. Когда студенты решают просмотреть снятый материал, они обнаруживают, на что способен демонический дух, выполняя древнее проклятие женщины, (   Читать дальше...   )Производство: Перу, Star FilmsЖанр: УжасыРежиссер: Эдуардо ШульдтАктеры: Родриго Фалла, Даниэлла Мендоза, Карлос Каселла, Марио ГавирияПеревод: Любительский (одноголосый)Язык субтитров: РусскийПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29167291847E7B962976A1875286E8D3AC1D274F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991531   (905715) от 28.02.2016
+
+Незнакомец / El desconocido (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находясь в машине вместе со своими детьми, управляющий банка получает анонимный телефонный звонок. Незнакомый голос сообщает ему, что у него есть всего несколько часов, на то, чтобы найти большую сумму денег, иначе бомба под его сиденьем взорвется…Производство: спания, Atresmedia Cine, La Ferme! Productions, Televisión de Galicia (TVG) S.A., Vaca FilmsЖанр: ТриллерРежиссер: Дэни Де Ла ТорреАктеры: Луис Тосар, Хавьер Гутьеррес, Эльвира Мингес, Фернандо Кайо, Гойя Толедо, Паула дель Рио, Марко Санс, Антонио Моурелос, Рикардо де Баррейро, Мария МераПеревод: Профессиональный многоголосый (Paradox & Omskbird records)Субтитры: Английские, испанские, французские (вшитые, отключаемые)Продолжительность: 01:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C1F7CA1275E45CE9D7B4C5B2C5E96625C1DA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

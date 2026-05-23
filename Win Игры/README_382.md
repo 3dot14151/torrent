@@ -1,29 +1,3 @@
-###  Публикация: 1689302   (124796) от 01.01.2024
-
-Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Lakeview Cabin 2 – хоррор-приключение в открытом игровом мире. Окружение, персонажи и прочие элементы выполнены в двумерном стиле, а пользователь наблюдает за происходящим сбоку. Действия переносят геймеров в настоящий мир фильмов ужасов, где на пути произойдут паранормальные явления, появятся монстры и расследования. Под управление представлено 4 центральных персонажа, (   Читать дальше...   )Тип издания: SceneРазработчик: Roope TamminenЖанр: Экшены, Инди, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615223   (124724) от 02.01.2024
 
 Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
@@ -32,7 +6,7 @@ Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124724.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Islanders (2019) [Ru/Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124704.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Fort Solis (2023) [Ru/Multi] (20231228) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124640.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Darkwood (2017) [Ru/Multi] (1.4a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124626.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gone Rogue (2023) [Ru/Multi] (1.14) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124615.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Six Ages 2: Lights Going Out (2023) [En] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124606.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124578.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124491.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Eternal Dread 3 (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124459.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ WARNO (2024) [Ru/Multi] (169014/dlc) Repack Other s [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124456.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Six Ages: Ride Like the Wind (2019) [En] (1.0.12-1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124417.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124413.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.003/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124407.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Kaya Joshi: Magical Detective (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124379.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124316.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (2.02/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124300.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Pronty (2021) [Ru/Multi] (3.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124242.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124144.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Gray Zone (2022) [Ru/Multi] (1.12) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124127.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124123.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.47140) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124115.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124097.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Livestream 2: Escape from Togaezuka Happy Place (2023) [Multi] (1.01) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124095.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Ballance / Баланс (2004) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124093.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124053.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ London Detective Mysteria - визуальная новелла в аниме-с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DB44E315363A49B6D227BAFF5CC3EEEC28658E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690456   (124023) от 07.01.2024
+
+The Night is Grey (2024) [En] (1.0) Scene SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124023.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Night is Grey наполнена мрачной атмосферой темной ночи, которая застала мужчину по имени Грэхем в лесу с бродящими волками. Главный герой спасается бегством, обнаружив небольшой заброшенный домик. Заглянув внутрь, протагонист находит девочку, испуганную и ищущую выход из ловушки. Совместными усилиями предстоит выбираться из загадочного леса, в котором мистическим (   Читать дальше...   )Тип издания: SceneРазработчик: Whalestork InteractiveЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
 ```
 
 https://mybot314.ru/tekegram_catalog/

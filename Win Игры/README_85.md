@@ -1,29 +1,3 @@
-###  Публикация: 1365229   (931960) от 06.03.2020
-
-Mindframe: The Secret Design (2020) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Встречайте захватывающую криминальную игру Mindframe. После экспериментального медицинского обследования в колледже у Уильяма Роджерса проявился неожиданный побочный эффект - он получил способность читать чужие мысли. Уильям старался держать это в секрете, но кто-то все-таки узнал правду. Теперь Роджерсу предстоит сыграть в кошки-мышки с безумцем, называющим себя (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E733F31E74419EF0F7DB3A88DD44B445533A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093838   (931883) от 16.01.2017
 
 Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
@@ -32,7 +6,7 @@ Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931883.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Legend of Merchant (2016) [Multi] (1.83) Unofficial SiMPLEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931791.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mystery Trackers 12: Queen Of Hearts / Охотники за тайнами 12: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931779.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) SteamRip  Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931703.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931612.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fantastic Fishing / Фантастическая рыбалка (2013) [Ru/En/Uk
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931605.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Brave: The Video Game / Храбрая сердцем (2012) [Ru/Multi] (1.0.0.3
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931588.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931584.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931507.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Northern Tales 5: Revival / Сказания севера 5: Возрожден�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931494.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (306.41/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931490.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Vikings: War of Clans (2017) [Ru] (575) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931479.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Cathedral (2019) [En] (1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930025.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Hunting Unlimited 2010 (2009) [Ru] (1.0) Repack =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930014.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Tinertia (2015) [En/Multi] (1.0.9) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929962.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ LUNA The Shadow Dust (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929861.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ BATTLETECH (2018) [Ru/Multi] (1.9.1/dlc) Repack xatab [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929849.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ RYAN BLACK (2017) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929843.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sniper: Ghost Warrior 2 / Снайпер: Воин-призрак 2  [Ru/En/Mult
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929570.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Warlock: Master Of The Arcane + 4 DLC [Ru/En] (Repack/1.4.1.56) 2012 | R.G. Cata
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929527.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Ceville / Ceville. Похождения тирана (2009) [En/Ge] (1.0.2.0) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928882.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Thief Simulator (2018) [Ru/Multi] (1.4) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928682.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Soulcalibur VI / Soulcalibur 6 (2018) [Ru/En] (02.05.00/dlc) Repack xatab [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928574.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/En] (1.3.7/dlc) Repack xatab [Omnissiah 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928570.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Nioh (2017) [Ru/En] (1.21.06/dlc) Repack xatab [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928568.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Nioh (2017) [Ru/En] (1.21.06/dlc) Repack xatab [Complete Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F5A99FDCA874FA507F354105FEB6065917FD42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094613   (928527) от 18.01.2017
+
+Dead Effect 2 (2016) [Ru/En] (170 106.1208) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Effect 2 – научно-фантастический шутер, продолжение космической франшизы Dead Effect, от первого лица с элементами ролевой игры. Уничтожайте врагов, прокачивайте своего персонажа, кооперируйтесь с друзьями, чтобы спасти корабль ЗКК "Меридиан" от монстров, зомби и найти дорогу домой.Тип издания: LicenseРазработчик: BadFly Interactive, a.s.Жанр: Action (Shooter, Space), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FAA162F1CA9DA73425F107C194BDD95D618D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Nothing But... Deep House Vol.14 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364770.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Good Morning IBIZA Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364768.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Analog Deep 2016 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364762.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364674.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Sense Of Deephouse (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364673.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Amsterdam Dance Essentials 2016: Deep House (2016) [MP3|320 Kbps] <Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364670.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Deephouse After Dusk (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364668.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364663.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Progressive House Autumn Essentials (2018) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364361.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Toolroom Amsterdam 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364273.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Ministry of Sound: DJ Mag Top 100 Djs (2012) [MP3|256 кб/с]<House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363747.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Electro Paradise (2010) [MP3|320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362317.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362133.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Chillout: Ultimate Sunset Collection (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362040.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Dubai Deep House (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362039.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - New York City: Deep House Rhythms (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362029.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Getting Deep Vol.7 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362024.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Andrew Lang - Visions (2016) [MP3|320 Kbps] <Progressive House, Progressive Tran
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361949.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Under The Surface Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361937.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Vocal Melodic House (2022) [MP3|320 Kbps] <Euro Dance, Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359617.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Nothing But... Amsterdam Dance Essentials 2018 Big Room (2018) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359139.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Greatest Dance Hits (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359135.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Soul House Deluxe - Luxury Melodies (2016) [MP3|320 Kbps] <Funky, Club Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357363.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Last Night Compilation (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354886.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - ADE Afterhours Volume 01 (2018) [MP3|320 Kbps] <Progressive House,Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354427.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ DJ Бинокль - DneproHouse (2001) [MP3|320 Kbps] <Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354414.jpg" />
 </div>
 
 

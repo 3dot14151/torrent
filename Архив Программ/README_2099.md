@@ -6,7 +6,7 @@ Blender 2.62 [Английский, Русский и др*]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81756.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows Loader 2.1.2 by Daz [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81750.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Corel VideoStudio Pro X5_Ultimate 15.0.0.258 Ultimate [EN] + Tutorials
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81732.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Multi Flash Kit by Core-2 v.9.3.12 [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81714.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Unattended Soft Pack 11.03.12 [X32/X64/Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81711.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Driver Easy Professional 3.11.3 + Portable by BALISTA [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81684.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wondershare DVD Slideshow Builder Deluxe 6.1.9.60 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81630.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Install Monitor 1.1.89.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81594.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Raise Data Recovery for NTFS 5.2 NTFS RePack + Portable by Boomer [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81561.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ MCS Drivers Disk v.9.0.40.450 revision 111220 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81516.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Save2pc Ultimate 5.11 Build 1377 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81418.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Windows 7 Ultimate x64 v.03.2012 (Иваново) Чистая без прогр
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81341.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Unity3D Pro 3.5.0f5 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81321.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ WPI for Windows 7 v.05.03.2012 by Rost55/andreyonohov [Русский] [2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81320.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ TrustPort Antivirus /USB Antivirus /Security /Total Protection 2012 12.0.0.486 F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81309.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Total Commander 7.57а Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81261.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ PhotoInstrument 5.5.551 Portable [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81242.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ iTunes x32 10.6 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81240.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81140.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Microsoft SQL Server 2012 11.0.2100.60 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81132.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ CyberLink PowerDVD Ultra 11.0.2608.53 Portable by Boomer [Мульти, Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81100.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ CyberLink PowerDVD Ultra 11.0.2608.53 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81072.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Total Commander SE v.8 (portable) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81032.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Soundlib - G-Player 1.3.0.3 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81029.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Wlodzimierz Grabowski - Extreme Sample Converter 3.6.0.1594 by ASSiGN [англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81006.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80965.jpg" />
 </div>
 
 

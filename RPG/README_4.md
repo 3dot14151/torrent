@@ -6,7 +6,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044179.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hero Siege (2014) [Ru/Multi] (5.6.0.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044102.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blue Reflection: Second Light (2021) [Multi] (1.02/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043979.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ATONE: Heart of the Elder Tree (2023) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043112.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Risen (2009) [Ru/Multi] (1.0a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043100.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Star Ocean - The Last Hope (2017) [Ru] (1.1.12212) Repack xatab [4K & Full HD Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041251.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Exiled Kingdoms (2018) [Ru/Multi] (1.2.1124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041249.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ringborn (2023) [En] (1.0) License Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041227.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Anima: Gate of Memories (2016) [Multi] (20171122) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041222.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Perseus: Titan Slayer (2023) [Ru/Multi] (1.0) License FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040666.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Guild of Dungeoneering (2015) [En] (1.2022.3.11/dlc) License GOG [Deluxe Ice Cre
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040665.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SpellForce: Conquest of Eo (2023) [Multi] (01.00.26984) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039223.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Torchlight III (2020) [Ru/Multi] (6056074/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039188.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Perseus: Titan Slayer (2023) [Ru/Multi] (1.1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038708.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.20.0.57604/dlc) Repack xa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038617.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.5d/dlc) Repack xatab [Definitive Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037869.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.0.2) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037694.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Vampires Dawn 3 - The Crimson Realm (2021) [Multi] (1.11g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037430.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (1.4) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036765.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Rebel Galaxy Outlaw (2020) [Ru/Multi] (1.18d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036763.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.7.3.0.5135400/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036754.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.02/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035511.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035506.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Disjunction (2021) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035031.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Outward (2019) [Ru/Multi] (1.3.3/dlc) Repack xatab (обновляемая)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034750.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Battle Brothers (2017) [Ru/En] (1.4.0.47/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033836.jpg" />
 </div>
 
 

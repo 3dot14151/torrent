@@ -6,7 +6,7 @@ Civil War - The Killer Angels (2013) [MP3|320 кб/с]<Heavy/Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741590.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Omminous - Immensity (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741372.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kaunis Kuolematon - Elama Ei Tarvitse Minua (2019) EP [MP3|320 Kbps] <Doom Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741160.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rotting Christ - The Heretics (2019) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741055.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Kalmah - Palo (2018) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740941.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Kroda - Selbstwelt (2018) [MP3|320 Kbps] <Black Metal, Folk Metal, Pagan Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740246.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Datum X - Burn The Soul (2020) [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739886.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Norvhar - Kauna (2019) [MP3|320 Kbps] <Folk Metal, Viking Metal, Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739729.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Preludium Fury - Battle of the Defender (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739119.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Feuerschwanz - Memento Mori (2021) Deluxe Version, 3CD [MP3|320 kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738151.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dianthus - Realms (2022) [MP3|320 kbps] <Alternative, Progressive Metal, Female 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736929.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Zephyria - Celestial Insurrection (2020) [MP3|320 Kbps] <Progressive Metal, Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736234.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - The Top 100 Most Played꞉ Metal (2022) [MP3|320 Kbps] <Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734949.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Saxon - Carpe Diem (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734011.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Korn - Requiem (2022) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733983.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Lyonen - This Is Lyonen (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732968.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Damnation Angels - Fiber of Our Being (2020) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732956.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Barron - Light In The Dark (2020) [MP3|320 Kbps] <Death Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732903.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Epic Metal (2022) [MP3|320 Kbps] <Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732695.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Night Demon - Darkness Remains (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731072.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Brymir - Slayer Of Gods (2016) Japanese Edition [MP3|320 кб/с] <Symphonic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730982.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Antti Martikainen - The Sound Of Courage (2017) [MP3|320 Kbps] <Epic Metal, Neo-
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730837.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ In Mourning - Afterglow (2016) [MP3|320 кб/с] <Progressive MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729995.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Cryonic Temple - Into The Glorious Battle (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729978.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Amorphis - Halo (2022) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729677.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Yngwie Malmsteen - World On Fire (2016) [MP3|320 кб/с] <Neoclassical Heavy Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729523.jpg" />
 </div>
 
 

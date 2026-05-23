@@ -6,7 +6,7 @@ The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2018 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208457.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CGTarian, Дэвид Стодольны | Мега-мультяшный стил
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208449.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Levelup.Digital, Bogodar Havrylyuk | Creating Foliage in Substance Designer (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208446.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ CGcircuit, VFX Magic | Houdini Flip – Chocolate (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208439.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ CGcircuit, Arsen Margaryan | Discovering Houdini VOP Part 1 (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208416.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ CGcircuit, Bishoy Khalifa | PBD Cloth Tearing in Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208413.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Domestika, Juan Perednik | Pencil Portraits: Light, Shadow, and Proportion (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208398.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ CGcircuit, Ciobanu Razvan | Advanced Destruction Series: Lightning Strike (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208304.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ lynda, George Maestri | Maya: Facial Rigging (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208280.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Enterclass, Анастасия Беседина | Зимний пейзаж ак
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208271.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Gumroad, Overdraw.xyz | Advanced Visual Effects in Unreal: Materia (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208266.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Digital Art Club, Алёна Клементьева | Цифровая Живо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208233.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ CG Forge, Tyler Bay | Pyro I - Smoke & Steam (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208226.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Muddy Colors, David Finch | Fantasy Anatomy (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208207.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208176.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Gnomon Workshop, David Silberbauer | Create A Procedural Waterwheel Simulati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208137.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208109.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Skillshare, 3D Tudor, Neil Bettison | Blender VFX Liquid Fire & Smoke (2021) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208101.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ ArtStation, Mathew O'Halloran | Hard-Surface Masters Vol.1 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208086.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Hudozhnik Online, Дарья Куцаева | Скетчинг цветными 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208050.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Enterclass, Анастасия Беседина | Акварельная фау�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208044.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Liveclasses, Алексей Шадрин | 12 неизвестных шедев�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207996.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Bazanova Art, Ольга Базанова | Роскошь лета. Пакет 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207974.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Marker School, Вера Шерстобитова | Основы маркерно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207866.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Lectoroom, Елена Базанова | Безумное чаепитие с к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207864.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Hudozhnik Online, Екатерина Бердюгина | Анатомия ко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207666.jpg" />
 </div>
 
 

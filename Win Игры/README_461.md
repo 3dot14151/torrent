@@ -1,29 +1,3 @@
-###  Публикация: 1748598   (43998) от 10.09.2024
-
-Marenian Tavern Story: Patty and the Hungry God (2019) [Multi] (1.0.2) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Marenian Tavern Story: Patty and the Hungry God - необычная японская игра, сочетающая в себе RPG и симулятор менеджмента. Главной героиней является девушка по имени Пэтти. Её младший брат залез в огромные долги и разорил семью, у которой в итоге забрали всё имущество, включая дом. Чтобы вернуть его и расплатиться со всеми долгами, Пэтти решает открыть таверну. Управляя (   Читать дальше...   )Тип издания: LicenseРазработчик: Rideon,Inc.Жанр: Приключенческие игры, Казуальные игры, Ролевые игры, СтратегииЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44C61DFD07E5663967A0FB1E21461DF778908B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748674   (43961) от 11.09.2024
 
 Son and Bone (2024) [En] (1.0) Scene Rune
@@ -32,7 +6,7 @@ Son and Bone (2024) [En] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43961.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Satisfactory (2019) [Ru/Multi] (1.0) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43937.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ I Am Your Beast (2024) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43933.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Lice
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43858.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Satisfactory (2019) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43850.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ KeepUp Survival (2024) [Ru/Multi] (20240906/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43849.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.1.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43847.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Diluvian Ultra (2023) [Ru/Multi] (3.5.24) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43846.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sweet Transit (2022) [Ru/Multi] (20240910) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43837.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43833.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Spiritfall (2024) [Ru/Multi] (1.5.11) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43823.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Plank Builders (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43816.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Nickelodeon All-Star Brawl 2 (2023) [Multi] (1.12.0/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43802.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Grocery Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43801.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ We Heist Too (2024) [En] (5.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43710.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43709.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ USC: Counterforce (2023) [Multi] (1.01.0a1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43702.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Kanji Legends (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43701.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sunrise GP (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43698.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43697.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Repack FitGirl [Digital Collec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43638.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43629.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack dixen18 [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43622.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Stardiver (2024) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43618.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43615.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8411E7CE917A5365C3804ED227598C9098375237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749375   (43609) от 14.09.2024
+
+Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Scene Tenoke
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingdom Rush Vengeance – это стратегия в реальном времени в жанре «Tower Defense», в которой вам придется возглавить армию могущественного мага и отправиться в череду опаснейших заданий и кровопролитных битв… События игры происходят в небольшом фэнтезийном королевстве, в котором до поры до времени царили мир и порядок. Но возвращение могущественного мага по имени (   Читать дальше...   )Тип издания: SceneРазработчик: Ironhide Game StudioЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141527882C344B55C16F2A8C7E70743ACA3A5D19
 ```
 
 https://mybot314.ru/tekegram_catalog/

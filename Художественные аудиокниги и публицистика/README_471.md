@@ -1,81 +1,3 @@
-###  Публикация: 1153147   (561062) от 25.07.2017
-
-Вернор Виндж | Пламя над бездной (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Разум, в чем бы он ни был воплощен, стремится раздвинуть границы непознанного.  Человеческое любопытство приводит к пробуждению древней и чрезвычайно агрессивной сущности. Попытка людей эвакуировать из зараженной зоны хотя бы детей заканчивается аварийной посадкой корабля на планете, населенной необычными существами со стайным разумом. Брат и сестра остаются один (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 21:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B4D23013DAC5725EC19D922614DE26B470DC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044902   (561007) от 22.08.2016
-
-Энтони Райан | Песнь крови (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ваэлину Аль-Сорна было всего десять лет, когда отец оставил его перед железными воротами Шестого Ордена, рыцари которого посвятили себя битвам. Отныне и Ваэлин будет вести суровую, трудную жизнь послушника, закаляя себя тренировками и воздержанием. У него больше нет иной семьи, кроме Воинов Веры. Ваэлину лучше забыть, что когда-то его отец был владыкой битв у короля (   Читать дальше...   )Жанр: Эпическое фэнтезиПродолжительность: 25:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3E60975F5D751C39653785E751B86E24A19845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044922   (560771) от 22.08.2016
-
-Эшли Вэнс | Илон Маск: Tesla, SpaceX и дорога в будущее (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга-биография самого знаменитого предпринимателя в мире, создателя Tesla и SpaceX Илона Маска! Илон Маск – знаменитый предприниматель с далеко идущими планами: он мечтает открыть новую эпоху космического туризма, основать колонии на Марсе, сделать выпуск экологически чистых электромобилей массовым. Именно с Илона Маска, этого настоящего бизнесмена будущего, был (   Читать дальше...   )Жанр: Зарубежная деловая литература, О бизнесе популярно, Управление, подбор персоналаПродолжительность: 14:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BF0CEF67408321125719CA8492E0F1C42F3719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924182   (560715) от 02.08.2015
 
 Дарья Донцова | Авоська с Алмазным фондом (2015) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560715.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560659.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560606.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560542.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560440.jpg" />
 </div>
 
 
@@ -220,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560363.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560338.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560265.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560199.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560196.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560156.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560095.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559979.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559965.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559931.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559923.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559902.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559870.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559860.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559828.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559821.jpg" />
 </div>
 
 
@@ -642,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559819.jpg" />
 </div>
 
 
@@ -668,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559817.jpg" />
 </div>
 
 
@@ -679,6 +601,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCA05FCA0F3E1799C4AE931B733220718E4E951A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304940   (559780) от 28.05.2019
+
+Амброз Бирс | Монах и дочь палача (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559780.jpg" />
+</div>
+
+
+###  Подробнее
+
+В месяце мая года 1680 францисканские монахи Эгидий, Роман и Амброзий отправились из города Пассау в монастырь Берхтесгаден близ Зальцбурга. Амброзию едва достиг 21 года. Пройдя уже немало дней и почти достигнув монастыря в горах, они увидели странную картину. Посередине зеленого луга, усыпанного цветами, возвышалась виселица с телом казненного. Прекрасная девушка (   Читать дальше...   )Жанр: Исторический романПродолжительность: 03:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C2544E8DA39910E9EEC37D870EA37984F0F1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304931   (559777) от 28.05.2019
+
+Владимир Батаев; Робин Штенье | Утраченный гримуар (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война с топ-кланом всегда дело нешуточное. А уж если во главе стоит читер из числа бета-тестеров игры…
+Но непобедимых нет, даже если они топы. И на каждую силу найдётся управа. Только без союзников в таком деле не обойтись. Магическая книга уникальных заклинаний тоже не повредит. А что из этого важнее – тут мнения могут разделиться. Конечно, лучше взять и то, и другое, (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, Юмористическое фэнтези. LitRPGПродолжительность: 16:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0D36E3510C3343E7D541809DA8DD375BEA6AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304722   (559776) от 28.05.2019
+
+Джеймс Дуглас | Зачем убили Джона Кеннеди. Правда, которую важно знать (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разные версии убийства Джона Кеннеди описаны уже много раз, но впервые мы встречаем тщательное и объективное исследование не столько того, кто и как это сделал, сколько почему, а главное – зачем. Кому это было выгодно? Кому и чему мешал президент?Жанр: Популярно об историиПродолжительность: 23:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B600392638B98D302354AFA86768CB7D9894F18
 ```
 
 https://mybot314.ru/tekegram_catalog/

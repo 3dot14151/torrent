@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069858.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Diodov.net, Дмитрий Забарило | Программирование �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069766.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ White Gamedev Academy, Илья Темин | Создание 3D-персона�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069528.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ pro-z.ru, Елена Ошина | Отопление и вентиляция н�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069480.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069417.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ AIHero, Matt Pocock | Claude Code для настоящих инженеров (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069407.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ R&D-лаборатория Devhands, Алексей Белозерский | Lak
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069406.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Level One, Николай Маевский | Шахматы для каждог�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069344.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069326.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ R&D-лаборатория Devhands, Алексей Рыбак | Произво�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069292.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ GB Architects, Алёна Мишанина | Освой ArchiCAD с нуля д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069253.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ OTUS, Илья Сикорский и др. | Unreal Engine Game Developer C++. B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069117.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068933.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ OTUS, Глеб Коробейников и др. | Разработка ядра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068917.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ qa.guru, Дмитрий Тучс, Михаил Рубанов | Курс по а
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068860.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Skillbox, Виталий Флоренцев, Александр Исупов | �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068859.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Slurm (Слёрм), Марсель Ибраев, Артём Прима | Kuberne
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068858.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ balun.courses, Александр Пряхин | Начинающий TeamLead (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068857.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068851.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ RWT, Михаил Павленко, Владимир Бабошкин, Миха�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068837.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068772.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ OTUS, Сергей Кольцов и др. | C++ Developer. Basic. Базовы�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068345.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068094.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ TutorPlace, Иван Земцов | Основы кибербезопаснос�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067936.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ TutorPlace, Юлия Падалка | Лидерство (2026) WEB-DL [AD] [RU]
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067914.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Magisteria, Александр Беликов | Введение в дедукт
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067893.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 464112   (80885) от 08.03.2012
-
-Последняя любовь на Земле / Perfect Sense (2011) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Земля столкнулась с небывалым бедствием. В разных странах, на каждом континенте люди в самом буквальном смысле лишаются чувств — каждого из пяти, одного за другим… Майкл и Сьюзан считают свою связь мимолетной, но когда становится ясно, что мир неумолимо приближается к концу, герои понимают — им уже не прожить друг без друга. Но что останется, когда пропадут последние чувства?Жанр: Фантастика, Драма, МелодрамаРежиссер: Дэвид МакКензиАктеры: Юэн МакГрегор, Ева Грин, Конни Нильсен, Стивен Диллэйн, Юэн Бремнер, Аластер МаккензиПеревод: Многоголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:32:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463924   (80857) от 08.03.2012
-
-Радиоволна / Frequency (2000) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Полицейский Джон Салливэн (Джеймс Кэвизел) случайно связывается по любительской радиостанции со своим покойным отцом, пожарным Фрэнком Салливэном (Деннис Куэйд), который погиб во время тушения пожара много лет назад. Удостоверившись в том, что они действительно сын и отец, сын начал давать советы отцу, как можно изменить прошлое, чтобы предотвратить трагическое событие. (   Читать дальше...   )Жанр: Фантастика, Триллер, ДрамаРежиссер: Грегори ХоблитАктеры: Деннис Куэйд, Джеймс Кэвизел, Шоун Дойл, Элизабет Митчелл, Андре Брогер, Ноа Эммерик, Мелисса Эррико, Дэниэл Хенсон, Джордан Бриджес, Стефен ДжоффПеревод: ДублированныйСубтитры: Russian, English, CzechПродолжительность: 01:59:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463972   (80853) от 08.03.2012
 
 Пожары / Incendies (2010) [720p] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80853.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80852.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80817.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80809.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80787.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80707.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80693.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80683.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80624.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80623.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80512.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80486.jpg" />
 </div>
 
 
@@ -379,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80481.jpg" />
 </div>
 
 
@@ -405,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80470.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80462.jpg" />
 </div>
 
 
@@ -459,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80299.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80290.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80287.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80259.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80247.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80245.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80210.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80119.jpg" />
 </div>
 
 
@@ -667,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80079.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 
 Действие картины разворачивается во время войны в Персидском заливе. Морской пехотинец Энтони Суоффорд — потомственный военный. После курса подготовки в специальном лагере его отправляют на Ближний Восток, где идут военные действия.
 Со снайперской винтовкой в руках и с тяжелым рюкзаком за плечами ему предстоит проделать нелегкий путь по пустыне, где нет спасения (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Сэм МендесАктеры: Джейк Джилленхол, Скотт МакДональд, Питер Сарсгаард, Джейми Фокс, Ло Минг, Лукас Блэк, Кевин Фостер, Брайан Джерати, Дэмион Пуатье, Риад Галайини ...Перевод: ДублированныйПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462194   (80062) от 04.03.2012
+
+Всегда (Только ты) / Ojik geudaeman (O-jik geu-dae-man) / Always (Only You) (2011) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательная история любви между ослепшей в результате аварии девушкой и боксером, который давно ушел из спорта. Их отношения дарят влюбленным долгожданные счастье и покой, но идиллия не может длиться вечно. И ради попытки спасения зрения любимой парень соглашается рискнуть всем, что у него есть…Производство: Корея Южная / HB Entertainment, Showbox/MediaplexЖанр: мелодрама, боевикРежиссер: Сон Иль-гонАктеры: Со Джи-соп, Хан Хё-джу, Юн Джон-хва, Кан Щин-иль, Пак Чхоль-мин, Чо Сон-ха, Чин Гу, О Гван-нок, Ви Сын-бэ, Хан И-джинПеревод: Одноголосый закадровый - Récitant (Svartkatt & Récitant)Субтитры: Отдельным файломПродолжительность: 01:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462346   (80059) от 04.03.2012
+
+Предчувствие / Premonition (2007) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80059.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого в жизни хоть раз было предчувствие беды. Когда просто знаешь, что скоро произойдет что-то плохое. Домохозяйку Линду сейчас как раз охватило такое предчувствие. Некоторое время спустя шериф города сообщает ей, что ее муж погиб в автокатастрофе. Не зная себя от горя и отчаяния, Линда не находит себе места — она не верит, что такое могло произойти. Проснувшись (   Читать дальше...   )Жанр: Мистика, Триллер, ДрамаРежиссер: Меннан ЯпоАктеры: Сандра Буллок, Джулиан МакМэхон, Шайэн МакКлюр, Кортни Тэйлор Бернесс, Ниа Лонг, Марк Маколей, Кейт Неллиган, Ирен Циглер, Филлип ДеВона, Ричи Монтгомери ...Перевод: ДублированныйПродолжительность: 01:36:23
 
 ## Скачать торент
 ```bash

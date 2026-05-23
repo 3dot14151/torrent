@@ -1,135 +1,3 @@
-###  Публикация: 1869895   (1068610) от 
-
-М. Борзых | Зов Пустоты. Жрец Хаоса (Книги 1-7) (2025-2026) [MP3, Александр Солоненко (Mayori)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В этом мире всё смешалось: Тёмные — защита империи, Светлые — её погибель. Пора им узнать, что жить в чёрно-белом мире вредно для здоровья.
-
-Да здравствует Первородный Хаос и я — его жрец!Жанр: Боевое фэнтези, ПопаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 62:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF8789037C81C574534A25548420C14202795E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869900   (1068609) от 
-
-Глобальный катаклизм / Jalkeemme vedenpaisumus / After Us, the Flood (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ученый Хенрик вместе с другом Сакари открывают источник чистой бесконечной энергии. Но этот источник переходит к алчной корпорации, и научный прорыв оборачивается катастрофой для всего человечества. Чтобы исправить ситуацию, Хенрик и Сакари отправляются в прошлое, чтобы исправить начатый ими глобальный катаклизм. Путешествие во времени идет не по плану, что ставит (   Читать дальше...   )Производство: Финляндия / Art Films Production, Tasse FilmЖанр: драмаРежиссер: Арто ХалоненАктеры: Элиас Вестерберг, Линнеа Лейно, Каспери Кола, Туомас Нильссон, Петтери Сумманен, Пихла Пенттинен, Роберт Энкель, Ханну-Пекка Бьёркман, Пааво Вестерберг, Андрей АленПеревод: Дублированный (КиноПоиск HD), одноголосый любительский (Мика Бондарик), (porcellus)Язык озвучки: русский, финскийСубтитры: русские, английскиеПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483245B8A11EB00E531C4F43B021D3A68107EC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869898   (1068608) от 
-
-Легенды / Legends (2026) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) WinMedia
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В начале 1990-х Таможенная и акцизная служба Её Величества проигрывала войну с незаконным ввозом наркотиков через британские границы. Решение проблемы оказалось экстраординарным. В рамках сверхсекретной операции небольшую группу сотрудников таможни отправили под прикрытие. Им предстояло внедриться в самые опасные наркосиндикаты Британии. Вот только это были не профессиональные (   Читать дальше...   )Производство: Великобритания / All 3 Media Productions, Lion Television, Tannadice PicturesЖанр: Драма, криминалРежиссер: Брэйди Худ, Джулиан ХолмсАктеры: Том Бёрк, Стив Куган, Том Хьюз, Шарлотта Ричи, Хейли Сквайрс, Дуглас Ходж, Амл Амин, Жасмин Блэкбороу, Джералд Кид, Кем ХассанПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE9E857DD5F6CCE020568FE340C8D8AEBF3BF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869899   (1068607) от 
-
-Террор / The Terror (2026) WEB-DL [H.264/1080p] (сезон 3, серии 1 из 6) HDRezka (обновляемая)
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В 3 сезоне сериала «Террор», получившем название «Дьявол в серебре», зрителей ждёт новая мистическая история. В центре сюжета — Пеппер, простой рабочий, которого из-за череды неудач и скверного характера незаконно отправляют в психиатрическую лечебницу Нью-Хайд. Это мрачное место, где общество прячет тех, о ком предпочитает забыть. Там герой сталкивается с враждебными (   Читать дальше...   )Производство: США / American Movie Classics (AMC), Scott Free Productions, Entertainment 360Жанр: ужасы, триллер, драма, история, фэнтезиРежиссер: Карин Кусама, Тим Милантс, Эдвард БергерАктеры: Дэн Стивенс, Джудит Лайт, Аасиф Мандви, Си Си Эйч Паундер, Джон Бенджамин Хикки, Стивен Рут, Майкл Аронов, Марин Айрлэнд, Чиназа Уче, Хэмптон Флакер, Хейуорд Лич, Филип ЭттинджерПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (SDH)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9137C377D7C14192D1E9C94ECA03B255C72CA032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869655   (1068606) от 
-
-Глубокие воды / Deep Water (2026) TS [H.264] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Группа международных пассажиров на рейсе из Лос-Анджелеса в Шанхай вынуждена совершить аварийную посадку в водах, кишащих акулами. Испуганные люди должны объединиться и преодолеть свои разногласия, если они надеются выбраться из тонущего самолёта и избежать нападения акул, привлечённых обломками.Производство: Испания, Новая Зеландия, США, Китай / Nostromo Pictures, Arclight FilmsAventura (I)Жанр: ужасы, боевик, триллерРежиссер: Ренни ХарлинАктеры: Аарон Экхарт, Бен Кингсли, Энгус Сэмпсон, Люси Барретт, Молли Райт, Келли Гейл, Прия Джайн, Рози Чжао, Ричард Краучли, Chrissy JinПеревод: Дублированный (Dragon Money Studio)Язык озвучки: Русский, Украинский, КазахскийСубтитры: ОтсутствуютПродолжительность: 01:36:18Реклама: Присутствуют вставки видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545F17BFBF8CBD4A83292BF4729F11A7409BC958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869893   (1068605) от 
 
 Платформа 7 / Platform 7 (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4) Ozz
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068605.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068604.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068603.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068602.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068601.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068600.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068599.jpg" />
 </div>
 
 
@@ -320,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068598.jpg" />
 </div>
 
 
@@ -346,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068597.jpg" />
 </div>
 
 
@@ -374,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068596.jpg" />
 </div>
 
 
@@ -400,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068595.jpg" />
 </div>
 
 
@@ -426,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068594.jpg" />
 </div>
 
 
@@ -453,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068593.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068592.jpg" />
 </div>
 
 
@@ -507,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068591.jpg" />
 </div>
 
 
@@ -533,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068590.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068589.jpg" />
 </div>
 
 
@@ -585,7 +453,7 @@ The Spell Brigade (2024) [Ru/Multi] (1.0.1.16434/dlc) Repack FitGirl [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068588.jpg" />
 </div>
 
 
@@ -611,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068586.jpg" />
 </div>
 
 
@@ -637,7 +505,7 @@ Firefox Browser 150.0.2 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068583.jpg" />
 </div>
 
 
@@ -663,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068582.jpg" />
 </div>
 
 
@@ -674,6 +542,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F32E6AA765A901A5B5D1DAEEE41E8761CC6C86C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869932   (1068581) от 
+
+Я иду искать 2 / Ready or Not 2: Here I Come (2026) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Едва пережив кровавую атаку семьи Ле Домас, Грейс понимает: кошмарная игра не окончена — она лишь выходит на новый, ещё более опасный уровень. На этот раз рядом с ней оказывается её сестра Фэйт. У Грейс есть всего один шанс выжить, сохранить сестре жизнь и завладеть Высшим креслом Совета, который управляет всем миром. За трон охотятся четыре враждующих семьи, и победитель (   Читать дальше...   )Производство: США, Канада / Searchlight Pictures, Vinson Films, Ontario CreatesЖанр: ужасы, триллер, комедияРежиссер: Мэтт Беттинелли-Олпин, Тайлер ДжиллеттАктеры: Самара Уивинг, Кэтрин Ньютон, Элайджа Вуд, Сара Мишель Геллар, Шон Хэтоси, Дэвид Кроненберг, Нестор Карбонелл, Кевин Дюран, Оливия Ченг, Варун СарангаПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Forced, Full, SDH) и др.Продолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289137C3C76F8E984ACE01F66E31C27F8BE89BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 27937   (1068580) от 
+
+Немецкое танго 1930-1940 гг.
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turnier Tango (R. Gaden Und. Orc.)
+02. Tango Bolero (B. Ette Und Orc.)
+03. Blauer Himmel (Tangoorc. B. Von Geczy)
+04. Man Kann Beim Tango Sich So Schone Dinge Sagen (Tangoorc. W. Schmidt-boelcke, Voc. H. Sohnker)(   Читать дальше...   )Жанр: Taнцевальное тангоПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C39B8239C4D23CF9AE011617567FEE90D9AA605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869876   (1068579) от 
+
+Windows 11 Pro х64 Version 25H2 Build 26200.8246 by Igors_VL [RU]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настроенная авторская сборка Windows 11 Pro с автоматизированной установкой, запускаемой с установочного носителя через UEFI (BIOS).Разработчик: MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25605A1754C9C04B2A334D0FFD81ECB9B952DF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869861   (1068578) от 
+
+Ритуал Нагуаля / El Ritual del Nahual (2026) Telecine [H.264/1080p] [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раненый бандит Габриэль находит убежище в странной деревне. В это же время туда прибывает федеральный агент, преследующий серийного убийцу, который оставляет после себя изувеченные тела детей. Но в глухих лесах Мексики своя правда и справедливость, которая приходит вместе с беспощадным судьёй - Текенчу.Производство: Мексика / Alta TensionKi Visual S.A. de C.V.Жанр: ужасы, триллерРежиссер: Карлос Матиенцо СерментАктеры: Херардо Оньяте, Алехандра Эррера, Херардо Трехолуна, Карали Санчес, Серхио Гава, Эстанислао МаринПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1BEFCA849DE6C6673F6C60800505D5DCBE22B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869863   (1068577) от 
+
+Ритуал Нагуаля / El Ritual del Nahual (2026) Telecine [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раненый бандит Габриэль находит убежище в странной деревне. В это же время туда прибывает федеральный агент, преследующий серийного убийцу, который оставляет после себя изувеченные тела детей. Но в глухих лесах Мексики своя правда и справедливость, которая приходит вместе с беспощадным судьёй - Текенчу.Производство: Мексика / Alta TensionKi Visual S.A. de C.V.Жанр: ужасы, триллерРежиссер: Карлос Матиенцо СерментАктеры: Херардо Оньяте, Алехандра Эррера, Херардо Трехолуна, Карали Санчес, Серхио Гава, Эстанислао МаринПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1244D8C238A1F81A2B0A0FA6CAE486B8ADD4623
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1634748   (197154) от 11.06.2023
-
-Санта-Хрякус. Страшдественская сказка (1-2 части из 2) / Hogfather (2006) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Фильм - экранизация одноимённого романа Терри Пратчетта. Сьюзан Сто Гелитская, приёмная внучка Смерти, пытается вести «нормальную жизнь», работая гувернанткой, но её необычные способности постоянно вовлекают её в приключения... Наёмный убийца Чайчай задумал убить то, что и убить-то нельзя, как всем казалось... В канун Страшдества пропал Санта-Хрякус; в Анк-Морпорке (   Читать дальше...   )Производство: Великобритания / The Mob Film Company, RHI Entertainment Inc., Moving Picture Company, British Sky Broadcasting (BSkyB)Жанр: фэнтези, триллер, драма, комедияРежиссер: Вадим ЖанАктеры: Дэвид Джейсон, Марк Уоррен, Мишель Докери, Дэвид Уорнер, Тони Робинсон, Найджел Плэйнер, Питер Гиннесс, Стивен Маркус, Крэйг Конуэй, Родри Мейлир, Шинед Мэтьюз, Иэн Ричардсон, Нил Пирсон, Николас Теннант, Ричард КацПеревод: Профессиональный многоголосыйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:37:24 + 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F1CE81C0D93374B26DC2B0B128D023AEB12499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634622   (197147) от 13.06.2023
-
-Полный облом / Big Nothing (2006) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Что может быть страшнее для школьного учителя Чарли Вуда, чем с треском вылететь с «любимой» работы и попрощаться с бандой малолетних спиногрызов? Только сидеть на шее у своей жены-копа, превратиться в домохозяйку и няню в одном лице. Или просиживать штаны в пыльной конторе до конца жизни. Отличные перспективы! Но судьба всё же слабо улыбнулась патологическому неудачнику. (   Читать дальше...   )Производство: Великобритания / British Pathé, Isle of Man Film Ltd., Millennium Films, Pathé, Wales Creative IP FundЖанр: триллер, комедия, криминалРежиссер: Жан-Батист АндреаАктеры: Дэвид Швиммер, Саймон Пегг, Элис Ив, Наташа МакЭлхоун, Джон Полито, Мими Роджерс, Билли Эшер, Джулиан Гловер, Оливия Петерсон, Сара ЭдмондсонПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A24BAE3CA2A7A29C72BFA3FA23975C3AC83869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639178   (197135) от 12.06.2023
 
 Черепашки-ниндзя 2 / Teenage Mutant Ninja Turtles: Out of the Shadows (2016) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197135.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197132.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197125.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197122.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197119.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197118.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197108.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197102.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197100.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197091.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197088.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197081.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197075.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197074.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197072.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197070.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197067.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197066.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197064.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197061.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197052.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197050.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197048.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197036.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:991794FFC34AF0C92BF5EBF2673F1EF45D11237B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639594   (197029) от 14.06.2023
+
+Дом удовольствий / La maison (2022) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая и привлекательная писательница Эмма Беккер ведет довольно однообразную жизнь и скучает в бесперспективных отношениях с женатым мужчиной. В поисках вдохновения для нового романа она, неожиданно для себя самой, решается на невероятный и аморальный эксперимент: устраивается работать в бордель. Погружаясь в ночной мир, Эмма не только изучает его, но и пытается (   Читать дальше...   )Производство: Франция, Бельгия / Radar Films, Rézo Productions, UmediaЖанр: ДрамаРежиссер: Анисса БоннфонАктеры: Ана Жирардо, Ор Атика, Росси де Пальма, Янник Ренье, Филипп Реббо, Джина Хименес, Никита Белуччи, Лукас Энгландер, Хильдегард Шредтер, Ирма, Джон РобинсонПеревод: Любительский многоголосый (Синема УС)Язык озвучки: Русский, ФранцузскийСубтитры: Французские (Full)Продолжительность: 01:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EAC9408B3ECA506CA39DB8DDF6536A72321D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640265   (197008) от 16.06.2023
+
+Граф Монте-Кристо / The Count of Monte Cristo (2002) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так же, как и в знаменитой классической истории, главным героем фильма является Эдмон Дантес. Этого бесхитростного молодого человека, собирающегося жениться на красавице Мерседес, предаёт его лучший друг Фернан. Оказавшись заключённым в тюрьму, Эдмон Дантес в течение тринадцати лет вынужден терпеть лишения и лелеять мысли о мести своим обидчикам. С помощью человека, (   Читать дальше...   )Производство: Ирландия, Швейцария, Великобритания, США / Count of Monte Cristo Ltd., Epsilon Motion Pictures, Spyglass Entertainment, Touchstone Pictures, World 2000 EntertainmentЖанр: боевик, триллер, драма, приключенияРежиссер: Кевин РейнольдсАктеры: Кристофер Адамсон, Джейби Бланк, Гай Карлтон, Бэрри Кессин, Джеймс Кэвизел, Генри Кавилл, Бриана Корригэн, Брендан Костильо, Майрид Дэвлин, Дагмара ДоминчикПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC39C66445955656B9679B4E1AE51262121E2B67
 ```
 
 https://mybot314.ru/tekegram_catalog/

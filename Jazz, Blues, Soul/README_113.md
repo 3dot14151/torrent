@@ -6,7 +6,7 @@ Martial Solal - Big Band (1984) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826779.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Woody Shaw - Field Recordings Of A Jazz Master (1975, 1980,1981) 2012, Internati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826775.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Houston Person - Broken Windows, Empty Hallways (1972) 2004, Prestige [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826774.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Carolyn Leonhart - Steal The Moon (2000) Sunnyside Communications [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826773.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Organissimo - Waiting For The Boogaloo Sisters… (2003) Big O Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826772.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Harry Allen Quartet - London Date (2016) Trio Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826768.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Michel Camilo & Tomatito - Spain (2000) Universal [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826662.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Clifford Brown & Max Roach - Brown and Roach Incorporated (1954) 2004, Universal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826660.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Miles Davis - In Person, Friday Night At The Blackhawk, San Francisco, Volume 1 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826659.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Fred Astaire - The Essential Collection (1933-1952) 2CD, 2006, Avid Entertainmen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826658.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Michel Camilo & Tomatito - Spain Again (2006) Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826657.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sonny Rollins And Coleman Hawkins - Sonny Meets Hawk!: The Two Giants Of The Ten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826650.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tedeschi Trucks Band - Live From The Fox Oakland (2017) [FLAC|Lossless|tracks + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826644.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lisa Ekdahl - Grand Songs (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Vocal Jazz>
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826622.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Santana - Blessings and Miracles (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826617.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Chicken Shack - Stan Would Rather Go Live (2004) Live, 2008, Angel Air Records [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826542.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Shrapnel Records Presents: The Best of Modern Blues (2015) [MP3|320 Kbps] <
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826540.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Samantha Fish - Chills & Fever (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826459.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Miles Davis - Kind Of Blue (1962) Remaster, 1987, CBS [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826456.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dakota Staton - Dakota At Storyville 1961 (1991) Collectables [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826336.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Dave Brubeck Quartet - Jazz At Oberlin 1953 (2003) Fantasy [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826334.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stan Getz & Charlie Byrd - Jazz Samba 1962 (2013) Analogue Productions [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826249.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Maria Jacobs - Lucky Girl (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826034.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Moacir Santos - Saudade (1974) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825582.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Phil Woods & The Japanese Rhythm Machine (1975) Remaster, 2014, Sony Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825580.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ George Coleman - Amsterdam After Dark (1978) Remaster, 2015, Solid Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825489.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Jaco Pastorius - Smoke On The Water, Live In Rome, 1986 (2007) [WavPack|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_431587.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Karrin Allyson - 9 альбомов (1995-2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_431579.jpg" />
 </div>
 
 
@@ -73,7 +73,7 @@ Van Morrison - Born To Sing: No Plan B (2012) [FLAC|Lossless]<Jazz, Blues, Pop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_431513.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Blue Note Trip - Volumes 1-7 (2003-2008) [FLAC/WavPack|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431413.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Count Basie Orchestra - Basically Basie (1937 - 1945) 4CD, 2005, JSP Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431390.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Johnny Smith - Foursome, Vol. 2 (1957) 2017, Warner [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430889.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Johnny Smith - Foursome (1957) 2017, Warner [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430888.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Johnny Smith - Moonlight In Vermont (1953) 2016, Warner [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430798.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Janet Klein & Her Parlor Boys - Put A Flavor To Love (2002) Coeur De Jeanette Pr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430369.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Burton, Corea, Metheny, Haynes, Holland - Like Minds (1998) [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430347.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Bob Brookmeyer - Mosaic Select 9 (1954 - 1958) 2004, 3CD, Mosaic Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429994.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Wynton Marsalis & Arturo Sandoval - Los Elefantes (1999) in-akustik [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429975.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Woody Shaw - The Complete CBS Studio Recordings Of Woody Shaw (1977, 1979, 1981)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429843.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ John Coltrane - Interstellar Space (1967) /2015, Universal/[FLAC|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429412.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ The Four Freshmen with Stan Kenton And His Orchestra - Live At Butler University
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429380.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Four Freshmen - More 4 Freshmen and 5 Trombones & In Person, Vol. 2 (1963, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429372.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Ruby Braff - Linger Awhile (1953 - 1955) 1999, Vanguard Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429353.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ The Four Freshmen - Voices in Love & Love Lost (1958, 1959) 1998, Collectors' Ch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429271.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Miles Davis Quintet - Winter in Europe 1967 (2006) Gambit Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428657.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Eva Cortes - El Mar De Mi Vida (2010) Universal [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428509.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Peggy Lee - Rendezvous With Peggy Lee (1946-1949) 2000, Vocalion[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428388.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Gary Burton & Friends - Departure (1997) [WavPack|Lossless|image + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428378.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Peggy Lee - Black Coffee: Best Of The Decca Years (1952-1956) 1997, Half Moon[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428371.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Oliver Nelson - The Argo, Verve And Impulse Big Band Studio Sessions (1963 - 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427621.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Arni Egilsson, Ray Brown, Pete Jolly - Basses Loaded (1996) Cambria [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427523.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Sonny Criss - Plays Cole Porter (1956) 2006, Toshiba [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426920.jpg" />
 </div>
 
 

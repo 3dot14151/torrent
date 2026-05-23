@@ -1,83 +1,3 @@
-###  Публикация: 1312017   (536228) от 02.07.2019
-
-Сергей Михеенков | Курсант Александр Воронцов (Книга 9). Чёрный туман (2019) [MP3, Сергей Пухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Весной 1944 года накануне операции "Багратион" в лесу близ хутора Чернавичи приземлился подбитый немецкими зенитками советский самолёт новейшей конструкции. На его поиски с двух сторон направляются усиленные разведывательно-диверсионные группы.
-С советской - офицеры Смерша, полковая разведка и группа бывших штрафников, имеющих опыт партизанской войны. С (   Читать дальше...   )Жанр: Военные приключения, боевикПродолжительность: 10:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A92989DE0F776C7F32AFECA4262F39E528381A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312175   (536073) от 02.07.2019
-
-Алекс Кош | Огненный Легион (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вот и наступил переломный момент в политической ситуации между Империей Элиров и Шатерским Халифатом. Началась война. И вчерашним магам-первокурсникам приходится отправиться в форт на границе двух государств, чтобы нести военную службу.
-Закери Никерс овладел артефактом, способным поднимать легионы умертвий, но, оказывается, за все надо платить, в том числе и за нежданно (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 15:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D504FE666DB775BC5BCACDDB25BB9974D1436040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532499   (536014) от 08.08.2012
-
-Игорь Михалков | Нибиру. Книга 1: Пробуждение. Серия: Z.A.K.A.T. [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пророчества о конце света в 2012 году начинают разом сбываться. Складывается впечатление, что Земля во что бы то ни стало решила избавиться от надоевшего ей человечества. Одна за другой обрушиваются природные и техногенные катастрофы. Необратимо изменяется климат. Люди сходят с ума. Ученые тщетно бьются над разгадкой немилости природы. И только русский археолог Игорь Аркудов, всю жизнь посвятивший изучению тайн древних цивилизаций, сумел доказать, что все происходящее укладывается в один трагический сценарий. Внезапно он умирает, оставляя зашифрованный дневник и письмо, полное смутных намеков на способ предотвращения глобальной катастрофы.Жанр: фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626F955F9E907FC6C7EB978459FF82D25FBC8A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558123   (535827) от 18.06.2022
 
 Андрей Дышев | Тёмная лошадка (2021) [MP3, Михаил Росляков]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535827.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535824.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535707.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535665.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535662.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535647.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535544.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535534.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535531.jpg" />
 </div>
 
 
@@ -328,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535457.jpg" />
 </div>
 
 
@@ -354,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535455.jpg" />
 </div>
 
 
@@ -381,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535449.jpg" />
 </div>
 
 
@@ -408,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535407.jpg" />
 </div>
 
 
@@ -436,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535405.jpg" />
 </div>
 
 
@@ -463,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535360.jpg" />
 </div>
 
 
@@ -490,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535319.jpg" />
 </div>
 
 
@@ -516,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535318.jpg" />
 </div>
 
 
@@ -542,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535311.jpg" />
 </div>
 
 
@@ -568,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535244.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535199.jpg" />
 </div>
 
 
@@ -620,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535064.jpg" />
 </div>
 
 
@@ -646,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535061.jpg" />
 </div>
 
 
@@ -672,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535047.jpg" />
 </div>
 
 
@@ -683,6 +603,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F05B35DDC2BF0BCDB1B84CAAE9557F52B3522F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239575   (535004) от 07.08.2018
+
+Джеймс Хедли Чейз | Это серьезно (2013) [MP3, Сергей Мурин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марк Гирланд отправляется на поиски двойного агента Кейри, у которого находятся очень важные документы. Поручение получено от Германа Радница при таких обстоятельствах, что никак не откажешься. За Гирландом по пятам следуют агенты КГБ. Удасться ли ему защитить интересы своей страны и выполнить задание?..Жанр: ДетективИздательство: Aудиокнига своими рукамиПродолжительность: 04:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C99931B4FC3EF3879FE3D31D2A727D664F45240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050642   (534914) от 10.09.2016
+
+Эллис Питерс | Хроники брата Кадфаэля (Книга 15). Исповедь монаха (2016) [MP3, Theophanu]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые «Хроники брата Кадфаэля» принесли английской писательнице Эллис Питерс (Ellis Peters) всемирную известность. Действие романов развивается между 1135 и 1145 годами, во времена гражданской войны между королевой Матильдой и королем Стефаном Блуаским. Некоторые романы о Кадфаэле описывают или ссылаются на имевшие место исторические события того времени. В (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2559E96C316BFDE64C87BA0EF213E12FA9DBE91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050777   (534912) от 10.09.2016
+
+Патрик Квентин | Преследователь (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вполне благополучный врач в результате интриги попадает в тюрьму. Пяти лет в тюрьме ему хватает, чтобы сообразить кто может иметь отношение к его несчастью. Он выходит на свободу и решает тут же отыскать виновных. Ничего такого не замышлял, хотел только спросить …
+Однако очень скоро герой из преследователя превращается в жертву, за которой ведется жестокая и целенаправленная (   Читать дальше...   )Жанр: ДетективПродолжительность: 03:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BEDF74CC8312D38021AB3DF9C02E3F3A63618F
 ```
 
 https://mybot314.ru/tekegram_catalog/

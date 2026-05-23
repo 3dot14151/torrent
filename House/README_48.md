@@ -6,7 +6,7 @@ Wolfgang Gartner - Back Story (2012) [MP3|320 кб/с]<House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496335.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Progressive Daylight (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496203.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ VA - Progressive Cuts (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496114.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496106.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496094.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495572.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Vocal House Essentials Vol.2 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492096.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Remix Sport Workout - Hard Body Training 2019 [MP3|320 Kbps] <Funky, Club House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490888.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Remix Sport Workout - The Best Music for Workout, Training & Running 2019 (2018)
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486679.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Funky Disco House Grooves, Vol. 12 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486176.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - To Get Her in the Mood Feed Her Music Workout Tracks (2018) [MP3|320 Kbps] 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486170.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486132.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484007.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480045.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Finest Selection Of Summer Anthems (2015) [MP3|320 кб/с]<Club, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480004.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Deep Dream (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478253.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Balearic Deep-House Anthems Vol.1 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478200.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Workout Motivation 2020 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477241.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474440.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Best Of Ibiza (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474146.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Maya Jane Coles - Take Flight (Deluxe Edition) (2017) [MP3|320 Kbps] <Tech House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474029.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Bikini Beach, Vol. 1 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473372.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Bikini Beach, Vol. 2 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473370.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Bakradze - Restless (2016) LP [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473302.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473274.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ VA - Workout & Fitness 2020 Motivation Training Music [MP3|320 Kbps] <House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472763.jpg" />
 </div>
 
 

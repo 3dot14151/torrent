@@ -1,55 +1,3 @@
-###  Публикация: 730326   (304199) от 04.12.2013
-
-Страсти Дон Жуана / Don Jon (2013) Blu-Ray [1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Комичная история современного ловеласа, который из каждого любовного приключения вынужден спасаться бегством. Он еще не знает, что недалек тот час, когда ему все-таки придется остепениться…Производство: СШАЖанр: Мелодрама, КомедияРежиссер: Джозеф Гордон-ЛевиттАктеры: Джозеф Гордон-Левитт, Скарлетт Йоханссон, Джулианна Мур, Тони Данца, Гленн Хедли, Бри Ларсон, Роб Браун, Джереми Люк, Пол Бен-Виктор, Италиа РиччиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9A24B99AFC682B5E6CA5BFAC4D59E0480FBB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032082   (304055) от 29.11.2016
-
-Рыжая белка / La ardilla roja / The Red Squirrel (1993) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хота намеревается совершить самоубийство. Пока он думает, прыгать ли ему с моста, с этого же моста падает девушка на мотоцикле. Он бросается ей на помощь и сопровождает в больницу. Она забыла даже, как ее зовут. И Хота сам придумывает ей жизнь: придумывает имя, говорит и ей и врачам, что они живут вместе уже 4 года. Какое-то время ложь "сходит ему с рук"...Производство: Испания, Sociedad General de Televisin S.A. (Sogetel)Жанр: Драма, комедия, музыкальныйРежиссер: Хулио МедемАктеры: Эмма Суарес, Нанчо Ново, Мария Барранко, Карра Элехальде, Кармело Гомес, Кристина Маркос, Моника Молина, Ана ГрасиаПеревод: Профессиональный многоголосый, Авторский, Любительский одноголосыйЯзык субтитров: Русский, английскийПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB45B0ECF9E80E1448B872BDD83B34DA58027603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078027   (303935) от 29.11.2016
 
 Джейсон Борн / Jason Bourne (2016) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303935.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303898.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303896.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303888.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303866.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303816.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303808.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303786.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303776.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303746.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303742.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303736.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303732.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303731.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303726.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303718.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303664.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303392.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303283.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303148.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303147.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303141.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303090.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ Yesterday / Yesterday (2019) BDRip [H.264/720p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302961.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ Yesterday / Yesterday (2019) BDRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A182A5C404E60E7609E0E78BB1B3D94C0F8A0052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261473   (302953) от 11.11.2018
+
+Лезвия славы: Звездуны на льду / Blades of Glory (2007) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый раз, когда самовлюбленный Чазз Майкл Майклс выходит на каток, он сразу показывает, что он — рок-звезда арены, окруженный вихрем ледяной крошки и толпой поклонниц. Его единственный соперник на льду — бывший вундеркинд Джимми МакЭлрой. Воспитанник детдома, он был замечен тренером фигурного катания на льду местного пруда. Дальше — годы тренировок, и вот МакЭлрой (   Читать дальше...   )Производство: США / DreamWorks SKG, Eyetronics, First Entertainment, MTV Films, Paramount Pictures, Red Hour Films, Smart EntertainmentЖанр: Комедия, СпортРежиссер: Джош Гордон, Уилл СпекАктеры: Уилл Феррелл, Джон Хидер, Уилл Арнетт, Эми Полер, Дженна Фишер, Уильям Фихтнер, Крэйг Т. Нельсон, Романи Малко, Ник Свардсон, Скотт ХэмилтонПеревод: ДублированныйСубтитры: английскиеПродолжительность: 01:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B85A0AD90AAB7F3A4653369E2A62CFBF293389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261542   (302950) от 11.11.2018
+
+На дне бездны / In Too Deep (1999) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Джефф Коул проникает в банду гангстеров, совершающую большинство преступлений в городе. Его цель — главарь по кличке «Бог» и Джефф должен его низвергнуть. Он понимает, чтобы войти в доверие, недостаточно быть крутым, нужно стать таким же, как они! А значит, оказаться за чертой, на самом дне бездны, откуда можно уже не вернуться!Производство: США / Dimension Films, Miramax Films, Suntaur Entertainment CompanyЖанр: Триллер, Драма, КриминалРежиссер: Майкл РаймерАктеры: Омар Эппс, ЭлЭл Кул Джей, Ниа Лонг, Стэнли Туччи, Хилл Харпер, Джейк Уэбер, Ричард Брукс, Дэвид Патрик Келли, Пэм Гриер, Вероника УэббПеревод: Двухголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6D5BC8B54824A6D7CB7902F5C2938E3A930B3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

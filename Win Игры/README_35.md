@@ -6,7 +6,7 @@ WW2 Rebuilder (2023) [Ru/Multi] (20250109/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051982.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dragon Ruins (2024) [Multi] (251206) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051978.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Island Notes (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051976.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BLOODKILL: Goreblast Overkill (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051960.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Type Final 2 (2021) [Multi] (2.0.4/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051959.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Salt and Sanctuary (2016) [Ru/Multi] (1.0.2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051958.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Salt and Sacrifice (2023) [Ru/Multi] (2.0.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051957.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.103.31214.0/dlc) Re
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051936.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Flushed (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051935.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chiral (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051934.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Animal Shelter 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051933.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AstroPlanet (2025) [Ru/En] (1.2.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051932.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pathologic 3 (2026) [Ru/En] (1.0.1) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051927.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051926.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051924.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adventure Seekers: Lost to Sea (2026) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051871.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051870.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Age of Empires III: Definitive Edition (2020) [Ru/Multi] (100.15.59076.0/dlc) Re
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051855.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Snow Ash (2026) [Ru/Multi] (Build 21437369) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051841.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051811.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051760.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dreamed Away (2025) [Ru/Multi] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051759.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Alan Wake Remastered (2021) [Ru/En] (34885/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051758.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051757.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Ancient Farm (2026) [Ru/Multi] (1.0.8) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051756.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Ancient Farm (2026) [Ru/Multi] (1.0.6) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051755.jpg" />
 </div>
 
 

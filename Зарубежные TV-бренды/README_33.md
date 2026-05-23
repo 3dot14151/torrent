@@ -1,29 +1,3 @@
-###  Публикация: 750178   (760785) от 17.05.2016
-
-NG: Взгляд изнутри. Крупнейший круизный лайнер в мире / Inside. The World's Biggest Cruise Ship (2007) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Побывайте на новогоднем круизе лайнера ""Свобода Морей"" - первого в мире корабля, имеющего на борту бассейн с бегущей волной, зону для водных видов спорта, скалодром, ледовый каток и боксерский ринг.Производство: National GeographicЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B43490581C738904FC13B0BECC22107F8DA3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718721   (760691) от 17.05.2016
 
 BBC. Древний Египет: Жизнь и смерть в Долине Царей / Ancient Egypt: Life and Death in the Valley of the Kings (2013) BDRip [H.264/720p-LQ] [2 серии из 2]
@@ -32,7 +6,7 @@ BBC. Древний Египет: Жизнь и смерть в Долине Ц�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760691.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760680.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760336.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NGW: Дикие острова гигантов / Savage Island Giants (2016) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760328.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC Horizon: Остановить мужские самоубийства / Stop
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760255.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760192.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC: Рождение человечества. Битва за планету �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759540.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC: Тайны Тихого океана (6 серий из 6) / BBC: South Pac
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759394.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759303.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758975.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758966.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ Discovery. Беар Гриллс: Выбраться живым / Get Out Alive 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_758900.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ NG. Суперсооружения. Мегазаводы. Экстремальн
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758832.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758615.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ BBC. США: Великая история и большое надувател�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758497.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758332.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ NG: Крокодил против акулы / The Croc That Ate Jaws (2021) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758243.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ NG: Потоп / The Flood (2018) WEB-DL [H.264/1080p] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758239.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758193.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ NG: Кремниевая долина / Valley of the Boom (2019) SATRip (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758189.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_758149.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758015.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ BBC: Египет. Тайны, скрытые под землей. Часть 2 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757918.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ BBC: История хирургии. Запасные части [3 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757914.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757855.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E6664F2BAE2403991E02779DBD259A8721817EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361485   (757840) от 27.04.2014
+
+BBC: Амазонка - Великая река мира / BBC: Amazon: super river (2007) DVDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм "Амазонка: Великая река мира" исследует удивительную жизнь реки, которая имеет самую разнообразную экосистему в мире. Из всех крутых рек на планете Амазонка самая длинная - более, чем 6400 км в длину и в некоторых местах до 16 км в ширину! Она практически разделяет континент пополам и содержит пятую часть всей пресной воды на планете. Чрезвычайное разнообразие дикой природы на территории Амазонки включает более 3000 видов рыбы и уникальных крупных животных, таких, как ленивец, ягуар, капибара и тапир. С помощью великолепных видов, снятых с высоты птичьего полета, профессиональной фотографии дикой природы и оригинальных визуальных эффектов "Амазонка" даст вам представление об удивительных животных и захватывающей истории самой великой реки мира.Жанр: ДокументальныйТелекомпания: BBCПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9656CC3494785917FCC3B00D07CCDA09922C9FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

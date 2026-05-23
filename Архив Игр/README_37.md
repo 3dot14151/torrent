@@ -6,7 +6,7 @@ King's Quest: Chapter 1 (2015) [En/De/Fr] License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567803.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Orcs Must Die! 2 [Ru] (RePack) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567561.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Orcs Must Die! 2 [Ru/En] (RePack) 2012 l Mailchik
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566784.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Orcs Must Die! 2 (P) [Ru/En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566637.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Apotheon (2015) [En] (1.03) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566572.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ GOD EATER 3 (2019) [Ru/Multi] (1.3) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566565.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Orcs Must Die! 2 [Ru] (RePack) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566480.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Inversion (Lossless Repack/5.48.0.0) [Ru] 2012 l R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566476.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Binary Domain (RePack/update 2) [Ru] 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566475.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Orcs Must Die! 2 [Ru/En] (Steam-Rip) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566362.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Orcs Must Die 2 [Ru/En/Multi9] (Steam-Rip/1.0.0.257) 2012 l R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566348.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Prototype 2 (Repack/1.0) [Ru] 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566291.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Hard Reset. Extended Edition [Ru/En] (RePack/1.51.0.0) 2011 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566285.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Prototype 2: RedNet Edition (RePack/1.0) [Ru] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566171.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ The Banner Saga 2 (2016) [En/Multi] (2.32.380) License PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565028.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Orcs Must Die / Бей орков [Ru/En/Multi9] (Steam-Rip/1.0.0.2416) 2011 l R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564577.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Singularity [Ru] (RePack/1.1) 2010 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564447.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Borderlands: Game of the Year Edition (RePack/1.4.1/4 DLC) [Ru] l 2009 l R.G. El
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564383.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Perfect World: Morai / Идеальный Мир: Земли духов [Ru] (L/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564370.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Funk of Titans (2015) [Multi] (4.3.7.101162) Repack FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564334.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Orcs Must Die! 2 [Ru/En] (RePack/1.0.0.257) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562799.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562647.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Prototype 2 [Ru/En] (RePack/1.0) 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562544.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Angry Birds Space [En] (RePack/1.2.2) 2012| YaKrevetko
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562478.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Orcs Must Die! 2 [Ru/En] (RePack/1.0.0.257) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562477.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562475.jpg" />
 </div>
 
 

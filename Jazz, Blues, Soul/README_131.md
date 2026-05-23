@@ -6,7 +6,7 @@ Herman Chittison - 1945 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793065.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Charlie Haden & Hank Jones - Come Sunday (2011) Universal [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793064.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Eric McFadden - Eric McFadden does AC/DC: Acoustic Tribute (2018) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793002.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Red Norvo - The Modern Red Norvo (1945 - 1951) 2CD, 2002, Savoy Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792981.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Stephanie Nakasian - Lullaby In Rhythm: A Tribute To June Christy (2002) V.S.O.P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792970.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Melanie Mason - Bendin' The Blues (2001) [FLAC|Lossless|image + .cue] <Chicago B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792930.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jens Sondergaard Quartet & Bob Rockwell - More Golson (2012) Stunt Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792883.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Elsie Bianchi Trio - Atlantis Blues (1962) 2004, Sonorama [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792882.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Black Art Jazz Collective - Presented by the Side Door Jazz Club (2014) 2016, Su
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792877.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lilly Martin - Minetta (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792871.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Devil's Disciples - The Devil Plays Guitar (2006) [MP3|256 Kbps] <Instrumental B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792824.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eric Clapton - The Lady In The Balcony: Lockdown Sessions (2021) Live [FLAC 2.0|
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792770.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tony Bennett & Lady Gaga - Love For Sale (2021) Deluxe [FLAC 2.0|96/24|tracks|WE
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792728.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Walt Dickerson - Four Classic Albums 1961 - 1962 (2016) 2CD, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792711.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Glenn Miller And The Army Air Force Band - Rare Broadcast: Performances from 194
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792689.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Wayne Shorter - The All Seeing Eye 1965 (1994) Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792645.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Pauline Alpert - Keyboard Wizards Of The Gershwin Era, Volume I (1943, 1944) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792533.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Valery Ponomarev & Benny Golson meet Jazz Old Trio - Mission In Siberia (1997) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792529.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dave Fields - Unleashed (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792528.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jason Barnhouse - The Wounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792524.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Delta Saints - Bones (2015) [FLAC|Lossless|tracks + .cue] <Delta Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792522.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Vainoras and the altar of the drill - Self titled (2017) [FLAC|Lossless|Web-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792498.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Yardbirds - Birdland (2003) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792489.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Scott Bradlee's Postmodern Jukebox - Fake Blues (2017) [FLAC|Lossless|Web-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792377.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Art Pepper - Goin' Home (1984) Victor [FLAC|Lossless|image + .cue] <Post-Bop, Pi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792276.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792275.jpg" />
 </div>
 
 

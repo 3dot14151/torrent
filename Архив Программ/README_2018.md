@@ -6,7 +6,7 @@ Microsoft  Visual C++ Runtimes AIO v0.78.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119895.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Steinberg - Cubase Pro 13 13.0.21 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119890.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AnyDesk 8.0.8 Portable 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119883.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Smart Driver Manager Pro 7.1.1170 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119874.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 11 Debloater 2.0.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119873.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Stardock Start 2.0.5.4 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119867.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.33135.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119862.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Topaz Video AI 4.1.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119855.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ JetBrains PhpStorm 2023.3.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119854.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ CPU Temp 1.4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119852.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Windows 10 Debloater 2.6.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119839.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Pale Moon 33.0.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119833.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Shotcut 24.01.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119832.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PrivaZer Pro 4.0.82 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119830.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ HWiNFO 7.70 Build 5350 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119827.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ FanControl V180 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119822.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NoMachine 8.11.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119820.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MediaInfo 24.01.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119819.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ PDF24 Creator 11.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119818.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Emurasoft EmEditor Professional 23.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119814.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Draw.io 23.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119796.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ StaxRip 2.34.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119784.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sandboxie plus 1.12.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119778.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Sandboxie 5.67.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119759.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ PDF-XChange Editor Plus 10.2.1.385 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119749.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Topaz Photo AI 2.3.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119729.jpg" />
 </div>
 
 

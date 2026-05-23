@@ -6,7 +6,7 @@ VueScan Pro 9.5.88 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395580.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Easy GIF Animator Pro 7.0 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395577.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Easy GIF Animator 7.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395573.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Recovery cd for Lenovo ThinkPAD X200 Tablet Windows XP Английская ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395560.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ TeamSpeak 3.0.9.2 Final + Portable by KGS [Английский + Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395558.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Reg Organizer 6.0 Beta 1 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395551.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Avast Internet Security 17.7.2314 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395522.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Avast Free Antivirus 17.7.2314 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395517.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ O&O Defrag Professional 21.0 Build 1115 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395516.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_395495.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Avast Premier 17.7.2314 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395431.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Adobe Premiere Elements 2018 (v16.0) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395384.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_395376.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_395373.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ DriverPack Solution Tweekend Edition 10.11 [MULTILANG +RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394940.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ CoolUtils Total Audio Converter 5.2.0.155 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394925.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ CDRWIN 10.0.12.1030 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394911.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Soft4Boost Document Converter 5.0.7.647 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394841.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Mail.Ru Агент 6.0.5998 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394804.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Google Earth 7.0.1.8244 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394798.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Ashampoo Burning Studio 18.0.8.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394781.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Full Uninstall 2.11 Final [Multi/Rus] DC 31.10.2012
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394750.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Advanced System Optimizer 3.5.1000.14600 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394685.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Internet Download Manager 6.29 Build 2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394668.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Ashampoo Burning Studio 18.0.8.1 RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394604.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Kaspersky Crystal 13.0.2.415 Beta [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394567.jpg" />
 </div>
 
 

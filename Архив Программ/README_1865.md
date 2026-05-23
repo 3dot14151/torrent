@@ -6,7 +6,7 @@ Adobe Media Encoder 2020 (14.0.0.556) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170817.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Backupper Pro 7.3.2 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170808.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170804.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CCleaner 6.06.10144 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170798.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mullvad Browser 13.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170786.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NVIDIA GeForce Desktop Game Ready 527.56 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170784.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PDF-XChange Editor Plus 10.1.2.382 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170776.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Skype 8.67.0.87 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170771.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AOMEI Partition Assistant Pro 9.13.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170770.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ RollBack Rx Professional 12.5 Build 2708963368 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170745.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ StartAllBack 3.6.15 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170739.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Nik Collection by DxO 5.3.0.0 Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170735.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tor Browser Bundle 12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170729.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AVG Clear (AVG Remover) 20.10.5824.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170725.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Avast Clear 20.10.5824.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170717.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Defender Tools 1.11 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170714.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ uTorrent Pro 3.6.0 Build 46612 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170711.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170708.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Revo Uninstaller Pro 5.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170654.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Reboot Restore Rx Professional 12.5 Build 2708962800 RePack by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170642.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Maxon Cinema 4D Studio 2023.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170640.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Auslogics Duplicate File Finder 9.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170639.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adobe Photoshop 2024 25.1.0.120 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170637.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Corona Renderer 9.1 for 3ds Max 2016-2023 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170627.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wireshark 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170626.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Opera 65.0.3467.69 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170624.jpg" />
 </div>
 
 

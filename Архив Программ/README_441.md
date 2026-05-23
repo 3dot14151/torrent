@@ -6,7 +6,7 @@ ACDSee Ultimate 9.2 Build 648 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814822.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FL Studio Producer Edition 20.6.2.1549 Signature Bundle Portable by XpucT [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814800.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Norton 360 22.9.1.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814767.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Norton AntiVirus 22.9.1.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814765.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ K-Lite Mega Codec Pack (x86/x64) 7.1.0 / 4.5.0 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814731.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Image Comparer 3.8.711 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814723.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Remote Desktop Manager Enterprise 11.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814709.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PDF-XChange Editor Plus 8.0.339.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814676.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814664.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CPUID HWMonitor 1.31 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814512.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aml Maple 5.06 Build 690 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814509.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Norton Internet Security 22.9.1.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814505.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Autodesk AutoCAD LT 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814503.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CCleaner 5.04.5151 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814485.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Edge 95.0.1020.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814128.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Calibre 5.30.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814079.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Rob Papen - Predator 3 1.0.0 VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814077.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ CrystalDiskInfo 8.12.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814073.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Vivaldi 4.3.2439.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814069.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Opera 80.0.4170.63 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814067.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mozilla Thunderbird 91.2.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814065.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PDF24 Creator 10.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814062.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814012.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Soft Organizer Pro 9.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814006.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ WinNTSetup 5.0.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814000.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Notepad++ 8.1.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813981.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ WSCC (Windows System Control Center) 7.0.7.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DxO PhotoLab Elite 6.10.0 build 284 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184467.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AMD Radeon Software Adrenalin Edition 23.9.3 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184460.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Psiphon 3 build 179 (25.09.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184447.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Auslogics Duplicate File Finder 10.0.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184439.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Blender 3.6.4 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184435.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Auslogics Registry Cleaner Pro 10.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184432.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Auslogics File Recovery 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184411.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Alfa eBooks Manager 8.6.20.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184409.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ LibreOffice 7.6.2.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184406.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ DxO PureRAW 3.6.0 build 22 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184397.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Auslogics Disk Defrag Pro 11.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184396.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Volume2 1.1.8.465 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184389.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ GeoGebra 6.0.745.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184381.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Viber 18.9.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184374.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Q-Dir 9.01.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184372.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Auslogics Duplicate File Finder 10.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184364.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PhotoResizerOK 2.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184352.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Tor Browser Bundle 12.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184347.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Windows 11 Manager 1.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184339.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CyberLink AudioDirector Ultra 13.0.2309.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184334.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ FxSound Pro 1.1.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184332.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Clip Studio Paint EX 2.2.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184330.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Extreme Picture Finder 3.63.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184329.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Mastering The Mix Collection 2022.11 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184306.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2011) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184296.jpg" />
 </div>
 
 

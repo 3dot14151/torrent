@@ -6,7 +6,7 @@
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020107.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012510.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006974.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005909.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998503.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994400.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Group | Женский Stand Up (2020) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987937.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987017.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986988.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986925.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976477.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973288.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973211.jpg" />
 </div>
 
 
@@ -341,32 +341,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 974473   (973198) от 14.01.2016
-
-Дем Михайлов | Судьба клана [ГКН - Книга 2] (2015) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Захватывающие приключения Роса в волшебном мире Вальдиры продолжаются! Тернист и опасен путь к вершине, но настоящий герой никогда не пасует перед трудностями и добивается цели. Оказавшись втянутым в разборки кланов, Рос старается любым способом выполнить миссию, несмотря на нескончаемые препятствия на своем пути. Предательство и настоящая дружба, любовь и ненависть (   Читать дальше...   )Жанр: ЛитРПГ, фэнтези, приключенияФормат: m4bПродолжительность: 10:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD2804564CEDFFD3C4819D384F1A872756D39E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974472   (973133) от 14.01.2016
 
 Дем Михайлов | Ярость богов [ГКН - Книга 3] (2015) [m4b|AAC]
@@ -375,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973133.jpg" />
 </div>
 
 
@@ -393,32 +367,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 974474   (973041) от 14.01.2016
-
-Дем Михайлов | Господство кланов [ГКН - Книга 1] (2015) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Огромный мир, наполненный приключениями и древними тайнами, чудовищами, жаждущими твоей смерти. И ты в нем. Мир, в котором каждый может добиться исполнения своих самых заветных желаний и стать кем угодно — удачливым в делах торговцем, мудрым отшельником, отважным воином или же боевым магом, которому подвластны разрушительные стихии. Но не следует ожидать, что твой (   Читать дальше...   )Жанр: ЛитРПГ, фэнтези, приключенияФормат: m4bПродолжительность: 10:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0569E6DB788EEB62FDD668B10C40C4515C4614DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975643   (969521) от 17.01.2016
 
 Дэн Симмонс | Эндимион [Песни Гипериона - Книга 3] (2013) [m4b|AAC]
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969521.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969517.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969510.jpg" />
 </div>
 
 
@@ -497,32 +445,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 975640   (969352) от 17.01.2016
-
-Дэн Симмонс | Гиперион [Песни Гипериона - Книга 1] (2008) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Созданный Дэном Симмонсом мир поражает воображение своей сложностью, новизной и эпической масштабностью. Мир великой реки Тетис - и межзвездной Гегемонии, связывающей сотни планет нуль-порталами. Мир космических кочевников и всемогущих ИскИнов, таинственных Гробниц Времени и безжалостного "ангела смерти" Шрайка. Мир, в котором причудливо переплелись судьбы (   Читать дальше...   )Жанр: ФантастикаФормат: m4bПродолжительность: 22:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B353BAADD723022E2E71CB5689DD001A177DB0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975648   (969240) от 17.01.2016
 
 Rowling J.K. / Роулинг Джоан | Harry Potter: The Complete Story / Гарри Поттер: Полная история (2010) [m4b, Стивен Фрай] [EN]
@@ -531,7 +453,7 @@ Rowling J.K. / Роулинг Джоан | Harry Potter: The Complete Story / Г
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969240.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962163.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956012.jpg" />
 </div>
 
 
@@ -611,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955907.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953044.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953035.jpg" />
 </div>
 
 
@@ -674,6 +596,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F56615CD342969D541A847F4A9918D3676CA68CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981276   (953006) от 31.01.2016
+
+Александр Прозоров | Медный страж [Ведун - Книга 9] (2013) [m4b|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война князя Муромского с торками оказалась на удивление жестокой. После их разгрома для русских торговых людей открылись дороги в верховья реки Урал и, естественно, встреча с шаманами и арийскими магами, с новыми богами и правителями, с неведомыми на Руси народами и обычаями. Встретив своего друга купца Любовода, Ведун ожидал найти на борту его ладьи отдых — покачаться (   Читать дальше...   )Жанр: ФэнтезиФормат: m4bПродолжительность: 12:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B56EC6BEAD10A2F903B6F262F3DD31E5F2CDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981268   (952976) от 31.01.2016
+
+Александр Прозоров | Креститель [Ведун - Книга 6] (2013) [m4b|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волхвы тоже люди. И хотя долг их — служить богам русским, доносить до людей волю небес и говорить небесам о чаяньях земных, но появляется иногда мыслишка не только духовную, но и земную власть к рукам прибрать. По воле судьбы на острие удара, направленного против князя Владимира, оказываются Олег Середин и богатырь Радул, которые вернулись в Киев из далекого Изборска (   Читать дальше...   )Жанр: ФэнтезиФормат: m4bПродолжительность: 13:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16668F1E827F24094739ADB8AA4B44B10AB3EBF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981269   (952975) от 31.01.2016
+
+Александр Прозоров | Тень воина [Ведун - Книга 7] (2013) [m4b|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек предполагает, судьба решает. Олег Середин хотел отправиться в Новгород — а попал в маленькое городище в верховьях Дона, хотел уничтожить обычную мавку — а оказался вынужден сражаться с половецкой ордой, хотел найти ночлег — а в итоге лишился души. И только решительность да отвага, и верный, остро отточенный клинок, подкрепленный древними чарами способны вернуть (   Читать дальше...   )Жанр: ФэнтезиФормат: m4bПродолжительность: 13:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA751AFC4288D3DFA8E9E3956A3E3EE6806F086
 ```
 
 https://mybot314.ru/tekegram_catalog/

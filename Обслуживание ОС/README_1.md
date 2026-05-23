@@ -6,7 +6,7 @@ Master Cleaner 1.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067907.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ FolderSizes Enterprise 10.0.45 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067902.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PrivaZer Pro 4.0.121 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067877.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ R-Wipe & Clean 20.0.2558 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067747.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Auslogics Registry Cleaner Pro 11.2.0.6  + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067732.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Auslogics Windows Slimmer 5.2.0.6 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067716.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Auslogics BoostSpeed Pro 14.2.0.6 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067715.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Auslogics Duplicate File Finder Pro 11.2.0.6 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067714.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Auslogics Registry Defrag 15.2.0.6 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067713.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Kudu 1.40.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067675.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Windows Manager 2.3.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067661.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Auslogics BoostSpeed 14.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067629.jpg" />
 </div>
 
 
@@ -317,32 +317,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868473   (1067621) от 30.04.2026
-
-CCleaner 6.40.11562 Free / Professional / Business / Technician Edition RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38C5124C07BECCAFDF4826292D4657392522E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868480   (1067619) от 30.04.2026
 
 Auslogics Duplicate File Finder 11.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -351,7 +325,7 @@ Auslogics Duplicate File Finder 11.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067619.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ Auslogics BoostSpeed 14.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067464.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ UniGetUI 2026.1.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067448.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ Microsoft PowerToys 0.99.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067439.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Auslogics Registry Cleaner 11.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067435.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ Auslogics Windows Slimmer 5.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067433.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ Auslogics BoostSpeed 14.2.0.6 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067432.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Windows 10 Debloater 3.0.1 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067384.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ Windows 11 Debloater 2.1.1 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067383.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ IObit Software Updater Pro 8.4.1.15 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067363.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ IObit Driver Booster Pro 13.4.0.234 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067358.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Wipe  Professional 2604 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067328.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ WindowManager 10.26.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067324.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ WindowManager - программа от разработчиков EarthView и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E45D203FAADEA84F774384091BBCD9C03775A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868221   (1067300) от 29.04.2026
+
+Advanced PC Cleanup 3.32.32.10081 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced PC Cleanup — это универсальная программа для очистки и оптимизации ПК, которая упрощает обслуживание компьютера. С помощью одного сканирования она выявляет ненужные файлы, старые загрузки, временные данные и скрытые проблемы, замедляющие работу системы. Сканирование также обнаруживает вредоносное ПО, показывает, какое свободное место можно освободить, предупреждает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336723EE440DFB51C531A2CDD97FE6BD23C2280A
 ```
 
 https://mybot314.ru/tekegram_catalog/

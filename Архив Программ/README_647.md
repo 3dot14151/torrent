@@ -6,7 +6,7 @@ WinTools.net Premium 17.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724083.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Glarysoft Malware Hunter PRO 1.10.0.21 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723953.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Internet Download Manager 6.28 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723947.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ F-Secure Freedome VPN 2.45.887.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723850.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio 8.3 Build 167546 Network Edition RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723844.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cent Browser 1.9.13.75 Portable by CheshireCat [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723743.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ R-Studio 8.3 Build 167546 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723722.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SAP2000 Ultimate 18.1.1 Build 1228 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723632.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Core Temp 1.0 RC9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723621.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Winstep Xtreme 16.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723614.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ RadioBOSS Advanced 5.4.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723519.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Loaris Trojan Remover 2.0.3 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723514.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ oCam Screen Recorder 107.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723507.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ XMedia Recode 3.2.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723501.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SynWrite 6.17.2045 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723495.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Vivaldi 1.0.161.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723494.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ DivX Pro 10.6.0 Retail (веб-установщик) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723434.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wise Auto Shutdown 1.45.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723424.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VLC Media Player 2.2.4 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723336.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ DVDFab 9.1.9.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723326.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Tipard Blu-ray Converter 9.2.18 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723291.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ FileZilla 3.32.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723225.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ PrintMyFonts 18.3.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723216.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Opera Mail 1.0 build 1040 + Portable + PortableApps [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_723184.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ AIMP 3.60 Build 1492 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723145.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Avira System Speedup 1.6.3.768 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723144.jpg" />
 </div>
 
 

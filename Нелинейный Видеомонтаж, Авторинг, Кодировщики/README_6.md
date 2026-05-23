@@ -1,55 +1,3 @@
-###  Публикация: 1839953   (1046968) от 02.12.2025
-
-Blackmagic Design DaVinci Resolve Studio 20.3.0 Build 10 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF04D58C37C2A084191C06FAE219048B5955430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839965   (1046949) от 02.12.2025
-
-Wondershare UniConverter 17.1.0.454 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3A8F3B5AAB5F1ECFD9260E646AAD9EF700B30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839997   (1046939) от 02.12.2025
 
 Blackmagic Design DaVinci Resolve Studio 20.3.0 Build 10 RePack by KpoJIuK [Multi/Ru]
@@ -58,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 20.3.0 Build 10 RePack by KpoJIuK [Mult
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046939.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Fast Video Cutter Joiner 6.9.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046932.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Fast Video Cutter Joiner 6.9.3.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046491.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044682.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ GOM Mix Pro 2.0.5.7.0 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043417.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ HitPaw Toolkit 1.1.0.12 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041409.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ VideoReDo TV Suite 6.62.4.827 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041388.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ VideoProc (comss promo) 4.1 [Multi+Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038959.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ vMix Pro 23.0.0.67 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037315.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ TunesKit AceMovi 4.9.21.156 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037256.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Natron 2.5.0 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032910.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Movavi Video Editor 23.3.0 Portable by zeka.k [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029557.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ Red Giant Universe 3.3.3 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026455.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ Machete 5.0 Build 90 Portable by conservator [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005426.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ Boris FX Sapphire Plug-ins 2020.01 x64 for Adobe CC RePack by pooshock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002611.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ BluffTitler DX9 iTV SuperPack v8.7.0.0 by VPP [Multi/Rus]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999486.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ Digieffects MegaSuite for Premiere & After Effect CS3-CS6 + Presets v2.5.1 [ан
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997621.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ SmartSound SonicFire Pro 5.7.5 Scoring NetWork Edition + SonicFire Pro Plug-ins 
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994951.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ Frischluft EffectPack for AE & PrPro [Английский]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994352.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ proDAD Mercalli V5 SAL+ 5.0.460.2 RePack by CaH4e3 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990432.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ Boilsoft Video Splitter 7.02.2 Portable by SamDel [Русский]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989792.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ proDAD Mercalli V5 SAL+ 5.0.460.2 RePack by pooshock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988702.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ Ummy Video Converter 1.0.0.1 portable by DRON [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978730.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971718.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DC08547FD92C7904FDAEFF89D869FC784FFA7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977914   (964418) от 22.01.2016
+
+Bigasoft Total Video Converter 5.0.10.5862 Portable by SpeedZodiac [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft Total Video Converter - это мощный видеоконвертер, позволяющий конвертировать практически любые видеофайлы в различные форматы. Программа распознает свыше 40 видео и аудио форматов и поддерживает конвертирование между свыше 30 форматами (HEVC/H.265, AVI, Xvid, DivX, H.264, MP4, 3GP, MKV, WMV, RM, FLV, MOV, WTV, MXF, MVI, F4V, Apple ProRes MOV, WebM, VP8, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC85DFAB04EFB20FA5F519BC400EB75B01E0725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977959   (964278) от 22.01.2016
+
+Ashampoo Movie Studio Pro 2.0.9.7 [Multi/Ru]
+
+>>След.
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Movie Studio Pro - это идеальное многофункциональное приложение для создания и редактирования видео. Нарезайте, конвертируйте и делитесь Вашими видео, объединяйте фотографии и видео с помощью элегантных переходов. Благодаря высоко интуитивному управлению, каждый без проблем может применить эффекты или добавить логотип. Используйте прямой путь в простом режиме, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B91DC31A964F4AB03FF54758BA583CE879D3435
 ```
 
 https://mybot314.ru/tekegram_catalog/

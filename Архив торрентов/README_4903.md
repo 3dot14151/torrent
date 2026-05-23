@@ -6,7 +6,7 @@ Topaz Photo AI Pro 3.6.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21063.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAGIX Vegas Pro 22.0 Build 248 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21058.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OpenVPN 2.6.14 (18.04.2025) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21055.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Xiaomi Home (Ранее. MiHome) v10.4.700 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21052.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AAF Family DCH Audio Realtek 10.11.9816.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21044.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Reg Organizer 9.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21041.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Open Server Panel 6.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21035.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Soft Organizer Pro 10.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21034.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ocenaudio 3.14.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21033.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21031.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Calibre 8.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21025.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ GeoGebra 6.0.883 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21006.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ StaxRip 2.46.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21005.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FileZilla 3.69.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20997.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Alfa eBooks Manager 9.1.46 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20996.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Malwarebytes AdwCleaner 8.5.1.601 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20987.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Activation Program 1.10 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20985.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Windows Manager 2.1.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20945.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Athentech Perfectly Clear Complete 4.7.0.2780 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20942.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MediaHuman YouTube Downloader 3.9.10.0 (1804) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20941.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.4 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20939.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 15.04.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20932.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Reg Organizer 9. 70 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20931.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.4.55968 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20927.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ dBpoweramp Music Converter 2025.04.17 Reference (x64) Portable by FC Portable [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20925.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Steinberg - HALion 7 7.1.10 STANDALONE, VSTi 3, AAX (x64) + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20917.jpg" />
 </div>
 
 

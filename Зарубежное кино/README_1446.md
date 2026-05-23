@@ -1,56 +1,3 @@
-###  Публикация: 962969   (290749) от 06.12.2015
-
-127 Часов / 127 Hours (2010) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Неудержимый скалолаз и любитель спрятанных в каньонах пещер в очередной раз в одиночестве едет в горы и оказывается в смертельной ловушке. 127 часов без еды, без питья и практически без надежды выжить. Тут-то и проявляется сила характера…Производство: США, Великобритания / Cloud Eight Films, Darlow Smithson Productions, Dune Entertainment IIIЖанр: триллер, биография, драма, приключенияРежиссер: Дэнни БойлАктеры: Джеймс Франко, Кейт Мара, Эмбер Тэмблин, Клеманс Поэзи, Лиззи Каплан, Трит Уильямс, Кейт Бёртон, Шон Ботт, Джон Лоуренс, Колман Стингер, Бэйли Мишель Джонсон, Паркер ХэдлиПеревод: Профессиональный (полное дублирование) (Лицензия BD CEE)Язык субтитров: русский, английскийПродолжительность: 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB7727301478DE83A96AD973EFE91FD8C8BE473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962654   (290745) от 06.12.2015
-
-Костяной томагавк / Bone Tomahawk  (2015) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Небольшой город живёт своими традициями, и здесь редко происходит что-то интересное. Именно сюда приходит грабитель Бадди, только что потерявший напарника: старика убили странные дикари, когда приятели после очередного налёта решили пройти через их территорию.
-В баре он ссорится с шерифом и получает пулю в ногу. Хотя парня, скорее всего, повесят, служитель закона (   Читать дальше...   )Производство: США, Caliber Media Company.Жанр: ужасы, вестернРежиссер: С. Крэйг ЗалерАктеры: Патрик Уилсон, Курт Рассел, Шон Янг, Занн МаКларнон, Лили Симмонс, Мэттью Фокс, Дэвид Аркетт, Ричард Дженкинс, Брэндон Молале, Кэтрин Моррис, Сид Хэйг, Майкл ПареПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F35F7F8073A4F11FB8E97CCE052F1A86FEE2A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962920   (290742) от 06.12.2015
 
 Закон Пустыни / Принц пустыни / The law of The Desert / Il principe del deserto (1991) DVDRip [H.264] [3 серии]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290742.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290741.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290732.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290725.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290720.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290719.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290717.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290715.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290713.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290712.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290707.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290703.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290702.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290639.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290635.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290632.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290631.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290629.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290628.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290619.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290606.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290598.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290596.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290593.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89780AC8ABE8CE27CEC12E9D646EB34411DB8025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334942   (290592) от 31.10.2019
+
+Шпионская игра / The Catcher Was a Spy (2018) BDRip [H.265] [10-bit ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разгар Второй мировой войны. Жизнь Мо Берга, интеллектуала, полиглота, выпускника престижного университета и известного спортсмена-бейсболиста, круто меняется, когда ему предлагают сотрудничество с Управлением стратегических служб (предшественник ЦРУ). Благодаря своим разнообразным талантам, а также умению хранить секреты, Мо быстро осваивается в роли шпиона. От (   Читать дальше...   )Производство: США / Animus Films, Palm-Star Entertainment, Serena FilmsЖанр: Триллер, ПриключенияРежиссер: Бен ЛуинАктеры: Пол Радд, Пьерфранческо Фавино, Том Уилкинсон, Конни Нильсен, Анна Гейслерова, Марк Стронг, Simon Perina, Джон Шваб, Krystof Dupal, Jirí VavrusaПеревод: Дублированный (iTunes),Субтитры: АнглийскиеПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AFB142461F6C5FDEABBA69987691205283C3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334775   (290588) от 31.10.2019
+
+Как отмыть миллион / La chute de l'empire americain (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромняга Пьер-Поль, обладатель ученой степени, вынужден подрабатывать курьером. В один прекрасный день, доставляя очередную посылку, он первым оказывается на месте преступления и становится обладателем миллионного куша. Искушение решить все житейские проблемы велико. И пока он размышляет вернуть или присвоить огромную сумму наличных, его начинают преследовать бандиты, (   Читать дальше...   )Производство: Канада / Cinemaginaire Inc.Жанр: Комедия, КриминалРежиссер: Дени АрканАктеры: Александр Ландри, Мари-Пьер Морен, Реми Жирар, Максим Рой, Эрик Брюно, Венсан Леклер, Жюльетт Госслен, Пьер Курци, Ян Инглэнд, Роз-Мари Перро, Клод ЛегоПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF678378EF47CA81F64D5DA9B66D1748C37B69D
 ```
 
 https://mybot314.ru/tekegram_catalog/

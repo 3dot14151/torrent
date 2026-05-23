@@ -6,7 +6,7 @@ Ships 2017 (2016) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425244.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ships 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425243.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Robot Squad Simulator 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420459.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Demolish & Build Company 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415649.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411080.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Digital Deluxe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407615.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Farming Simulator 2013 [En] (L) 2012 | RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398610.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Scania Truck Driving Simulator - The Game [En/Ru/Multi33] (L) 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395559.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Bus Simulator 2012 [En/Ru] (L) 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395412.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388120.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Train Sim World 3 (2022) [Ru/Multi] (1.0.16/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378551.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Coast Guard (2015) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376404.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Professional Farmer: American Dream (2017) [Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375717.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375360.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Need to Know (2018) [En] (1.30.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371729.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Revenant
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369411.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.1.6.0/dlc) Repack R.G. Revenant
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369313.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/En] (1.4.2 hotfix 2/dlc) Repack R.G. Reve
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369102.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9:500/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368991.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Fernbus Simulator (2016) [Ru/Multi] (1.0/dlc) License CODEPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367077.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Fernbus Simulator (2016) [Ru/Multi] (1.14.12800/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366959.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Real Farm (2017) [Ru/Multi] (1.0.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366958.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Thief Simulator (2018) [Ru/Multi] (1.2.6) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365086.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ On the front line / На линии фронта (2016) [Ru/Multi] (1.0) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363248.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ TITANIC Shipwreck Exploration (2018) [En] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360632.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ TITANIC Shipwreck Exploration (2018) [En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360478.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 09.11.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190110.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mirillis Action! 4.37.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190106.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Adobe Media Encoder 2023 23.0.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190101.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Topaz Video AI for Mac 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190096.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DxO PhotoLab 6 ELITE Edition 6.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190093.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5501.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190092.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PDF Reader Pro Edition 2.9.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190084.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Telegram Desktop 4.9.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190082.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Comodo Dragon 116.0.5845.141 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190080.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ CleanShot X 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190078.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Microsoft Office 2016-2019 Professional Plus  Standard + Visio + Project 16.0.12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190075.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Viber 20.9.0.9 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190072.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ HiBit Uninstaller 3.1.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190068.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ EssentialPIM Pro 11.7.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190053.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ FxFactory Pro 8.0.10 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190052.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ AirReceiver AirPlay Cast DLNA v5.0.3 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190051.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Sweet Home 3D 7.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190048.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ AntiPlagiarism.NET 4.128.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190045.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Sketch 94 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190036.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Spotify 1.2.19.941 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190031.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ LibreOffice 7.6.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190016.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ PictureThis - Plant Identification v3.65 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190012.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Sensei 1.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190006.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Antivirus Removal Tool 2023.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190004.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ FileMenu Tools 8.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190001.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ PDF-XChange Editor Plus 10.1.0.380 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189993.jpg" />
 </div>
 
 

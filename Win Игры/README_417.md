@@ -1,29 +1,3 @@
-###  Публикация: 1717415   (59108) от 20.04.2024
-
-Turbo Kid (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Turbo Kid представляет собой метроидванию с двухмерной графикой в стиле пиксель-арт, камерой с видом сбоку, кровью и мясом. В инди-тайтле можно исследовать карту в своём темпе и выбирать собственный порядок прохождения боссов. От других представителей жанра данный экшен-платформер отличается тем, что по локациям можно не только ходить пешком, но и кататься на велосипеде. (   Читать дальше...   )Тип издания: RepackРазработчик: Outerminds Inc.Жанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14360B3C84A4C051434977082DA12017C4C61CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717429   (59098) от 20.04.2024
 
 Goons: Legends & Mayhem (2024) [Multi] (1.0.0.7) Repack FitGirl [Digital Deluxe]
@@ -32,7 +6,7 @@ Goons: Legends & Mayhem (2024) [Multi] (1.0.0.7) Repack FitGirl [Digital Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59098.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Our Adventurer Guild (2024) [En] (1.071) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59070.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Jonesville (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59035.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59026.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59024.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Pepper Grinder (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59006.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59004.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58954.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58946.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58936.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Knights & Guns (2024) [Multi] (1.0) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58935.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58934.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ World Turtles (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58930.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58927.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58923.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58922.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Aron's Adventure (2021) [Multi] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58916.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58914.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58909.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Galactic Ruler Enlightenment (2024) [Multi] (11.2.1286) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58908.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/En] (1.1.0) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58907.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Battle Planet - Judgement Day (2019) [Multi] (1.7.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58891.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Sophia the Traveler (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58888.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Mato Anomalies (2023) [Multi] (rc3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58884.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Omega Mouse Zero (2024) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58880.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Omega Mouse Zero – настало время отправиться в уди�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:420B4492D02CBB6620C617F224E7A0A39290999C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717852   (58873) от 22.04.2024
+
+Aron's Adventure (2021) [En] (1.05) Scene CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aron's Adventure – ролевое приключение, разворачивающееся в вымышленном мире Элоре. На магических землях вновь возродилось зло. Судьба фантастической планеты находится в руках главного героя Арона. Ему предстоит объединить все фракции в сражении с противниками. Постепенно он учится пользоваться собственными способностями.Тип издания: SceneРазработчик: Tim van Kan, Tom RaudysЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43EACD63A7D2A0E6340FEC69504E9B4A0958F5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

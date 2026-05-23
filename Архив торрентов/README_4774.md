@@ -6,7 +6,7 @@ AOMEI Backupper Technician Plus 7.4.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47396.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Backupper Technician Plus 7.4.0 WinPE by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47387.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NVIDIA GeForce Desktop Game Ready 560.81 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47382.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OCCT 13.1.5.b1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47369.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ StartAllBack 3.8.2 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47365.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Internet Download Manager 6.42 Build 19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47363.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PdfFactory Std & Pro 9.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47355.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FinePrint 12.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47338.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ StartAllBack 3.8.2 build 5125 (DC-07-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47325.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Surge XT 1.3.3 Standalone, CLAP, VSTi 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47320.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ v2rayN 6.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47313.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Tor Browser Bundle 13.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47309.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Rainmeter 4.5.28 Build 3779 (RC) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47272.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ nthLink 6.4.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47271.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Bandicam 7.1.3.2456 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47259.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mullvad Browser 13.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47253.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Rainmeter 4.5.19 Build 3753 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47249.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Internet Download Manager 6.42 Build 19 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47237.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Photo Lab PRO v3.13.25 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47235.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ FastFlix 5.8.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47230.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47223.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ OneCommander Pro 3.88.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47217.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe Acrobat Pro 2024.002.20991 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47207.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ MX Player Pro v1.86.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47203.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ System software for Windows v.3.6.3 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47202.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Smart Tools 2 v1.1.10 Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47199.jpg" />
 </div>
 
 

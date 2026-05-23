@@ -1,55 +1,3 @@
-###  Публикация: 878367   (841977) от 15.03.2015
-
-Другой мир: Эволюция / Underworld: Evolution (2006) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В зловещем ночном мире, скрытом от взора простых смертных, не утихает беспощадная борьба между двумя кланами властителей мрака - вампирами и оборотнями. Настала пора узнать об истоках вековой вражды, ставшей для вампира-воительницы Селин и Майкла, полуоборотня-получеловека, проклятьем и смыслом существования. Сражаясь с могущественными врагами из обоих кланов, древними (   Читать дальше...   )Производство: США | Lakeshore Entertainment, Screen Gems Inc.Жанр: Фэнтези, Боевик, ТриллерРежиссер: Лен УайзманАктеры: Кейт Бекинсейл, Скотт Спидман, Тони Карран, Дерек Джекоби, Билл Найи, Стивен Макинтош, Шэйн Бролли, Брайан Стил, Зита Гёрёг, Скотт МакЭлрой, Джон Манн, Майкл Шин, София Майлс, Ричард Цетрон, Майк Мукатис, Кристин Даниэль, Кайя Джестал, Аттила ЛоваджиПеревод: Профессиональный дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291641CBEC10E676BF5CDA700168D6175D5E8824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771550   (841972) от 30.03.2014
-
-Секреты / Ha-Sodot (2007) DVDRip [H.264] [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Религиозная школа древнего каббалистического города Цфат. Дочь раввина Наоми делает все возможное, чтобы отсрочить свадьбу и продолжить учиться. Бунтарка Мишель послана в Цфат религиозными родителями из Франции для усмирения характера. Подруги знакомятся с загадочной француженкой Анук, которая ищет в Цфате покой и очищение. Но ортодоксальное общество отвергает ее. (   Читать дальше...   )Производство: Франция, ИзраильЖанр: ДрамаРежиссер: Ави НешерАктеры: Аня Букштейн, Дана Ивги, Фанни Ардан, Михаль Штамлер, Адир МиллерПеревод: Профессиональный (многоголосый закадровый)Субтитры: нетПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86D779FA69D296FCFCEDAEE7F4E27DBF6B871BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878368   (841940) от 15.03.2015
 
 Другой мир / Underworld (2003) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841940.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841888.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841886.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841858.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841764.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841762.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_841761.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841671.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841468.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841436.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841427.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841418.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841370.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841345.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841334.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841291.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841288.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841282.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841275.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841226.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841219.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841192.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841178.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841166.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42D7DCA4FEC340D8F5B8AB9F816A22CA30D733E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003798   (841164) от 04.04.2016
+
+Разрушитель / The Demolisher (2015) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брюс, в результате несчастного случая с его женой, начинает смотреть на мир иначе. Он все еще обычный ремонтник, но несправедливость и чувство безысходности толкают его на крайний шаг. Внутренняя ярость вырывается наружу на темных улицах, уводя его все дальше в мир экстремального насилия.Производство: Канада / Latefox PicturesЖанр: Ужасы, Боевик, ТриллерРежиссер: Филип КаррерАктеры: Райан Баррет, Тиана Нори, Джессика Вано, Дункан МакЛеллан, Джеррит Сеперс, Брюс Тернер, Дуан Фрэй, Andrew Bussey, Оуэн Фоусет, Рич ПьёнтковскийПеревод: Одноголосый закадровый, любительский (МЕГАПЫХАРЬ)Субтитры: ОтсутствуютПродолжительность: 01:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63A153664C926CFC3542C99286B970454A8F370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112721   (841121) от 09.03.2017
+
+Индокитай / Indochine (1992) BDRemux [H.264/1080p] [Remastered]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элиана, богатая владелица плантации каучука знакомится с недавно приехавшим морским офицером и влюбляется в него вопреки своей воле. Ее несовершеннолетняя воспитанница Камилла влюбляется в красавца-офицера, когда тот спасает ее из рук террориста. Его вынуждают уехать на далекий форпост на севере, но упрямая девчонка сбегает из дома и отправляется вслед за ним, открывая (   Читать дальше...   )Производство: Франция / Bac Films, Orly Films, Paradis Films, Canal+Жанр: Драма, МелодрамаРежиссер: Режис ВарньеАктеры: Катрин Денёв, Венсан Перес, Лин Дэн Пэм, Жан Янн, Доминик Блан, Анри Марто, Карло Брандт, Жерар Лартиго, Юбер Сен-Макари, Анджей Северин, Мэй ЧауПеревод: Многоголосый закадровый, АвторскийЯзык субтитров: Русский, Английский, ФранцузскийПродолжительность: 02:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F998CD5EF5CE5095E21AC13CB88C6B09086591
 ```
 
 https://mybot314.ru/tekegram_catalog/

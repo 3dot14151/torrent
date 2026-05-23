@@ -6,7 +6,7 @@ Buzzer Beater | Забить на последней секунде [2005, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773248.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gekkan Shoujo Nozaki-kun | Monthly Girls' Nozaki-kun | Нозаки и его с
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773209.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ All Out!! | Изо всех сил!! [2016, TV, 25 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773126.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772443.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772434.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Zetman / Зетмен [2012, TV, 13 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772389.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Tachibanakan to Lie Angle | Любовные страсти пансиона Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769763.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769597.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769452.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Senki Zesshou Symphogear XV / Последняя Песня Боевых При�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769353.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768946.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768926.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Human Lost: Ningen Shikkaku | Human Lost: Исповедь неполноцен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768897.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Re: Zero - Director`s Cut | Re: Zero kara Hajimeru Isekai Seikatsu - Shin Henshu
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768886.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Arte | Арте [2020, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768870.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Listeners | Слушатели [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768858.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sequence | Секвенция [1992, OVA, 1 эп.] DVDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768429.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ New Game!! | Новая игра! [ТВ-2] [2017, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768423.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Nanbaka / The numbers / Номера [2016, TV, 25] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768396.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Oedo wa Nemurenai! | Эдо никогда не спит [1993, OVA, 1 эп.] VH
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768373.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Singles | Незамужние девушки [1993, OVA, 1 эп.] VHSRip 480p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768363.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768284.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kitsutsuki Tanteidokoro | Woodpecker Detective's Office | Детективное
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767466.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766845.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Endride / Эндрайд [2016, TV, 24] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766700.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Dual! Parallel Runrun Monogatari / Опасные приключения в па
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766236.jpg" />
 </div>
 
 

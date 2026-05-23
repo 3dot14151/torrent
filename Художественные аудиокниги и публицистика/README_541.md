@@ -1,83 +1,3 @@
-###  Публикация: 1246624   (461483) от 11.09.2018
-
-Филлис Дороти Джеймс | Изощрённое убийство (2018) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В подвале дорогой психотерапевтической клиники обнаружен труп жестоко убитой женщины.
-Многоопытный следователь Адам Дэлглиш, ведущий расследование, вскоре понимает: преступление мог совершить практически любой сотрудник клиники, за респектабельным фасадом которой скрывается лабиринт темных страстей, интриг и амбиций.
-Никогда еще не приходилось Дэлглишу проигрывать (   Читать дальше...   )Жанр: Классические детективыИздательство: Нигде не купишьПродолжительность: 08:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB40A21E23BC32675C11DEAC8CC7EF6CF2256688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246568   (461427) от 11.09.2018
-
-Павел Диброва | Лец-та-ски [Сборник] (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Солянка вышла отменная. В состав сборника вошли рассказы, написанные в разные годы жизни, от 18 и до 32 лет, поэтому стиль их написания несколько разнится. Главной рассказ в нём - "Лец-та-ски", давший название всему сборнику. Озвучил Олег Булдаков, за что ему огромное спасибо. Надеюсь, Вам придутся по душе мои маленькие фантазии.Жанр: ФантастикаПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BA6944FCEA96DA32AA0ABD54793F8DE3730784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246566   (461409) от 11.09.2018
-
-Сергей Алексеев | Мутанты (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Районный центр Братково разделен пополам между Россией и Украиной. Так получилось, что многие жители села, русские по происхождению, оказались на Украине, а украинцы - в России. Посреди села стоит башня - таможня, а вдоль границы идет бетонная стена. Селяне говорят на смеси языков, а занимаются в основном контрабандой. К пану Кушнеру, депутату Верховной Рады, имеющему (   Читать дальше...   )Жанр: ПрозаПродолжительность: 09:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF260D0EAF0B50DBD87A1C572C5FEBAEB1C99092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161950   (461350) от 31.08.2017
 
 Сергей Бакшеев | Невеста Аллаха (2015) [MP3, Егор Дурнев]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461350.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461340.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461205.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461175.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461174.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461071.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461034.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460945.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460934.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460908.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460661.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460550.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460536.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460322.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460134.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460098.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460091.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460044.jpg" />
 </div>
 
 
@@ -559,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459952.jpg" />
 </div>
 
 
@@ -585,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459938.jpg" />
 </div>
 
 
@@ -611,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459931.jpg" />
 </div>
 
 
@@ -637,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459929.jpg" />
 </div>
 
 
@@ -663,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459889.jpg" />
 </div>
 
 
@@ -677,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111001BE509D719585F023C6EA3CB9CA8F9AF092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407969   (459781) от 10.09.2020
+
+Александра Маринина | Анастасия Каменская (Книга 34). Безупречная репутация. Том 2 (2020) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такого странного дела в практике Анастасии Каменской не было давно. Неизвестному писателю Андрею Кислову крупно повезло. По его единственному роману, изданному за свой счет, хотят снять сериал и предлагают солидный гонорар. Разумеется, тот с радостью соглашается. А потом внезапно объявляет, что не подпишет договор ни на каких условиях. На кону большие деньги, и к (   Читать дальше...   )Жанр: Современные детективыПродолжительность: 10:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFDCB50C0925F2DD43074A7E7BCD875EC2E72EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407825   (459771) от 10.09.2020
+
+Евгений Щепетнов | Господин Севера (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459771.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Земле Вася Звягинцев был успешным менеджером по продажам. Близорукий и абсолютно индифферентный к спорту, он вёл достаточно спокойную жизнь. Но, попав в мир Машрум, Вася вынужден был пройти через череду смертельных испытаний. Сейчас он уважаемый господин Манагер, богач и, возможно, сильнейший шаман этого мира. Казалось бы, чего ещё можно желать? Но спокойная жизнь (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 10:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A3754B800476108BD7FF796E6328A696FAEE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568678   (459761) от 09.08.2022
+
+Наталья Александрова | Реставратор Дмитрий Старыгин (Книга 9). Шкатулка Люцифера (2022) [MP3, Ирина Воробьёва]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459761.jpg" />
+</div>
+
+
+###  Подробнее
+
+С начала времен Люцифер играет в свою великую игру. Короли и священники, аристократы и простолюдины, миллионеры и нищие – все они танцуют под дудку Хозяина один и тот же танец – Пляску Смерти! В прежние времена он заказывал ее изображение художникам и скульпторам, теперь в моде актуальное искусство. И сотни знаменитых и безвестных художников нового времени творят (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E074466282515E2DD4ECE31DC1162CC096D616
 ```
 
 https://mybot314.ru/tekegram_catalog/

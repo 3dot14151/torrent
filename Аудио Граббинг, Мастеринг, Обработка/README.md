@@ -7,7 +7,7 @@ Cockos REAPER 7.73 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070102.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Boris FX Sequoia 2026 18.0.2.26013 Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069200.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Imaginando BAM 1.7.0 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069008.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cockos REAPER 7.72 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068994.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Cockos REAPER 7.71 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068776.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Mp3tag 3.34.1 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068459.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Monkey's Audio 12.81 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067932.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Diamond Cut Forensics Audio Laboratory 11.09 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067863.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ iZotope RX 12 Audio Editor Advanced 12.0.0.1410 Portable by 7997 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067724.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ocenaudio 3.18.2 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067684.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Cockos REAPER 7.69 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067656.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ n-Track Studio Suite 10.3.0.10791 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067589.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ X AAC Encoder 1.1 Portable [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067393.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ X AAC Encoder 1.0 Portable [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066786.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Steinberg Nuendo Pro 15.0.21 Build 252 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066620.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Serato DJ Pro Suite 4.0.7 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066598.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ X Sample Rate Converter 1.0 Portable [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066284.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ n-Track Studio Suite 10.3.0.10767 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066203.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Steinberg Cubase Pro 15.0.21 Build 252 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066184.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Ocenaudio 3.18 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066053.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ n-Track Studio Suite 10.3.0.10756 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065450.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Monkey's Audio 12.67 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065439.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ n-Track Studio Suite 10.3.0.10743 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065396.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Mp3tag 3.34 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064940.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ FL Studio Producer Edition 25.2.5.5319 All Plugins Edition & FLEX Pack Portable 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064229.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Ashampoo Music Studio 12.0.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064226.jpg" />
 </div>
 
 

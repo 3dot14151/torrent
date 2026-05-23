@@ -6,7 +6,7 @@ Rainbow - Long Live Rock ‘n’ Roll (1977) Reissue, Remastered, 2010, Polydor 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043552.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pink Floyd - Animals (2018 Remix) (1977) Reissue, Remastered, 2022, Pink Floyd R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043438.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nightwish - Wishmaster (2000) Reissue, 2004, Back On Black [OGG Vorbis|700 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043247.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Avi Rosenfeld - Very Heepy Very Purple XIV (2023) [MP3|320 Kbps] <Blues Rock, Cl
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043131.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Here Lies Man - Ritual Divination (2021) [MP3|320 Kbps] <Psychedelic Rock, Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043081.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Transatlantic - The Final Flight Live At L'Olympia (2023) 3xCD [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042937.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chris Turner - Rock 'n' Roll Man (2020) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042809.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ RanestRane - The Wall (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042801.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Rome Pro(G)ject - IV - Beaten Paths Different Ways (2020) [MP3|320 Kbps] <Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042561.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Magick Brother & Mystic Sister - Magick Brother & Mystic Sister (2020) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042556.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Groundhogs - Split (1971) 50th Anniversary Edition, Reissue, 2020, Fire Reco
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042243.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Adam Nitti - The World Is Loud (2021) [MP3|320 Kbps] <Progressive Rock, Fusion>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042057.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dorian Wilde - I Am Ready For Love (2020) [MP3|320 Kbps] <Progressive Rock, Inst
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042055.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mission Control - Mission Control (2021) [MP3|320 Kbps] <Jam Rock, Fusion>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042051.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Larkin Poe - Self Made Man (2020) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041964.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ IQ - IQ40 – Forty Years Of Prog Nonsense Archive Collection (2023) 2 CD, [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041924.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Batmobile - Brace for Impact (2023) [MP3|320 Kbps] <Psychobilly, Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041923.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Shivalila - Meditations On The Kali Yuga (2023) [MP3|320 Kbps] <Psychedelic, Spa
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041922.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gepetto - Evolutive Songs (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041504.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Bubka - Epi Zenn (2020) [MP3|320 Kbps] <Instrumental Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041500.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Neon Heart - Temporaria (2020) [MP3|320 Kbps] <Psychedelic Rock, Space Rock, Kra
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041499.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stewart Clark - Let's Go There (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041498.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Rock Classics Rock Legends Rock Anthems (2021) Explicit [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041101.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Exodus to Infinity - Archetype Asylum (2021) [MP3|320 Kbps] <Progressive Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040926.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Cleophuzz - 3 Releases (2018-2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040878.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Schizophonics - 3 Albums (2017-2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040875.jpg" />
 </div>
 
 

@@ -1,35 +1,3 @@
-###  Публикация: 309216   (842296) от 15.03.2011
-
-HdO Adventure. FBI: Paranormal cases / Мистические истории. Секретные материалы ФБР (P) [Ru] 2010
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР Малди и Скаллер занимаются расследованием мистических дел. Однажды они сталкиваются с загадкой, которой предстоит перевернуть всю их жизнь. Оборотни, призраки, заклятия вуду, реинкарнация, невидимость, внеземные цивилизации – на пути к истине им придется повстречаться с ужасными и таинственными созданиями из легенд. Малди и Скаллер понимают, что это расследование может погубить их, но все равно продолжают свое расследование…Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: Системные требования:
-Операционная система: Windows XP/Vista
-Процессор: Pentium IV 1 ГГц
-Оперативная память: 512 Мб
-Видеоадаптер: 128 Мб
-Дополнительное программное обеспечение: DirectX 9.0 или выше
-Свободного места на жестком диске: 600 МбЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153E5AAD8A1ABC14EDC402FC1710B20CFF266EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371507   (842284) от 27.04.2020
 
 Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.9/dlc) Repack xatab
@@ -38,7 +6,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.9/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842284.jpg" />
 </div>
 
 
@@ -64,7 +32,7 @@ Vagrus - The Riven Realms (2021) [En] (1.0.00.1004H) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842212.jpg" />
 </div>
 
 
@@ -90,7 +58,7 @@ MineCraft mcstav (2011) [Ru] (1.6.4) Unofficial mcstavteam [ServerClient]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841454.jpg" />
 </div>
 
 
@@ -119,7 +87,7 @@ Monumental (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841283.jpg" />
 </div>
 
 
@@ -145,7 +113,7 @@ Wick (2015) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841270.jpg" />
 </div>
 
 
@@ -171,7 +139,7 @@ Distraint (2015) [Ru/Multi] (03.04.16) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841172.jpg" />
 </div>
 
 
@@ -198,7 +166,7 @@ Conga Master (2016) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841108.jpg" />
 </div>
 
 
@@ -224,7 +192,7 @@ World War Party: Balls of Duty (2017) [En] (0.1.9) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841105.jpg" />
 </div>
 
 
@@ -250,7 +218,7 @@ ClusterTruck (2016) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840987.jpg" />
 </div>
 
 
@@ -276,7 +244,7 @@ Aragami (2016) [Ru/Multi] (01.07) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840983.jpg" />
 </div>
 
 
@@ -302,7 +270,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840876.jpg" />
 </div>
 
 
@@ -328,7 +296,7 @@ Homefront: The Revolution - Beyond the Walls (2017) [Ru/Multi] (1.078.1055) Lice
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840872.jpg" />
 </div>
 
 
@@ -354,7 +322,7 @@ One Sole Purpose (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840858.jpg" />
 </div>
 
 
@@ -380,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840706.jpg" />
 </div>
 
 
@@ -406,7 +374,7 @@ Halloween Stories 5: The Neglected Dead (2021) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839697.jpg" />
 </div>
 
 
@@ -432,7 +400,7 @@ Gremlins vs Automatons (2016) [Ru/Multi] (1.0.0.200) Repack VseTop [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839163.jpg" />
 </div>
 
 
@@ -458,7 +426,7 @@ MadOut BIG City (2017) [Ru/En] (24.02.2017) Repack Andrxaxa
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839157.jpg" />
 </div>
 
 
@@ -484,7 +452,7 @@ Mystery of the Earl / Тайна пропавшего графа (P) [Ru] 2010
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839014.jpg" />
 </div>
 
 
@@ -515,7 +483,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (1.01i) Repack R.G. Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838476.jpg" />
 </div>
 
 
@@ -543,7 +511,7 @@ Rack N Ruin (2015) [En/Multi] (1.03) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837743.jpg" />
 </div>
 
 
@@ -569,7 +537,7 @@ GRIP / GRIP: Combat Racing (2018) [Ru/Multi] (1.5.3v2) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837634.jpg" />
 </div>
 
 
@@ -595,7 +563,7 @@ Children Of Morta (2019) [Ru/Multi] (1.2.74/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837629.jpg" />
 </div>
 
 
@@ -621,7 +589,7 @@ Toby: The Secret Mine (2015) [En] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837621.jpg" />
 </div>
 
 
@@ -647,7 +615,7 @@ Slime Rancher (2016) [Ru/Multi] (0.5.0b) Repack Kuji Kita
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837497.jpg" />
 </div>
 
 
@@ -673,7 +641,7 @@ Mind Snares: Alice's Journey / Ловушки Разума: Путешестви
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836688.jpg" />
 </div>
 
 
@@ -684,6 +652,32 @@ Mind Snares: Alice's Journey / Ловушки Разума: Путешестви
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F99E9A35FABCCD14E7C661D103AB40304BEF68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501327   (836143) от 09.10.2021
+
+Legendary Tales 2: Cataclysm / Легендарные Предания 2: Катаклизм (2021) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической игры Legendary Tales. Legendary Tales. Оракулу было неутешительное видение: вот-вот по вине ведьм наступит конец света! Когда оборотень Ульф разрушил их саркофаги, они в поисках замены нашли нечто более ценное… и опасное! Теперь наша героиня, полагаясь на свои силы, должна спасти мир и, возможно, сделать открытие, которое сможет изменить его!Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB1EFE95AF9C2FDA538A1B8C54638136916EA86
 ```
 
 https://mybot314.ru/tekegram_catalog/

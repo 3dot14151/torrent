@@ -6,7 +6,7 @@ NG: Фото-ковчег / Photo Ark (2017) HDTVRip (3 серии из 3) [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713772.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712991.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712054.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710532.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709953.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NGW: Самые опасные убийцы. Опасная зона / World's d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709948.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NGW: Глубоководные убийцы / Deep sea killers (2017) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709859.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NGW: Дикая река Конго / Wild Congo (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709850.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708969.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG: Разобрать до основания. Суперджеты (Больш
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708968.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NGW: Смертоносная Африка. Степи / Africa's Deadly Kingdom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708855.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Возрождение морского шелкового пути / Mariti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708619.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NGW: Самые странные в мире питомцы / World's weirdest p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708105.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NGW: Смертоносная Африка. Калахари / Africa's Deadly K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706973.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706234.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706233.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NGW: Первая тройка самых опасных животных. Ма�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706092.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706090.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706089.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NGW: Хищники Аляски. Царство китов-убийц / Alaska'
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706086.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NGW: Укусить. Ужалить. Убить. Монстры в тени / Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706080.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NGW: Самые странные животные в мире. В толще м�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706079.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Самые опасные убийцы. Ночные сталкеры / Wor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705994.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NGW: Заклятые враги. Кошки против собак / Ultimate 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705990.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NGW: Дикая Монголия: страна крайностей. Выжив�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705066.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NGW: Человек против животного / Man V. animal (2017) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704416.jpg" />
 </div>
 
 

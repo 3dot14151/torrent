@@ -6,7 +6,7 @@ Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006238.jpg" />
 </div>
 
 
@@ -24,32 +24,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485006   (1005650) от 23.07.2021
-
-Last Stop (2021) [Ru/Multi] (7027314) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Last Stop – приключенческая игра от третьего лица, действие которой происходит в наши дни в Лондоне. Написанная и разработанная студией Variable State, создателями удостоенной наград игры Virginia, игра Last Stop рассказывает три взаимосвязанные истории трёх главных героев, которыми управляет игрок.Тип издания: LicenseРазработчик: Variable StateЖанр: Adventure, Sci-Fi, Mystery, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB580B8B163BD48733EDC3BFEF95B595915ECBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485168   (1005539) от 24.07.2021
 
 Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
@@ -58,7 +32,7 @@ Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005539.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Creepy Tale 2 (2021) [Ru/Multi] (1.1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005034.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Omno (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004806.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Horror Tales: The Wine (2021) [Ru/Multi] (Build 6722952) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004670.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ HORROR TALES: The Wine (2021) [Ru/Multi] (Build 6722952) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004650.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Night Delivery (2021) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004537.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004398.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004186.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Submerged (2015) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003974.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003925.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ A Bird Story (2014) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003752.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003701.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.4.50233) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003386.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18208471) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003361.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Great Ace Attorney Chronicles (2021) [En] (Build 6837188) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003210.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.4.240) Repack Mr_Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003100.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.2.0267/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002752.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Almost My Floor (2021) [Ru/En] (1.0.1) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002709.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lone Survivor: The Director's Cut (2012) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002251.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Mythic Ocean (2020) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002114.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Foreclosed (2021) [Ru/Multi] (7174262) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001661.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dark Fall: Ghost Vigil (2020) [En] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001503.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8236/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001491.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Demon's Residence (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001105.jpg" />
 </div>
 
 
@@ -667,6 +641,33 @@ Demon's Residence (2021) [En] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66D7CD5C60A774E538BCB923A2F2CE13475F6F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599898   (998450) от 09.01.2013
+
+Botanicula [Ru/En] (Repack/1.0.0.7) 2012 | Fenixx
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Причудливое творение от чешской студии Amanita Design, подарившей поклонникам жанра самобытные и необычайно красивые квесты «Саморост» и «Машинариум».
+В двух словах, Botanicula — это история о последнем семени умирающего дерева, изнуренного нашествием злобных паразитов. А если подробно, то это интереснейшие исследования, множество занимательных забавных головоломок, незабываемые знакомства со странными (симпатичными и не очень) существами, чарующая музыка… И все это — на одном необыкновенном огромном растении!Встречи с вами ждут пять обаятельных главных героев. В их приятной компании вы совершите путешествие с вершины древа к его корням, по дороге заглянете в пчелиный улей, посетите муравьиное гнездо, побываете в мрачном дупле и других таинственных местах. Особых сложностей по пути как будто не предвидится, однако сам он будет длинным, очень-очень длинным — шутка ли, более 150 игровых сцен!Будь вы хардкорный геймер или отчаянная домохозяйка, задорный подросток или убеленный сединами почтенный профессор биологии — просто расслабьтесь и получайте удовольствие от игры. Поверьте — у вас получится! (   Читать дальше...   )Тип издания: RepackРазработчик: Amanita DesignЖанр: Adventure / Point-and-click / PuzzleЯзык озвучки: ВымышленныйЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6028970DEBD5C0611A06336CA1BA3B0C7B1D31EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

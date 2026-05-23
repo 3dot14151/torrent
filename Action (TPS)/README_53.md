@@ -6,7 +6,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12104.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12059.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12050.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Other s [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10334.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10327.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Star Wars Battlefront II (2) (2017) [Ru/Multi] (1.1.8.16162/dlc) Repack seleZen 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10319.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Let'sРlay [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10231.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ No More Heroes / No More Heroes 2: Desperate Struggle (2021) [Ru] (Patch 4/29/25
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10182.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kunitsu-Gami: Path of the Goddess (2024) [Ru/Multi] (Build 19024694/dlc) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10172.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ASTRONEER (2016) [Ru/En] (1.34.47.0) Repack Pioneer
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9822.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ASTRONEER (2016) [Ru/Multi] (1.34.47.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9795.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack seleZen [Ultim
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9475.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.9-j/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9189.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9184.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7964.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7945.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7935.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7381.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (20250814/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6960.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1 Build 19586234/dlc) Repack FitGir
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6856.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.05) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6842.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6550.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Damnation (2009) [Multi] (1.0) Scene RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6360.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6167.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5874.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5777.jpg" />
 </div>
 
 

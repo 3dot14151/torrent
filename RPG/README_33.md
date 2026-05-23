@@ -6,7 +6,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (24034) SteamRip R.G. Игроман�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320278.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HuniePop (2015) [En] (1.2.0) License GOG [Deluxe Edition] [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320248.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318119.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315776.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fallout: New Vegas (2012) [Ru] (1.4.0.525/2.0.3 beta) Repack Other s [Ultimate E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315769.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DeathSpank: Thongs of Virtue [En] (L) 2010 l SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315201.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Inquisitor / Инквизитор (2012) [Multi] (1.10.18) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313823.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Lords Of The Fallen (2014) [Ru] (1.0/dlc) Repack xatab [Game of the Year Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313437.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311665.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311294.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306965.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0/dlc) License GOG [Game of the Year 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306530.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Surge 2 (2019) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304574.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Crashlands (2016) [En/Ch] (1.4.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302329.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302328.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tyranny (2016) [Ru/Multi] (1.2.1.0160/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300369.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300349.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.7.0.1280/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298528.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sword Art Online: Lost Song (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298338.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297417.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296494.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Blackguards (2014) [Ru/Multi] (1.6/dlc) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294627.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294574.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/En] (1.0) Repack xa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294353.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DRAGON QUEST HEROES™ Slime Edition (2015) [En/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294266.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Dungeon Souls (2016) [En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293449.jpg" />
 </div>
 
 

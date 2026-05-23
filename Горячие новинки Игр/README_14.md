@@ -6,7 +6,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.28) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053558.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Perpetuo (2025) [Ru/Multi] (2.0e) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053492.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Head's Adventures: chibichibi (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053419.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MIO Memories in Orbit (2026) [Ru/Multi] (r21606) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053282.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MIO Memories in Orbit (2026) [Ru/Multi] (r21606) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053274.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053272.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BrokenLore: UNFOLLOW (2026) [Ru/Multi] (Build 21512240/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053054.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Burkina Faso: Radical Insurgency (2024) [Multi] (21318310) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053037.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Joker's Game (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052962.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052961.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BrokenLore: UNFOLLOW (2026) [Ru/Multi] (Build 21512240) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052941.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Noosphere (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052939.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BrokenLore: UNFOLLOW (2026) [Ru/Multi] (Build 21537071/dlc) Repack Other s [Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052916.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1246/dlc) Repack Wanterlu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052897.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DuneCrawl (2026) [Ru/Multi] (1.01) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052748.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BrokenLore UNFOLLOW (2026) [Ru/Multi] (Build 21537071) Repack Let'sРlay [Deluxe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052686.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Skulker (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052544.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DeadCore Redux (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052543.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Realm Racer (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052340.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1176/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052339.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1188/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052338.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1176/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052337.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Snow Ash (2026) [Ru/Multi] (Build 21423519) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052278.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051992.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Pathologic 3 (2026) [Ru/En] (1.0.1) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051927.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051926.jpg" />
 </div>
 
 

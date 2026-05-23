@@ -6,7 +6,7 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30091.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30044.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Patch 5/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29975.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29942.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29868.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Outer Worlds (2023) [Ru/Multi] (1.4/dlc) Repack Let'sРlay [Spacer’s Choic
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29852.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Persona 4 Golden (2020) [Ru/En] (build 5111251) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29837.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Thaumaturge (2024) [Ru/Multi] (73.488) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29828.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.21/dlc) Repack seleZen [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29718.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29618.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Noita (2019) [Ru/Multi] (20250125-1640) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29551.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VED (2024) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29536.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29525.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29501.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (build 17035252) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29451.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sacred  - Антология (2005-2014) [Ru/Multi] (2.28/2.65.2/1.0/1.0/dlc) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29424.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Build 17026604/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29349.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29332.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VED (2024) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29304.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29288.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29273.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Final Fantasy VII (7) Rebirth (2025) [Multi] (build 17035252) Scene FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29050.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Stone of Madness (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29015.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28994.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28967.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Asterigos Curse of the Stars (2022) [Ru/Multi] (01.09.0000/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28833.jpg" />
 </div>
 
 

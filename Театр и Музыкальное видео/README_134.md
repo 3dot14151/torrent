@@ -1,116 +1,3 @@
-###  Публикация: 470204   (83095) от 19.03.2012
-
-Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria
-02. Silent Night
-03. When A Child Is Born
-04. Sweeter The Bells(   Читать дальше...   )Жанр: New AgeРежиссер: Frank Peterson (for Nemo Studios)Актеры: Richard Naxton, Johnny Clucas, Dan Hoadley, Christopher Tickner, Gerry O'Beirne, Rob Fardell, Jan-Eric Kohrs, Lawrence White, Gunther Laudahn, Richard CollierПеревод: ОтсутствуетПродолжительность: 01:22:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470281   (83066) от 19.03.2012
-
-Мегамикс Philizz Video YearMix 2011. Пиратская Вечеринка HD x264 1080p 6,64Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
-И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2011! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 57 мин 51 сек (00:57:51)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A9B43AA7475B8BCE9EE20C0BFCBAAB2DC0C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470049   (82932) от 18.03.2012
-
-Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray x264 DTS 1080p 13Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Видеоклипы Digital Musical Rays-Vol 01 20101: Hindi New Songs. И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра Blu-Ray!
-
-Данный релиз для тех, кому не "по карману" оригинал 36,3 Gb: Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray DTSЖанр: TV, Video, Popular music, Pop musicПеревод: Не требуетсяПродолжительность: 2 часа 53 мин 13 сек (02:53:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469119   (82805) от 18.03.2012
-
-Дядюшкин сон / БДТ им. Товстоногова (2011) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Санкт-Петербургского Большого Драматического театра им.Товстоногова.
-
-В маленький провинциальный городок Мордасов приезжает престарелый богатый князь, которого местная светская "львица" Марья Александровна Москалева решает женить на своей красавице дочери Зиночке, в которую был влюблён Павел Александрович, племянник князя.
-(   Читать дальше...   )Жанр: трагикомедия, спектакльРежиссер: Темур ЧхеидзеПродолжительность: 01:21:04 + 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469028   (82706) от 17.03.2012
 
 UK Top 40 Music Video Hits Febuary 2012 (DVD5)
@@ -119,7 +6,7 @@ UK Top 40 Music Video Hits Febuary 2012 (DVD5)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82706.jpg" />
 </div>
 
 
@@ -148,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82271.jpg" />
 </div>
 
 
@@ -174,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81908.jpg" />
 </div>
 
 
@@ -200,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81897.jpg" />
 </div>
 
 
@@ -226,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81846.jpg" />
 </div>
 
 
@@ -252,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81791.jpg" />
 </div>
 
 
@@ -278,7 +165,7 @@ Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81697.jpg" />
 </div>
 
 
@@ -304,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81287.jpg" />
 </div>
 
 
@@ -336,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81224.jpg" />
 </div>
 
 
@@ -366,7 +253,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81105.jpg" />
 </div>
 
 
@@ -392,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81068.jpg" />
 </div>
 
 
@@ -418,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80883.jpg" />
 </div>
 
 
@@ -453,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80757.jpg" />
 </div>
 
 
@@ -481,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80694.jpg" />
 </div>
 
 
@@ -510,7 +397,7 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80643.jpg" />
 </div>
 
 
@@ -536,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80619.jpg" />
 </div>
 
 
@@ -562,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80047.jpg" />
 </div>
 
 
@@ -591,7 +478,7 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79575.jpg" />
 </div>
 
 
@@ -617,7 +504,7 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79558.jpg" />
 </div>
 
 
@@ -653,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79182.jpg" />
 </div>
 
 
@@ -680,7 +567,7 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78740.jpg" />
 </div>
 
 
@@ -706,7 +593,7 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78735.jpg" />
 </div>
 
 
@@ -717,6 +604,128 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C601DA0ED9FDF8A40AEB8066CF19A42C0A1DD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458167   (78394) от 25.02.2012
+
+NikitA - Машина (2009) HDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456559   (78214) от 24.02.2012
+
+Deep purple - Machine Head Live 1972 (1999) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456492   (78198) от 24.02.2012
+
+Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78198.jpg" />
+</div>
+
+
+###  Подробнее
+
+"The Ultimate Ozzy" записанно во время концертов американского тура в поддержку альбома "The Ultimate Sin",кстати,"разогревали" группу OZZY в том американском туре молодые "Metallica", которые очень понравились Осборну...Довольно редкое видео, молодой OZZY в свои самые лучшие времена.01. Shot In The Dark
+02. Bark At The Moon
+03. Suicide Solution
+04. Never Know Why
+05. Mr.Crowley
+06. I Don't Know
+07. Killer Of Giants
+08. Guitar Solo \Jake E.Lee\
+09. Thank God For The Bomb
+10. Lightning Strikes(   Читать дальше...   )Жанр: Hard Rock\MetalПродолжительность: 01:25:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455499   (78191) от 24.02.2012
+
+VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Narcotic Sound and Christian D - Danca Bonito
+02 Blank And Jones feat Bobo - Perfect Silence
+03 NikitA - Bite
+04 David Deejay - Perfect 2
+05 Dj.Sava feat Andreea D and Yolo - Money Maker
+06 Klaas and Bodybangers - Freak
+07 Dev - In The Dark
+08 Outwork feat Mr. Gee - Elektro
+09 Dj.Flower - Jamaican Love
+10 Heaven feat Glance - Sexy Girl(   Читать дальше...   )Жанр: VariousПродолжительность: ~01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DC6C6C973B99AE17476F4B83332ACE0159ABB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

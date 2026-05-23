@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600406.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600377.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Sound Of Sydney (The Hottest Festival Dance Hits) (2017) [MP3|320 Kbps]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600376.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ NetWorker - Advanced Network Information App 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600374.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Tooth Fairy 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600373.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Sam Broadcaster Studio 2015.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600366.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ VA - Pharmacy: Phase 5 (Mixed by Frost Raven) (2015) [MP3|320 кб/с]<Psy-Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600362.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Electrosoul System - Flawless (2015) [MP3|320 кб/с]<Drum'n'Bass, Liquid>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600354.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Alien Bugs Defender 1.10.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600348.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - The Ultimate 90's Club Collection Vol.1 (2017) [MP3|320 Kbps] <Trance,Uplif
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600302.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Carbon Copy Cloner 4.1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600301.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Two Fingers - Six Rhythms (2015) [FLAC|Lossless|WEB-DL]<Abstract, Breakbeat, IDM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600282.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wise Care 365 Pro 3.73.331 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600277.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Salmo - The Island Chainsaw Massacre (2013) [MP3|~245 кб/с (V0)]<Hardcore Rap
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600276.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Dash 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600273.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ CoolUtils Total Image Converter 5.1.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600270.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Sandboxie 5.55.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600267.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ RegCool 1.318 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600262.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Sandboxie plus 1.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600260.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Tipard Video Converter Ultimate 9.2.20 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600240.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe AIR 26.0.0.127 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600236.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600234.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600232.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ GPU-Z 0.8.4 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600182.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Female Vocal Trance Anthems (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600180.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ EfficientPIM Pro 3.81 Build 383 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600178.jpg" />
 </div>
 
 

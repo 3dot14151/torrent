@@ -6,7 +6,7 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551827.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Marvel: Ultimate Alliance (2016) [En] (1.0/upd20160804) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551621.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Marvel: Ultimate Alliance 2 (2016) [En] (1.0/upd2) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551619.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Worms Anthology (1996-2016) [Ru/Multi] Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549793.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548982.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548923.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blamdown: Udder Fury (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548032.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Final Station (2016) [Ru/Multi] (1.2) Repack MasterDarkness
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547980.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Super Bomberman R (2018) [Ru/Multi] (1.1) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547822.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mega Man X Legacy Collection (2018) [Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547756.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547062.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Pan-Pan (2016) [Ru/Multi] (1.0.2) License GOG [Planetary Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547057.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546175.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ My Friend Pedro (2019) [Ru/Multi] Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545922.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4/dlc) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545224.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545215.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Prehistorik 2 (1993) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540323.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Prehistorik (1991) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540318.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06/dlc) Repack Other s [Gold Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539672.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538201.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ A Story About My Uncle (2014) [Ru/Multi] (build 3717) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534823.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MachiaVillain (2018) [Ru/Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534761.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Lara Croft and the Temple of Osiris (2014) [Ru/En] (1.1.240.4/dlc) Repack R.G. �
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534689.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Flipping Death (2018) [Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534623.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dead Cells (2018) [Ru/Multi] (1.0/dlc) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534607.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ A Story About My Uncle (2014) [Multi] (1.0.8767.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534029.jpg" />
 </div>
 
 

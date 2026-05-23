@@ -6,7 +6,7 @@ VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132711.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Nothing But... Trancetopia Vol. 10 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132109.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132105.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Top 7 November 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132093.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wa
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132085.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Armada Music - Trance Legacy II (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131430.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Best Of Suanda Base 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131159.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best Of Suanda Voice 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131147.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - A State of Trance Year Mix 2023 - Mixed by Armin van Buuren (2023) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131008.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - The Best Of Suanda True 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129829.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Talla 2XLC - All The Dreams I Share (The Vocal Album) (2023) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129804.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129186.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Abora Recordings: Best of 2022 (Mixed by Ori Uplift) (incl. Extended Mixes)
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128098.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - The Best Of Suanda Progressive 2023 [MP3|320 Kbps] <Trance, Progressive, Vo
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127976.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The Best Of Gert 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127942.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127582.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127565.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The Best Of Full On 140 Records 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127219.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - The Best Of Trancemission 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127208.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - The Best Of Aerodynamica Music Group 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126899.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Armin van Buuren - Feel Again (Remixes) - Extended Versions (2023) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126622.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - The best of Tecnomind 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126444.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Black Hole Recordings - Best Of 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126435.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Progressive Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125831.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Monster Tunes Year Mix 2023 (Mixed by Madwave) (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125327.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Ablazing Winter Sessions 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124537.jpg" />
 </div>
 
 

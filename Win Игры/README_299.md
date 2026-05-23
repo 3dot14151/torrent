@@ -1,29 +1,3 @@
-###  Публикация: 1838796   (261549) от 24.11.2025
-
-NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.2.0.0/dlc) Repack Let'sРlay
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Динамичная аркада NBA вернулась, став ещё лучше в NBA 2K Playgrounds 2! Продолжение оригинального хита выводит уличный баскетбол на новый уровень благодаря большому составу действующих и бывших игроков NBA, улучшенному механизму подбора соперников на выделенных серверах, состязаниям по трёхочковым броскам, новым площадкам, пользовательским матчам и многому другому! (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: СпортЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56691AC91F81596286C48D1ECC6A7E14D69ABE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838800   (261545) от 24.11.2025
 
 Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
@@ -32,7 +6,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261545.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Chess Tutor (2014) [En] (1.1.1.9) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261528.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.0.3) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261523.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack FitGirl [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261522.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) License GOG [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261521.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261518.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Constance (2025) [Ru/Multi] (1.0.1.40150) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261516.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Radiolight (2025) [Multi] (0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261515.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Bigfoot Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261512.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261511.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Nostradamus: The Last Prophecy / Нострадамус: Последнее пр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261502.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Hell Clock (2025) [Ru/Multi] (1.2.0_17965/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261465.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.4.0.12/dlc) Repack Necros [Mega Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261464.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Project Motor Racing (2025) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay [Year 1 B
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261461.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.03) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261350.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Disharmony Blocks (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261333.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Chivalry Quest: Sword and Flame (2025) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261319.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tesla's Tower - The Wardenclyffe Mystery / Башня Теслы. Тайна В�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261277.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Port Royale 3: Pirates & Merchants + DLC (RePack/1.1.2.24556) [Ru/En] 2012 l Fen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261088.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Sniper Elite Дилогия [Ru/En]  (RePack) 2005-2012 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261063.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20876369) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260864.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Nec
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260858.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ OlliOlli (2022) [Ru/Multi] (1.0/dlc) License GOG [World Rad Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260851.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Fit
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260850.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260847.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51FB124684ECF1FACCE1080377E4BF4A0D12406C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838524   (260846) от 23.11.2025
+
+Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Decepticon
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почувствуйте азарт погони и получите настоящий драйв в Need for Speed Hot Pursuit Remastered. Дайте волю неистовой жажде скорости - примерьте на себя роль преступника или служителя закона и гоняйте на самых крутых и мощных машинах мира. Перехитрите копов или нейтрализуйте нарушителей, используя свой арсенал, в невероятном мире захватывающих гонок, где можно состязаться (   Читать дальше...   )Тип издания: RepackРазработчик: Stellar Entertainment LimitedЖанр: Экшены, ГонкиЯзык озвучки: Русский (частично), Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55600A84A461BE02C16A1EBC19C06DD5138FBD54
 ```
 
 https://mybot314.ru/tekegram_catalog/

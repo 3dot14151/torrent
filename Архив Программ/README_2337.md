@@ -6,7 +6,7 @@ StartAllBack 3.9.13 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10222.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrystalDiskInfo 9.7.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10203.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Flyoobe 0.23.28 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10184.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ StartAllBack 3.9.13 build 5291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10169.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10168.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Firefox Browser ESR 140.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10148.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Flyoobe 0.30.38 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10112.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Shotcut 25.07.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10100.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PrivaZer Pro 4.0.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10070.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ XRecode 3 1.169 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10066.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe Photoshop 2025 26.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10036.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by elchupacabra (DC 06.07.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10013.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wondershare UniConverter 16.5.8.318 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10008.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PotPlayer 250724 (1.7.22582) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10004.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TechSmith Camtasia  25.2.0 Build 10983 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9984.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Auslogics BoostSpeed 14.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9980.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ XMedia Recode 3.6.1.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9970.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Adobe Photoshop 2025 26.9.0.15 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9882.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Adobe Photoshop 2025 26.9.0.15 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9872.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ YT Downloader 9.15.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9857.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Advanced Renamer 4.13 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9784.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Auslogics BoostSpeed 14.0.1.3 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9776.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9757.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ MKVToolNix 94.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9665.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Auslogics BoostSpeed 14.0.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9654.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Telegram Desktop 6.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9650.jpg" />
 </div>
 
 

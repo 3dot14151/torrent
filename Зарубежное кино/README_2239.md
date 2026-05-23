@@ -1,55 +1,3 @@
-###  Публикация: 1611142   (22630) от 03.04.2025
-
-Тело как улика / Body of Evidence (1992) BDRip [H.265/1080p] [10-bit] [Unrated]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Влюбившись в свою подзащитную, обвиняемую в убийстве, адвокат Фрэнк Дилэйн так умело строит речь в суде, что ему удаётся убедить присяжных вынести оправдательный вердикт. А через день Фрэнк становится невольным свидетелем разговора своей подзащитной с человеком, который помог ей совершить убийство…Производство: Германия, США / Constantin Film, Dino De Laurentiis ProductionsЖанр: триллер, драмаРежиссер: Ули ЭдельАктеры: Мадонна, Уиллем Дефо, Энн Арчер, Джулианна Мур, Джо Мантенья, Юрген Прохнов, Фрэнк Ланджелла, Стэн Шоу, Чарльз Хэллахан, Лиллиан ЛеманПеревод: профессиональный многоголосый (5 канал, ТВ-3), профессиональный двухголосый (Goodtime Media, НТВ+, SDI Media, СВ Дубль), авторский (Алексей Михалёв, Василий Горчаков)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E900F35515E65F89D4B116E0550C19A2EB8CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786173   (22621) от 03.04.2025
-
-Романтики «303» / 303 (2018) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-24-летняя студентка Юле садится в старенький кемпер «Мерседес 303» и отправляется через всю Европу на встречу со своим бойфрендом Алексом. Её случайным попутчиком становится Ян, студент-политолог, мечтающий найти в Испании родного отца, которого никогда не видел. Пока за окном сменяются пейзажи Германии, Бельгии, Франции и Португалии, герои коротают время за разговорами (   Читать дальше...   )Производство: Германия / Kahuuna Films, NEUESUPER, Starhaus ProduktionenЖанр: мелодрамаРежиссер: Ханс ВайнгартнерАктеры: Мала Эмде, Антон Спикер, Арндт-Шверинг Сонрей, Томас Шмукерт, Йорг Бундшух, Стивен Ланж, Мартин Нойхаус, Ханна Шрёдер, София ЧанеттПеревод: профессиональный многоголосый (iTunes)Язык озвучки: русский, немецкийСубтитры: русские (на места без перевода), английскиеПродолжительность: 02:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E4F431E7AF2FB7BCBFDE7922BBEDB411E6C215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789305   (22590) от 03.04.2025
 
 Лучше всех / Un p'tit truc en plus / A Little Something Extra (2024) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22590.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22563.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22554.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22547.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22534.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22531.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22530.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22521.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22489.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22488.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22434.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22415.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22365.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22350.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22322.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22304.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22278.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22272.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22265.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22246.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22222.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22220.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22211.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22190.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55750A8F5137199A0945B3771170206E4E4F8405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790163   (22176) от 07.04.2025
+
+Стигматы / Stigmata (1999) BDRip [H.265/1080p] [10-bit] [BQHL Editions]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнки Пейдж живёт спокойно, свободно и беззаботно. И меньше всего её беспокоят вопросы о Боге. Всё это в одночасье меняется, когда её поражают «стигматы» - кровоточащие раны распятого Христа. Вскоре на неё обращает внимание отец Кернан, уполномоченный следователь из Ватикана. Одновременно и другой священнослужитель, коррумпированный кардинал Хаусмен, понимает, что (   Читать дальше...   )Производство: США, Мексика / Instituto Nacional de Bellas Artes (INBA), Metro-Goldwyn-Mayer (MGM)Жанр: ужасы, триллер, детективРежиссер: Руперт УэйнрайтАктеры: Патриция Аркетт, Гэбриел Бирн, Джонатан Прайс, Ниа Лонг, Томас Копаче, Раде Шербеджия, Энрико Колантони, Дик Латесса, Порша де Росси, Патрик МалдунПеревод: дублированный профессиональный (Ист-Вест), профессиональный многоголосый (Союз Видео, Лазер Видео, Пятый канал Санкт-Петербург / Рен-ТВ, АМС), профессиональный двухголосый (НТВ+), авторский (Андрей Гаврилов, Максим Латышев, Сергей Визгунов)Язык озвучки: русский, украинский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA983064C1FC150890489C61DE4D5A07FB6A963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790045   (22165) от 07.04.2025
+
+Простая история / The Straight Story (1999) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальной истории Элвина Стрейта, который в 1994 году проехал через Айову и Висконсин на газонокосилке... 73-летний Элвин Стрэйт, испытывающий проблемы со здоровьем, живёт с дочерью Роуз в тихом провинциальном городке Лоренс, штат Айова. Однажды он узнаёт, что у его брата Лайла, живущего в штате Висконсин, с которым после ссоры он не общался 10 лет, (   Читать дальше...   )Производство: США, Франция, Великобритания / Asymmetrical Productions, Canal+, Channel Four FilmsЖанр: драма, приключения, биографияРежиссер: Дэвид ЛинчАктеры: Ричард Фарнсуорт, Сисси Спейсек, Гарри Дин Стэнтон, Эверетт МакГилл, Джон Фарли, Кевин П. Фарли, Джейн Гэлловэй Хейтц, Джеймс Кэда, Дональд Вигерт, Трейси МэлоуниПеревод: профессиональный многоголосый (R5 CP Digital; студия Нота), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E308DD77489316C9C339DEAB4449AFF7BB80EDCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

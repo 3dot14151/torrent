@@ -1,29 +1,3 @@
-###  Публикация: 1766658   (33613) от 20.12.2024
-
-Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let'sРlay [Sacred Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Рыцари и разбойники повсюду сеют хаос и разрушения. Но еще большее зло плетет свои интриги, скрываясь в тенях. Бросьте клич из фамильного замка, возглавьте армию и сразитесь с силами зла в этой пошаговой стратегии. В замке, который станет вашей твердыней, вы будете нанимать, снаряжать и обучать солдат, чтобы они защищали королевство от любых угроз. Создавайте отряды (   Читать дальше...   )Тип издания: RepackРазработчик: Artefacts StudioЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B01560D888E5B0E15C5E58B49FC875AC2DDAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766753   (33567) от 20.12.2024
 
 Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Scene Rune
@@ -32,7 +6,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33567.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Monster Jam Steel Titans 2 (2021) [Ru/Multi] (1.0e/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33565.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33556.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Connected Hearts 5: Hour of the Witch / Связанные сердца 5: Ча�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33545.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Unsolved Case 6: Ash and Secrets / Нераскрытое дело 6: Пепел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33544.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33543.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Jixo: The Season of Joy / Jixo: Сезон веселья (2024) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33542.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33522.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Line's Guarder (2023) [Ru/Multi] (Update 10) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33509.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33486.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.3) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33445.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Mystery Case Files 27: The Riddle of Mrs. Bishop / За семью печатя�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33436.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33429.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33424.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ SIFU (2022) [Ru/Multi] (1.28/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33422.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ WARNO (2024) [Ru/Multi] (141373/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33412.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ VOIN (2024) [Ru/Multi] (0.1.0) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33411.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ruined Nurse (2024) [Multi] (1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33408.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33400.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33386.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Oxygen Not Included (2019) [Ru/Multi] (647408/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33348.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Neptunia Game Maker R:Evolution Deluxe Edition (2024) [Multi] (UWP/dlc) Scene Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33345.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33339.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Fritz Powerbook 2025 (2024) [En] (2025) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33334.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33316.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B203C045C171E9A33876BF4FE0EE43F49230A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768006   (33303) от 23.12.2024
+
+Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРlay [Forges of Corruption Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устройте кровавую бойню, разносите врагов на куски. Вас ждёт ураганная стрельба в стилистике классических шутеров 90-х годов во вселенной Warhammer 40 000. Играйте за отважного космического десантника Малума Каэдо, взявшего на себя смертельно опасную миссию. Вам предстоит отыскать осколок таинственного источника энергии на Грайе: этот мир-кузню вот-вот захватят культисты, (   Читать дальше...   )Тип издания: RepackРазработчик: Auroch DigitalЖанр: Экшены, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB10653A0146915FF6551C8915933E76ED6337D
 ```
 
 https://mybot314.ru/tekegram_catalog/

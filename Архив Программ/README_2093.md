@@ -6,7 +6,7 @@ Toontrack - EZkeys Player v1.0.1 UNLOCKED x86 x64 by ASSiGN [английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85816.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soft7 2.0 by AP-GRAPHIK - тема для Windows 7 2012 [Rus\Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85804.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ True Sword 5.4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85762.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Red-Black-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85749.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AIDA64 Extreme Engineer v.2.30.1900 (x32/x64/ML/RUS) - Тихая установ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85741.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Windows 7 Manager 4.0.3 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85729.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Audials One 9.1 Build 13600.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85707.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Photo Magician 2.1.0.0 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85667.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ ABViewer Enterprise 8.0.7.6 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85617.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ The KMPlayer 3.0.0.1440 (LAV) [Multi/Rus] [сборка 7sh3 от 30.03.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85612.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 30.03.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85544.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85511.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85451.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ ImgBurn 2.5.7.0 [Eng+Rus] + Portable [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85441.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Celemony - Melodyne Editor v.2.0.1.11 x86.x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85424.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Vertigo Sound - VSC-2 v1.1.1 x86.x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85392.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5 + NI-VISA 5.1.2 + Device Drivers 2012.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85375.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ BurnAware 4.8 Professional + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85282.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85236.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85220.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Photodex ProShow Producer 5.0.3222 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85199.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ WPI DVD By StartSoft v 6.4.12 [Английский плюс Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85195.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Black Widow Boot by Core-2 v.27.3.12 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85193.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ The KMPlayer 3.0.0.1440 (LAV) [Multi/Rus] [сборка 7sh3 от 28.03.12] + Po
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85185.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Windows Longhorn SkinPack 1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85176.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Autodesk AutoCAD Electrical 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85169.jpg" />
 </div>
 
 

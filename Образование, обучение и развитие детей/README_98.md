@@ -1,59 +1,3 @@
-###  Публикация: 1792904   (20710) от 21.04.2025
-
-В.В. Белага, Н.И. Воронцова, И.А. Ломаченков и др. | Физика. Инженеры будущего. Учебник для 8 класса. Углублённый уровень (в 2 частях, часть 2) (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Общая концепция учебно-методического комплекса, который включает печатные издания и электронные ресурсы, в том числе сайт поддержки УМК, разработана научными сотрудниками Объединённого института ядерных исследований (ОИЯИ), преподавателями Национального исследовательского ядерного университета «МИФИ» и специалистами Госкорпорации «Росатом».
-
-Данный учебник продолжает (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A91A949BA82811B8BAF69EDE125E0AFED6E887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792898   (20709) от 21.04.2025
-
-В.В. Белага, Н.И. Воронцова, И.А. Ломаченков и др. | Физика. Инженеры будущего. Учебник для 8 класса. Углублённый уровень (в 2 частях, часть 1) (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Общая концепция учебно-методического комплекса, который включает печатные издания и электронные ресурсы, в том числе сайт поддержки УМК, разработана научными сотрудниками Объединённого института ядерных исследований (ОИЯИ), преподавателями Национального исследовательского ядерного университета «МИФИ» и специалистами Госкорпорации «Росатом».
-
-Данный учебник продолжает (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413D1AEC854525C86451ACC3317AA6E33526BD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792895   (20708) от 21.04.2025
 
 В.В. Белага, Н.И. Воронцова, И.А. Ломаченков и др. | Физика. Инженеры будущего. Учебник для 7 класса. Углублённый уровень (в 2 частях, часть 2) (2024) [PDF]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20708.jpg" />
 </div>
 
 
@@ -90,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20706.jpg" />
 </div>
 
 
@@ -118,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20703.jpg" />
 </div>
 
 
@@ -146,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20700.jpg" />
 </div>
 
 
@@ -174,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20379.jpg" />
 </div>
 
 
@@ -202,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20375.jpg" />
 </div>
 
 
@@ -230,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20373.jpg" />
 </div>
 
 
@@ -258,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16113.jpg" />
 </div>
 
 
@@ -285,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15781.jpg" />
 </div>
 
 
@@ -311,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15763.jpg" />
 </div>
 
 
@@ -339,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15762.jpg" />
 </div>
 
 
@@ -367,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15759.jpg" />
 </div>
 
 
@@ -395,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15758.jpg" />
 </div>
 
 
@@ -423,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15729.jpg" />
 </div>
 
 
@@ -451,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15727.jpg" />
 </div>
 
 
@@ -477,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15625.jpg" />
 </div>
 
 
@@ -503,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15624.jpg" />
 </div>
 
 
@@ -531,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15373.jpg" />
 </div>
 
 
@@ -557,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15335.jpg" />
 </div>
 
 
@@ -583,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15249.jpg" />
 </div>
 
 
@@ -611,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15048.jpg" />
 </div>
 
 
@@ -637,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14856.jpg" />
 </div>
 
 
@@ -665,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14847.jpg" />
 </div>
 
 
@@ -691,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14834.jpg" />
 </div>
 
 
@@ -704,6 +648,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B6BAD1E834E693F135EEE9B64E2AE0BDC09BB46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801607   (14832) от 12.06.2025
+
+О.С. Габриелян, И.Г. Остроумов, Н.С. Пурышева и др. | Естествознание. Учебник для 10 класса (базовый уровень) (2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник адресован учащимся 10 класса гуманитарного, социально-экономического, информационно-технологического профиля. Новый учебный курс «Естествознание» рассматривает объекты и явления естественного мира в гармонии физики, химии, биологии, астрономии, географии и экологии.
+
+Учебник содержит главы «Естествознание и методы познания мира», «Мегамир», «Макромир». В (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20BEC710B46454C19DC9E73BFFE01E0CF29CB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801611   (14819) от 12.06.2025
+
+В.В. Дорофейчик, В.Н. Жилко | Физика. ЦТ. Тренажер (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержание книги охватывает все разделы школьного курса физики и соответствует программе вступительных испытаний.
+
+Пособие включает тематические тесты, обобщающие тесты и решения тематических тестов. В начале тематических тестов приводятся краткие теоретические сведения. В конце пособия даются ответы. Издание поможет закрепить и углубить знания, усовершенствовать (   Читать дальше...   )Жанр: Учебное пособиеЯзык: РусскийИздательство: АверсэвФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABD1BDD5B95EF60AE08ADCFE9A3788BDBFB7F2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

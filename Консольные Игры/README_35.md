@@ -1,108 +1,3 @@
-###  Публикация: 931453   (511550) от 26.08.2015
-
-Doom 3 BFG Edition (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В издание Doom 3 BFG Edition войдет обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории войны на марсианской станции поклонников Doom ждут совершенно новые эпизоды - семь уровней под общим заголовком The Lost Mission.Тип издания: Неофициальное изданиеРазработчик: id SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: -/-Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B32DD115294F255F8669991FC43884FB5DAAA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315531   (510702) от 22.07.2019
-
-Tetris 99 (2019) [Switch] [EUR] 8.0.0 [eShop] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-99 игроков — и только один окажется победителем! TETRIS® 99 — классическая игра-головоломка в совершенно новой оболочке. Сможете подобрать стратегию, чтобы одолеть одновременно 98 других игроков?!
-Игра TETRIS 99 доступна исключительно участникам платного членского сервиса Nintendo Switch Online. Ведь TETRIS® 99 — это в первую очередь захватывающие онлайн-сражения (   Читать дальше...   )Тип издания: eShopРазработчик: ARIKAЖанр: PuzzleЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01D3D44C80DE91C1CA41BE0F761C4058B2D383A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931583   (510636) от 27.08.2015
-
-SpongeBob HeroPants (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-SpongeBob HeroPants – игра, основанная на полнометражном мультфильме The SpongeBob Movie: Sponge Out of Water. Вам предстоит взять под свое управление любимых героев Бикини-Боттом, которые предстанут перед вами как в своем обычном виде, так и в новой супергеройской форме из мультфильма. SpongeBob HeroPants представляет собой платформер, в котором игроку предстоит (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Behaviour InteractiveЖанр: Arcade / Adventure / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14268A5BFF90A4202F1A6A396610B846FB25031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932091   (509861) от 28.08.2015
-
-Cars Race-O-Rama (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Честная борьба - вот главный принцип Молнии Макквина, знаменитого героя мультфильма «Тачки», который в корне изменил жизнь захолустного городка Радиатор Спрингс. Однако далеко не все готовы соблюдать правила! Грандиозный турнир Race-O-Rama собирает гонщиков со всей округи, но чтобы стать победителем, вам нужно быть готовым ко всему!Тип издания: ЛицензияРазработчик: Incinerator StudiosЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F3CB507EC2CF121899D4EA099E76EBBF782A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404200   (509488) от 23.08.2020
 
 Need for Speed Payback (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.08 ] [Ru/Multi]
@@ -111,7 +6,7 @@ Need for Speed Payback (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.08 ] [Ru/Multi
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509488.jpg" />
 </div>
 
 
@@ -137,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508996.jpg" />
 </div>
 
 
@@ -163,7 +58,7 @@ Days Gone / Жизнь после (2019) [PS4] [EUR] 9.00 [HEN] [License / 1.80 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508767.jpg" />
 </div>
 
 
@@ -189,7 +84,7 @@ Aliens: Colonial Marines (2013) [PS3] [EUR] 4.31 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508657.jpg" />
 </div>
 
 
@@ -216,7 +111,7 @@ Halo 4 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507741.jpg" />
 </div>
 
 
@@ -243,7 +138,7 @@ Call of Duty: WWII (2017) [PS4] [EUR] 7.00 [HEN] [License / 1.25] [Ru]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506881.jpg" />
 </div>
 
 
@@ -269,7 +164,7 @@ Shaun White Skateboarding (2010) [PS3] [USA] 3.42 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506768.jpg" />
 </div>
 
 
@@ -295,7 +190,7 @@ Dungeons & Dragons: Daggerdale (2011) [Xbox360] [RegionFree] [FreeBoot] [Unoffic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505858.jpg" />
 </div>
 
 
@@ -321,7 +216,7 @@ Sniper Elite 5: France (2022) [PS4] [USA] 5.05 [HEN] [License / 1.06 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504124.jpg" />
 </div>
 
 
@@ -348,7 +243,7 @@ Dead Island (2011) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G.DSh
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504108.jpg" />
 </div>
 
 
@@ -374,7 +269,7 @@ Syberia / Сибирь (2002) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504071.jpg" />
 </div>
 
 
@@ -400,7 +295,7 @@ Call of Duty: Black Ops II + DLC (2012) [Xbox360] [RegionFree] [FreeBoot] [Unoff
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503997.jpg" />
 </div>
 
 
@@ -426,7 +321,7 @@ Weird West (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503419.jpg" />
 </div>
 
 
@@ -452,7 +347,7 @@ MotoGP 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502481.jpg" />
 </div>
 
 
@@ -478,7 +373,7 @@ James Cameron’s Avatar: The Game (2009) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502052.jpg" />
 </div>
 
 
@@ -504,7 +399,7 @@ Silent Hill HD Collection (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501937.jpg" />
 </div>
 
 
@@ -530,7 +425,7 @@ Ben 10: Galactic Racing (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501124.jpg" />
 </div>
 
 
@@ -556,7 +451,7 @@ Final Fantasy XIII (2009) [PS3] [ASIA] 3.21 [Unofficial] [Ru/Jp] | R.G. RED
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500984.jpg" />
 </div>
 
 
@@ -582,7 +477,7 @@ Kung Fu Panda (2008) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500982.jpg" />
 </div>
 
 
@@ -611,7 +506,7 @@ Disney Universe Disney: Мир героев (2011) [Xbox360] [RegionFree] [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500981.jpg" />
 </div>
 
 
@@ -637,7 +532,7 @@ Syndicate [PS3] [RUS] [PAL] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500829.jpg" />
 </div>
 
 
@@ -664,7 +559,7 @@ G-Force: Миссия Дарвина (2009) [Xbox360] [RegionFree] [FreeBoot] [L
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500121.jpg" />
 </div>
 
 
@@ -675,6 +570,110 @@ G-Force является трехмерным экшен-платформеро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD46B3CC2AE396570AD3B9387AD19F265EB8F51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934977   (500058) от 07.09.2015
+
+Lollipop Chainsaw (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lollipop Chainsaw – зомби-экшен от Suda 51, главную роль в котором играет чирлидерша Джульетта Старлинг. На свое 18-тилетие она отправляется в San Romero High School, чтобы встретиться со своим парнем. Вместо этого она находит место, кишащее зомби. Так как Джульетта входит в группу поддержки, в бою она использует не только бензопилу, ее основное оружие, но и свои (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Grasshopper Manufacture, KadokawaЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE84F94FEAB31272A091B1A906B68404AB4B9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933846   (500056) от 07.09.2015
+
+LEGO Jurassic World / LEGO Мир Юрского периода (2015) [Xbox360] [RegionFree] [Freeboot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра из знаменитой серии LEGO охватывает события как культовых фильмов «Парк Юрского периода», «Парк Юрского периода 2: Затерянный мир» и «Парк Юрского периода 3», так и блокбастера «Мир Юрского периода», который появился на киноэкранах в июне.Тип издания: ЛицензияРазработчик: TT GamesЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: -/-Язык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68EA01D9DAC54DA767E3AB620E8E6FCBB1AD4554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935326   (499024) от 08.09.2015
+
+Madden NFL 16 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Madden NFL 16 продолжает серию симуляторов американского футбола Madden NFL. В этой части представлено совершенно новое управление, которое позволит доминировать в битве за владение мячом, новая механика квотербека, включающая передачи с касанием и броски от туловища, новая система защиты и приема пасов, а также другие нововведения.Тип издания: ЛицензияРазработчик: EA SportsЖанр: Sports / SimulationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B3AB8647E6819822D5EF8B1260BB9822D95B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935134   (499011) от 08.09.2015
+
+Brave: The Video Game / Храбрая сердцем (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брось вызов судьбе и испытай свое сердце, отправившись в путешествие с принцессой Меридой и ее друзьями, чтобы снять проклятье и спасти королевство! Главная героиня игры и мультфильма Disney/Pixar «Храбрая сердцем» - дочь короля Шотландии Фергюса и королевы Элинор, искусная лучница Мерида. Девушка выбирает свой путь в жизни самостоятельно, и однажды, отказавшись (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Behaviour InteractiveЖанр: Arcade / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CDB1B1EC4A325A2A1524928ED4ECEF90343C49
 ```
 
 https://mybot314.ru/tekegram_catalog/

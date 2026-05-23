@@ -1,32 +1,3 @@
-###  Публикация: 1251840   (413008) от 03.10.2018
-
-VA - Осенний Роман: Сборник Шансона (2018) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Вестов - Я Буду Ждать Тебя
-002. Илья Яббаров - Отпускаю
-003. Сборная Союза - Мой Друг
-004. Климм - Позови За Собой(   Читать дальше...   )Жанр: ШансонПродолжительность: 11:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB934DF352061E702FA0EEFE100DAED02DF150F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251902   (412817) от 03.10.2018
 
 VA - Saturday Night Party (2018) [MP3|320 Kbps] <Dance, Pop, Electro House>
@@ -35,7 +6,7 @@ VA - Saturday Night Party (2018) [MP3|320 Kbps] <Dance, Pop, Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412817.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Record Super Chart 604 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412721.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Best tracks of Transitions by John Digweed on Kiss 100. Volume 2 - 2003-200
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412719.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Autumn Groove: Dj Electro House Mastermix (2019) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412703.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Team Dogz: 170 Rap Hits (Vol.02) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412597.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Monarchs Of Oblivion: Rock Collection (2019) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412582.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Lust And Love: Rock Hard Revue (2017) [MP3|320 Kbps] <Hard Rock, Alternativ
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412577.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Lindsay Ell - Compilation (2022) [MP3|320 Kbps] <Pop, Pop Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412534.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Music News vol.211 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412522.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - 60 minutes. Old School Dance Music vol.3 (mixed by Dj V) (2017) [MP3|320 Kb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412473.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Dинамик. Осень (2017) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412468.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - The World of Enigmatic Melody vol. 2 (2017) [MP3|320 Kbps] <Enigmatic, New 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412464.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Heartbeat Todays: Deep Feelings (2016) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412401.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Популярный драйвовый хитовичок. Версия 7 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412384.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Music News vol.212 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412373.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Miley Cyrus - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412370.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Music For You vol. 24 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412369.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - The Best - In Music We Trust Vol.9 (2016) [MP3|320 Kbps] <House, Electro Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412247.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Record Super Chart #459 (2016) [MP3|320 Kbps] <House, Electro House, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412244.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Music For Everyone - Drum and Bass & Liquid Vol.5 (2016) [MP3|320 Kbps] <Dr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412239.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - ЕвроХит Топ 40 Europa Plus 02.10.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411884.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 11 (2022) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411764.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Любимая Музыка Для Твоей Тачки Зарубежны
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411674.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Panoramic Grooves 20 Chillhouse Beats (2015) [MP3|320 кб/с]<Deep House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411617.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Passion (After Midnight Edition) (2015) [MP3|320 кб/с]<Funky, Club House
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411603.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ VA - Passion (After Midnight Edition) (2015) [MP3|320 кб/с]<Funky, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010F6FE575FA815E9906DD42549DA12C7A2B221A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066476   (411527) от 26.10.2016
+
+Сергей Трофимов - Лучшие песни (Deluxe Edition) (2016) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снегири  2:59
+02. Ветер в голове  4:12
+03. Город Сочи  3:02
+04. Ветерок  3:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF20431D85F7256B9EDAE78033E4B0F720FDA230
 ```
 
 https://mybot314.ru/tekegram_catalog/

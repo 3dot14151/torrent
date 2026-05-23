@@ -1,55 +1,3 @@
-###  Публикация: 1110190   (855312) от 01.03.2017
-
-HTC Camera 8.50.876780 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Функции автоматической съемки, широкий набор элементов ручного управления и творческие режимы камеры делают HTC 'Камера' идеальным и универсальным средством для фотографирования 'на ходу'. С помощью элементов управления — от параметров ISO до баланса белого — вы всегда сможете создать нужное восприятие для ваших фотографий и видеозаписей. Можно даже добавить и попробовать (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 01.03.17Разработчик: HTC CorporationПоддерживаемая ОС: Android. 6.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691F2A8295F48E3F09FF70A44F3ABD4D6ECE0CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250434   (853055) от 21.04.2020
-
-Как завязать галстук v4.0.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лучшее руководство по завязыванию галстука! Как завязать галстук пошагово - более 25 узлов в одном приложении! 10'000'000 человек по всему миру уже успешно им пользуются. Скачайте приложение и вам не придется постоянно лазить в интернет и тратить свое время и деньги, чтобы найти правильную и понятную инструкцию, как красиво завязать галстук. Легко и понятно: просто (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 26.12.2017Разработчик: ArtfonicaПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E096C3C443DD487D26BDDEC26A913DB75FB8AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352604   (851496) от 22.04.2020
 
 SanDisk Memory Zone 4.1.16 [Ru]
@@ -58,7 +6,7 @@ SanDisk Memory Zone 4.1.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851496.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ iReal Pro - Нотная Тетрадь & Минусовки v2021.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851027.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ Speakometer - Английское Произношение и Акцент v2.1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851021.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ Glextor AppManager 5.32.0.507 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851012.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ Android Assistant Pro 23.70 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850987.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850900.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850893.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ Viewbox v1.0-32 Mod Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850798.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850114.jpg" />
 </div>
 
 
@@ -301,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849910.jpg" />
 </div>
 
 
@@ -327,7 +275,7 @@ To-Do Calendar Planner / Задачи, Календарь, Органайзер 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849693.jpg" />
 </div>
 
 
@@ -354,7 +302,7 @@ Any.do Premium 4.19.0.6 [Ru/Multi] - Список дел, заметок
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849330.jpg" />
 </div>
 
 
@@ -380,7 +328,7 @@ AdClear 9.14.2.798 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848040.jpg" />
 </div>
 
 
@@ -406,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847930.jpg" />
 </div>
 
 
@@ -435,7 +383,7 @@ QR Code Pro 1.15 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847788.jpg" />
 </div>
 
 
@@ -461,7 +409,7 @@ AZ Screen Recorder Premium 5.7.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847780.jpg" />
 </div>
 
 
@@ -487,7 +435,7 @@ Fake GPS v5.3.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847459.jpg" />
 </div>
 
 
@@ -513,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846839.jpg" />
 </div>
 
 
@@ -539,7 +487,7 @@ ROEHSOFT PARTITION TOOL SD-USB 1.37 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846582.jpg" />
 </div>
 
 
@@ -566,7 +514,7 @@ Pose Tool 3D 6.8.79 [En] - Инструмент постановки поз дл
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846341.jpg" />
 </div>
 
 
@@ -592,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845100.jpg" />
 </div>
 
 
@@ -618,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844903.jpg" />
 </div>
 
 
@@ -647,7 +595,7 @@ Guitar Tuna v3.5.4 [Ru/Multi] - универсальный тюнер для н�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844652.jpg" />
 </div>
 
 
@@ -673,7 +621,7 @@ APK Permission Remover Pro v1.3.8 [Ru/Multi] - Удаление разрешен
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844355.jpg" />
 </div>
 
 
@@ -684,6 +632,58 @@ APK Permission Remover - это замечательный инструмент,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09AAEA776E0F0FF5FBAC6BB860B24869596E1423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 835257   (844349) от 02.04.2016
+
+QuickPic 4.7.2.2404 [Ru] - Просмотрщик изображений с мультитачем
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой, быстрый и надежный просмотрщик картинок с мультитачем. Лучшая замена стандартной галерее. И, наверное, лучший вьювер, из всех, что есть в Google Play.Тип издания: FreeРелиз состоялся: 02.04.16Разработчик: SoftXperienceПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CBB9C7938324A0B8B3DDE859FEA47C985C2107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112356   (842992) от 08.03.2017
+
+Деловые заметки - Блокнот v1.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет добавлять, редактировать, группировать и удалять заметки.Тип издания: Пиратка (Pro)Релиз состоялся: 26.01.2017Разработчик: A7-studioПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9A105F662497C041A28ECD311B087CE4367077
 ```
 
 https://mybot314.ru/tekegram_catalog/

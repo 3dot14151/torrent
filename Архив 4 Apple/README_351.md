@@ -6,7 +6,7 @@ TechTool Pro 15 v15.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503430.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Audio Hijack 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503426.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Apple Final Cut Pro X 10.2.2,  Motion 5.2.2 & Compressor 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502952.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ PDF Search 12.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502768.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Synkmark 2.12.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502767.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ BookMacster 2.12.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502766.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Darkroom: Photo & Video Editor 6.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502715.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ TunesKit AceMovi Video Editor 4.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502710.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Iridient Developer 3.7.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502709.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Color Wheel 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502706.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ KCNcrew Pack 07-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502705.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ TG Pro (Temperature Gauge Pro) 2.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502611.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mp3tag 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502609.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ON1 NoNoise AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502602.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ ON1 Effects 2022.5 v16.5.1.12526 U2B [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502600.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ ON1 HDR 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502496.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ SwitchResX 4.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502493.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ ON1 Resize AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502487.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ PictureCode Photo Ninja 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502144.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501736.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ xSearch for Safari 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501734.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Music Tag Editor Pro 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501733.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Boxy SVG 3  v3.86.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501728.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Aiseesoft Mac Screen Recorder 2.1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501678.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Vinegar 2.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501669.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ YT Saver Video Downloader & Converter 5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501583.jpg" />
 </div>
 
 

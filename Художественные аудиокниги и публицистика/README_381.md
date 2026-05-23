@@ -1,83 +1,3 @@
-###  Публикация: 1221473   (694923) от 24.04.2018
-
-Иван Оченков | Великий герцог Мекленбурга (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет вторую аудиокнигу Ивана Оченкова, из уже ставшей популярной серии «Приключения принца Иоганна Мекленбургского» – «Великий герцог Мекленбурга». Новые приключения нашего соотечественника, волей судьбы оказавшегося в XVII веке.
-Век шпаг, мушкетеров и кружевных воротников… Он всего два года в этом мире, но можно сказать, что жизнь удалась. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 16:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95B9D611DF567DE6BF33CAA184E14B2274785BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221431   (694915) от 24.04.2018
-
-Иван Оченков | Приключения принца Иоганна Мекленбургского (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет аудиокнигу Ивана Оченкова «Приключения принца Иоганна Мекленбургского» – первую в одноименной серии.
-Волей судьбы наш современник оказывается в самом начале семнадцатого века в теле самого настоящего принца. Удачно получилось? Как бы не так! Принц – сирота, и жадные родственники желают лишить его наследства, инквизиция считает еретиком, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 13:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DD86643654C2056ACFFD76BAE2B354BA901A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211475   (694906) от 20.06.2010
-
-Эрнест Хемингуэй | Зелёные холмы Африки [2007] [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Автобиографичная повесть Эрнеста Хемингуэя, вышедшая в 1935 году. Повествует об охоте писателя и его жены в африканских саваннах. В книге описано всё то, что происходило с Хемингуэем во время его двух сафари. События описаны не последовательно, автор слегка изменил их чередование. Сама книга повествует о волнениях, удачах и неудачах охоты, о жизни туземцев и окружающей (   Читать дальше...   )Жанр: повесть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8643142160A9084703516C88E800A8AB5DDF85F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027819   (694848) от 20.06.2016
 
 Виктор Афанасьев | Жуковский (2016) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694848.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694847.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694555.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694366.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694361.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694258.jpg" />
 </div>
 
 
@@ -249,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694254.jpg" />
 </div>
 
 
@@ -277,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694252.jpg" />
 </div>
 
 
@@ -305,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694159.jpg" />
 </div>
 
 
@@ -331,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694151.jpg" />
 </div>
 
 
@@ -357,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694150.jpg" />
 </div>
 
 
@@ -383,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694122.jpg" />
 </div>
 
 
@@ -409,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693927.jpg" />
 </div>
 
 
@@ -436,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693925.jpg" />
 </div>
 
 
@@ -462,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693893.jpg" />
 </div>
 
 
@@ -490,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693885.jpg" />
 </div>
 
 
@@ -517,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693858.jpg" />
 </div>
 
 
@@ -545,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693816.jpg" />
 </div>
 
 
@@ -572,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693783.jpg" />
 </div>
 
 
@@ -598,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693775.jpg" />
 </div>
 
 
@@ -624,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693655.jpg" />
 </div>
 
 
@@ -651,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693641.jpg" />
 </div>
 
 
@@ -678,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693433.jpg" />
 </div>
 
 
@@ -689,6 +609,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F2BA6B3C39C821E136F165FFA9C1A27FA31A55B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133202   (693428) от 13.05.2017
+
+Виктор Лихачёв | Дневник путника (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная повесть, написанная писателем осенью 1991 года под влиянием свежих впечатлений от пешеходного странствия. Автор прошелся от Оптиной пустыни до города Гусь-Хрустальный в северной Мещере.Жанр: прозаПродолжительность: 05:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21798B38FF303179C8FCB7472FADD36B1630A7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288184   (693418) от 12.03.2019
+
+Данияр Сугралинов | Угроза А-класса (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой книги – обыкновенный подросток. Значительную часть времени он проводит в онлайн-игре с полным погружением в виртуальный мир. Это просто развлечение, которое к тому же начинает надоедать. Но жизнь – дама взбалмошная и всегда может перевернуть всё с ног на голову. Развод родителей ставит крест на перспективах обучения и карьерного роста их сына. Теперь «Дисгардиум» (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, LitRPGПродолжительность: 10:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668318936531A21BD54A3A45C6580BF74D84F2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133517   (693332) от 13.05.2017
+
+Марина Москвина | Загогулина (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои Марины Москвиной — большие мастера попадать в невероятные ситуации, но немыслимой силы жизнелюбие выручает их и озаряет жизнь окружающих. «Загогулина» — невероятные истории о жизни непоседливой девчонки Лены Шишкиной, ее семействе и друзьях.
+Правдивость событий, характеров, богатство разнообразных чувств, которые вызывает «Загогулина», юмор, фантазия сделали (   Читать дальше...   )Жанр: Юмористическая прозаПродолжительность: 02:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B918EC7B92CEE35992E9BACE7F11136B3DCB16
 ```
 
 https://mybot314.ru/tekegram_catalog/

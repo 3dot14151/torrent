@@ -6,7 +6,7 @@ Sam Spades - Wolf (2014) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rockabilly, Rock &
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_793821.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tim Buckley - Goodbye And Hello (1967) Reissue, 2000, Elektra [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793797.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Paul Revere & The Raiders - Midnight Ride (1966) Reissue, 2000, Sundazed Music [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793795.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Monks - Black Monk Time (1966) Remastered, 1997, Infinite Zero [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793787.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ YOAV - Blood Vine (2012) [FLAC|Lossless|tracks + .cue] <Alternative, Electronic,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793752.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ YOAV - A Foolproof Escape Plan (2010) [FLAC|Lossless|tracks + .cue] <Indie, Pop,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793730.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Electric Prunes - I Had Too Much To Dream (Last Night) (1967) Reissue, 2000,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793659.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Fats Domino - This Is Fats Domino! (1957) [FLAC|Lossless|tracks] <Rock, Blues, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793641.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Christie - Christie (1970) Reissue 1996 [APE|Lossless|image + .cue] <Rock, Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793638.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Young Rascals - Groovin' (1967) Reissue, 2007, Collectors' Choice Music [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793636.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Love - Forever Changes (1967) Stereo [FLAC|Lossless|tracks + .cue] <Rock, Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793574.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Jerry Lee Lewis - Live At The Star-Club Hamburg (1964) Reissue, 1984, Bear Famil
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793566.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Pink Floyd - 1st Press Collection (1967-1994) [CUE+FLAC|Lossless]<Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793534.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Pink Floyd - The Dark Side Of The Moon, Wish You Were Here, The Wall: Immersion 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793525.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Donovan - Sunshine Superman (1967) Remastered, 2005, Mono [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793459.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ The Strokes - 6 Albums (2001 - 2020)  [FLAC|Lossless|tracks + .cue|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793346.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Smokie - Greatest Hits vol.1 & vol.2 (2017) New Extended Version [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793172.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Sheryl Crow - Everyday Is A Winding Road: The Collection (2013) [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793009.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Legacy Pilots - The Penrose Triangle (2021) [FLAC|Lossless|image + .cue] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792933.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Somali Yacht Club - The Sea (2018) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792823.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ The Pretty Things - S.F. Sorrow (1968) Reissue, 1998, Mono [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792694.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Van Morrison - Astral Weeks (1968) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792669.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ The United States Of America - The United States Of Americ (1968) Reissue, 2004,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792643.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Traffic - Traffic (1968) Limited Edition, Reissue 2008 [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792641.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ The Who - Maximum As & Bs: The Complete Singles (2017) 5CD Box Set [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792161.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Dennis DeYoung (ex-Styx) - 26 East: vol.2 (2021) Japanese Edition [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792137.jpg" />
 </div>
 
 

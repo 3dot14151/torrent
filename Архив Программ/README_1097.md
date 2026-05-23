@@ -6,7 +6,7 @@ Destroy Windows 10 Spying 1.5 Build 409 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489275.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 10 Pro-Home Insider Preview 10.0.10537 [En] WZT
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489273.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Movavi Slideshow Maker 6.7.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489255.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Complete Internet Repair 6.0.3.5003 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489251.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HWiNFO 6.30 Build 4240 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489247.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Chromium 85.0.4183.83 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489246.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IsMyLcdOK 4.01 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489244.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Platinum Hide IP 3.2.1.2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489219.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Maxthon Browser 6.1.0.500 Beta + Portable (Chromium) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489159.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tor Browser Bundle 9.5.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489078.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BELOFF [dp] 2020.08.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489074.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Acronis True Image 2021 Build 30290 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488982.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Room Arranger 7.0.5.289 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488955.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Opera Next 12.50.1583 (x86+x64) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488947.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ uTorrent 3.5.5 Build 45798 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488858.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ WinRAR 5.91 (DC 25.08.2020) RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488844.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Red Giant All Suites 2013 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488765.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ FileZilla 3.44.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488743.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Qip Infium 2.0.9040 (Grey Pack) [Full Version] v1.5 + Portable [русский +
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488685.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Loaris Trojan Remover 3.0.93.231 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488636.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ WebBrowserPassView 1.91 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488533.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Blackmagic Design DaVinci Resolve Studio 16.0.0.060 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488424.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Mozilla Firefox 49.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488402.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Sandboxie plus 1.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488357.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Sandboxie 5.57.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488349.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ GeoGebra 6.0.722.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488339.jpg" />
 </div>
 
 

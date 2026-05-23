@@ -1,30 +1,3 @@
-###  Публикация: 792558   (707691) от 03.06.2014
-
-Silent Hill: Homecoming (2009) [Ru/En] (1.0) RePack Audioslave
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Странные, тревожащие сны начали мучить Алекса Шепарда еще вдали от дома. А когда профессиональный военный, наконец, вернулся в родной городок Шепардс Глен, то обнаружил, что кошмар обернулся явью. В подворотнях сгустился мрак, улицы опустели, а дом самого Алекса превратился в обитель страха и отчаяния. Младший брат пропал, отправившийся на его поиски отец не вернулся, а мама замкнулась в себе и отрешилась от окружающего мира.
-Silent Hill: Homecoming — это достойное продолжение знаменитой серии, каждый эпизод которой натягивает нервы и леденит кровь не хуже первоклассных психологических триллеров и фильмов ужасов. В роли Алекса Шепарда вам вновь предстоит посетить утопающий в вязком тумане городок Сайлент Хилл, где за белесой пеленой скрываются порождения худших ночных кошмаров. Что произошло, пока Алекс отсутствовал и как его брат, еще подросток, связан с царящим вокруг безумием? Найти ответы на эти вопросы можете только вы.(   Читать дальше...   )Тип издания: RePackРазработчик: Double Helix GamesЖанр: Action (Survival horror) / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA141ECFFEC9A9F64C6805CB25AF92EF9C088D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218424   (707672) от 17.04.2018
 
 Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.01) Repack Other s
@@ -33,7 +6,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.01) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707672.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Rite of Passage 4: The Lost Tides (2015) [En] Unofficial [Collector's Edition / 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707293.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ LEGO Marvel's Avengers / LEGO Marvel Мстители (2016) [Ru/Multi] (1.0.0.2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707201.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Secret Investigations 4: Themis / Загадочные расследовани�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706994.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Europa Universalis IV / Europa Universalis 4 (2013) [Ru/Multi] (1.30.3/dlc) Repa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706831.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706799.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706693.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706684.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706666.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) License CODEX [Collectors Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706665.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ Bridge to Another World 2: The Others / Мост в другой мир 2: Ин�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706620.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Carrion (2020) [Ru/Multi] (1.0.5/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706579.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Sherlock Holmes: Chapter One / Шерлок Холмс: Глава 1 (2021) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706574.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ The Inevitability (2017) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706304.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ Grim Facade 11: Broken Sacrament / За гранью жестокости 11: Р
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705988.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) License RELOADED [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705883.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ Euro Truck Simulator / С грузом по Европе (2008) [Ru/Multi] (1.3)
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705709.jpg" />
 </div>
 
 
@@ -478,7 +451,7 @@ Witches Legacy 11: Rise of the Ancient (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705356.jpg" />
 </div>
 
 
@@ -504,7 +477,7 @@ Enchanted Kingdom 7: The Secret of the Golden Lamp / Зачарованное к
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705307.jpg" />
 </div>
 
 
@@ -530,7 +503,7 @@ The Legacy 2: Prisoner (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705202.jpg" />
 </div>
 
 
@@ -556,7 +529,7 @@ Surface 12: Project Dawn (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705197.jpg" />
 </div>
 
 
@@ -582,7 +555,7 @@ Dawn of Hope 3: The Frozen Soul / Рассвет надежды 3: Ледяна�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705191.jpg" />
 </div>
 
 
@@ -608,7 +581,7 @@ Cursed Fables: White as Snow (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705006.jpg" />
 </div>
 
 
@@ -634,7 +607,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.08/dlc) Repack =nemos= [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704912.jpg" />
 </div>
 
 
@@ -660,7 +633,7 @@ Letters (2022) [En] (1.0) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704744.jpg" />
 </div>
 
 
@@ -671,6 +644,32 @@ Letters (2022) [En] (1.0) License GOG [Collector's Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6B532BA1C8683845A435FB83D2FA35F261F1858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287275   (704700) от 06.03.2019
+
+The Occupation (2019) [Ru/Multi] (1.02) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704700.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Occupation — это захватывающий триллер от первого лица с элементами симулятора детектива, в котором вы отправитесь прямиком в 24 октября 1987 г., на северо-запад Англии.  Вы — журналист в изменчивом реалистичном мире, в котором люди реагируют на каждое ваше действие, а время, становится злейшим врагом.Тип издания: RepackРазработчик: White Paper GamesЖанр: Adventure (Detective), Stealth, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6146FEB1E8FF3ACC270CDC402CA77A2B6933C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

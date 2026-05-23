@@ -1,56 +1,3 @@
-###  Публикация: 1599039   (161315) от 21.12.2022
-
-Daff Moon Phase (Фазы Луны) v3.23 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приложение показывает текущую фазу Луны, фазы Луны на любой месяц, и другую информацию о Луне, Солнце и восьми планетах солнечной системы в реальном времени. Программа позволяет посмотреть положение светил на простейшей небесной сфере, которую можно поворачивать на произвольный угол!
-Изображение фазы Луны с высокой точностью соответствует реальному для данного момента (   Читать дальше...   )Тип издания: FullРелиз состоялся: 19.11.2022Разработчик: Evgeny FedorischenkoПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49859F51CA5DA40E8BB86921C67C523FBE9CB875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598931   (161097) от 21.12.2022
-
-Grooz VPN - Fast & Secure WiFi 1.2.0 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Grooz VPN позволяет быстро и безопасно подключаться к Интернету со смартфона.Тип издания: PremiumРелиз состоялся: 12 дек. 2022 г.Разработчик: Eywin AppsПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F12ECB2B7C342530D4426D07455CCB6779C458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674363   (161083) от 05.11.2023
 
 Camera FV-5 v5.3.7 Mod by Balatan [Ru/Multi]
@@ -59,7 +6,7 @@ Camera FV-5 v5.3.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161083.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160896.jpg" />
 </div>
 
 
@@ -114,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160838.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ InShot - Фото и видеоредактор v1.982.1424 Mod by maxi123444 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160836.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ vpnify - Безлимитный VPN 2.1.5.3 Mod by PieMods [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160537.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ ImageToolbox 2.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160427.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ Background Video Recorder Pro v9.3.93 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160402.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ AI Image Enlarger 3.0.4 Mod by TryRoom [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160389.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ VK X 6.6.2_pub [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160211.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ CapCut 9.7.0(9700100) Mod by Alien (ToonXTech) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160006.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ Recipe finder 1.0.1 [Ru/Multi] (авторская)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159936.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ XY VPN - Security Proxy VPN 4.7.305 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159792.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ Yoga VPN - безопасный прокси 7.0.530 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159712.jpg" />
 </div>
 
 
@@ -403,7 +350,7 @@ VPN Master -VPN-прокси Hotspot 5.8.008 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159698.jpg" />
 </div>
 
 
@@ -429,7 +376,7 @@ Bottom Quick Settings v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159574.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ MIUI-ify v1.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159565.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159561.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ Reface v3.26.0 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159535.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ IPTV Pro v6.2.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159494.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ PowerDirector – Video Editor v12.7.0 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159300.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by Mixroot [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159279.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ Colorfy PLUS - Coloring Book v3.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159276.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159271.jpg" />
 </div>
 
 
@@ -664,7 +611,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by maxi123444 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159217.jpg" />
 </div>
 
 
@@ -675,6 +622,59 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by maxi123444 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54CEE7A823476478953F0D226FA23BA4BE200224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492678   (159156) от 25.12.2022
+
+My TTS: Text-to-Speech v1.1.6 [En/Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое, но весьма функциональное приложение для озвучивания текста с помощью Text-to-Speech Engine. Поддерживает распознавание текста с изображений (как с уже существующих, так и с новых, полученных с камеры). Поддерживает распознавание речи. Синтез речи выполняется согласно выбранными вами параметрами. Полученным аудиофайлом можно поделиться.Тип издания: PremiumРелиз состоялся: 22.09.2022Разработчик: MixxAppsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский и Русский (русификация)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8BF15D0B83A58B0FE5E9AE1F681C4204E3D012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675948   (159150) от 11.11.2023
+
+Find my kids / Где мои дети v2.6.89-google Mod by Timozhai [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find my kids – это семейный GPS-трекер для безопасности детей и родительского контроля. Установите приложение Find my kids на свой телефон, а приложение Pingo! на телефон ребёнка, либо подключите Смарт часы, которые доступны вам в нашем магазине.
+Find my kids – это приложение для родителей, которое поможет вам не волноваться, если ребёнка нет рядом и он не отвечает (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.11.2023Разработчик: GEO TRACK TECHNOLOGIES INCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

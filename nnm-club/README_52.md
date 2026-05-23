@@ -1,107 +1,3 @@
-###  Публикация: 1870732   (1068832) от 
-
-Каратель: Последнее убийство / The Punisher: One Last Kill (2026) WEB-DL [H.265/2160p] [4K, HDR10, DV 8.1, 10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Касл пытается оставить путь мести в прошлом и начать новую жизнь. Однако старые демоны и непредсказуемые обстоятельства затягивают его обратно в пучину насилия. Преследуемый галлюцинациями, он сталкивается с необходимостью вернуться к борьбе с преступностью. В этом ему пытается помочь близкий друг — Кёртис Хойл, бывший сотрудник спецподразделения разведки ВМС (   Читать дальше...   )Производство: США / Marvel Studios Inc., Marvel TelevisionЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Рейнальдо Маркус ГринАктеры: Джон Бернтал, Джудит Лайт, Дебора Энн Уолл, Джейсон Р. Мур, Келли Баррет, Андре Ройо, Джон Дуглас Томпсон, Colton Hill, Nick Koumalatsos, Addie BernthalПеревод: Дублированный (WinMedia), Многоголосый (HDrezka Studio, Coldfilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA30A3930D64B9B564ADFCAE6A41CC8CEBB54DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870706   (1068831) от 
-
-Каратель: Последнее убийство / The Punisher: One Last Kill (2026) WEB-DL [H.265/2160p] [4K, DV 5, 10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Касл пытается оставить путь мести в прошлом и начать новую жизнь. Однако старые демоны и непредсказуемые обстоятельства затягивают его обратно в пучину насилия. Преследуемый галлюцинациями, он сталкивается с необходимостью вернуться к борьбе с преступностью. В этом ему пытается помочь близкий друг — Кёртис Хойл, бывший сотрудник спецподразделения разведки ВМС (   Читать дальше...   )Производство: США / Marvel Studios Inc., Marvel TelevisionЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Рейнальдо Маркус ГринАктеры: Джон Бернтал, Джудит Лайт, Дебора Энн Уолл, Джейсон Р. Мур, Келли Баррет, Андре Ройо, Джон Дуглас Томпсон, Colton Hill, Nick Koumalatsos, Addie BernthalПеревод: Дублированный (WinMedia), Многоголосый (HDrezka Studio, Coldfilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7964AC6A1883609C9353FAE3CB4932EDFE67DF47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870878   (1068830) от 
-
-Заклятый враг / Nemesis (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Movie Dubbing
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Неутомимый полицейский из Лос-Анджелеса одержим идеей поймать опытного вора, стоящего за серией дерзких ограблений. И победитель в этой схватке будет лишь один.Производство: США / End of Episode, MVP Entertainment, Warm Blood SundayЖанр: боевик, драма, криминалРежиссер: Марио Ван Пиблз, Милисент Шелтон, Роб Харди, Рубен ГарсиаАктеры: Мэттью Лоу, И'лан Ноэль, Габриэль Деннис, Клеопатра Коулмэн, Софина Браун, Ариана Герра, Доменик Ломбардоцци, Седрик Джо, Джонни Пак, Майкл ПоттсПеревод: Дублированный (Movie Dubbing, укр. Так Треба Продакшн)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, 2xFull), английские (Forced, Full, SDH), украинские (Forced, 2xFull)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B6938EE938FD7C43A582214B1D4F3BAD9E4CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870886   (1068829) от 
-
-Brave Browser 1.90.122 Portable by Cento8 [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC56DDF99F7B66B252E3CA18C4E8511C86C98D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870888   (1068828) от 
 
 VK Messenger 6.0.57.7 [Ru/En]
@@ -110,7 +6,7 @@ VK Messenger 6.0.57.7 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068828.jpg" />
 </div>
 
 
@@ -138,7 +34,7 @@ CPU-Z 2.20.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068827.jpg" />
 </div>
 
 
@@ -164,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068825.jpg" />
 </div>
 
 
@@ -190,7 +86,7 @@ Extol - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068824.jpg" />
 </div>
 
 
@@ -219,7 +115,7 @@ Vultures - Scavengers of Death (2026) [Ru/Multi] (1.0.1/dlc) Repack Let'sРlay [
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068823.jpg" />
 </div>
 
 
@@ -245,7 +141,7 @@ Ashampoo WinOptimizer 29.0.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068822.jpg" />
 </div>
 
 
@@ -271,7 +167,7 @@ Syncovery Premium 11.15.6.206 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068821.jpg" />
 </div>
 
 
@@ -299,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068820.jpg" />
 </div>
 
 
@@ -325,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068819.jpg" />
 </div>
 
 
@@ -351,7 +247,7 @@ Samsara (2026) [Ru/Multi] (Build 23220073) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068818.jpg" />
 </div>
 
 
@@ -377,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068817.jpg" />
 </div>
 
 
@@ -403,7 +299,7 @@ Wise Disk Cleaner 11.3.5.855 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068816.jpg" />
 </div>
 
 
@@ -429,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068815.jpg" />
 </div>
 
 
@@ -455,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068813.jpg" />
 </div>
 
 
@@ -481,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068812.jpg" />
 </div>
 
 
@@ -507,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068811.jpg" />
 </div>
 
 
@@ -533,7 +429,7 @@ Hotaru no Haka / Grave of the Fireflies / Могила светлячков [198
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068810.jpg" />
 </div>
 
 
@@ -559,7 +455,7 @@ Cruel Force - Studio Albums (4 releases) (2010-2026) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068809.jpg" />
 </div>
 
 
@@ -580,32 +476,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870915   (1068808) от 
-
-Э. Фрид, К. Джейкобс, Э. Рожа | Эффективный разговорный ИИ. Создаем чат-ботов, которые действительно работают (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Новые мощные фреймворки для разработки чат-ботов и модели генеративного ИИ практически сняли ограничения, связанные с некорректным распознаванием намерений пользователя и генерацией бессодержательных ответов. Освойте разработку чат-ботов на основе больших языковых моделей (LLM) и других современных инструментов, а также проектирование разговорных систем, ориентированных (   Читать дальше...   )Жанр: Компьютерная литература. Искусственный интеллект. Нейронные сетиПеревод: В.ЗагребинИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A665D9E118663B69ECAF84F429A356C87577277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870922   (1068807) от 
 
 MediaInfo 26.05 + Portable [Multi/Ru]
@@ -614,7 +484,7 @@ MediaInfo 26.05 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068807.jpg" />
 </div>
 
 
@@ -640,7 +510,7 @@ Dead Rising (2016) [Ru/Multi] (1.0.1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068806.jpg" />
 </div>
 
 
@@ -666,7 +536,7 @@ FastFlix 6.2.1 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068805.jpg" />
 </div>
 
 
@@ -677,6 +547,136 @@ FastFlix - это простой и дружественный графичес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:594DE3EA09EB015C16ADFAB98CABB7EBEF34A6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870875   (1068804) от 
+
+Первую отечественную BIOS исключили из реестра российского ПО
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский BIOS разработки «Группы Рикор» исключили из реестра отечественного ПО. Как выяснил CNews, запись о системе базового ввода-вывода была удалена по поручению Минцифры от 12 мая 2026 года — формально из-за неактуальности сведений в реестре. В ведомстве пояснили, что запрашивали у правообладателя обновление данных, но ответа не получили, поэтому решение об (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870001   (1068803) от 
+
+16 лет. Любовь. Перезагрузка / Somersault (2004) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068803.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летняя Хейди убегает из дома после того, как мама застукала её за поцелуем со своим бойфрендом. Ей удается найти жилье и работу на автозаправке недалеко от горнолыжного курорта. Хейди встречается с сыном местного хозяина ранчо Джо и пробуждает в нём чувства, которые тот не может объяснить. Жизнь девушки словно делится на две части - детство и зрелость. Есть ли (   Читать дальше...   )Производство: Австралия / Red Carpet Productions, Australian Film Finance Corporation (AFFC), Fortissimo FilmsЖанр: драма, мелодрамаРежиссер: Кейт ШортландАктеры: Эбби Корниш, Сэм Уортингтон, Эрик Томсон, Анна-Луиза Ламберт, Лиа Перселл, Холли Эндрю, Оливия Пижо, Пол Глисон (II), Линетт КерранПеревод: профессиональный многоголосый (DVD R5)Язык озвучки: русский, английскийСубтитры: русские (одна фраза), английскиеПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFDA9F5C932447006847124A83203A7E4E955C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870002   (1068802) от 
+
+Скарпетта / Scarpetta (2026) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 1, серии 1-8 из 8) HDrezka, LostFilm, Red Head Sound, LE-Production
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Кэй Скарпетта - главный судмедэксперт штата Вирджиния. Она блестяще расследует преступления, но не может разобраться с личными отношениями, в том числе с сестрой Дороти, с которой у них немало взаимных обид и тайн.Производство: США / Amazon Studios, Blossom Films, Blumhouse TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Шарлотта Брандстром, Дэвид Гордон ГринАктеры: Николь Кидман, Джейми Ли Кёртис, Ариана ДеБос, Саймон Бэйкер, Бобби Каннавале, Саванна Лумар, Джанет Монтгомери, Чарли Фостер, Алекс Клейн, Энсон МаунтПеревод: Многоголосый (HDrezka, LostFilm, Red Head Sound, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE0E07334F9C6E7D935C65356C02923F29FCB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870005   (1068801) от 
+
+EaseUS Partition Master Pro / Server / Tech / Unlmited 20.3.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068801.jpg" />
+</div>
+
+
+###  Подробнее
+
+EaseUS Partition Master — мощная программа для управления разделами жестких дисков и SSD в Windows. Она позволяет создавать, удалять, объединять, форматировать и изменять размеры разделов без потери данных, а также переносить систему на SSD, клонировать диски и конвертировать файловые системы и таблицы разделов MBR/GPT. Программа подходит как для домашних пользователей, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93916D2CFFA66C6162A711569BA68828ABCAC100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870006   (1068800) от 
+
+16 лет. Любовь. Перезагрузка / Somersault (2004) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068800.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летняя Хейди убегает из дома после того, как мама застукала её за поцелуем со своим бойфрендом. Ей удается найти жилье и работу на автозаправке недалеко от горнолыжного курорта. Хейди встречается с сыном местного хозяина ранчо Джо и пробуждает в нём чувства, которые тот не может объяснить. Жизнь девушки словно делится на две части - детство и зрелость. Есть ли (   Читать дальше...   )Производство: Австралия / Red Carpet Productions, Australian Film Finance Corporation (AFFC), Fortissimo FilmsЖанр: драма, мелодрамаРежиссер: Кейт ШортландАктеры: Эбби Корниш, Сэм Уортингтон, Эрик Томсон, Анна-Луиза Ламберт, Лиа Перселл, Холли Эндрю, Оливия Пижо, Пол Глисон (II), Линетт КерранПеревод: профессиональный многоголосый (DVD R5)Язык озвучки: русский, английскийСубтитры: русские (одна фраза), английскиеПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D1636444159C8A10A7DF4C3FFEEA33D3EB350F
 ```
 
 https://mybot314.ru/tekegram_catalog/

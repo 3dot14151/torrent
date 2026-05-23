@@ -1,82 +1,3 @@
-###  Публикация: 1227851   (642901) от 28.05.2018
-
-Майкл Муркок | Королева мечей (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хроники повествуют о приключениях вадхагского принца Корума Джайлина Ирси, называемого также Принцем в Алой Мантии. Раса вадхагов мирно доживала свой срок в замках, разбросанных по всему континенту, когда пришедшие с соседнего континента мабдены (люди) начинают разрушать замки один за другим, убивая всех вадхагов. Корум остается последним из своей расы и клянется (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 06:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B2F21F21CA42662FBEE50C050D2C0286624F72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541920   (642857) от 04.04.2022
-
-Павел Астахов | Адвокат Артем Павлов (Книга 14).  Класс. История одного колумбайна (2020) [MP3, Илья Дементьев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В этот день у Дмитрия Свободина все пошло наперекосяк. Рано утром умерла бабушка, которая его воспитывала. Потом ему пришлось терпеть хамство санитаров и участкового. Потом ему всыпали на работе за опоздание. Потом он поругался с отчимом, который презрительно назвал его неудачником и, вдобавок, тем обидным прозвищем, которое прилипло к нему еще в школе. В школе… (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF608855B8344FB8297DE2D853A1CDA6880EDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541934   (642856) от 04.04.2022
-
-Татьяна Михаль | Защитник (2020) [MP3, Саша Брежнева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Едва вышла замуж, тут же стала вдовой. Со смертью мужа, моя жизнь превратилась в Ад. Все его долги стали моими. Угрозы и запугивания. И брату нужно дорогое лечение.
-Отчаяние и страх стали моими постоянными спутниками. Я думала, это конец, пока однажды в мою дверь не позвонил курьер. Он передал мне конверт с деньгами и запиской: «Твой Защитник». На следующий месяц (   Читать дальше...   )Жанр: Любовное фэнтези, Юмористическое фэнтезиПродолжительность: 06:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E57D85B104540CDD39A45948511F45CA03F377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541888   (642845) от 04.04.2022
 
 Гай Юлий Орловский, Марго Генер | «Золотой Талисман» Книга 8. Слуга Жнеца (2022) [MP3, Вильям Киссинджер]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642845.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642839.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642837.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642835.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642725.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642720.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642717.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642715.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642639.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642578.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642572.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642563.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642475.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642456.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642443.jpg" />
 </div>
 
 
@@ -482,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642389.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642106.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642103.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642102.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642100.jpg" />
 </div>
 
 
@@ -613,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642097.jpg" />
 </div>
 
 
@@ -639,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642021.jpg" />
 </div>
 
 
@@ -665,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642015.jpg" />
 </div>
 
 
@@ -676,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98EF7C9EF6F8B01EE6D7123594277439D04F1437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032783   (642012) от 09.07.2016
+
+Дэй Кин | Так исчезла моя любимая (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс и Шеннон Карсоны, на машине с трейлером, возвращались из свадебного путешествия. Джеймс ошибся дорогой на юге Вентури и очутился на сто первой Национальной. Когда он заметил, что ошибся, то попробовал вернуться по сто первой Национальной, для чего сделал поворот со старой дороги через Мур-парк, чтобы не разворачиваться на Национальной. Двое малолеток обогнали (   Читать дальше...   )Жанр: ДетективПродолжительность: 03:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2103D64A0E471C9BFF7491411B6465DD540740C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032790   (642008) от 09.07.2016
+
+Дэй Кин | Моряк сошел на берег (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моряк Швед в течение трех лет копил свое жалованье, а теперь хотел вернуться домой, купить ферму, жениться и, как говорят, уйти на покой. И вот в портовом бюро пароходства в Сан Педро он сказал последнее "прощай" агенту пароходства Гаити и всей пароходной компании. Накопленные деньги у него были спрятаны в поясе. А то, что было в карманах, он расходовал. (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A1A0E32D24333267C976C5C6614828D7140B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680370   (641933) от 17.07.2013
+
+Марк Твен | Юмористические рассказы. Выпуск 1-2 (2013) [MP3, Владимир Левашёв]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами настоящая классика короткого рассказа. Произведения Марка Твена могут быть гомерически смешными или иронично хлёсткими, добродушно весёлыми или саркастически едкими. Иногда вообще непонятно, шутит писатель или говорит серьёзно. Но всегда, будь то лёгкие юмористические зарисовки, сатирические памфлеты или полные тонкой иронии очерки человеческих нравов, (   Читать дальше...   )Жанр: Юмор, сатира, классика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798854547083BC86293A3683BC54B954CCA38E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Unclutter 2.1.25 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165233.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ gTasks Pro - for Google Tasks 1.3.27 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165210.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Posterino 3 v.3.11.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165199.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.16.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165180.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Deltopia DeltaWalker Oro Edition 2.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165022.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Apple MainStage 3.6.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164868.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VirtualHostX 8 v8.7.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164581.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ TaskPaper 3.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164568.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CollageIt 3 Pro v.3.6.12 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164556.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Screen Snapshot 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164545.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Smooze 1.9.23 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164511.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ ProPaint -Image & Photo Editor for Mac 3.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164494.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ FonePaw Android Data Recovery for Mac 5.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164493.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Araxis Merge Pro Edition 2023.5976 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164456.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164416.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ AnyMP4 Screen Recorder for Mac 2.0.26 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164413.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ SFTPCommander 2.4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164407.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ ArchCommander 2.3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164397.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ MacBooster 8 Pro 8.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164377.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ HazeOver 1.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164292.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Color UI 2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164279.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Cocktail Catalina Edition 13.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164268.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Wondershare Filmora Х v10.7.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164233.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Cocktail High Sierra Edition 11.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164225.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ MaxCommander 2.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164202.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ PDF Guru – PDF Reader Pro 3.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164156.jpg" />
 </div>
 
 

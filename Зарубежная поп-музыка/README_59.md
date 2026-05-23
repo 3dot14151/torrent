@@ -6,7 +6,7 @@ VA - Hits From The Dancefloor (2018) [MP3|320 Kbps] <Funky, Vocal, Club, Nu Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334600.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dance Mission - Italo Disco Chapter 80ies (2018) [MP3|320 Kbps] <Euro-Pop, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333037.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Army of Lovers - Massive Luxury Overdose (1992) U.S. Edition [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332931.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bjork (Björk) - Fossora (2022) [MP3|320 Kbps] <Electronic, indie, Experimental,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332141.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Dark Tenor - Symphony Of Light (2014) Deluxe Version [OGG|469-528 кб/с]<N
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331140.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tom Jones - Дискография [1964-2010] [MP3|192-320] <Pop/Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_330517.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Justin Bieber - Purpose (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330099.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Anne Harris - Come Hither (2015) [MP3|320 кб/с]<Alternative Pop, Contemporary
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328416.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ One Direction - Made In The A.M. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328359.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Robbie Williams - Intensive Care (2005) [OGG Vorbis|484 Kbps] <Electronic, Pop R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328065.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Robbie Williams - Heavy Entertainment Show (2016) [OGG Vorbis|484 Kbps] <Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328064.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Robbie Williams - The Christmas Present (2019) (2CD) [OGG Vorbis|484 Kbps] <Jazz
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328053.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Phildel - The Glass Ghost (2013) EP [MP3|320 кб/с]<Alternative Pop, Indie Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327651.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Now That's What I Call Music! 92 (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327501.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Радуга (1 пластинка) (1980) [MP3|320 кб/с]<Instrumental, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327428.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dido - Greatest Hits (2013) 2 CD [OGG Vorbis|484 Kbps] <Electronic, Pop, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327209.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Andrew Franey - The Stars Shine For You (2015) [MP3|320 кб/с]<80's Retro Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326774.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Радуга (2 пластинка) (1980) [MP3|320 кб/с]<Instrumental, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326603.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Laura Branigan - Self Control (1984) 2 CD, Reissue, Remastered, 2020, Cherry Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326349.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Kylie Minogue - Disco (Guest List Edition) (2020) 3 CD, Reissue, 2021, BMG [OGG 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325582.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Celine Dion - My Love (Ultimate Essential Collection) (2008) 2 CD, Reissue, 2008
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325512.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sarah Brightman - La Luna (2000) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325509.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Sarah Brightman - Dreamchaser (2013) [OGG Vorbis|484 Kbps] <Pop, Classical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324599.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Sarah Brightman - Dive (1993) [OGG Vorbis|484 Kbps] <Pop, Downtempo, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324598.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Sarah Brightman - Fly (1996) [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324593.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Amb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324591.jpg" />
 </div>
 
 

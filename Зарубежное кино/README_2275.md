@@ -1,57 +1,3 @@
-###  Публикация: 157299   (2727) от 15.09.2025
-
-Из ада / From Hell (2001) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Он — воплощение тьмы и ужаса. Он самый таинственный и знаменитый из всех серийных убийц, известных истории. Он погрузил Англию в атмосферу страха и породил массу слухов и домыслов. Убийца, который знает больше простого мясника или лаборанта. Убивая, он совершает чудовищный ритуал. Его прозвище — Джек-Потрошитель.
-Поймать его пытается инспектор Фред Эбберлайн (Джонни (   Читать дальше...   )Производство: США, Twentieth Century-Fox Film CorporationЖанр: Ужасы, Триллер, Криминал, Детектив, БиографияРежиссер: Альберт Хьюз /Albert Hughes/, Аллен Хьюз /Allen Hughes/Актеры: Джонни Депп /Johnny Depp/, Хизер Грэм /Heather Graham/, Ян Холм /Ian Holm/, Робби Колтрэйн /Robbie Coltrane/, Ян Ричардсон /Ian Richardson/, Джейсон Флеминг /Jason Flemyng/, Кэтрин Картлидж /Katrin Cartlidge/, Теренс Харви /Terence Harvey/, Сьюзэн Линч /Susan Lynch/, Пол Рис /Paul Rhys/Перевод: Дублированный, Ммногоголосый закадровый, Одноголосый закадровыйСубтитры: Русские, Английские, Датские, Немецкие, Финские, Голландские, Норвежские, Испанские, ШведскиеКачество: BDRip (720p)Продолжительность: 02:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925231FEA13E1EE002D54C4E687F16425E68C55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375451   (2726) от 15.09.2025
-
-Из ада / From hell (2001) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Он — воплощение тьмы и ужаса. Он самый таинственный и знаменитый из всех серийных убийц, известных истории. Он погрузил Англию в атмосферу страха и породил массу слухов и домыслов. Убийца, который знает больше простого мясника или лаборанта. Убивая, он совершает чудовищный ритуал. Его прозвище — Джек-Потрошитель.
-Поймать его пытается инспектор Фред Эбберлайн (Джонни (   Читать дальше...   )Производство: США, Twentieth Century-Fox Film CorporationЖанр: Ужасы, Триллер, Криминал, Детектив, БиографияРежиссер: Альберт Хьюз /Albert Hughes/, Аллен Хьюз /Allen Hughes/Актеры: Джонни Депп /Johnny Depp/, Хизер Грэм /Heather Graham/, Ян Холм /Ian Holm/, Робби Колтрэйн /Robbie Coltrane/, Ян Ричардсон /Ian Richardson/, Джейсон Флеминг /Jason Flemyng/, Кэтрин Картлидж /Katrin Cartlidge/, Теренс Харви /Terence Harvey/, Сьюзэн Линч /Susan Lynch/, Пол Рис /Paul Rhys/Перевод: Дублированный, Ммногоголосый закадровый, Одноголосый закадровыйСубтитры: Русские, Английские, Датские, Немецкие, Финские, Голландские, Норвежские, Испанские, ШведскиеФормат: MKVКачество: BDRip 1080p
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3665A0C55FDD7C46B08C9F0B2912DCC2A560E2C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249010   (2723) от 15.09.2025
 
 Невидимый гость / Contratiempo (2016) BDRip [H.264/1080p-LQ] [RUS Transfer]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2723.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2720.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2718.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2702.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2691.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2688.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2684.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2660.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2659.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2657.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2656.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2636.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2633.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2632.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2631.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2589.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2571.jpg" />
 </div>
 
 
@@ -502,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2563.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2561.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2545.jpg" />
 </div>
 
 
@@ -582,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2543.jpg" />
 </div>
 
 
@@ -608,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2537.jpg" />
 </div>
 
 
@@ -634,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2535.jpg" />
 </div>
 
 
@@ -660,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2530.jpg" />
 </div>
 
 
@@ -671,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BE246E8F1CC1071F5E251F007454EC853C5AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818325   (2524) от 16.09.2025
+
+Ниндзя 2 / Ninja: Shadow of a Tear (2013) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейси Боумен, наконец, начал оседлую жизнь. Он в счастливом браке с Намико, которая беременна первенцем, живёт в Японии и преподаёт в додзё Кога. Однажды на Кейси, отправившегося за подарком для жены, нападает пара отморозков. Он не придаёт этому значения, считая всё обычным грабежом. Но когда той же ночью жестоко убивают Намико, мир Кейси рушится на части. Поражённый (   Читать дальше...   )Производство: США / Swingin' Productions LLCЖанр: боевик, триллерРежиссер: Айзек ФлорентайнАктеры: Скотт Эдкинс, Кейн Косуги, Мика Хиджии, Сюн Сугата, Витхая Пансрингарм, Мукеш Бхатт, Тим Ман, Джавед Эль Берни, Саишия ВонгвиротПеревод: Любительский двухголосый (студия Парадокс)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D6A40DDF5CC235E4A663E7D7A2D53B92843CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818320   (2515) от 16.09.2025
+
+Ниндзя / Ninja (2009) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гайдзин по имени Кейси постигает в Японии искусство ниндзюцу. По просьбе своего сэнсэя Кейси отправляется в Нью-Йорк, чтобы защитить Ёрой Бицу — оружие последнего клана ниндзя Кога.Производство: США / Nu Image Films, Millennium FilmsЖанр: боевик, триллерРежиссер: Айзек ФлорентайнАктеры: Скотт Эдкинс, Цуеши Ихара, Мика Хиджии, Тодд Дженсен, Того Игава, Гаррик Хэгон, Майлз Андерсон, Валентин Ганев, Атанас Сребрев, Фумио ДемураПеревод: Профессиональный многоголосый (CP-Digital)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129CDB2612F22FF3687D67787C489FD85D3B5497
 ```
 
 https://mybot314.ru/tekegram_catalog/

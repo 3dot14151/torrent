@@ -1,84 +1,3 @@
-###  Публикация: 1346234   (164135) от 18.12.2019
-
-Константин Калбазов | Одиссея (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Жестокий эксперимент обернулся армагеддоном. Человечество подступило к краю и заглянуло в бездну. Тот, кто имеет возможность если не предотвратить крах, то хотя бы свести к минимуму последствия произошедшего, предпочитает наблюдать за происходящим со стороны. Земля погружается в хаос, замешенный на страхе и отчаянии.
-Кровь и грязь постапокалипсиса, смертельный вирус, (   Читать дальше...   )Жанр: Боевая фантастика, героическая фантастикаПродолжительность: 12:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271AAA6DBFB4B41F2C393BEF654FBB6278A51810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598178   (164127) от 17.12.2022
-
-Виктор Старицын | Юрий Грозный (Книга 3). Император Русский (2022) [MP3, Сергей Ларионов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Отразив нашествие монголов, Юрий занимается установлением нового порядка в Европе. Используя преимущество в технике и организации армии, последовательно покоряет все европейские государства.
-
-Все славянские земли включаются в состав Империи. Не славянские государства становятся вассалами Руси. Италия, Англия, Франция, Германия лишаются государственности и делятся (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 10:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5F40818F4D33E8F3BC58C230284E8E90A6FEBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598130   (164122) от 17.12.2022
-
-Филип Дик | О, это счастье быть блобелом! (2022) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Джордж стал одним из немногих ветеранов, которым в ходе войны с одноклеточными блобелами пришлось модифицировать свое тело, шпионя в стане врага. В итоге война закончилась, а Джордж принимает облик блобела по-прежнему, как и другие ветераны, стоит ему переволноваться или просто не побыть блобелом десяток часов. Обратившись к психиатру, Джордж узнал, что такой (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA85803928DEDA3EC79FA90FD7ACE70BDCDA8446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597967   (164114) от 17.12.2022
 
 Наталья Бутырская | Идеальный донор (Книга 7). Дворец (2022) [MP3, Дмитрий Поляков]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164114.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164072.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164069.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164058.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164052.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164031.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164015.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163989.jpg" />
 </div>
 
 
@@ -301,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163983.jpg" />
 </div>
 
 
@@ -327,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163975.jpg" />
 </div>
 
 
@@ -356,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163910.jpg" />
 </div>
 
 
@@ -382,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163884.jpg" />
 </div>
 
 
@@ -408,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163874.jpg" />
 </div>
 
 
@@ -434,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163848.jpg" />
 </div>
 
 
@@ -460,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163833.jpg" />
 </div>
 
 
@@ -486,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163813.jpg" />
 </div>
 
 
@@ -512,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163787.jpg" />
 </div>
 
 
@@ -538,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163785.jpg" />
 </div>
 
 
@@ -564,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163769.jpg" />
 </div>
 
 
@@ -590,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163734.jpg" />
 </div>
 
 
@@ -616,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163730.jpg" />
 </div>
 
 
@@ -642,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163712.jpg" />
 </div>
 
 
@@ -669,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163669.jpg" />
 </div>
 
 
@@ -680,6 +599,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE60778C54260635F0B85922962D6EA608661D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432399   (163640) от 17.12.2020
+
+Константин Назимов | Cherry. Видевший будущее (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неожиданно завершилась встреча с одноклассниками в далёком 1992 году. Виной тому красивая этикетка на бутылке спирта и непонятное содержимое, оказавшееся в ней, которое чуть не отправила на тот свет молодого парня. Перед Максом промелькнула вся его жизнь, но, что необычно и странно, не в порядке убывания. Он увидел те события, которым только суждено произойти, узнал (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 11:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DF4424551C1C0F966168C7FC94033D504A689C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345444   (163631) от 19.12.2019
+
+Владислав Выставной | Метро 2035: Крыша мира (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы наш, мы новый мир построим…
+Лед и камень сжали в кулак последний анклав человечества в глубине вольфрамовых шахт у подножия Запретной Горы. Они забыли, что там, наверху, была жизнь. Они не верят, что там, наверху, что-то есть. Но черная смерть уже сочится в темные туннели. И кому-то придется высунуть голову из теплой норы в ледяной ад.Жанр: ПостапокалипсисПродолжительность: 13:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D2E85D5CD926A9A6AB590B582BBF318715B111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517148   (163595) от 14.12.2021
+
+Владимир Щербаков | Болид над озером (Сборник) (2021) [MP3, Юрий Рудник]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Болид над озером (1976)
+В 1955 году над одним из валдайских озёр пролетел болид. Герой рассказа, купавшийся в это время в озере, стал свидетелем странных явлений. Спустя двадцать лет его историей заинтересовались трое молодых физиков.Жанр: Научная фантастикаПродолжительность: 08:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF5D16C8D351B2DB0C77E80D7A211F621135FE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1229876   (622517) от 08.06.2018
-
-EARTHLOCK (2018) [Ru/Multi] (1.0.6) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Исследователь пустынь Амон отправляется в главное путешествие своей жизни, в котором его путь пересекается с самым выдающимся существом в Забере. Присоединяйтесь к Амону и другим необычным героям в этой пошаговой фэнтезийной RPG, ведь вас ждет незабываемое приключение в мире Умбра. Это красивая, но опасная планета, вращение которой прекратилось тысячи лет назад.Тип издания: LicenseРазработчик: Snowcastle GamesЖанр: Adventure, RPG, Strategy, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F920B08CF39552D91DCC561E6F7323C6EFD6FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229889   (622419) от 08.06.2018
 
 EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
@@ -32,7 +6,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622419.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ABZU / ABZÛ (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622418.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Edge of Reality 5: Great Deeds (2019) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622380.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Panzer Tactics HD (2014) [Ru/Multi] (1.0.2) Repack xGhost
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622310.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Rocket League (2015) [Ru/Multi] (1.21/dlc) Repack Dok2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622301.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Raw Data (2016) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622290.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ EARTH DEFENSE FORCE 4.1: The Shadow of New Despair (2016) [En/Ja] (1.0) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622283.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Finding Paradise (2017) [Ru/Multi] (1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622277.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Shank - Дилогия [Ru/En] (RePack) 2010-2012 l R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622253.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Ice Age: Continental Drift - Arctic Games / Ледниковый период 4:
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622239.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622180.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.5/dlc) Repack Other s [Gold
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622153.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ EARTH DEFENSE FORCE 4.1: The Shadow of New Despair (2016) [En/Ja] (1.0) License 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622142.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Grimshade (2019) [Ru/En] (1.0.5) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621948.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621850.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621849.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621841.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ The Last Stand: Aftermath (2021) [Ru/Multi] (1.1.0.11) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621513.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621227.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ The Assembly (2016) [En/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620579.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ The Forest (2018) [Ru/Multi] (1.08) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620518.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ State of Decay (2015) [Ru/Multi] (1.0/dlc) Repack xatab [Year One Survival Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620509.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Halloween Chronicles: Monsters Among Us / Хроники Хэллоуина: М�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620478.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620429.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620416.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6B2F06C24F4B020FCA0C2BDD41935D58F4FE55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036401   (620311) от 20.07.2016
+
+I am Setsuna (2016) [En/Ja] (1.0) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620311.jpg" />
+</div>
+
+
+###  Подробнее
+
+I Am Setsuna расскажет трогательную и печальную историю молодой женщины по имени Сецуна (Setsuna). Она покидает свой родной дом, чтобы отправиться в путешествие в далекую страну. Ей предстоит столкнуться с суровыми испытаниями и пойти на жертвы, чтобы спасти свой народ...Тип издания: RepackРазработчик: Tokyo RPG FactoryЖанр: RPG (Japanese-style), 3DЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB933831524A1D21311CC4F6ED0D64BB13E5B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

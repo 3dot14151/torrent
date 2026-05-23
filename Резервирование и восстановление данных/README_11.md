@@ -6,7 +6,7 @@ Aiseesoft Data Recovery 1.8.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49948.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AOMEI Backupper Technician Plus 7.4.0 WinPE by Updated Edition [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47791.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DiskGenius Pro 5.6.1.1580 (x64) Portable by Жека [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44247.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ RollBack Rx Professional 12.7 Build 2710121211 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43720.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Veeam Agent 6.2.0.121 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42132.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Eassos DiskGenius Professional 5.6.1.1580 RePack (& Portable) by elchupacabra [M
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41535.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wise Data Recovery Pro 6.2.0.517 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41504.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Acronis Boot Disk 2024 05.10.24 Grub4Dos+EFI:GRUB2x64 by Bombokot [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41436.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Macrium Reflect 8.1.8017 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40244.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Macrium Reflect Server Plus v 7.3.5672 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34198.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ iFind Data Recovery 9.7.40.0 RePack (& Portable) by elchupacabra [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29227.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Hetman Recovery Software 2024 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28942.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28315.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ IsoBuster Pro 5.52 Build 5.5.2.00 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28291.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Macrium Reflect Server Plus v 8.0.7175 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27887.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Aiseesoft FoneLab for Android 5.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26492.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ R-Drive Image Technician 7.3 Build 7302 RePack (& Portable) by TryRooM [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25983.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Disk Drill 5.7.917 Enterprise (x64) [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23503.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Macrium Reflect Server Plus 8.0.7175 x64 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21301.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ MiniTool Power Data Recovery 12.5 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20073.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ AOMEI Backupper Technician Plus 7.5.0 Repack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17610.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ AOMEI Backupper Technician Plus 7.5.0 WinPE by FC Portables [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16019.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ O&O DiskImage Premium 21.0.1074 RePack by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14942.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Exiland Backup Professional 6.9 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13791.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Macrium Reflect Free Edition 8.0.7783 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12389.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ MiniTool Power Data Recovery 12.6 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10434.jpg" />
 </div>
 
 

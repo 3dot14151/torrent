@@ -6,7 +6,7 @@ Ellison Effect - Atmospheric Metal (2022) [MP3|320 Kbps] <Atmospheric Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512595.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Phish - Lawn Boy (1990) [MP3|320 кб/с]<Progressive rock, Jazz-Rock, Fusion, A
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512534.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ Bente Smaavik - 1979-2011 (2012) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512462.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Rock Playlist (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512455.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Santana - Greatest Hits (2012) 3CD [MP3|320 кб/с]<Latin Rock, Blues Rock, Jaz
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511752.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Protos - The Noble Pauper's Grave (2007) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510580.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Introitus - Fantasy (2007) [MP3|320 кб/с]<Symphonic Rock, Progressive Rock,  
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510269.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Fink - Fresh Produce (2000) [MP3|320 кб/с]<Electronic, Downtempo, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510195.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510193.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Edison's Children - Somewhere Between Here And There... (2015) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509469.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Julien-K - We’re Here With You (2012) Deluxe Edition [MP3|320 кб/с]<Industr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509372.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hienas - Socavon (2022) [MP3|320 Kbps] <Sludge, Doom, Stoner, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509104.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Journey - Freedom (2022) [MP3|320 Kbps] <Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509020.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Mungo Jerry - Cool Jesus (2011) [MP3|320 кб/с]<Rock, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508642.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Captain Marryat - Captain Marryat (1974) [MP3|320 кб/с]<Rock, Psychedelic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508321.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Chris - Days Of Summer Gone (2013) [MP3|320 кб/с]<Art Rock, Prog Rock, Sympho
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508239.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Black Light Burns - Cruel Melody (2008) Limited Edition [MP3|320 кб/с]<Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508230.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Liquid Smoke - Liquid Smoke (1969) [MP3|320 kbps]<Psychedelic Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507504.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Obiat - Indian Ocean (2022) [MP3|320 Kbps] <Doom, Sludge, Stoner, Psych, Prog Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507325.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Duster 69 - With Best Regards (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507321.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Formation Ritual - The Shifting Dust (2022) [MP3|320 Kbps] <Heavy Psych, Stoner,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507238.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Samán (Saman) - II. Montaña roja (2022) [MP3|320 Kbps] <Heavy Psych, Stoner Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507237.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ John Elefante ( Ex-Kansas, Mastedon ) and Mastedon - Revolution Of Mind (2010) [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507233.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ The Alan Parsons Project (Alan Parsons, Eric Woolfson) - 17 Albums + 11 Compilat
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507101.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ VA - Good Rockin' Tonight: The Legacy of Sun Records (2001) [MP3|320 кб/с]<ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506742.jpg" />
 </div>
 
 
@@ -771,7 +771,7 @@ Queen - A Night At The Opera (Japan SHM-CD - Limited Edition) (1975 /2011/) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506513.jpg" />
 </div>
 
 

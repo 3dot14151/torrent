@@ -6,7 +6,7 @@ Movavi Video Editor Plus 2020 20.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765888.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 Pro 2004 x64 Rus by OneSmiLe [19041.330]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765887.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ FL Studio Producer Edition 20.7.1.1773 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765881.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ RadioBOSS Advanced 5.8.2.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765871.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VirtualBox 6.0.4 Build 128413 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765868.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ PDF-XChange Editor Plus 7.0.328.2 + Portable RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765864.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Illustrator CC 2019 23.0.2.565 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765863.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 7 SP1 (9in1) (х86-x64) by ivandubskoj 14.01.2019 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765830.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Windows 7 Professional SP1 VL (x64) Elgujakviso Edition v.28.01.19 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765821.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ MInstAll v.31.12.2021 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765787.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AMD Radeon Software Adrenalin Edition 18.3.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765760.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ SRWare Iron 65.0.3400.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765718.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ ReviverSoft PC Reviver 3.3.5.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765715.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ K-Lite Codec Pack 14.0.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765671.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Windows Firewall Control 5.3.0.0 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765643.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Revo Uninstaller Pro 3.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765637.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Wise Care 365 Pro 5.5.5.550 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765430.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Mozilla Firefox Quantum ESR 60.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765403.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Auslogics File Recovery 8.0.22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765401.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mozilla Firefox Quantum 65.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765400.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Calibre 3.38.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765393.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Calibre 4.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765357.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Serato DJ Pro 2.3.6 (2361350) (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765338.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Auslogics Disk Defrag Free 8.0.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765335.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Opera 58.0.3135.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765332.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ WinTools.net Premium 19.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765324.jpg" />
 </div>
 
 

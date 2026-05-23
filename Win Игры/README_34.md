@@ -6,7 +6,7 @@ DeadCore Redux (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052543.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Toy Tanks (2022) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052437.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack HardwareMining [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052436.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.2.157.1/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052425.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052386.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack seleZen [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052385.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052344.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Wanterlude [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052342.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Realm Racer (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052340.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1176/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052339.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1188/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052338.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1176/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052337.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Abyssus (2025) [Ru/Multi] (1.2.55683/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052314.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Snow Ash (2026) [Ru/Multi] (Build 21423519) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052278.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052267.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack FitGirl [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052248.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ UnderRail (2015) [Ru/En] (1.3.0.17/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052240.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Toads of the Bayou (2024) [Ru/Multi] (20.51) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052228.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Keeper (2025) [Ru/Multi] (1218000) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052072.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052054.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.5.1/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052052.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.1.3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052046.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Dead Space (2023) [Multi] (1.1.14.17871/dlc) Scene voices38 [Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052036.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Legend of Kay Anniversary (2015) [Multi] (1.0.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052021.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051992.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Not an Aim Trainer (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051989.jpg" />
 </div>
 
 

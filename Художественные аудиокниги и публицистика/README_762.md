@@ -1,84 +1,3 @@
-###  Публикация: 354817   (197379) от 06.06.2023
-
-Александр Пушкин | Руслан и Людмила (2008) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека школьника (Союз).
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-«Руслан и Людмила» – А.С. Пушкин работал над своей поэмой более трех лет. В результате на свет появилось произведение уникальное по своей структуре (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 02:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC23B480619AF2E902A3406A0716C07B58432FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638179   (197359) от 07.06.2023
-
-Эдуард Поляков | ЗИЛ (Книга 1). Сопряжение (2022) [MP3, Владимир Хлопов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Зил – герой-одиночка. Он не верит в совершенство законов, а потому иногда вершит правосудие сам, особенно когда дело касается его близких. Правильно это или нет, но таковые его принципы. Отчаянный, бескомпромиссный и временами очень жёсткий персонаж. А что будет, если такой человек получит сверхспособности? Сопряжение миров сделало это возможным, теперь жизнь уже (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 10:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AE1F3AD51D9B72D9BF307E5AE5FE5C0A57EB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638693   (197355) от 09.06.2023
-
-Василий Панфилов | Без Веры, Царя и Отечества (Книга  3). Без Отечества… (2023) [MP3, Александр Сидоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Российскую Империю трясёт лихорадка Гражданской Войны, и Алексей, не желая участвовать в братоубийстве, уезжает из страны. Какого чёрта он должен убивать людей ради чужих барышей и идеалов, вызывающих у него отторжение!
-Но в России остались его родные, не пожелавшие уезжать, и душа молодого человека рвётся на части от боли и понимания, что страну, а вместе с ней (   Читать дальше...   )Жанр: Исторические приключения, ПопаданцыПродолжительность: 11:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D14831EA8D539AEBFFB06A2958E29DC5D4DDB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638686   (197347) от 09.06.2023
 
 Дмитрий Шатров | Мир взбесившихся порталов (Книга 3). Защитник Аркенсейла (2023) [MP3, Алексей Семёнов]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197347.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197339.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197326.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197321.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197292.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197269.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197263.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197180.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197177.jpg" />
 </div>
 
 
@@ -328,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197175.jpg" />
 </div>
 
 
@@ -356,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197171.jpg" />
 </div>
 
 
@@ -384,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197165.jpg" />
 </div>
 
 
@@ -410,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197164.jpg" />
 </div>
 
 
@@ -436,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197162.jpg" />
 </div>
 
 
@@ -464,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197157.jpg" />
 </div>
 
 
@@ -492,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197155.jpg" />
 </div>
 
 
@@ -521,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197131.jpg" />
 </div>
 
 
@@ -547,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197110.jpg" />
 </div>
 
 
@@ -573,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197106.jpg" />
 </div>
 
 
@@ -601,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197085.jpg" />
 </div>
 
 
@@ -628,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196992.jpg" />
 </div>
 
 
@@ -654,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196973.jpg" />
 </div>
 
 
@@ -682,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196965.jpg" />
 </div>
 
 
@@ -693,6 +612,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AFDDFA16E70701EDA61749BCC3EFC021C853978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640771   (196820) от 19.06.2023
+
+Проект Анонимус | Анонимус (Книга 9). Гибель Сатурна (2023) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшего следователя Следственного комитета Ореста Волина приглашают для консультаций во Францию. Здесь на границе с Италией в курортном городке Ла-Розьер обнаружено тело неизвестного мужчины, убитого весьма экзотичным способом. Способ этот не вполне понятен, но последствия его таковы, что у покойника разрушены все внутренности. Ни документов, ни телефона при покойном (   Читать дальше...   )Жанр: детективПродолжительность: 07:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCF9F8D4686E29F296E34F0CF0C60C17D001FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641001   (196774) от 20.06.2023
+
+Дмитрий Шелег | Нелюдь (Книга 6). Альянс (2023) [MP3, Влад Римский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой – человекоподобное существо с ушами эльфа и многочисленными сверхспособностями, в числе которых регенерация тканей и органов тела, ночное зрение, невероятная меткость при стрельбе, а также… магические навыки. За эти особенности персонаж и получил прозвище Нелюдь. В шестой книге герой наконец-то стал аристократом. Бесспорно, это даёт свои преимущества. (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 07:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA65C240AAAE217407446354994646ABB0EBB74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641323   (196746) от 22.06.2023
+
+Валерий Большаков | Целитель (Книга 9) (2023) [MP3, Илья Кочетков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мише Гарину везет. Вроде бы, СССР вывернул на светлый путь, наши перестали подкармливать всяких «борцунов», ведут весьма активную внешнюю политику, но с чувством и с толком. Да и сам Миша находит себя, свое предназначение – он делает настоящее открытие!И вот тут начинаются неприятности. Разыгрываются не слабые шпионские страсти. Советский Союз гнобят санкциями и (   Читать дальше...   )Жанр: Детективная фантастикаПродолжительность: 09:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A155E30A44EA30E106443F66A4AD0D3915E8BD37
 ```
 
 https://mybot314.ru/tekegram_catalog/

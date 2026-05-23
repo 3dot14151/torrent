@@ -6,7 +6,7 @@ ScanMyReg 3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721386.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Display Driver Uninstaller 17.0.8.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721384.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Process Hacker 2.34 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721323.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ IsMyHdOK 1.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721321.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Any Video Converter Ultimate 5.8.0 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721319.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Lunascape 6.9.6 (Standard/Full) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721236.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AIMP 3.60 Build 1492 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721232.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721223.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NETGATE Spy Emergency 15.0.205.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721220.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Text Editor Pro 9.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721183.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ YouTube By Click Premium 2.2.135 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721180.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wonderfox HD Video Converter Factory Pro 19.1 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721179.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Edge 84.0.522.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721176.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ LDPlayer 4.0.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721175.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MKVToolNix 49.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721172.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ FinePrint 9.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721166.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Flash Player 29.0.0.140 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721164.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ W10Privacy 3.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721160.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 892 RePack by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721158.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AOMEI Backupper Technician Plus 4.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721154.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Adobe Flash Player 29.0.0.140 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721153.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Reg Organizer 8.10 Final RePack (& Portable) by elchupaсabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721152.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Freemake Video Converter 4.1.6.2 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721119.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ AIMP 3.60 Build 1492 Final RePack (& Portable) by D!akov (with DPS Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721116.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Transmission-Qt 2.84.3 + Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721110.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Kinza Browser 5.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721074.jpg" />
 </div>
 
 

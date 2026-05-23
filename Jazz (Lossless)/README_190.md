@@ -6,7 +6,7 @@ Vulfpeck - Thrill of the Arts (2015) [FLAC|Lossless|WEB-DL|tracks] <Funk, Jam Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419337.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Yusef Lateef - Live At Ronnie Scott's (1966) 2017, Gearbox Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419002.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Catherine Hunter - Dream Maker (2006) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418994.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sean Jones - Im•pro•vise Never Before Seen (2014) Mack Avenue Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418990.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Vulfpeck - The Beautiful Game (2016) [FLAC|Lossless|WEB-DL|tracks] <Funk,Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418928.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Connie Evingson - 6 альбомов (1999 - 2012) [FLAC|Lossless]<Jazz Vocal, G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_418856.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Bobby Bradford & John Carter Quintet - NoUTurn (1975) /2015, Dark Tree Records/[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418397.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Attila Zoller - Common Cause (1979) /2005, Enja/[FLAC|tracks+.cue]<Jazz Fusion, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418395.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Feyza - I Wish I Knew (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418393.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Rocio Guitard & Moises P. Monk - Marriage & Other Novellas (2015) [FLAC|image+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418392.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Chet Baker - Mr. B (1983) /2015, Solid Records/[FLAC|tracks+.cue]<Cool, West Coa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418390.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Bobby Hutcherson - Color Schemes (1986) /Landmark Records/[FLAC|tracks+.cue]<Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418388.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Chet Baker - Live in Tokyo (1987) 2015, 2CD, King Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418363.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Miles Davis and Milt Jackson - Quintet / Sextet (1955) /2013, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418266.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ The Rivington Project - Trip (2006) Counterpart Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418037.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The Phil Collins Big Band - A Hot Night in Paris (1999) [FLAC|Lossless]<Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417876.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Freddie Hubbard - High Energy, Liquid Love, Windjammer (1974 - 1976) 2CD, 2012, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417579.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Art Van Damme - A Perfect Match & Martini Time (1953, 1963) 2014, Cheesecake Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417573.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bill Evans - Another Time: The Hilversum Concert (1968) 2017, Resonance Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417411.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Earl Hines - Tour De Force (1972) 1989, Black Lion Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416907.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Betty Carter - The Music Never Stops (1992) 2019, Blue Engine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416739.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Duke Ellington - Complete Prestige Carnegie Hall Concerts (1946, 1947) 2001, 3CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416192.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Duke Ellington - The Carnegie Hall Concerts, December (1944) 1992, 2CD, Prestige
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416186.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Freddie Redd - The Complete Blue Note Recordings Of Freddie Redd (1960/1961) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416140.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Nina Simone - The Blues (1997) /CD Media Records/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415999.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Jonathan Zwartz - The Sea (2009) Self-Released [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415616.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dragon’s Dogma: Dark Arisen (2016) [Ru/En] (1.0/upd7/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823728.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Megadimension Neptunia VIIR (2018) [Multi] (1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822695.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tyranny (2016) [Ru/Multi] (1.0.4.0048/dlc) SteamRip Let'sPlay [Overlord Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820216.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cyber Manhunt (2021) [Multi] (1.3.30/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819071.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.0.74) SteamRip Let'sPlay [Digital Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_818459.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack xatab (обновл
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816591.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Legends Of Dawn (2013) [Ru/Multi] (1.52s) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816348.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NieR Replicant ver.1.22474487139... (2021) [Multi] (7396468) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815250.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815237.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815007.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Masquerada: Songs and Shadows (2016) [Ru/Multi] (1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814874.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.23.0.8) License PROPHET [Spec
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814871.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fallen Legion+ (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814869.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813356.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Out There: Omega Edition (2015) [Ru/Multi] (2.3) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811047.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Planescape: Torment (1999) [Ru/En] (1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810637.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809475.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Alchemist Adventure (2021) [Ru/Multi] (1.211021/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807660.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Titan Quest (2006) [Ru/Multi] (1.42) Repack R.G. Revenants [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806569.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Overfall (2016) [En] (03/22/2017) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806568.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Operation Abyss: New Tokyo Legacy (2017) [En/Ja] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804791.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804653.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Risen 3: Titan Lords (2014) [Ru/Multi] (3.0.30.0/dlc) Repack =nemos= [Enhanced E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802360.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Nioh (2017) [Ru/Multi] (1.21.04/dlc) Repack R.G. Механики [Complete Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801401.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Moonglow Bay (2021) [Multi] (1.0rls) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801336.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Decep
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801303.jpg" />
 </div>
 
 

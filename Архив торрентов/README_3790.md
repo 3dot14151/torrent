@@ -6,7 +6,7 @@ ShowKeyPro 1.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226106.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Uninstall Tool 3.7.1 Build 5695 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226094.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Timemator 2 v2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226091.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ aText 2.35.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226090.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Avira Scout 2015.12.03.00064s (46.0.2490.86) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226087.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PhotosRevive 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226084.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dropbox 3.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226079.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ foobar2000 1.6.13 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226076.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SQLPro Studio 2019.63 (build 110616) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226073.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CPU-Z 2.03.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226065.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Above & Beyond - Group Therapy 356 (24.11.2019) Radio DJ Mix [FLAC|Lossless|WEB-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226062.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Project Office Pro 9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226059.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tipard Blu-ray Converter for Mac 10.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226041.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NetShred X 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226040.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Sublime Text 4.0 Build 4151 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226037.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Network Radar 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226025.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Geek Uninstaller 1.5.1 Build 163 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226018.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226015.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Samplestick – Long Time No See (2014) [FLAC|Lossless|WEB-DL]<Deep Trance, Prog
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226008.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Network Radar 2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226005.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Mail Designer Pro 2 (2.5.2) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225995.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ BookMacster 2.12.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225981.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Antivirus Zap Pro 3.8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225977.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225976.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Sketch 70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225968.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Sker Ritual (2022) [En] (0.1.3/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225959.jpg" />
 </div>
 
 

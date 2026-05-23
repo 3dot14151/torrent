@@ -1,111 +1,3 @@
-###  Публикация: 652675   (834277) от 05.05.2013
-
-Cirque du Soleil: Сказочный мир / Cirque du Soleil: Worlds Away (2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк Бриклэнд ...Перевод: Дублированный (студия «Пифагор»)Язык субтитров: русские, украинские, английские |UTF-8|Продолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C350DD143268AE21700C492B0BCA4216EB19DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004705   (834068) от 08.04.2016
-
-G. BIZET - Carmen - Metropolitan Opera, Garanca, Alagna  (2010) 2DVD5
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Credits / Vorspann / Generique debut 0:53
-Metropolitan Opera Orchestra, Yannick Nezet-Seguin
-2. Introduction by Renée Fleming (I) 1:52
-Renee Fleming(   Читать дальше...   )Жанр: OperaПеревод: ОтсутствуетЯзык субтитров: Francais, English, Deutsch, Espanol, ChineseПродолжительность: 02:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598F0B6BB7ADAC97DAE620F04DE3804F8216DD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310268   (833875) от 20.03.2011
-
-UFO -Rockpalast. Hardrock Legends Vol.1 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Концерт в Westfalenhalle Dortmund, 29 ноября 1980 года.Жанр: RockПродолжительность: 1:13:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309343   (833702) от 20.03.2011
-
-Дэвид Фостер и друзья / David Foster & Friends - Hit Man Returns (2011) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Фостер (David Foster, род. 1 ноября 1949 г.) — канадский певец и клавишник, больше известный в качестве одного из самых успешных продюсеров в истории популярной музыки. На его счету 14 наград «Грэмми», из них три — в номинации «лучший продюсер года». За благотворительные начинания Фостер и его супруга, Линда Томпсон, удостоены Ордена Канады.
-Hit Man Returns - был снят в прошлом году в Mandalay Bay in Las Vegas.Под руководством David Foster, как маэстро церемонии, включает в себя список выступающих:  Seal, Donna Summer, Martina McBride, Earth, Wind & Fire, Natalie Cole, Ruben Studdard, All-4-One,"Glee" star Charice, Chaka Khan, Jackie Evancho, Lara Fabian...Жанр: Pop, КонцертФормат: DVD9Продолжительность: 02:22:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310234   (833590) от 20.03.2011
 
 Manfred Mann's Earth Band-Watch The DVD (2008) DVD5
@@ -114,7 +6,7 @@ Manfred Mann's Earth Band-Watch The DVD (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833590.jpg" />
 </div>
 
 
@@ -144,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833052.jpg" />
 </div>
 
 
@@ -170,7 +62,7 @@ AC/DC: No Bull (1996) BDRip [H.264/720p-LQ] [Directors Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832698.jpg" />
 </div>
 
 
@@ -199,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831809.jpg" />
 </div>
 
 
@@ -228,7 +120,7 @@ AC/DC - No Bull (1996) BDRemux [VC-1/1080i] [Directors Cut]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830962.jpg" />
 </div>
 
 
@@ -257,7 +149,7 @@ Yello - Live in Berlin (2017) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830866.jpg" />
 </div>
 
 
@@ -287,7 +179,7 @@ Talking Heads: Stop Making Sense (1984) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830698.jpg" />
 </div>
 
 
@@ -315,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_830629.jpg" />
 </div>
 
 
@@ -344,7 +236,7 @@ Mark Knopfler: A night in London (1996) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830337.jpg" />
 </div>
 
 
@@ -370,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829880.jpg" />
 </div>
 
 
@@ -399,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829824.jpg" />
 </div>
 
 
@@ -425,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829808.jpg" />
 </div>
 
 
@@ -454,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828968.jpg" />
 </div>
 
 
@@ -480,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828888.jpg" />
 </div>
 
 
@@ -506,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828803.jpg" />
 </div>
 
 
@@ -535,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826951.jpg" />
 </div>
 
 
@@ -564,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826899.jpg" />
 </div>
 
 
@@ -594,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826618.jpg" />
 </div>
 
 
@@ -620,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826611.jpg" />
 </div>
 
 
@@ -646,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826153.jpg" />
 </div>
 
 
@@ -675,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825553.jpg" />
 </div>
 
 
@@ -701,7 +593,7 @@ Metallica - Freeze 'Em All (2013) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825380.jpg" />
 </div>
 
 
@@ -716,6 +608,117 @@ Metallica - Freeze 'Em All (2013) WEBRip [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9A0774D0E3E1D12B34BB878BEE68715F796166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196401   (825214) от 28.04.2010
+
+Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шикарный концерт группы Foreigner с лучшими хитами 70 - 80 годов...Смотрим, слушаем, наслаждаемся мелодичным хард-роком.
+
+Universally hailed as one of the most popular rock acts throughout the 70s and 80s, Foreigner still puts on an absolutely thrilling and sensational show thirty years later. This episode of Soundstage is packed with smash hits like Cold As Ice, (   Читать дальше...   )Жанр: Hard RockРежиссер: Joe ThomasПеревод: ОригинальныйПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196477   (824119) от 02.01.2018
+
+Песня года Беларуси (2017) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный фестиваль собрал популярных артистов, которые занимают вершины хит-парадов.Телекомпания: Беларусь / ОНТЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0358C8F19F69BA28E116D18EF6C946AFF2B906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196217   (823883) от 02.01.2018
+
+Песня года 2017 (01-02.01.2018) SATRip (части 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823883.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" – главный концерт страны! Участвуют все звезды!
+Каждый год в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, на любой дороге, в стороне любой Песне ты не скажешь "до свидания", Песня не прощается с тобой…"
+На сцене "Олимпийского" соберутся лучшие (   Читать дальше...   )Телекомпания: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 04:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BD0EA297AA73FD4F8688148CD4C87329E9CC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006306   (823474) от 14.04.2016
+
+Симфонический концерт "Весенние голоса" из ежегодного цикла концертов "Летние Вечера". Самарская Филармония 20 июня (2015) HDCam [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доброй традицией стали циклы концертов "Летние вечера в Самарской государственной филармонии для всей семьи". И мы приглашаем Вас на интересные музыкальные встречи этого цикла. Дорогие друзья, сегодняшний концерт увлечёт Вас в чарующий мир танцевальных ритмов и настроений. Этот мир безграничен. Сегодня мы охватим лишь некоторые музыкальные страницы, но (   Читать дальше...   )1. Исаак Дунаевский - Концертный марш
+2. Исаак Дунаевский - Концертный вальс
+3. Пётр Чайковский - Лебединое озеро (Сцена)
+4. Пётр Чайковский - Лебединое озеро (Вальс)(   Читать дальше...   )Жанр: Классический симфонический концертПродолжительность: 1:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EECAF3E93D06B97071050C1E4531AB65C877AE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

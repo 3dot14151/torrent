@@ -1,55 +1,3 @@
-###  Публикация: 1141603   (648151) от 11.06.2017
-
-Пэчворк или пестрая мозаика / Patchwork (2015) WEB-DL [H.264/1080p-LQ] [VO, AD]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Три незнакомые молодые женщины приходят на ночную вечеринку и потеряв сознание, оказываются в одном теле. Теперь они должны отложить свои разногласия, чтобы найти, кто это сделал, и отомстить!Производство: США, Канада, Infinite Lives EntertainmentЖанр: Ужасы, КомедияРежиссер: Тайлер МакИнтайрАктеры: Тори Столпер, Трэйси Фэирэуэй, Мария Бласуччи, Джеймс Фелпс, Крэйг Анстетт, Сет Кэссел, Браден Дэвис, Энтони ДиМиери, Эрик Эдельштейн, Камила ГринбергПеревод: Одноголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:27:14Реклама: Перед фильмом голосовая реклама
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B44CCEE6839D3EE921F7C37783D1B11A7956097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141371   (648147) от 11.06.2017
-
-Бешеный Пес и Глори / Mad Dog and Glory (1993) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История робкого полицейского — фотографа Уэйна Добби, в шутку прозванного коллегами Бешеным Псом, и гангстера Фрэнка Мило. Уэйн случайно спасает жизнь Фрэнка, и тот присылает ему в качестве подарка девушку Глори...Производство: США, Mad Dog Productions, Universal PicturesЖанр: Драма, мелодрама, комедия, криминалРежиссер: Джон МакНотон/John McNaughtonАктеры: Роберт Де Ниро, Ума Турман, Билл Мюррей, Дэвид Карузо, Майк Старр, Том Таулз, Кэти Бейкер, Дерек Аннансиэйшн, Даг Хара, Ивэн Лайонел и др.Перевод: Профессиональный (многоголосный, закадровый), профессиональный (двухголосый закадровый) х2, авторский (одноголосый закадровый)Язык субтитров: АнглийскийПродолжительность: 01:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56158C9B633B1D761C4CCFD92017741E34DE6983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141711   (648143) от 11.06.2017
 
 Танцующая в темноте / Dancer in the Dark (2000) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648143.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648070.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648068.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648055.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648051.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648050.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648048.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648041.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648039.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648037.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648036.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647983.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647949.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647948.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647947.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647934.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647911.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647756.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647631.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647617.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647512.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) BDRip [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647482.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647440.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647411.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E27EB889AE3E12B7FC872D4EAF286A49EEB6AFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031985   (647406) от 06.07.2016
+
+Река / River (2015) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма - врач, который добровольно решил отправиться в Лаос. Однажды ночью он становится свидетелем насилия над девушкой. Врач вступается за беззащитную девушку. Но это происшествие заставило его податься в бега. Ведь теперь его обвиняют в убийстве насильника, тело которого обнаружили в реке Меконг. Врачу приходиться скрываться, чтобы самому не стать (   Читать дальше...   )Производство: Канада, ЛаосЖанр: ТриллерРежиссер: Джэми М. ДаггАктеры: Россиф Сазерленд, Дуангмони Солифанх, Сара Ботсфорд, Тед Атертон, Дэвид Сончин, Эйдан Джиллетт, Яновутти Чангхолунси, Карен Глэйв, Витхая ПансрингармПеревод: Одноголосый закадровый, любительский (Хихидок)Продолжительность: 01:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA47EF0277CB712EA37962A924E0AAAEFAB68D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517501   (647391) от 01.07.2012
+
+Новый мировой беспорядок / New World Disorder (1999) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647391.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самом центре знаменитой Силиконовой Долины неслыханный скандал - прямо из офиса компании, занимающейся разработкой новейшей программы безопасности компьютерных систем, похищены сверхсекретные микрочипы. Все сотрудники фирмы убиты, и лишь одному чудом удалось остаться в живых. Компьютерный хакер-пират Курт Бишоп, организовавший этот дерзкий налет, рассчитывает получить денежный куш, в противном случае он выведет из строя жизненно важные компьютерные сети. На поиски Бишопа и его головорезов брошены лучшие силы полиции и ФБР: детектив-ветеран Дэвид Маркс, прозванный Патологоанатомом за свою `бульдожью` хватку, и агент Кристина Пэддок, эксперт по компьютерам и очаровательная молодая женщина. При первом знакомстве у новоявленных партнеров возникает сильнейшая аллергия друг на друга, но - лиха беда начало...Жанр: Боевик, ФантастикаРежиссер: Ричард Спенс /Richard Spence/Актеры: Рутгер Хауэр /Rutger Hauer/, Брэнуэлл Донахи /Branwell Donaghey/, Хари Охиллон /Hari Ohillon/, Тара Фицджералд /Tara Fitzgerald/, Эндрю МакКарти /Andrew McCarthy/Перевод: Многоголосый закадровыйЯзык субтитров: Продолжительность: 01:29:58
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

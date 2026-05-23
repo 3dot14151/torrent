@@ -1,115 +1,3 @@
-###  Публикация: 941118   (462042) от 27.09.2015
-
-Madonna - MDNA World Tour (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Запись концертного тура Мадонны - самого успешного тура 2012 года.
-Концертный тур Мадонны в поддержку альбома MDNA, который прошел в 2012-м году и стал самым коммерчески успешным концертным туром года. Поп-звезда объехала 29 стран, включая Россию, и дала 88 концертов, прошедших при полном аншлаге.
-The MDNA Tour — девятый концертный тур американской певицы Мадонны (   Читать дальше...   )Производство: США, Universal Music, Interscope RecordsЖанр: Документальный, МузыкаРежиссер: Дэнни Б. Тулл, Стефан СеннурАктеры: Мадонна, Кевин Антунес, Монте Питтман, Rickey Pageot, Brian Fraiser-Moore, Кили Дин, Ники Ричардс, Эдриан Гало, Брахим Заибат, Chaz BuzanПеревод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6BBFF76DE87D1AF54910799CCB6CEB95603265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549712   (462008) от 20.09.2012
-
-Авторадио: Дискотека 80-х - 10 лет вместе! (2011) IPTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Феерическое шоу для тех, кто хочет зажечь по-взрослому! Новогодняя «Дискотека 80-х» на Первом!01.Boney M. - Rasputin
-02.Boney M. - Bahama Mama
-03.Eddy Huntington - U.S.S.R
-04.Максим Леонидов - Я люблю буги-вуги(   Читать дальше...   )Жанр: КонцертПродолжительность: 03:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAE7A7C87C364931C1AB02AEF952111FA5F29AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941573   (461911) от 27.09.2015
-
-Rammstein - In Amerika + Documentary (2015) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Rammstein выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live from Madison Square Garden» получит официальный релиз на DVD и Blu-ray стараниями лейбла «Island/UMe». Соединив зажигательное выступление (   Читать дальше...   )01. -= intro =-
-02. Rammlied
-03. B********
-04. Waidmanns Heil(   Читать дальше...   )Производство: Германия | Island/UMeЖанр: Industrial Metal / NDHЯзык субтитров: русский, английский (x2), немецкий (x2), французскийПродолжительность: 01:41:57 + 02:02:24 + 00:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4344BC2073933B29ECE51DA7450E0E15BDC79D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549065   (461888) от 20.09.2012
-
-Квартет И - Ля Комедия (2006) 2xDVD5 (два спектакля, обе части)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1995 г. 24 мая и 1999 г. 14 октября. Премьеры спектаклей «Ля Комедия, или Мы будем развлекать вас всеми средствами, которые хороши!» и «Ля Комедия-2, или Совсем другая история с элементами большого искусства» (гремучая смесь фарса Ж.- Б. Мольера «Лекарь поневоле» и максимально разножанрового эстрадного шоу). Оправдывая название спектакля, артисты поют, танцуют, играют (   Читать дальше...   )Жанр: Комедия, СпектакльРежиссер: Эдуард РадзюкевичАктеры: Камиль Ларин, Александр Демидов, Леонид Барац,  Ростислав Хаит, Эмилия Савельева, Анна Касаткина, Эдуард Радзюкевич, Александр ЖигалкинПродолжительность: 02:32:14 + 02:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E1E312A1114E9858CD10C045BBE8814D1F77AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407578   (461869) от 09.09.2020
 
 Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
@@ -118,7 +6,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461869.jpg" />
 </div>
 
 
@@ -144,7 +32,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461767.jpg" />
 </div>
 
 
@@ -173,7 +61,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461682.jpg" />
 </div>
 
 
@@ -202,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461419.jpg" />
 </div>
 
 
@@ -228,7 +116,7 @@ Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461351.jpg" />
 </div>
 
 
@@ -257,7 +145,7 @@ Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461254.jpg" />
 </div>
 
 
@@ -286,7 +174,7 @@ Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460735.jpg" />
 </div>
 
 
@@ -312,7 +200,7 @@ Sika - Love Kills (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460733.jpg" />
 </div>
 
 
@@ -338,7 +226,7 @@ Antonia - Jameia (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460729.jpg" />
 </div>
 
 
@@ -364,7 +252,7 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460572.jpg" />
 </div>
 
 
@@ -390,7 +278,7 @@ INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460330.jpg" />
 </div>
 
 
@@ -416,7 +304,7 @@ Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460097.jpg" />
 </div>
 
 
@@ -445,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460086.jpg" />
 </div>
 
 
@@ -471,7 +359,7 @@ Little Big - Tacos (2020) WEBRip [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459951.jpg" />
 </div>
 
 
@@ -497,7 +385,7 @@ VA - Rockin'1000: Stade de France, Paris (2019) WEB-DLRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459772.jpg" />
 </div>
 
 
@@ -526,7 +414,7 @@ Lara Fabian - En Toute Intimite a l'Olympia (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459728.jpg" />
 </div>
 
 
@@ -555,7 +443,7 @@ BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459652.jpg" />
 </div>
 
 
@@ -581,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_459531.jpg" />
 </div>
 
 
@@ -610,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459477.jpg" />
 </div>
 
 
@@ -639,7 +527,7 @@ Emerson Lake & Palmer - 40TH Anniversary Reunion Concert (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_459468.jpg" />
 </div>
 
 
@@ -668,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458892.jpg" />
 </div>
 
 
@@ -695,7 +583,7 @@ Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458367.jpg" />
 </div>
 
 
@@ -706,6 +594,118 @@ Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:651FB76560F7F7C05CBE8083745DE6961708A1D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550366   (458365) от 22.09.2012
+
+Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6BC7560FDA7E1AACD5C6BC7F0AC48BE6DC1659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388575   (458069) от 17.09.2011
+
+Legends Disco Star-80 (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступления звёзд дискотек 80х: Sandra, Thomas Anders, C.С. Catch, Samantha Fox, Chris Norman, Europe, Sabrina, Bad Boys Blue, Opus
+хркъSandra:
+Maria Magdalena
+The Night is Still Young
+ForeverЖанр: Музыкальное видео, клипыПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306E5501764217F58C6D943866D58D2EFD984FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321700   (456558) от 25.08.2019
+
+Жара в Баку - Хиты 90 х (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот вечер посвящен музыке 1990-х. В ту эпоху рождались самые безудержные музыкальные хиты, которые и сегодня никого не оставят равнодушными.
+Концерт посвященный юбилею Любэ и самым ярким ХИТАМ 90-Х! Для вас выступят Валерия, Николай Басков, Филипп Киркоров, Фабрика, Леонид Агутин, Отпетые Мошенники, Григорий Лепс, EMIN, Алёна Свиридова, НА-НА, Александр Буйнов, (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87C488AB26534F779DA23FC1525591F953A7A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321667   (456447) от 25.08.2019
+
+Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
+01. La Bouche - Be My Lover
+02. Backstreet Boys - Everybody
+03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

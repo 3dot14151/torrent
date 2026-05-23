@@ -6,7 +6,7 @@ Andrea Bocelli - Cinema (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop, Classical 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346485.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chiharu Naruse - Kenneth A. Kuhn: Piano Works (2018) [FLAC|Lossless|WEB-DL|track
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345358.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gustav Mahler - Symphony No. 10, completion by Rudolf Barshai - Vladimir Ashkena
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345217.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mozart - The Authorised Recordings: Sviatoslav Richter (1994) 2CD [FLAC|Lossless
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345002.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343945.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Brian Crain - Sienna (2003) [MP3|320 кб/с]<Neoclassical, New age, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340333.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und O
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340226.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Cherubini - Requiem (Christoph Spering & New Berlin Chamber Orchestra) (1994) [F
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339850.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mozart - Piano Concertos nos.17 & 20 (Leif Ove Andsnes & Norwegian Chamber Orche
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339830.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tchaikovsky - Symphonies Nos. 4, 5 & 6 (Pierre Monteux & Boston Symphony Orchest
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339829.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Schubert - Piano Works for Four Hands, Vol. 5 (John Humphreys & Allan Schiller) 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339705.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ German Classic Rock Orchestra - World Classics (2002) [FLAC|Lossless|image + .cu
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339697.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Symphonic Rock Orchestra - Classical Highlights (1988) [FLAC|Lossless|image + .c
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339587.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ David Garrett - Unlimited - Greatest Hits (2018) 2CD [MP3|320 Kbps] <NeoClassica
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338209.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Olga Scheps - Chopin: Piano Concertos Nos. 1 & 2 (2014) [FLAC|Lossless|tracks + 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337965.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Scriabin, Prokofiev, Shostakovich - The Authorised Recordings: Sviatoslav Richte
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337715.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ J.S.Bach - The Authorised Recordings: Sviatoslav Richter (1994) 3CD [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337434.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Camille Berthollet - Prodiges (2015) [FLAC|Lossless|tracks] <Classical, Violin>
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335761.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Royal Philharmonic Orchestra - Rock Classics 11 853 (1995) [FLAC|Lossless|image 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335485.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Royal Philharmonic Orchestra - Rock Classics 11 851 (1995) [FLAC|Lossless|image 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335351.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Royal Philharmonic Orchestra - Rock Classics (1995) Music Digital, 11 852[FLAC|L
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335332.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Zewski - Classic on the rocks (1992) [FLAC|Lossless|image + .cue] <Instrumental,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334700.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Jordi Savall, Hesperion XXI, Le Concert des Nations - Venezia Millenaria (Venice
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334531.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Handel - Renee Fleming. Renee Fleming/Orchestra of the Age of Enlightenment. Har
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333784.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Various Composers - Italiane Baroque (Chiara Banchini & Amandine Beyer) (7CDs) (
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333782.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Anna Netrebko - Opera Arias (2003)/Wiener Philarmoniker Noseda, Deutshce Grammop
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333776.jpg" />
 </div>
 
 

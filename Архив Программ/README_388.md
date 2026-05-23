@@ -6,7 +6,7 @@ Atomix VirtualDJ 2021 Pro Infinity 8.5.6677 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847451.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WinToHDD 5.4 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847449.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PotPlayer 210929 (1.7.21558) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847366.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Spectrasonics - Keyscape v1.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847272.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.1 Build 4712 + Portable + Stan
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847035.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Privacy Eraser Free 4.11.0 Build 1920 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847009.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Wise Video Downloader 2.32.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846923.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Wise Disk Cleaner 9.22.641 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846770.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ EZ CD Audio Converter 5.4.0.1 Ultimate Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846752.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Alternate File Shredder 2.070 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846745.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NetBalancer 9.17.3 Build 2303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846695.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Unity Pro 2018.4.20f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846685.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ IsMyLcdOK 2.72 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846673.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Windows Firewall Control 4.7.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846669.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ EZ CD Audio Converter 5.4.0.1 Ultimate Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846644.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Mirillis Action! 4.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846610.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Emurasoft EmEditor Professional 19.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846607.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ NetBalancer 9.17.3 Build 2303 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846601.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Teorex PhotoStitcher 1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846597.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ WinTools.net Premium 16.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846584.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Reg Organizer 7.35 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846580.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Your Universal MultiBoot Installer 2.0.4.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846563.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Process Lasso Pro 8.9.8.98 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846562.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846560.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ iSendSMS [Ru] 2.1.3.637
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846540.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ GeoGebra 6.0.579.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846534.jpg" />
 </div>
 
 

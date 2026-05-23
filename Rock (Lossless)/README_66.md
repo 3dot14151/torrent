@@ -6,7 +6,7 @@ Spooky Tooth - The Island Years (1967-1974) 9CD Box Set Remastered /2015, Univer
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655456.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Royal Philharmonic Orchestra - Plays Prog Rock Classics (2015) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655240.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Yes - Progeny: Seven Shows From Seventy-Two (2015) 14CD Box Set [FLAC|image+.cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655239.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Colder Suns - Ex-Display (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655053.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Greyborn - Leeches (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655049.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ A Blaze of Feather - Claire's Lane (2022) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655042.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Aldous Harding - Warm Chris (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655040.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Muzak - Songs From A Lonely Planet (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654952.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Kings Of Cool Jam Rhythm And Rant - Shooting at the World (2022) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654847.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Lee Aaron - Diamond Baby Blues (2018) [FLAC|Lossless|image + .cue] <Hard Rock, B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654781.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Todd Rundgren - Global (2015) [FLAC|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654459.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Pete Townshend - Psychoderelict (1993) Remastered /2006, Imperial Records/ [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654458.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Bay City All Stars - Rock & Roll Diner (1996) Remastered /2001, Menus And Music 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654386.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bryan Ferry - Albums Collection (1973-1985) 6 CD Remastered /2015, Universal Mus
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654207.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ No More Pain - The Post Human Condition (2014) [FLAC|image+.cue]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653434.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Holy Family - The Holy Family (2021) [FLAC|Lossless|tracks + .cue] <Psychede
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652725.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Desert Clouds - Planexit (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652709.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Phish - The Story Of The Ghost (1998) [FLAC|Lossless|tracks + .cue] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652554.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Resonance - Ультрафиолет (2019) [FLAC|Lossless|image + .cue] <Sympho
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652502.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Martin Neuhold (feat. Guy Beeri Mauseth & Colin Powell) - The Fool's Tale (2015)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652165.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Anathema - The Optimist (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652129.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ James Taylor - October Road (2002) 2 CD, Limited Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651995.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ John Mayer - John Mayer (2001-2009) 5CD BoxSet /Sony Music,2013/  [FLAC|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651617.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Ozric Tentacles - Technicians Of The Sacred (2015) 2CD [FLAC|tracks+.cue]<Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651583.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Jethro Tull - Aqualung (1971) 2CD, 40th Anniversary Adapted Edition, 2016, Chrys
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651490.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Lou Gramm - Long Hard Look (1989) Remastered, 2013, Rock Candy [APE|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_651485.jpg" />
 </div>
 
 

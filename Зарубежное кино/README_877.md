@@ -1,55 +1,3 @@
-###  Публикация: 517852   (645070) от 02.07.2012
-
-23 / 23  (1998) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма основан на реальной истории о группе юных хакеров из Германии. В конце 1980-х Карл Кох, оставшись сиротой, тратит свое наследство на квартиру и домашний компьютер. Сначала он подключается к чату, где обсуждают теорию заговоров, основанную на его любимом романе Р. А. Уилсона «Иллюминаты», но вскоре он и его друг Дэвид начинают взламывать правительственные и военные компьютеры. Пепе, знакомый Карла из уголовного мира, чувствует, что на этом можно зарабатывать деньги — он едет в Восточный Берлин и пытается связаться с КГБ.Жанр: ДрамаРежиссер: Ханс-Кристиан Шмид /Hans-Christian Schmid/Актеры: Аугуст Диль /August Diehl/, Фабиан Буш /Fabian Busch/, Дитер Ландурис /Dieter Landuris/, Ян Грегор Кремп /Jan Gregor Kremp/, Штефан Кампвирт /Stephan Kampwirth/, Патрик Йосвиг /Patrick Joswig/, Петер Фиц /Peter Fitz/, Бургхарт Клаусснер /Burghart Klaußner/, Лилли Мари Чёртнер /Lilly Marie Tschörtner/, Збигнев Замаховский /Zbigniew Zamachowski/Перевод: Одноголосый закадровыйЯзык субтитров: Продолжительность: 01:34:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518071   (645068) от 02.07.2012
-
-В темноте / In Darkness (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма — Леопольд Соха, рабочий городского коллектора, а по совместительству мелкий вор. Когда фашисты занимают Львов, он случайно сталкивается с группой евреев, пытающихся спастись от отправки в гетто. За денежное вознаграждение он прячет беглецов в лабиринте подземных коммуникаций города. То, что начинается как циничная деловая договоренность, постепенно перерастает в нечто гораздо большее. За это время, когда на протяжении 14 месяцев женщины, мужчины и дети испытывают судьбу, обманывая верную смерть, сердце Леопольда проникается чувством сострадания к этим несчастным людям.Жанр: Драма, ВоенныйРежиссер: Агнешка ХолландАктеры: Роберт Венцкевич, Бенно Фюрманн, Агнешка Гроховска, Мария Шрадер, Херберт Науп, Марчин БосакПеревод: Любительское (Одноголосое)Формат: MKVПродолжительность: 02:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC2933FFAA7F9953B740BF1DDE31875875478A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905746   (645054) от 08.06.2015
 
 Робин Гуд: Принц Воров / Robin Hood: Prince of Thieves (1991) BDRip [H.264/1080p] [Extended Cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645054.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645046.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645043.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645036.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644951.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644949.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644945.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644940.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644903.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644827.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644814.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644804.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644796.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644794.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644700.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644686.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_644675.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_644674.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644647.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644634.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644612.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644596.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644590.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644585.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E580A5C6148B89CF49415E7FA9EE5096B0FCEF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292518   (644582) от 30.03.2019
+
+Наш день придет / Notre jour viendra (2010) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644582.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодого человека Реми нет друзей, кроме стареющего психоаналитика. В школе его шпыняют, а семья ненавидит. Когда чаша терпения переполняется, Реми и его друг на последние деньги покупают спортивную машину, хорошие костюмы и едут в Ирландию на поиски понимания.Производство: Франция, 120 Films, Les Chauves-Souris, TF1 Droits AudiovisuelsЖанр: Драма, КриминалРежиссер: Ромейн ГаврасАктеры: Венсан Кассель, Оливье Бартелеми, Жюстин Лероу, Ванесса Декат, Борис Гамтети, Родольф Бланшет, Хое Катен, Сюлваин Ле Мюнез, Пьер Буланжер, Жули Вергулт и др.Перевод: Двухголосый закадровый, профессиональный (НТВ+), Двухголосый закадровый, любительский (Чип и дейл), Одноголосый закадровый, любительский (zamez)Субтитры: Русские, английские, немецкие (вшитые, отключаемые)Продолжительность: 01:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA2DD0688A58FA0C2F14BBCD0DCD8F227FFD40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292597   (644574) от 30.03.2019
+
+Голодный кролик атакует / Seeking Justice (2011) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об учителе литературы Уилле Джерарде (Николас Кейдж), чья жена Лаура подверглась изнасилованию, когда возвращалась домой после концерта. Когда он находится у дверей реанимации, где лежит его жена, ему предлагает свою помощь некая группа борьбы с насильниками. Эта группа всегда использует пароль «голодный кролик атакует». Уилл Джерард соглашается (   Читать дальше...   )Производство: США / Endgame EntertainmentЖанр: Боевик, Триллер, ДрамаРежиссер: Роджер ДональдсоАктеры: Николас Кейдж, Дженьюэри Джонс, Дженнифер Карпентер, Гай Пирс, Айрон Э. Синглтон, Ксандер Беркли, Хэролд Перрино, Джо Крест, Моника Акоста, Дэвид ДженсенПеревод: Дублированный, авторский (одноголосый, закадровый)Субтитры: русские, английскиеПродолжительность: 01:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85597224423F84BF5BB323A70630FB6689259AF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1446636   (1032448) от 10.02.2021
-
-Пункт назначения. Аквапарк / Aquaslash (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Выпускники 2018 года собираются оторваться в аквапарке. Кто-то в большой шумной компании употребялет всё, до чего дотягивается, кто-то нарывается на неприятности, у кого-то намечаются романтические отношения, у кого-то расстраиваются, а коварный злоумышленник уже начал кровавую охоту на ничего неподозревающую молодёжь.Производство: Канада / Productions Guérilla (Aquaslash), Blackpills, RockzelineЖанр: УжасыРежиссер: Рено ГотьеАктеры: Николас Фонтейн, Бриттани Дрисделл, Ник Уокер, Мадлен Харви, Пол Зинно, Чип Чуипка, Ховард Розенштейн, Райан Али, Камерон Геллер, Ланиса ДоунПеревод: Дублированный (iTunes)Язык озвучки: Русские, английскиеСубтитры: Английские (SDH)Продолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03E021DFB90E307F5F0EADA88D83CB9E859C42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446650   (1032441) от 10.02.2021
-
-Юный детектив (Малыш-детектив) / The Kid Detective (2020) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Эйбу, известному когда-то ребенку-детективу, теперь 32 года. В перерывах между похмельем и приступами жалости к себе он продолжает браться за примитивные загадки, пока однажды клиентка не просит его расследовать убийство ее парня.Производство: Канада / Woods Entertainment, JoBro Productions & Film FinanceЖанр: Драма, комедия, детективРежиссер: Ивэн МорганАктеры: Адам Броди, Софи Нелисс, Сара Сазерленд, Джесси Ной Груман, Венди Крюсон, Джонатан Уитэйкер, Питер Макнил, Софиа Уэбстер, Даллас ЭдвардсПеревод: Многоголосый профессиональный (Google Play)Язык озвучки: Русские, английскиеСубтитры: Русские (Full), украинские (Full), английские (Full)Продолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511C5747FFA793457587C0E738AABB863ED600AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446754   (1032438) от 10.02.2021
 
 Боги Египта / Gods of Egypt (2016) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032438.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032435.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032433.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032430.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032419.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032412.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032407.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032406.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032405.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032396.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032394.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032383.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032379.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032267.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032253.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032251.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032248.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032236.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032235.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032232.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032219.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032218.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032216.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032214.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AE6F17F62FEB198BBCF631024A2A6F212A0FE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620136   (1032213) от 19.03.2023
+
+Идеальное алиби / Out of the Blue (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды библиотекарь Коннор Бейтс на утренней пробежке встречает Мэрилин, которая регулярно приходит поплавать в местном озере. Между ними сразу же пробегает искра, вот только прекрасная незнакомка оказывается замужем. Однако во время их следующей встречи в библиотеке, где работает Коннор, Мэрилин передает ему свой номер телефона. Таким образом начинается их запретный (   Читать дальше...   )Производство: США / BondIt, Buffalo 8 Productions, The Squid FarmЖанр: Триллер, драма, мелодрама, криминал, детективРежиссер: Нил ЛабутАктеры: Дайан Крюгер, Рэй Николсон, Джиа Кроватин, Хэнк Азария, Чейз Суи Уондерс, Кейлин Даррел Джонс, Памела Джейн Морган, Фред Уэллер, Виктор Слезак, Фрэнк Ридли, Юсеф Абу-ТалебПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5187D5A096485D39F303D23CB65424152EAE6071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620378   (1032210) от 19.03.2023
+
+Бостонский душитель / Boston Strangler (2022) WEBRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой леденящий душу пересказ печально известного дела Бостонского душителя, исследующий самые темные глубины человеческой психики и ограничения системы правосудия. Благодаря захватывающему сюжету и сложным персонажам, этот фильм будет держать зрителей в напряжении еще долгое время после окончания титров.Производство: США / 20th Century Studios, Langley Park Productions, LuckyChap EntertainmentЖанр: триллер, драма, криминал, историяРежиссер: Мэтт РаскинАктеры: Кира Найтли, Кэрри Кун, Алессандро Нивола, Крис Купер, Рори Кокрейн, Давид Дастмалчян, Питер Герети, Роберт Джон Бёрк, Райан Уинклс, Морган СпекторПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full,SDH)Продолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB38F7C3808038F711DAD5BEBB657C27D0590A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

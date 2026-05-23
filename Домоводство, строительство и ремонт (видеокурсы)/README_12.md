@@ -1,30 +1,3 @@
-###  Публикация: 1738643   (49080) от 23.07.2024
-
-Наталья Мягкова | Принципы устройства неприхотливого сада (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-При закладке сада нормально работать в саду все свободное время. Нужно спланировать, разметить, вскопать, очистить, купить, расставить на участке, посадить — и это далеко неполный перечень работ по озеленению. А еще есть строительные работы и уход за молодым садом.
-Если вы делаете сад своими руками и через 5-7 лет работа в саду не уменьшается,значит вы сделали что-то (   Читать дальше...   )Жанр: Обучающее видеоЯзык озвучки: РусскийПродолжительность: 02:41:42Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE23BA1D880AF18ACD944A8C50F0E41D79B9E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738717   (49018) от 24.07.2024
 
 Сергей Дьяков | Универсальная система капельного полива своими руками (2020) WEB-DL [AD] [RU]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49018.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49000.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ George Vondriska | Основы работы с циркулярной пило�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48893.jpg" />
 </div>
 
 
@@ -116,7 +89,7 @@ ColorSchool, Наталья Маркевич | Свет в саду (2024) WEB-D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48870.jpg" />
 </div>
 
 
@@ -145,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48816.jpg" />
 </div>
 
 
@@ -174,7 +147,7 @@ Doug Stowe | Основы изготовления шкатулок (2007) DVDRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48581.jpg" />
 </div>
 
 
@@ -201,7 +174,7 @@ George Vondriska | Техники работы с ручным фрезером 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47995.jpg" />
 </div>
 
 
@@ -229,7 +202,7 @@ George Vondriska | Основы работы с фрезерным столом 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47949.jpg" />
 </div>
 
 
@@ -257,7 +230,7 @@ George Vondriska | Настройка и использование фуганк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47845.jpg" />
 </div>
 
 
@@ -285,7 +258,7 @@ Christopher Schwarz | Изготовление стульев без страх�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46686.jpg" />
 </div>
 
 
@@ -314,7 +287,7 @@ Mark | 5 Творческих проектов по деревообработк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46504.jpg" />
 </div>
 
 
@@ -342,7 +315,7 @@ Kyle Kwiatkowski | Три основных соединения «ласточк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46372.jpg" />
 </div>
 
 
@@ -368,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45997.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ Solid Factory, Антон Ильин | Основы инженерного ан�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45933.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ Mike Siemsen | Скамейки и ящики (2020) WEBRip [EN, RU / EN Sub]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45781.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ Bill Thomas | Изгиб и формирование (2023) WEBRip [EN, RU / EN 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45663.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ Christopher Schwarz | Верстак (2008) DVDRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44842.jpg" />
 </div>
 
 
@@ -501,7 +474,7 @@ Robert Spiece | Двери для шкафов и изысканной мебе�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44632.jpg" />
 </div>
 
 
@@ -527,7 +500,7 @@ Jim Heavey | Ящики для шкафов и изысканной мебели
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44386.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ Cynthia Bleskachek | Начало работы с обивкой мебели (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44280.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ Christopher Schwarz | Создайте походное кресло (2018) WEBR
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44227.jpg" />
 </div>
 
 
@@ -608,7 +581,7 @@ pro-z.ru | Проектирование одноэтажного жилого д
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44045.jpg" />
 </div>
 
 
@@ -634,7 +607,7 @@ pro-z.ru | Обследование конструкций зданий (2024) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44040.jpg" />
 </div>
 
 
@@ -663,7 +636,7 @@ pro-z.ru | Проектирование стального каркаса скл
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44039.jpg" />
 </div>
 
 
@@ -692,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44033.jpg" />
 </div>
 
 
@@ -706,6 +679,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E76FAF8F794DA60B742CD09268FF43CDDA76EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748525   (44020) от 10.09.2024
+
+Наталия Андросова | Сборник вебинаров по архитектурке, строительству и ЖКХ (2022-2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44020.jpg" />
+</div>
+
+
+###  Подробнее
+
+✅Техническое регулирование в области обеспечения безопасности зданий и сооружений
+✅Область применения и особенности расчета железобетонных конструкций
+✅Физико-механические характеристики и деформативность бетона в железобетонных
+конструкциях(   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 05:08:09Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
 ```
 
 https://mybot314.ru/tekegram_catalog/

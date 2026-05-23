@@ -6,7 +6,7 @@ Aiseesoft iPhone Cleaner 1.0.20 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044881.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FoneDog Data Recovery 1.2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044880.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Smooze Pro 2.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044879.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044872.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sketch 95.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044862.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PD (Progressive Downloader) 5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044860.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Finder Windows 1.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044843.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ KCNcrew Pack 01-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044770.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Aiseesoft Audio Converter for Mac 9.2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044764.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ X Lossless Decoder XLD 20220917 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044760.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Live Wallpaper & Themes 4K Pro 15.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044759.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ All to MP3 Audio Converter 5.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044756.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TechSmith Snagit 2023.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044753.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ MAMP PRO 6 v.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044733.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044658.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ EdgeView 3 v.3.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044653.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ AnyMP4 DVD Ripper for Mac 9.0.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044651.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AnyMP4 Blu-ray Ripper for Mac 9.0.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044650.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ iCollections 8.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044648.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Tipard Screen Capture 1.1.20 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044647.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Default Folder X 5.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044645.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.30 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044632.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ PhoneRescue for iOS 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044627.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Dynamic Wallpaper 13.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044623.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BBEdit 14.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044619.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Wondershare Recoverit 11.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044605.jpg" />
 </div>
 
 

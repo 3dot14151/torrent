@@ -1,55 +1,3 @@
-###  Публикация: 1641812   (196668) от 24.06.2023
-
-Psiphon Pro 382 Mod by DEXUNPACKER [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Тип издания: ModРелиз состоялся: 19.06.2023Разработчик: Psiphon Inc.Поддерживаемая ОС: Android TV 4.0+Язык интерфейса: Русский, Английский, Украинский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C798EDE6A6C2988511E29C7E4CF166839AB7B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642069   (196623) от 25.06.2023
-
-Filmic Pro 7.2 Mod by Timozhai [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Filmic Pro - функциональное приложения для ведения видеосъемки на Андроиде. Главною целью разработчиков было достичь максимально возможных настроек как в профессиональных видеокамерах и это у них получилось! Вы сможете настраивать процесс и качество видеосъемки прямо из приложения, но качество встроенной в ваш мобильный камеры, тоже важно для максимально качественной (   Читать дальше...   )Тип издания: Mod (Unlocked)Релиз состоялся: 16.02.2023Разработчик: Filmic Inc.Поддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABD04097695BD1CAF55A5CB926F7C9BF9FA9EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630209   (196597) от 25.06.2023
 
 Reface v3.40.0 [Multi]
@@ -58,7 +6,7 @@ Reface v3.40.0 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196597.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Adobe Acrobat Reader для PDF 23.6.0.28101.Beta Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196578.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ SmartDriver: АнтиРадар ГИБДД v1.15.0.36616 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196573.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ Cx Проводник / Cx File Explorer 2.0.0 Mod by guf1990 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196554.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ Kaspersky для Android 11.99.4.9878 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196552.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ Call Recorder - SKVALEX 3.6.0 Mod by 5mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196378.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ ByVoice v3.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196355.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ WiFi Analyzer v3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196270.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ Tone Generator PRO v3.36 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196264.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196196.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ Terraria 1.4.4.9.2 Mod by Dav124 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196190.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ Minecraft: Pocket Edition 1.20.0.21.BETA Mod by roydiPRO [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196156.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ Moon+ Reader Pro v8.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196064.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195849.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ AGAMA Car Launcher 3.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195746.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195648.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195642.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ Chronus Home & Lock Widget / Информационные виджеты Chronus
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195629.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195614.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ Screenshot touch v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195493.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195487.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ Imagine : AI Art Generator v2.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195386.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ X-plore File Manager 4.32.00 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195304.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ Total Commander 3.42d Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195277.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ Total Commander - Android-версия культового файлового �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:357DC1E95B2DB6C1CDFB1CE93AD5649D817EB2EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648668   (195237) от 24.07.2023
+
+CapCut - Видеоредактор 8.8.1 Mod by dimonx32, Айфона нет [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195237.jpg" />
+</div>
+
+
+###  Подробнее
+
+CapCut - видеоредактор, что понравится поклонникам создания коротких роликов предназначенных для таких платформ, как TikTok и прочих. Здесь они найдут всё необходимое для продуктивной работы и с видео и с аудио стороной процесса. Удобная механика редактирования, обширный набор эффектов и цветовых фильтров, различные наклейки, наложение текста, переходы между кадрами (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 17.07.2023Разработчик: Bytedance Pte. Ltd.Поддерживаемая ОС: Android 5.0+ (Только для ARM64)Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84F05870AA871C869050E94940A97258FFE812A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648709   (195213) от 24.07.2023
+
+ViMu Media Player for TV 10.10 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195213.jpg" />
+</div>
+
+
+###  Подробнее
+
+ViMu Media Player - это гибкий и удобный медиаплеер для медиа-приставок на Android TV и FireStick. Воспроизводит видео с внутренней памяти, SD-карты или с подключенного USB-накопителя. В плеере ViMu имеется поддержка сетевых протоколов SMB, WebDAV и DLNA. Поддерживает большинство видео и аудио форматов, встроенные субтитры и внешние плейлисты. Он также умеет воспроизводить (   Читать дальше...   )Тип издания: ModРелиз состоялся: 08.07.2023Разработчик: GTVBox.netПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0A17DEC1DB830876BBF7795AD801FEDF033185
 ```
 
 https://mybot314.ru/tekegram_catalog/

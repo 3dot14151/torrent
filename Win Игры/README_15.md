@@ -6,7 +6,7 @@ Timberborn (2021) [Ru/Multi] (1.0.12.5) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060890.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tomb Raider: Underworld (2008) [Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060859.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Solateria (2026) [Ru/Multi] (1.0.20) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060847.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060834.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060833.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FATAL FRAME II: Crimson Butterfly REMAKE (2026) [Ru/Multi] (1.02.02/dlc) Repack 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060821.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FATAL FRAME II: Crimson Butterfly REMAKE (2026) [Ru/Multi] (1.02.01/dlc) Repack 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060808.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (20260226/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060798.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Millennium Dream (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060797.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ready or Not (2023) [Ru/Multi] (112610/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060796.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hoverflow (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060795.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cryogear (2020) [Multi] (1.2.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060794.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060793.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Escape from Ever After (2026) [Ru/Multi] (2.7.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060790.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Legends of Savvarah: Flowers and Scorpions (2026) [Ru/En] (Build 21632093) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060786.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (3.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060684.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Timberborn (2021) [Ru/Multi] (1.0.12.3) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060683.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Out of Sight (2025) [Ru/Multi] (1.1.93/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060682.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Green Light (2026) [Ru/Multi] (0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060677.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Green Light (2026) [Ru/Multi] (0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060676.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Legitimate Space Corp Simulator LLC (2026) [Ru/Multi] (1.02.87) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060663.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mystic Diary 4: Wizard's Legacy (2026) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060661.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sandwich Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060659.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.0/dlc) Repack dixen18 [Digital Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060606.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ GreedFall: The Dying World (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060603.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Sancticide (2025) [Ru/Multi] (1.0.26471) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060588.jpg" />
 </div>
 
 

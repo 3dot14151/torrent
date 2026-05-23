@@ -1,29 +1,3 @@
-###  Публикация: 1798183   (17611) от 21.05.2025
-
-RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вы - глава компании, которая специализируется на восстановлении районов, пострадавших от стихийных бедствий. Используйте свою технику для перезапуска местной промышленности. Расчищайте территорию, реконструируйте дороги, мосты и другие объекты!Тип издания: RepackРазработчик: Saber InteractiveЖанр: Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017BC23877FDE36ACBF45255A2D63503E114861E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798205   (17607) от 21.05.2025
 
 RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
@@ -32,7 +6,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17607.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17571.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17515.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17475.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17470.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (build 18552414) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17468.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (20250324) Scene SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17465.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Dustborn (2024) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17458.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17438.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack Let'sРlay [Last Wish E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17437.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Tactical Warfare (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17427.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ FANTASIAN Neo Dimension (2024) [Multi] (29100132/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17404.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17370.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17356.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17329.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Wizordum (2023) [Ru/En] (1.0.06.3) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17327.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17324.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17320.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (Build 18577240) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17284.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58728/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17279.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Hunter’s Journey: Tears of the Lake / Путь охотника: Слезы о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17275.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Brass Brigade (2019) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17271.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17231.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.5) Repack Let'sРlay [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17228.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17227.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7949798321D03AED24C5BFFD7F2F83CBC2CF1082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770278   (17225) от 24.05.2025
+
+Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.09.1/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый боeвик, в котором концепция серии Armored Core получила современное развитие за счёт знаний, накопленных компанией FromSoftware за время разработки игр о боевых роботах-мехах и фирменный продуманный игровой процесс. Управляйте собственной мехой в скоростных сражениях, где можно двигаться в любом направлении, и попробуйте добиться победы, используя преимущества (   Читать дальше...   )Тип издания: RepackРазработчик: FromSoftware, Inc.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228D27780FCE275627BD71133BA0AE1DF0667768
 ```
 
 https://mybot314.ru/tekegram_catalog/

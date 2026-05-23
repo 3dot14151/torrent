@@ -6,7 +6,7 @@ VA - не Громкие новинки недели 93 (2021) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041929.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Party 2023 More In The Year (2023) [MP3|320 Kbps] <Nu Disco, Progressive Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041635.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Music News vol.244 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041561.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Timi Yuro - Compilation (2023) [MP3|320 Kbps] <Vocal, Soul, Easy Listening>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041422.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Музыка для машины Vol.7 (2023) [MP3|320 Kbps] <Pop, Dance, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041329.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Music News vol.62 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040885.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Top Female Artists of 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040640.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Music News vol.245 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040526.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Дискотека Пионер FM По-Русски vol.14 (2021) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040475.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Power & Hot (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040445.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Sonic - Before the Sequel (2012)[MP3|320 Kbps] <Score>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040349.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sonic Boom (Hack) (Soti, Tweaker, Nineko, Roxahris) (2009)[MP3|320 Kbps] <Score>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040322.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Best Live Albums (2020) [MP3|320 Kbps] <Rock, Reggae, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040288.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Keep On Dancing: Dance Disco Party (2023) [MP3|320 Kbps] <Dance, Disco, Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039631.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - After Work: Weekends Friends Party (2023) [MP3|320 Kbps] <Dance, Club, Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039625.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Музыка для машины Vol.8 (2023) [MP3|320 Kbps] <Pop, Dance, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039621.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Music News vol.246 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039592.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Музыка для машины Vol.9 (2023) [MP3|320 Kbps] <Pop, Dance, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039585.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Music News vol.63 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039528.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Best Pop Плейлист (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039515.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Sexy Songs 2021 (Slow Bass RnB) [MP3|320 Kbps] <Pop, RnB, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039494.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Запасные крылья (2021) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039080.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Снег в июне (2021) [MP3|320 Kbps] <Pop, Rock, Ballad>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039069.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Music News vol.64 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039044.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - ЕвроХит Топ 40 Europa Plus 15.01.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039019.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Не спи за баранкой 4 (Музыка в машину) (2021) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038929.jpg" />
 </div>
 
 

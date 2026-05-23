@@ -1,29 +1,3 @@
-###  Публикация: 1387825   (768235) от 29.06.2020
-
-Someday You'll Return (2020) [Multi] (1.3) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это не первый раз, когда она убежала. Но тебе не по себе ... на этот раз ты чувствуешь себя по-другому. Ваш герой - Даниэль (Daniel), отец Стелы (Stela), которого события заставили вернуться туда, куда он давным-давно  поклялся никогда не возвращаться... Но очередной побег дочери снова оттащил вас назад в прошлое. Ваш поиск ведет глубоко в древние моравские леса и (   Читать дальше...   )Тип издания: RepackРазработчик: CBE softwareЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, ЧешскийЯзык интерфейса: Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965978A85C5008F4473CE1247C1CC5B304FB871F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125750   (767716) от 15.04.2017
 
 Codename: Iceman (1990) [En] (1.033) License GOG
@@ -32,7 +6,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767716.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766519.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.53) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766480.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Thimbleweed Park (2017) [Ru/Multi] (1.0.958/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766474.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765874.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765839.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lumo (2016) [Ru/Multi] (1.11.08) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764224.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Blair Witch (2019) [Ru/Multi] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763395.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762462.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack Other s [Special Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762387.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Riddlord: The Consequence (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761575.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Not in Heaven (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761502.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760737.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Insane Decay of Mind (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760673.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ The Song of Seven: Chapter One (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760596.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Danganronpa Dilogy (2016) [En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760591.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758177.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Backbone (2021) [Ru/Multi] (1.0.8.0/dlc) Repack Other s [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_758135.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Dreamfall Chapters (2017) [Ru/Multi] (5.7.8) License GOG [The Final Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758052.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757999.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755902.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Retro Machina (2021) [Ru/Multi] (1.11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754509.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754268.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Insomnis (2022) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752807.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751631.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28EE896B7BF5001D9BA2D65284CE362CB0CF0DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356120   (751296) от 12.07.2020
+
+Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в программу «Первопроходец»! В нашем веселом и ярком приключении для одного или двух игроков вы играете за нового работника корпорации «Родной Космос», которая с гордостью называет себя четвертой лучшей межзвездной компанией. Вас выбросили на неизведанной планете почти без оборудования, и теперь ваша задача – определить, подходит ли планета для заселения (   Читать дальше...   )Тип издания: RepackРазработчик: Typhoon StudiosЖанр: Adventure, Action, RPG, 1st Person, 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADED8F362C264694CC344DD2FB6359AE52ED7898
 ```
 
 https://mybot314.ru/tekegram_catalog/

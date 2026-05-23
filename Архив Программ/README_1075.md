@@ -6,7 +6,7 @@ Windows 10 Manager 3.1.2 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501301.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 76.0.3809.87 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501286.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Slimjet 5.0.0.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501262.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Atomix Virtual DJ Pro Infinity 8.0.0 build 2438.1056 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501249.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ashampoo Music Studio 4 4.0.3.8 RePack/Portable By Boomer [Русский/Анг
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501240.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SMath Studio Desktop 0.99.7109 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501224.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MediaHuman YouTube Downloader 3.9.9.21 (3007) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501222.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501221.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 10 Manager 3.1.2 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501216.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ FastStone Capture 9.1 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501206.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MAGIX Video Pro X11 17.0.1.31 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501205.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 07.2022 by OVGorskiy 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501172.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Efficcess Pro 5.0 Build 509 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501161.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ FocusWriter 1.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501152.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Freemake Mega Pack 3.1 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501121.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Avira Phantom VPN Pro 2.28.2.29055 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501112.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MAGIX Photostory 2020 Deluxe 19.0.1.11 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501110.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Java SE Runtime Environment 7.0 Update 7 | 6.0 Update 35 (Сборка от Lisa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501048.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.07.31 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501026.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500991.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ USBboot Installer++ 1.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500983.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VueScan Pro 9.5.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500939.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Windows 10 Login Changer 0.0.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500937.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ CorelDRAW Graphics Suite X7 17.6.0.1021 Special Edition RePack by -{A.L.E.X.}- [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500919.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Dimonbizzzz Portable Soft 3.0 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500823.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500637.jpg" />
 </div>
 
 

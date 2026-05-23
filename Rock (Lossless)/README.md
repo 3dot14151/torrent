@@ -7,7 +7,7 @@ Pulp - Freaks (1987) Reissue, 1993, Fire Records [FLAC|Lossless|image + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070201.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ The President - 2 Albums (1983-1985) Remaster 2024 [FLAC|Lossless|tracks + .cue,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070199.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Yungblud - Idols Complete (2026) [FLAC|Lossless|image + .cue] <Alternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070150.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Frontline - Rebirth (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070052.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Roy Orbison - In Dreams: Greatest Hits (1996) [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070011.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - 1990's Rock (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070010.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Riffstone - Mythical Creatures (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069930.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Jethro Tull - Under Wraps (2026) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069788.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Barenaked Ladies - Disc One: All Their Greatest Hits (1991-2001) (2001) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069300.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Jane Wiedlin - Tangled (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069174.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Return - Fourplay (1991) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069173.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Rush of Fools - We Once Were (2011) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069172.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Thenewno2 - Thefearofmissingout (2012) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068317.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Linda Ronstadt - Heart Like A Wheel (1974) Reissue, 1985, Capitol Records [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067701.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Prog-Box(5 Hours Of Progressive Music) (2014) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067477.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ FEX - Skyscraper (2025) [APE|Lossless|image + .cue] <Rock, Blues Rock, New Wave>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067070.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Joe Cocker - The Best Of Joe Cocker (1993) [FLAC|Lossless|image + .cue] <Rock, B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067056.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Kyuss - Welcome To Sky Valley (1994) [FLAC|Lossless|image + .cue] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066991.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Blondie - Greatest Hits: Deluxe Redux / Ghosts of Download - 2014, FLAC (tracks+
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066850.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Marianne Faithfull - Broken English (1979) Reissue, Remastered, 1999, Island Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066839.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ All About Eve - Scarlet and Other Stories (1989) [FLAC|Lossless|image + .cue] <F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066837.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Shadows - At Their Very Best (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066594.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Looking Glass - Brandy (You're A Fine Girl) (1997) Compilation [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066439.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Emmylou Harris - The Ballad Of Sally Rose (1985) [FLAC|Lossless|image + .cue] <F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066241.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ David Foster - David Foster (1986) [FLAC|Lossless|image + .cue] <Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065889.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Emmylou Harris - Elite Hotel (1975) Reissue, Remastered, 2014, Reprise Records [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065846.jpg" />
 </div>
 
 

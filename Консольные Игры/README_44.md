@@ -1,110 +1,3 @@
-###  Публикация: 832725   (379804) от 24.10.2014
-
-Deadly Premonition: The Director's Cut [PS3] [3D] [EUR] [En] [4.31] [Cobra ODE / E3 ODE PRO ISO] (2013)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В маленьких городках порой случаются весьма странные происшествия. Именно с такой ситуацией довелось столкнуться детективу Моргану, которого послали расследовать загадочное убийство юной девушки. Мало того, что местные жители не склонны доверять чужакам… вполне может случиться, что именно он станет следующей жертвой. Сможете ли вы провести собственное расследование (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Access GamesЖанр: Action / Adventure / Horror / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B56608242B96F00587A5AC36C9E07180AB6354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834086   (379686) от 24.10.2014
-
-Deus Ex: Human Revolution - Director's Cut [PS3] [EUR] [En] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2013)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Deus Ex: Human Revolution - третья часть популярного РПГ проекта, действия которого происходят в мире киберпанка. Главным героем выступаетТип издания: ЛицензияРазработчик: Eidos MontrealЖанр: Action(Tactical) / RPG / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F13EB385463DD59E4EDEEB1D2240D7BA601197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949159   (378980) от 22.10.2015
-
-BlazBlue: Chrono Phantasma EXTEND / BlazBlue: Chronophantasma EXTEND (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Aksys Games с удовольствием анонсирует выход BlazBlue: Chrono Phantasma EXTEND - нового, взрывного двухмерного файтинга от Arc System Works, создателей серии Guilty Gear!
-
-Теперь с обновлённой системой блокирования Guard system игроки смогут опробовать новые сверхмощные атаки Guard Crush, пробивающие блок, когда у вашего противника Barrier Gauge находится на низком (   Читать дальше...   )Тип издания: UnofficialРазработчик: Arc System WorksЖанр: Arcade (Fighting), 2DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAF006AE489B252C8CCBF811B0A29BCE01A2C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901461   (378926) от 11.10.2018
-
-Nintendo Gamecube (Redump от 2018-08-25) [GameCube] [NTSC-J] (#-Z)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В раздаче присутствуют 363 известных образов Nintendo Gamecube NTSC-J региона, по версии Redump.org от 2018-08-25.
-Redump.org это база данных и сообщество, хранящее достоверную информацию о когда либо вышедшей играх на оптических носителях для разных платформ. Её цель состоит в том, чтобы собрать образы данных для всех консольных и PC игр. Сайт также предоставляет (   Читать дальше...   )Язык интерфейса: Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A8BF78651B1213ADBCDBAB20C06756513EA572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175286   (378062) от 18.10.2017
 
 Weird Park: The Final Show (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/Multi][MOVE]
@@ -113,7 +6,7 @@ Weird Park: The Final Show (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378062.jpg" />
 </div>
 
 
@@ -139,7 +32,7 @@ SteamWorld Heist (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377801.jpg" />
 </div>
 
 
@@ -167,7 +60,7 @@ Earth Defense Force Antology [XBOX360] [ENG] (2014) (15574) [FreeBoot]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377640.jpg" />
 </div>
 
 
@@ -195,7 +88,7 @@ Summer Stars 2012 [PS3] [ENG] [PAL] [MOVE] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377403.jpg" />
 </div>
 
 
@@ -221,7 +114,7 @@ Deus Ex: Human Revolution (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376710.jpg" />
 </div>
 
 
@@ -247,7 +140,7 @@ NHL Legacy Edition (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376590.jpg" />
 </div>
 
 
@@ -273,7 +166,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375362.jpg" />
 </div>
 
 
@@ -299,7 +192,7 @@ WWE 2K14 [PS3] [EUR] [En] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2013)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375268.jpg" />
 </div>
 
 
@@ -325,7 +218,7 @@ X-Blades (Ониблэйд) (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374526.jpg" />
 </div>
 
 
@@ -351,7 +244,7 @@ Just Dance 2016 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374231.jpg" />
 </div>
 
 
@@ -377,7 +270,7 @@ Pro Evolution Soccer 2014 / PES 2014 [PS3] [EUR] [Ru/En] [4.46] [Cobra ODE / E3 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372881.jpg" />
 </div>
 
 
@@ -403,7 +296,7 @@ Mass Effect 3: Special Edition (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [Licens
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372697.jpg" />
 </div>
 
 
@@ -429,7 +322,7 @@ Bastion (2015) [PSVita] [EUR] 3.60 [HENkaku] [Unofficial] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372127.jpg" />
 </div>
 
 
@@ -455,7 +348,7 @@ Salt and Sanctuary (2017) [PSVita] [USA] 3.65 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372119.jpg" />
 </div>
 
 
@@ -481,7 +374,7 @@ Just Dance 2016 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371853.jpg" />
 </div>
 
 
@@ -507,7 +400,7 @@ Burnout Paradise: The Ultimate Box (2009) [PS3] [EUR] 3.40 [Repack / 1.90] [Ru/E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371244.jpg" />
 </div>
 
 
@@ -533,7 +426,7 @@ Mortal Kombat 9: Komplete Edition (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371230.jpg" />
 </div>
 
 
@@ -559,7 +452,7 @@ Batman: Arkham Knight. Premium Edition / Batman: Рыцарь Аркхема (Pr
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371202.jpg" />
 </div>
 
 
@@ -585,7 +478,7 @@ Hyrule Warriors (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.12.0] [Mu
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370761.jpg" />
 </div>
 
 
@@ -611,7 +504,7 @@ Splatoon (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / v272] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370472.jpg" />
 </div>
 
 
@@ -638,7 +531,7 @@ Resident Evil: Chronicles Collection HD [PS3] [ENG] [NTSC] [MOVE] [PSN] [3.55] (
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369707.jpg" />
 </div>
 
 
@@ -664,7 +557,7 @@ Cabela's African Adventures [Wii] [NTSC] [ENG] (2013)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369338.jpg" />
 </div>
 
 
@@ -677,6 +570,111 @@ Cabela's African Adventures [Wii] [NTSC] [ENG] (2013)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4247250A4B31C12715167E0BF555BE63774225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175609   (369096) от 22.10.2017
+
+Borderlands 2 (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 1.07 / 6 DLC] [En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369096.jpg" />
+</div>
+
+
+###  Подробнее
+
+В команде с тремя соратниками по сети или же в режиме одиночной игры отправляйтесь в рейд по неизведанным еще территориям Пандоры искать приключения на свою… голову.
+Выберите героя, как следует снарядите его – по традиции в вашем распоряжении гигантский арсенал оружия, боеприпасов и экипировки, – и вперед! Открывайте новые тайны Пандоры, прокачивайте персонажа по (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Action, Shooter, First-PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC37418F93010812A170E08A71198B561F5A554D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070093   (368343) от 06.11.2016
+
+Magic Orbz (2009) [PS3] [EUR] 4.21 [Repack / 1.03 / 3 DLC] [Ru/En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Orbz - новая интерпретация классического жанра арканоид, в которой игрок разносит на кусочки полностью трехмерные пространства. Помимо реалистичной физики и продвинутой системы разрушаемых объектов, Magic Orbz предоставляет поддержку системы трофеев и около 50 уровней для прохождения. Пробейтесь сквозь десятки красочных и стильных уровней, через острова пиратов (   Читать дальше...   )Тип издания: RepackРазработчик: Creat StudiosЖанр: ActionЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8A6E2B227AA13214F123769B5611AF24F4299D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069784   (368320) от 06.11.2016
+
+Bayonetta (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скорость, драйв, сердце, бьющееся в бешеном ритме сражения — все это Bayonetta. Игра от создателя Devil May Cry Хидэки Камии, на голову превзошедшего свои былые достижения. Чистый, незамутненный адреналин, который выплескивается вместе с кровью поверженных врагов. И, конечно, сексуальность — такой обаятельной и привлекательной воительницы не было еще ни в одном боевике.Тип издания: LicenseРазработчик: Platinum Games, Bee TribeЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED62EDF9085331916A5F228645FABD0D57CCF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327927   (367687) от 28.09.2019
+
+The Chronicles of Narnia: Prince Caspian (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый сериал "Хроники Нарнии" о фэнтезийном мире, созданном писателем Клайвом Льюисом- продолжается в кино и в игре! Вернитесь вместе с повзрослевшими детьми из семейства Певенси в Нарнию, где прошло 1300 лет. Замок Кэр-Перавел лежит в руинах, страной правит подлый узурпатор, сказочные существа терпят притеснения… Помогите законному наследнику, принцу (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Adventure, Hack & Slash, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7330904B562031929343C830F389A2571C72D71
 ```
 
 https://mybot314.ru/tekegram_catalog/

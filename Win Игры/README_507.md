@@ -1,29 +1,3 @@
-###  Публикация: 1775312   (29718) от 26.01.2025
-
-Cyberpunk 2077 (2020) [Ru/Multi] (2.21/dlc) Repack seleZen [Ultimate Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Ролевые игрыЯзык озвучки: Русский (только основная игра), АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3221A48CD806F313801672F0890DD55AF823CB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775332   (29714) от 26.01.2025
 
 Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's Edition]
@@ -32,7 +6,7 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29714.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Teslagrad Remastered (2023) [Ru/Multi] (Build 11359912) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29700.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Matsuro Palette / Палитра Смерти (2020) [Ru/Multi] (1.0.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29683.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Helskate (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29651.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29646.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1.A.24.1208.9439/dlc) Repack Let'sРlay [
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29643.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Teslagrad 2 (2023) [Ru/Multi] (Build 12140719) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29625.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29622.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29618.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ REKKR: Sunken Land (2021) [En] (1.12) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29562.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dying Light (2021) [Ru/En] (1.49.0hf10/dlc) Repack dixen18 [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29560.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Noita (2019) [Ru/Multi] (20250125-1640) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29551.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Hidden Deep (2022) [Ru/Multi] (0.96.7/dlc) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29538.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ VED (2024) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29536.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29535.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29525.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (build 17020908) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29514.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (Build 15058792) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29511.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Somber Echoes (2025) [Multi] (21558) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29508.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29501.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Rocket Boots Mania (2018) [Ru/Multi] (1.0.3012) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29488.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.15) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29461.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Thing: Remastered (2024) [Ru/Multi] (1.1.1609.1391) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29454.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 17168908) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29452.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Shotgun King: The Final Checkmate (2022) [Ru/Multi] (1.515g) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29449.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Shotgun King: The Final Checkmate представляет собой альте
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECAD9522827804ABD99AB9612543E7FCA560FA7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739311   (29430) от 29.01.2025
+
+Winter Falling: Battle Tactics (2022) [En] (7.11) License GOG [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winter Falling: Battle Tactics предлагает геймерам возглавить войска и вести их к победе в самых напряженных и тактических битвах. И только ваш разум может спасти умирающий мир от опустошения. Вы управляете отрядом наемников, собираете припасы и войска, выполняете задания и даже можете сжигать селения, если решите, что это вам нужно. Но не забывайте о том, что все (   Читать дальше...   )Тип издания: LicenseРазработчик: Rarykos, 7A GamesЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACD27EBC18A1E26DAC747D1B9E5F6F6EF066051
 ```
 
 https://mybot314.ru/tekegram_catalog/

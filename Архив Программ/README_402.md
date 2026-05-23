@@ -6,7 +6,7 @@ Windows 7 AIO x86 x64 Plus MInstALL StartSoft 15-16 2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839176.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JetBrains WebStorm 2016.1.1 Build #WS-145.597 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839174.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839161.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839150.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839145.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Visual Studio 2017 Community RTM 15.0.26228.4 (Offline Cache, Unoffici
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839142.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Photo Art Studio 2.95 [Eng] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839116.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Saola Animate Pro 2.7.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839071.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CCleaner 5.66.7705 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839062.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SMath Studio 0.89 Build 3856 +Portable [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839026.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Reg Organizer 5.15 Final [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839024.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Ashampoo HDD Control 2.06 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839023.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Reg Organizer 5.15 RePack by rs.bandito.soft [Английский + Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839019.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ STOIK Smart Resizer 3.0.0.3680 [multi +русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839016.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PC Tools Registry Mechanic 10.0.1.140 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839013.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Opera 68.0.3618.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838989.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Topaz Gigapixel AI 4.7.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838982.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838977.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Ipple Play 1.0.0.0 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838965.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Advanced Woman Calendar 3.3 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838963.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838959.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Movavi Photo Editor 6.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838930.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ DAZ Studio 3 Advanced x86 v.3.1.2.24 [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838886.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Flash Decompiler Trillix v 5.1.1140 Portable [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838841.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ MSActBackUp 1.0.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838691.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ PicturesToExe Deluxe 9.0.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838631.jpg" />
 </div>
 
 

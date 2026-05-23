@@ -6,7 +6,7 @@ Dash 7.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172365.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GoodTask 7.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172364.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ TechSmith Camtasia 2023 Studio 2023.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172352.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AirFoil+Airfoil Satellite 5.11.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172343.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Affinity Publisher 2 v.2.2.1  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172342.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Affinity Photo 2 v.2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172335.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Zoner Photo Studio X 19.2309.2.499 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172334.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ O&O DiskImage Professional 18.4 Build 330 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172330.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ HWiNFO 7.65 Build 5245 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172329.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Skype 8.106.0.212 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172327.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Affinity Designer 2 v.2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172325.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wondershare PDFelement 10.1.2.2508 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172322.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Icecream Photo Editor Pro 1.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172316.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Icecream Video Converter Pro 1.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172315.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Skype 8.106.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172314.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinCatalog 2024.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172313.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Chromium 118.0.5993.89 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172310.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Brave Browser 1.59.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172309.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ EssentialPIM Pro 11.7.2 RePack (& portable) by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172308.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NewFileTime 7.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172306.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ TweakNow WinSecret Plus! 4.9.9 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172305.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DesktopOK 11.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172304.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Bizagi Modeler 4.0.0.065 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172303.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Sante DICOM Editor 10.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172301.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Music Collection 3.6.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172298.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ FotoJet Photo Editor 1.1.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172297.jpg" />
 </div>
 
 

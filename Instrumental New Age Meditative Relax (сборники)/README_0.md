@@ -6,7 +6,7 @@ Blonker - Шедевры Инструментальной музыки (2001) [M
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975962.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974535.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Music Collection Vol.2 (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971729.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Lounge Music For Your Soul (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chi
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970939.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ DJ Ikonnikov - The 80s Non-Stop Mix (Instrumen) vol. 1-2 (2015 - 2016) [MP3|320 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969151.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Sentimiento y Pasion (2015) [MP3|320 кб/с] <Downtempo, Chillout, Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966774.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Dive Into My World (2020) [MP3|320 Kbps] <New Age, Ambient, Relax, Meditati
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966082.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Planetarium: Meditative Party (2016) [MP3|320 кб/с] <Chillout, Longe, Re
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964470.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Мировые инструментальные хиты. Тома 51 - 100
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964429.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Мировые инструментальные хиты. Тома 1 - 50 (
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964413.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Relaxing Acoustic Folk Music (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963502.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Sound Golden Sand: Relax Session (2015) [MP3|320 кб/с] <Chillout, Lounge
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961138.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Deep Forest - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957163.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Enigma - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957048.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Instrumental Piano Lyric (2016) [MP3|320 кб/с] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956098.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Acoustic Pop Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950561.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Amure - Unknown (2017) [MP3|320 Kbps] <Enigmatic, New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950381.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Because I Love You (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumen
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948427.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Relic Melody: New Age Pack (2016) [MP3|320 кб/с] <New Age, Ambient>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948241.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Мировые инструментальные хиты. Тома 151 - 20
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947165.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Инструментальное и оркестровое исполнен
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943608.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Empire Records - New Age (2016) [MP3|320 Kbps] <New Age, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942805.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Interior Lounge: Relax Mix (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938644.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Любимая музыка. Тебе, в День Святого Вале�
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935385.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Calendar Chillout (Chillout for Everyday) (2015) [MP3|320 кб/с]<Downtemp
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933348.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Indian Romance (2020) [MP3|192 Kbps] <Native American, New age, World music
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930260.jpg" />
 </div>
 
 

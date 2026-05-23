@@ -1,81 +1,3 @@
-###  Публикация: 1819681   (1288) от 23.09.2025
-
-Уилки Коллинз | Новая Магдалина (2023) [MP3, Наталья Первина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приемная дочь богатой аристократки – красавица, которую ждет выгодное замужество. Что скрывает ее прошлое? Она жила в приюте, влачила жалкое существование и в минуту отчаяния присвоила себе чужие документы, чужую историю жизни. Но призрак прошлого врывается в настоящую жизнь – обманутая несчастная требует ответа. Хватит ли мужества у Принцессы превратиться в Золушку, (   Читать дальше...   )Жанр: ДетективИздательство: ИДДКПродолжительность: 10:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99161DBC0E96BD6CEEBFCF58A5D2C6F27A9A5237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819799   (1204) от 24.09.2025
-
-Сергей Горбонос (Toter) | Дом Среди Звезд (Книга 3) (2025) [MP3, Олег Шитов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Старые дрязги облеченных властью не дают жить спокойно. Былые враги все еще живы и пытаются добиться своих целей, не считаясь с потерями. Космос так безграничен, что в нем все сложнее найти место для себя. Но не следует опускать руки и прерывать поиски. Если нельзя найти себе дом среди звезд, значит его следует построить самому.Жанр: Боевая фантастикаИздательство: ЛитРес: авторПродолжительность: 14:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E5345079FE6CFE76E6570D1F73C323BFEB0832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809576   (1196) от 24.09.2025
-
-Сергей Зверев | Спецназ ГРУ. Ледяной захват (2025) [MP3, Николай Науменко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Виктор Малюков работает тренером боевых тюленей. Он – автор уникальной методики обучения ластоногих при Мурманском биологическом институте. Однажды во время морской тренировки вблизи северной границы Виктора и его питомцев захватывают и переправляют к себе на базу норвежские диверсанты. Их цель – показать миру, что российский специалист добровольно перешел на сторону (   Читать дальше...   )Жанр: Боевик, спецслужбыИздательство: ЭксмоПродолжительность: 07:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B868601C6287A388C448D961A61E5C6430152A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819775   (1180) от 24.09.2025
 
 Сергей Лысак | Некомбатант (Книга 3). Неучтённый фактор (2025) [MP3, Александр Надеев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1180.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1175.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1010.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1009.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_987.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_968.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_963.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_818.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_794.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_790.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_788.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_780.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_776.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_772.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_766.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_765.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_764.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_758.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_753.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_751.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_749.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_748.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_746.jpg" />
 </div>
 
 
@@ -672,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3529B58E133154C7E8485AFC1FD73AAB8BBBA42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820117   (743) от 26.09.2025
+
+Дарья Донцова | Татьяна Сергеева. Детектив на диете (Книга 37). Амур с гранатой (2024) [MP3, Дина Бобылёва]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера Холодова бесконечно доверяла своему сожителю Сергею Кузнецову! И чем же он ей отплатил? Пара жила душа в душу. Сергей дарил подарки, купил щенка и котенка, обещал Вере настоящую свадьбу. И вот недавно, приехав с работы, Вера обнаруживает у дома чемоданы со своими вещами. Рядом котенка со щенком, привязанных к лавочке, и записку со словами: «Я вернусь! Зуб даю! (   Читать дальше...   )Жанр: Иронический детективИздательство: ЭксмоПродолжительность: 06:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6134B9C1B540BF771CDEC3B9407873699B07B513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820278   (576) от 27.09.2025
+
+Борис Конофальский | Буратино (Книга 1). Правда и вымысел (2025) [MP3, Алексей Исиевский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Якобы юмор. Писал книгу двадцать пят лет назад, сейчас мне книга кажется грубой, пошлой и самое неприятное, глупой. В общем я вас предупредил. Претензии не принимаются, деньги не возвращаются.Жанр: Фэнтези, юморИздательство: ЛитРесПродолжительность: 06:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAA303CE2F0F23A5BEC480373F0FA1D36513736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820493   (555) от 27.09.2025
+
+Артем Каменистый | Альфа-ноль (Книга 9). Кризис власти (2025) [MP3, Игорь Ященко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_555.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кризис власти» – фантастический роман Артема Каменистого, девятая книга цикла «Альфа-ноль», жанр РеалРПГ, боевое фэнтези, попаданцы в магические миры. Враги сильны, врагов много, враги наступают. А у меня нет припасов для армии, нет оружия для неё, и нет самой армии. Повсюду процветает чудовищная коррупция, государство наших союзников совершенно никем не управляется, (   Читать дальше...   )Жанр: Фэнтези, боевикИздательство: ИДДКПродолжительность: 08:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAEE922200AA800DA046C0A10FA866C87FD9F78D
 ```
 
 https://mybot314.ru/tekegram_catalog/

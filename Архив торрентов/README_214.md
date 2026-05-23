@@ -6,7 +6,7 @@ WhatsApp 2.2126.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007014.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Firefox Browser ESR 78.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007011.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sumatra PDF 3.4.13619 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007009.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Firefox Browser 90.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007006.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Extreme Picture Finder 3.55.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007003.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Brave Browser 1.26.74 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007002.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Path Finder 10 v10.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007001.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ DVDFab 12.0.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006999.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Cockos REAPER 6.32 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006998.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ WinX HD Video Converter Deluxe 5.16.3 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006995.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DesktopNoteOK 2.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006990.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Mozilla FireFox 90.0.0.7856 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006986.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Bulk Crap Uninstaller 5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006965.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ OEM Info Updater 9.4 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006961.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ CCleaner Pro: ПО для очистки 5.6.2 + 4.14.1 Lite-Mod by Balatan [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006956.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006953.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Wi-Fi Scanner 21.05 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006938.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Adobe Acrobat Pro DC 2021.005.20058 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006933.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Focus Professional 1.12.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006916.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Notebooks – Write and Organize 2 v2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006915.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Exposure Software Blow Up 3 v3.1.4.387 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006913.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ iMap Builder: Organisation 3.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006909.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Exposure Software Snap Art 4 v4.1.3.379 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006905.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Find Any File (FAF) 2.3.1 b2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006904.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ HoudahGeo 6 v6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006903.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Exposure X6 Bundle v6.0.8.210 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006895.jpg" />
 </div>
 
 

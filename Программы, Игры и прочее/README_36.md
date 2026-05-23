@@ -1,55 +1,3 @@
-###  Публикация: 1352096   (1001585) от 12.01.2020
-
-Shadow Fight 2 Special Edition v1.0.7 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Shadow Fight 2 Special Edition – продолжение одного из самых популярных мобильных файтингов, сиквел получил не только новую сюжетную линию, новые игровые возможности и массу совершенно нового контента, но и обновленную графику. Изначально проект вышел в Play Market в виде бесплатного приложения, что конечно же наложило свои особенности. Но вот разработчики порадовали (   Читать дальше...   )Тип издания: Мод Unlocked (Не ограниченное кол-во игровой валюты)Релиз состоялся: 17 августа 2017 годаРазработчик: NEKKIПоддерживаемая ОС: Android 4.1+Жанр: ЭкшенЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCB35818B2BAC6DB36AA447A9932D3D05031770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352082   (1001554) от 12.01.2020
-
-Terraria v1.3.0.7.6 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Terraria (Террария) – это знаменитая игра из жанра "песочница", которая появилась и на Андроид. Для каждого игрока создаётся свой уникальный мир, который вы пытаетесь пройти. Развивайте своего персонажа, находите новые виды оружия, сокрушайте боссов, стройте свой дом и старайтесь выжить любой ценой.Тип издания: Пиратка (Mod: активировано бессмертие)Релиз состоялся: 16 мая 2011 годаРазработчик: 505 Games SrlПоддерживаемая ОС: Android 4.0+Жанр: RPGЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D012998CA421A89E442614EDB4B21079763915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352062   (1001541) от 12.01.2020
 
 Fake GPS Location v3.5 [En/Ru]
@@ -58,7 +6,7 @@ Fake GPS Location v3.5 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001541.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Audio MP3 Cutter Mix Converter v1.90 Pro [Ru/Multi] - обрезка и конв
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001331.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Human: Fall Flat v1.0 build 34 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001260.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Geometry Dash v2.111 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001220.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ The Room (2012) v1.07 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000984.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ VK Coffee v8.00 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000973.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Need for Speed: Hot Pursuit v2.0.18 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000947.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ GRID Autosport v1.6RC9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000945.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Return To Castle Wolfenstein (RTCW) v2.1.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000933.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Empire Warriors Premium: Tactical TD Game v2.1.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000810.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Private Browser - Fast VPN Incognito Browser 3.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000797.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ GFX Tool for PUBG 8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000767.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Alien Shooter 2 - The Legend 2.2.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000764.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ WorkAudioBook v4.4.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000761.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Minecraft: Story Mode 1.37 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000755.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Need for Speed No Limits VR v1.0.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000747.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Need for Speed: Most Wanted v1.3.128 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000734.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ S.T.A.L.K.E.R. 1.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993030.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992619.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Cheat Engine 1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992449.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Call of Duty: Black Ops Zombies 1.0.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992386.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992311.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ Angry Birds Rio 2.6.13 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991812.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ Angry Birds Space 2.2.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991809.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ Angry Birds Space на Андроид – вроде бы злые птички 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D440618A90B8D68EF1AABFFC236D9B6F61125C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353352   (991806) от 18.01.2020
+
+Angry Birds Seasons 6.6.2 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angry Birds Seasons на Андроид – Это сборка самых различных уровней с разной сложностью и множеством интересных бонусов. Данная часть злых птиц вобрала в себя целую уйму всего, в ней более тысячи уровней что понравятся и закаленным ветеранам и зеленым новичкам! Задача наша проста и понятна как и всегда нужно уничтожать свиней при помощи своих злых птичек! Каждую (   Читать дальше...   )Тип издания: Мод (Unlocked)Релиз состоялся: 23.05.2018Разработчик: Rovio Entertainment CorporationПоддерживаемая ОС: Android 4.1+Жанр: АркадыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F155D73B21B716C369F13BB4F63C0FE4413F9B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353499   (991801) от 18.01.2020
+
+Angry Birds Star Wars 1.5.13 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angry Birds Star Wars – вот и появилась на свет новая часть Angry Birds от студии Rovio. Новый эпизод разворачивается в галактической вселенной, где главные герои злые птички и свиньи теперь в роли джедаев и ситхов. Сюжет Angry Birds Star Wars для android будет проходить по знаменитому фильму Звездные Войны, вы увидите героев фильма в новом обличье! Игра выполнена (   Читать дальше...   )Тип издания: Мод UnlockedРелиз состоялся: 31 августа 2018 г.Разработчик: Rovio Entertainment CorporationПоддерживаемая ОС: Android 4.1+Жанр: АркадыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23CF37E11982B9C898CEE02F6EF53B591A42073
 ```
 
 https://mybot314.ru/tekegram_catalog/

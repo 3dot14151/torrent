@@ -6,7 +6,7 @@ Amazing Slider 5.5 Enterprice [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589030.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shadow Defender 1.4.0.586 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589016.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AusLogics BoostSpeed 8.0.1.0 DC 07.07.2015 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589013.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Far Manager 3.0 build 4400 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589009.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Shadow Defender 1.4.0.586 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589008.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Opera GX 86.0.4363.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588995.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BitTorrent Sync 2.0.128 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588977.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Universal USB Installer 1.9.6.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588975.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AusLogics BoostSpeed 8.0.1.0 DC 07.07.2015 RePack (& Portable) by D!akov (Upd. 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588972.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Skype 8.83.0.409 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588959.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588952.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Windows 7 OEM Preinstallation Kit 6.1.7600.16385 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588943.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AusLogics BoostSpeed 8.0.1.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588942.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WYSIWYG Web Builder 10.4.1 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588938.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VMware Workstation 10.0.7 Build 2844087 Lite + VMware-tools 9.6.5 RePack by qazw
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588936.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ GoldWave 6.65 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588922.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Skype 8.83.0.409 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588912.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ IObit Uninstaller Pro 11.5.0.3 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588906.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Windows and Office Genuine ISO Verifier 11.10.28.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588890.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WSCC (Windows System Control Center) 7.0.1.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588886.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Ultimaker Cura 5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588882.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe Substance 3D Sampler 3.3.0 Build 1781 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588881.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ MAGIX SOUND FORGE Audio Studio 16.0.0.82 (x86/x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588879.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Hetman Partition Recovery 4.2 Home / Office / Commercial / Unlimited Edition ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588849.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Vivaldi 1.0.219.34 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588660.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588658.jpg" />
 </div>
 
 

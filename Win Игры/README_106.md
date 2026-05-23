@@ -1,29 +1,3 @@
-###  Публикация: 1387327   (849044) от 01.10.2021
-
-Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Those Who Remain вы окажетесь в самом центре захватывающего психологического ужастика, действие которого разворачивается в сонном городке Дормонт – отколовшегося от реальности городке, охваченном тьмой и последствиями поступков местных жителей. Преодолейте страшные, простирающиеся из темноты ужасы и переживите ночь в Дормонте, вместе с Эдвардом подвергнув испытанию (   Читать дальше...   )Тип издания: RepackРазработчик: Camel 101Жанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Немецкий, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57691813C9B1ACAD7D672A7BA4CA07D3DC6E64DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 770838   (848665) от 26.03.2014
 
 Pool Nation (2013) [Multi] (1.42hf/2dlc) SteamRip DWORD
@@ -32,7 +6,7 @@ Pool Nation (2013) [Multi] (1.42hf/2dlc) SteamRip DWORD
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848665.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Amygdala (2015) [En] (1.0/15.07.16) Repack Defuser222
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848488.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Amigdala (2016) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848227.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Crystal Rift (2016) [En] (1.2.4) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848224.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Mystery Tales 13: Til Death (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848170.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Winter Magic: Factory / Зимняя магия: Фабрика (2017) [Ru/Multi
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847936.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.4.5) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847802.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Rogue Warrior (2009) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847764.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Nightmares from the Deep 3: Davy Jones (2014) [En] Unofficial [Collector’s Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847474.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Coffee Noir - Business Detective Game (2021) [Multi] (1.01) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847354.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ In Sound Mind (2021) [Ru/Multi] (1.01.0916) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847280.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Living Legends 2: Frozen Beauty / Живые Легенды: Ледяная Кр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846975.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.73c/7dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846696.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Blue Sheep (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846435.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Layers of Fear (2016) [Ru/Multi] (5.1.3.48304/upd 2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846429.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ The Forest (2014) [Ru] (0.35d) Repack SpaceX
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846338.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Need for Speed Most Wanted (2012) [Ru/Multi] (1.5.0.0/dlc) License PLAZA [Limite
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846003.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Immortal Love 8: Sparkle of Talent / Бессмертная любовь 8: Ис
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845919.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845893.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Dap (2021) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845817.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Meridian 157 (2019-2021) [Ru/Multi] (1.0.6/1.0.6/1.0.6.0/1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845815.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ MotoGP™20 (2020) [En] (1.0) Repaсk xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845800.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ BELOW (2018) [Ru/Multi] (1.1.0.82) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845793.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Samudra (2021) [En] (7439019) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845715.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Rustler (2021) [Ru/Multi] (1.02.01) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845705.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Rustler — это игра в жанре экшен с открытым мир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05327EE611A5455B18D19A21E59F1F9DDAB03ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771359   (845206) от 28.03.2014
+
+Grim Legends: The Forsaken Bride / Зловещие легенды. Брошенная невеста (2014) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка приезжает на свадьбу сестры, но счастливое событие превращается в трагедию. На празднестве появляется огромный медведь и похищает невесту. Несчастный жених вместе с сестрой своей нареченной отправляется в погоню. Какие испытания и приключения придется пережить отважным преследователям? Начните это захватывающее приключение и спасите мир от Зла!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Artifex MundiЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4942950EA53DAE834749FFDB890157E9EAC7734F
 ```
 
 https://mybot314.ru/tekegram_catalog/

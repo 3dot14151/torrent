@@ -1,83 +1,3 @@
-###  Публикация: 1758362   (38471) от 02.11.2024
-
-Дмитрий Парсиев | РОС: Изнанка Империи (Книга 1). Кротовский, вы последний (2024) [MP3, Сергей Ермилов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Кто откажется стать графом в альтернативной Российской Империи? Почет, уважение, власть, родовой магический перстень… вот и я поначалу обрадовался…
-А оказалось, что в опальном роду я последний, особняк надо продавать на покрытие долгов, а магический дар у меня мусорный. И все кому не лень норовят отобрать последнее или вовсе сжить со света.
-Только я тертый калач… (   Читать дальше...   )Жанр: Историческая фантастика, Бояръ-Аниме, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 07:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4949F07A36F60CC87C037DA3FC675A33E6EE241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758358   (38470) от 02.11.2024
-
-Олег Сапфир, Дмитрий Ангор | Кракен (Книга 4). Орден Кракена 4 (2024) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я был знаменитым капитаном летающего корабля в своем прежнем мире. У меня была шикарная длинная борода, которой я гордился. Люди, и не только люди, знали, что если появляется Джон Кракен из Ордена Кракена со своей командой, бежать бесполезно, мы никогда не упускаем свою добычу. Но во время последней схватки с Роем проклятая временная червоточина засосала меня. Я (   Читать дальше...   )Жанр: Бояръ-аниме, Попаданцы, Юмористическое фэнтезиИздательство: Author TodayПродолжительность: 08:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098995709E4EA080FBEF06CAB354477E065543BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758365   (38469) от 02.11.2024
-
-Лев Ганкин | Хождение по звукам 2.0. От The Beatles до Билли Айлиш (2022) [MP3, Ганкин Лев]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В продолжении "Хождения по звукам" еще 33 истории о популярной музыке — по количеству оборотов, которые проделывает за минуту долгоиграющая пластинка. Это истории и о суперхитах, повлиявших на индустрию и изменивших ход современной культуры, и о недооцененных артистах, наконец-то занимающих на страницах этой книги заслуженное место по соседству с их более (   Читать дальше...   )Жанр: Культурология, Музыка, ПублицистикаИздательство: Аудиокнига АСТПродолжительность: 09:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CA82D34F1F8D3F0773A50278F34F45E84AD4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758573   (38445) от 03.11.2024
 
 Юрий Уленгов | Дэймон Старк (Книга 5). Бог из машины (2024) [MP3, Александр Иванов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38445.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38404.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38391.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38380.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38322.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38316.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38310.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38302.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38299.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38292.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38259.jpg" />
 </div>
 
 
@@ -374,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38229.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38216.jpg" />
 </div>
 
 
@@ -427,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38205.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38139.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38134.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38130.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38122.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38110.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38102.jpg" />
 </div>
 
 
@@ -617,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38094.jpg" />
 </div>
 
 
@@ -646,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38093.jpg" />
 </div>
 
 
@@ -672,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38080.jpg" />
 </div>
 
 
@@ -685,6 +605,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F4D14026D71FD52416AFCCE67DE6196F5A83EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759123   (38072) от 06.11.2024
+
+Артур Хейли | Вечерние новости (2021) [MP3, Дмитрий Оргин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Хейли (1920–2004) – канадский прозаик, создавший ряд бестселлеров, многие произведения были экранизированы.
+Роман «Вечерние новости» (другое название «Сенсация») написан в 1990 году.
+«Неужели у этих людей не осталось ничего человеческого? Неужели их не волнует, что происходит? Они что же, не способны ни чувствовать, ни сопереживать, не испытывают ни капли горя?» (   Читать дальше...   )Жанр: Зарубежная литература, романПеревод: Наталья Изосимова, Татьяна КудрявцеваИздательство: Студия «ГЛАГОЛ»Продолжительность: 24:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D285829A6B9D75FF265A3AEB136AA0F3AF9C2F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759134   (38070) от 06.11.2024
+
+Артур Хейли | Перегрузка (2021) [MP3, Дмитрий Оргин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Хейли (1920–2004) – канадский прозаик, создавший ряд бестселлеров, многие произведения были экранизированы.
+Роман «Перегрузка» написан в 1979 году.
+«…жизнь на осыпающемся краю пропасти»
+Электроэнергетика как она есть. И в центре – энергетическая компания Калифорнии перед лицом надвигающейся катастрофы. Всё нарастающая круговерть событий и людей: одни силятся (   Читать дальше...   )Жанр: Зарубежная литература, романПеревод: А. Козлов, А. Курдюков, Л. Крайненков, О. ДонИздательство: Студия «ГЛАГОЛ»Продолжительность: 22:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18182389B3754DA25456EEA0471ACD49D8F9681C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759017   (38066) от 06.11.2024
+
+Евгений Дубровин | Грибы на асфальте (2022) [MP3, Константин Суханов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сошлись несколько человек. Те, что институты окончили, а по распределению ехать неохота. Задумались буйные головушки: как быть? А очень просто. Надо жениться на дочерях начальства. И решили объединить свои усилия. Кто женится удачно – всех на хорошую работу устроит. Тут же распределили «объекты», назначили, в зависимости от степени вредности работы, оклады и выбрали (   Читать дальше...   )Жанр: Юмористическая прозаИздательство: Аудиокнига своими рукамиПродолжительность: 07:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BD1D3AE559D77A519F692A6C40438F2DCC6287
 ```
 
 https://mybot314.ru/tekegram_catalog/

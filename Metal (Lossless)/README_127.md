@@ -6,7 +6,7 @@ Fractal Gates - The Light That Shines (2018) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567952.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Houwitser - Death... But Not Buried (1998) [FLAC|Lossless|image + .cue] <Brutal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567506.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fatal Embrace - Slaughter To Survive (2015) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567460.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dampf - The Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567359.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Blood Red Throne - Union Of Flesh And Machine (2016) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567293.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Darklands - Darklands (1998) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566004.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Heretic Order - Evil Rising (2018) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566003.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Subterranean Masquerade - Suspended Animation Dreams (2005) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565789.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Islander - Power Under Control (2016) [FLAC|Lossless|image + .cue] <Alt.Metal, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565657.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Powerized ‎ - The Mirror's Eye (2018) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565561.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Healing - Elevate (2016) EP [FLAC|Lossless|tracks + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565556.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Heavenwood - The Tarot Of The Bohemians [Pt.1] (2016) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565543.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sinister - Dark Memorials (2015) Limited Edition [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565533.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Russian Circles - Guidance (2016) [FLAC|Lossless|tracks + .cue] <Post-Rock, Post
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565488.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Unearth - III: In the Eyes of Fire (2006) [FLAC|Lossless|image + .cue] <Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565364.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Raging Fury - Grotesque Masked Krusher (2019) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565349.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Nula - So Zemlje (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565343.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Paddy And The Rats - Riot City Outlaws (2007) [APE|Lossless|image + .cue] <Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565328.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Stardown - Empathy (2021) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565314.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Extreme Attack - ...in the Name of Thrash Metal (2013) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565305.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Twisted Sister - Metal Meltdown (2016) Live [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565303.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Desecresy - The Doom Skeptron (2012) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565284.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Nowen - Essence of Fear (2012) [FLAC|Lossless]<Death Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565280.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ The Forsaken - Beyond Redemption (2012) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565235.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Sinister - Deformation Of The Holy Realm (2020) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565217.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Inverted Virtue - Railroad To Hell (2021) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565207.jpg" />
 </div>
 
 

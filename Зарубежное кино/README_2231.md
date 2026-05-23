@@ -1,55 +1,3 @@
-###  Публикация: 1781155   (26930) от 21.02.2025
-
-Борец. Кажымукан – чемпион мира / Qajymuqan (2024) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Кажымукан Мунайтпасов родился в 1871 году в бедной семье. Он с детства начал батрачить у баев, поражая господ своей богатырской силой. О юноше слагали легенды, рассказывали, что он в одиночку может достать быка из болота и съесть целого барана. К 17 годам слава о его силе гремела далеко за пределами аула. Кажымукан отправляется в Омск и без подготовки принимает участие (   Читать дальше...   )Производство: Казахстан / Казах-Синема, Бозок ФилмЖанр: спорт, биографияРежиссер: Канагат МустафинАктеры: Влад Букаткин, Ербол Толепберген, Диас Толепберген, Акиф Петров, Анжелика БарчанЯзык озвучки: РусскийСубтитры: Русские (forced, hardsub)Продолжительность: 01:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5E21D67D2C803F4829B9D7F055F13B7E15E95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781053   (26899) от 21.02.2025
-
-Румпельштильцхен / Rumpelstiltskin (1995) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Похититель детей, отвратительный, злобный карлик - горбун Румпельштильцхен пролежал на дне морском, проклятый доброй волшебницей, с 15 века до наших дней. Его, превратившегося в зеленоватый камень, покупает в антикварном магазине вдова убитого бандитом полицейского, оставшаяся одна с малюткой-сыном. Продавщица, похожая на ведьму, сказала, что камень выполняет желания. (   Читать дальше...   )Производство: США, Republic Pictures (II)Жанр: ужасы, фэнтези, комедияРежиссер: Марк ДжонсАктеры: Ким Джонстон Ульрих, Томми Блэйз, Эллис Бисли, Макс Гроденчик, Вера Локвуд, Джей Пикетт, Шерман Огастас, Валери Уайлдмен, Джек МакГи, Марк ХолтонПеревод: многоголосый, авторский, , любительский двухголосый, любительский одноголосыйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), (Full, SDH)Продолжительность: 01:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE68DFD706E6ED274C4B5C67B3E3CD2CEB524D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781045   (26893) от 21.02.2025
 
 Борец. Кажымукан – чемпион мира (2024) WEBRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26893.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Re: Китайская одиссея 2. Золушка / Sai yau gei: Sin leui 
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26883.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26869.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26829.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26824.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26795.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26773.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26745.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26724.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26716.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26692.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26684.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26681.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26669.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26668.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26667.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26661.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26591.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26548.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26536.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26528.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26519.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26488.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26483.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F65F35A974451A16079C5D5477F18E4B0DEF579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781929   (26402) от 26.02.2025
+
+След киллера / Damaged (2024) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полиция Чикаго так и не смогла поймать серийного убийцу, который несколько лет держал город в страхе. Но однажды он исчез — так же неожиданно, как и появился. Все забыли о жестоком преступнике. Все, кроме детектива, который расследовал его дело. Спустя пять лет в Шотландии начали происходить убийства с тем же почерком. Детективу придется отправиться на другой конец (   Читать дальше...   )Производство: США, Великобритания / BondIt, Extra People, High Five Films, Red Sea Media, StreamdigitalЖанр: боевик, триллер, драма, криминал, детективРежиссер: Терри МакдонаАктеры: Сэмюэл Л. Джексон, Венсан Кассель, Джанни Капальди, Кейт Дики, Джон Ханна, Лора Хэддок, Брайан Маккарди, Илэйн С. Смит, Брайан Петтифер, Роберт ДжекПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C84EC7F59EDA3B8BD5E1445E107EEE82D51EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782055   (26398) от 26.02.2025
+
+Верзила / The Tall Man (2012) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26398.jpg" />
+</div>
+
+
+###  Подробнее
+
+В американском городе Колд Рок на протяжении многих лет дети пропадают без вести. Местная легенда гласит, что их забирает к себе таинственный высокий человек. Жительница Колд Рок, медсестра Джулия, не верит в эти легенды, но ровно до тех пор, пока однажды ночью не обнаруживает, что кровать её сына пуста. Спустившись на первый этаж, она в ужасе видит, как некая тёмная (   Читать дальше...   )Производство: Канада, Франция / Canadian Film or Video Production Tax Credit (CPTC), Canal+Жанр: ужасы, триллер, драма, криминал, детективРежиссер: Паскаль ЛожьеАктеры: Джессика Бил, Джоделль Ферланд, Коллин Вилер, Стивен Макхэтти, Джейкоб Дейвис, Уильям Б. Дэвис, Ив Харлоу, Саманта Феррис, Джанет Райт, Гарвин СанфордПеревод: профессиональный многоголосый (R5), любительский двухголосый(den904 & DeadSno по субтитрам Janetta), авторский (Антон Карповский)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F6EF444E03A9E29DD2810FBBBFB4BD7025DEE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

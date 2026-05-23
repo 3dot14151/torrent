@@ -6,7 +6,7 @@ STDU Viewer 1.5.449 [Multilanguage (Русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512840.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCleaner 5.09.5343 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512808.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EximiousSoft Business Card Designer v.5.03 RePack by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512802.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ ProgDVB 7.10.6 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512800.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ K-Lite Codec Pack 14.4.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512747.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wondershare Recoverit 7.1.4.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512745.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VOCALOID5 Editor 5.0.2 Repack by csf22 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512735.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ CCleaner Professional / Business / Technician 5.09.5343 + PortableAppZ [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512725.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ IObit Uninstaller 5.0.3.171 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512713.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Calibre 3.46.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512709.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MAGIX Sound Forge Pro Suite 13.0 Build 96 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512706.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AIDA64 Extreme / Engineer Edition 5.30.3529 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512666.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ TheAeroClock 3.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512644.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Freemake Video Converter 4.1.7.0 repack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512642.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Photomatix Pro 6.1.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512617.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512610.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512605.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ CCleaner 5.09.5343 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512579.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SketchUp Pro 2019 19.2.222 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512551.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Destroy Windows 10 Spying 1.5 Build 314 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512497.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VMware Workstation Player 12.0.0 build 2985596 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512492.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ K-Lite Codec Pack Update 17.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512454.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Privacy Eraser Free 5.25.0 Build 4265 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512451.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Ircam Lab - The Snail 1.4.0 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512448.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Chromium 103.0.5060.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512443.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ IK Multimedia - MixBox 1.5.0 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512440.jpg" />
 </div>
 
 

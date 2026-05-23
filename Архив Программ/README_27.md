@@ -6,7 +6,7 @@ Kaspersky Small Office Security 21.9.6.465 (offline cache) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040434.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent Pro 3.6.0 Build 46682 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040433.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ StartIsBack++ 2.9.8 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040419.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ UltraUXThemePatcher 4.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040413.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Privacy Eraser Free 5.34.0 Build 4444 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040395.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CudaText 1.121.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040367.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Opera 73.0.3856.329 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040366.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Text Editor Pro 14.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040365.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Firefox Browser ESR 102.8.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040357.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NIUBI Partition Editor 9.3.6 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040355.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FBackup 9.8.725 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040350.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Firefox Browser ESR 102.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040348.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Firefox Browser 110.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040346.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sumatra PDF 3.5.15301 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040343.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Opera GX 72.0.3815.465 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040342.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ CherryTree 0.99.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040338.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ RedNotebook 2.29.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040305.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ USB Device Tree Viewer 3.5.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040300.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ WifiInfoView 2.67 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040287.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040277.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Microsoft Visual C++ Runtimes AIO v0.42.0 (x86-x64) Repack by @burfadel, @rickte
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040269.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5529.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040236.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.1265]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040234.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ CCleaner 6.09.10300 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040233.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Total Commander 9.51 64bit 32bit VIM 42 Matros portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040217.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Skype 8.93.0.408 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040173.jpg" />
 </div>
 
 

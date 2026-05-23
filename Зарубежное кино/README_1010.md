@@ -1,59 +1,3 @@
-###  Публикация: 224863   (569028) от 06.08.2010
-
-Соседка / The Girl Next Door (2004) DVDRip (Расширенная версия)
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Меттью, мечтая о карьере политика, между тем обнаруживает, что у него появилась новая соседка, неотразимая 19-летняя блондинка Дениэль. Цветочно-конфетная стадия пролетает мимолетно, и вот уже ослепленной любовью Меттью уверен, что он нашел женщину всей своей жизни.
-
-Каково же было его изумление, когда он вместе со всем городом узнаёт, что она — бывшая (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Люк ГринфилдАктеры: Эмиль Хирш, Элиша Катберт, Тимоти Олифант, Джеймс Римар, Крис Маркетт, Пол Дано, Тимоти Боттомс, Донна Баллок, Джейкоб Янг, Брайан Колодзей и др.Перевод: Дублированный русскийФормат: AVIПродолжительность: 01:49:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529115   (568975) от 30.07.2012
-
-Большие парни / Big Bully (1996) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дэвид (РИК МОРАНИС) — преуспевающий писатель. Приняв предложение преподавать литературу в своей бывшей школе, Дэвид надеется уделять больше внимания сыну Бену, который растет отъявленным хулиганом. Это тем более странно, что Дэвида в школьные годы били и дразнили все кому не лень.
-Но самое забавное начинается, когда его вызывают в школу к классному руководителю Бена — папе мальчика, которого избил сын Дэвида. В нем Дэвид узнает своего старого школьного обидчика, по прозвищу «Клык» (ТОМ АРНОЛЬД).
-И оба папаши, совсем потеряв голову, начинают охотиться друг за другом, переплюнув при этом самые отчаянные хулиганские выходки своего «трудного детства»…Жанр: КомедияРежиссер: Стив МайнерАктеры: Рик Морэнис, Том Арнольд, Джулианна Филлипс, Кэрол Кейн, Джефри Тэмбор, Кертис Армстронг, Фэйт Принс, Тони Пирс, Дон Ноттс, Блейк БэшоффПеревод: Многоголосый закадровыйПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46206D008F72D986E2813B8BD02D9DB05E829007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 812791   (568955) от 15.08.2014
 
 Комната служанки / The Maid s Room (2013) WEB-DLRip [H.264/720p-LQ] [VO]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568955.jpg" />
 </div>
 
 
@@ -89,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568641.jpg" />
 </div>
 
 
@@ -116,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568616.jpg" />
 </div>
 
 
@@ -143,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568590.jpg" />
 </div>
 
 
@@ -169,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568516.jpg" />
 </div>
 
 
@@ -196,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568506.jpg" />
 </div>
 
 
@@ -222,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568502.jpg" />
 </div>
 
 
@@ -248,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568475.jpg" />
 </div>
 
 
@@ -274,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568455.jpg" />
 </div>
 
 
@@ -300,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568450.jpg" />
 </div>
 
 
@@ -326,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568448.jpg" />
 </div>
 
 
@@ -352,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568427.jpg" />
 </div>
 
 
@@ -378,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568425.jpg" />
 </div>
 
 
@@ -405,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568417.jpg" />
 </div>
 
 
@@ -431,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568414.jpg" />
 </div>
 
 
@@ -457,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568408.jpg" />
 </div>
 
 
@@ -483,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568407.jpg" />
 </div>
 
 
@@ -511,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568406.jpg" />
 </div>
 
 
@@ -538,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568400.jpg" />
 </div>
 
 
@@ -564,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568397.jpg" />
 </div>
 
 
@@ -590,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568394.jpg" />
 </div>
 
 
@@ -616,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568392.jpg" />
 </div>
 
 
@@ -642,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568391.jpg" />
 </div>
 
 
@@ -668,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568386.jpg" />
 </div>
 
 
@@ -679,6 +623,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF7133F5258A834B4A6260D947D63A33249E683F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303970   (568383) от 23.05.2019
+
+Все о Нине / All About Nina (2018) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568383.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о стендап-комике Нине Гельд, чья карьера на взлёте, а вот личная жизнь представляет собой полную катастрофу. Чтобы сбежать от проблематичного бывшего и подготовиться к крайне важному прослушиванию, Нина отправляется в Лос-Анджелес, где встречает Рейфа — и он ставит её жизнь с ног на голову.Производство: США / Diablo EntertainmentЖанр: Драма, комедияРежиссер: Эва ВивесАктеры: Мэри Элизабет Уинстэд, Коммон, Чейс Кроуфорд, Камрин Менхейм, Джей Мор, Минди Стерлинг, Анжелика Кебрал, Клеа ДюВалл, Кейт дель Кастильо, Бо БриджесПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA7EB227ED30E80D58A672775A18187AD8D1851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529168   (568378) от 30.07.2012
+
+Джонни Д. / Public Enemies (2009) [H.264] HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма повествует о легендарном грабителе банков Джоне Диллинджере. Дерзкие нападения сделали его выдающимся героем для всех угнетенных и главной мишенью для лучшего агента ФБР Мелвина Первиса и директора бюро Джона Эдгара Гувера. Никто не мог остановить банду Диллинджера. Ни одна тюрьма не могла его удержать. Обаяние и отчаянные побеги прославляли преступника в обществе, считавшем банки главной причиной Великой депрессии.
+
+В то время, как приключения лихой банды, к которой примкнули Малыш Нельсон и Элвин Карпис, вдохновляли обозленных граждан, Гувер решил воспользоваться случаем и превратить Бюро расследований в главную правоохранительную организацию страны — ФБР. Он сделал Диллинджера самым опасным врагом Америки, а спасителем нарек Первиса, гордость Федерального бюро.Жанр: Драма, криминал, биография, историяРежиссер: Майкл МаннАктеры: Джонни Депп,Перевод: Профессиональный (полное дублирование)Продолжительность: 02:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C07513C7825A53340DD849F530CE5BD12D48572
 ```
 
 https://mybot314.ru/tekegram_catalog/

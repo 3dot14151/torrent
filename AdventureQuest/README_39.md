@@ -1,29 +1,3 @@
-###  Публикация: 929326   (519251) от 19.08.2015
-
-Dream (2013) [Ru/Multi] (1.12) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Dream - игра-исследование, действие которой происходит в подсознании Говарда Филлипса, молодого человека, будни которого скучны и утомительны, а сны - ярки и полны новых, неизведанных возможностей. Пройдите по этим абстрактным мирам, примите их вызов и раскройте все секреты в поисках ключа к будущему Говарда.Тип издания: RepackРазработчик: HyperSlothЖанр: Adventure / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A716CA2226FBCB7F5B000E61813FCB40FB505DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229014   (516754) от 16.07.2019
 
 Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.6.1) License CODEX
@@ -32,7 +6,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.6.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516754.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mechanism (2018) [Ru/Multi] (1.0.6) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515938.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Long Dark (2017) [Ru/Multi] (1.56.49966/dlc) License PLAZA [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515700.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Experience 112 [Ru/En] (RePack/1.0) 2008 | Sash HD
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515356.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514801.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Journey (2019) [Ru/Multi] (1.47) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513543.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Planet of the Apes: Last Frontier (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512627.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ ENKI (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512493.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512117.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Corpse of Discovery (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511544.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Runaway Антология [Ru] (RePack) 2002-2009 | R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509926.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ VANE (2019) [Multi] (1.0/dlc) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508660.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ VANE (2019) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508625.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507777.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Dead In Bermuda (2015) [En/Fr] (1.01) Repack ALIAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506847.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ STASIS (2015) [Ru/Multi] (1.04.0928) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506832.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак Прошлого [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506055.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ Valiant Hearts: The Great War (2014) [Ru/En] (1.1.150818) Rip West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503053.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ Valiant Hearts: The Great War (2014) [Ru/Multi] (1.1.150818) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503049.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ MADiSON (2022) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502218.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ CENTRALIA (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502050.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ CENTRALIA (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502045.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500269.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ MADiSON (2022) [Ru/Multi] (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500259.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Syberia 2 / Сибирь 2 (2004) [Ru/Multi] (1.0.0.10) Repack Cheshire28
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498952.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ Syberia 2 / Сибирь 2 (2004) [Ru/Multi] (1.0.0.10) Repack Cheshire28
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD75BB56A386D325549B797B9198F0E8F979914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317880   (498428) от 03.08.2019
+
+7th Sector (2019) [Ru/Multi] (1.0.4/dlc) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498428.jpg" />
+</div>
+
+
+###  Подробнее
+
+7th Sector предлагает Вам погрузиться в загадочный мир киберпанка и преодолеть непростой путь, решая разнообразные технические задачи, сталкиваясь с опасностями и собирая по крупицам информацию о мире и происходящих в нем событиях. В этом путешествии Вам предстоит управлять несколькими "персонажами" со своими уникальными способностями и подключаться к различным (   Читать дальше...   )Тип издания: LicenseРазработчик: Носков СергейЖанр: Adventure, Puzzle, Logic, 3DЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558392B4D41D299A75BC0902C35AB192BA4046C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

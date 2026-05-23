@@ -6,7 +6,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868606.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hornil StylePix 2.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868605.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868602.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Openzone Bar - Limestone (2015) [FLAC|Lossless|tracks] <Chill Out>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868588.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Vanir - Aldar Rok (2016) [FLAC|Lossless|image + .cue] <Viking, Folk Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868574.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Ciro Visone - Fantasia (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868569.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Balsamiq Mockups For Desktop 3.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868535.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868529.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Ancient Future - Asian Fusion (1993) [FLAC|Lossless|tracks] <Folk, World, New Ag
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868515.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Armada Captivating in Miami (2016) [MP3|320 кб/с] <Trance, Progressive H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868514.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ AutoHideMouseCursor 2.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868509.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Curio 10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868504.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ VA - A State Of Trance Radio Top 20 March / April (2016) [MP3|320 кб/с] <Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868500.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ qBittorrent 4.2.3 Dark (x64) Repack by SuratovVlad [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868473.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Brett - Mode (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indietronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868448.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Chris Liebing - AM.FM 001 - 053 (2015-2016) [MP3|320 кб/с] <Techno, Tech-Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868443.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868408.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Precision Selection Vol 1 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868407.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ MeinPlatz 4.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868402.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ DomainHostingView 1.72 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868400.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868393.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ IsMyHdOK 1.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868392.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ BrowsingHistoryView 1.85 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868390.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - House Vip (30.03.10) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868370.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ qBittorrent 3.1.12 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868361.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Permute 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868345.jpg" />
 </div>
 
 

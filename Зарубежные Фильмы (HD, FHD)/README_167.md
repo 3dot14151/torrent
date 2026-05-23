@@ -1,60 +1,3 @@
-###  Публикация: 754233   (932808) от 07.02.2014
-
-Гравитация / Gravity (2013) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Доктор Райан Стоун, блестящий специалист в области медицинского инжиниринга, отправляется в свою первую космическую миссию под командованием ветерана астронавтики Мэтта Ковальски, для которого этот полет — последний перед отставкой. Но во время, казалось бы, рутинной работы за бортом случается катастрофа.
- Шаттл уничтожен, а Стоун и Ковальски остаются совершенно одни; (   Читать дальше...   )Производство: США, Warner Bros., Esperanto Filmoj, Heyday FilmsЖанр: Фантастика, Триллер, ДрамаРежиссер: Альфонсо КуаронАктеры: Сандра Буллок, Джордж Клуни, Эд Харрис, Орто Игнатиуссен, Пол Шарма, Эми Уоррен, Башер СаважПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 01:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA21C0EB169EE8448D7BE7602F33FB96AE99754F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753759   (932805) от 07.02.2014
-
-Кровавый алмаз / Blood Diamond (2006) BDRip [H.264/720p-LQ]  [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1999, Сьерра-Леоне. Гражданская война. Кровь и хаос. В этой безрадостной атмосфере орудует ловкий контрабандист, специальность которого - бриллианты. Ему нет особенного дела, что эти камешки используются для дальнейшего нагнетания межнациональной розни.
-Но однажды контрабандист встречает местного фермера, у которого пропал сын - его, говорят, забрали в «детскую армию», (   Читать дальше...   )Жанр: Триллер, Драма, ПриключенияРежиссер: Эдвард ЦвикАктеры: Леонардо ДиКаприо, Джимон Хунсу, Дженнифер Коннелли, Карузо Кеперс, Арнольд Вослоу, Энтони Коулмэн, Бену Мабхена, Анойнтинг Лукола, Дэвид Хэрвуд, Бейзил УоллесПеревод: Профессиональный (дублированный), Профессиональный (двухголосый, закадровый), Авторский (одноголосый, закадровый)x3Язык субтитров: Русский, АнглийскийФормат: MKV
-Видео: MPEG-4 AVC/H.264, 1280x532(2,40:1), 23.976fps, 2313 Кbps, 0.142bit/pixel
-Аудио 1: DUB Russian, AC3, 6ch, 48 kHz, 448 kbps, (Дубляж - CEE)
-Аудио 2: DVO Russian, AC3, 6ch, 48 kHz, 448 kbps, (Двухголосый - Гланц и Королёва) - Отдельным файлом(   Читать дальше...   )Продолжительность: 02:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D5BB26BEA49BC27F92D6E9026E8D2B02201C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861848   (932800) от 21.01.2015
 
 Мир, созданный без изъяна / The World Made Straight (2015) WEBRip [H.264/720p] [VO]
@@ -63,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932800.jpg" />
 </div>
 
 
@@ -89,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932780.jpg" />
 </div>
 
 
@@ -115,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932750.jpg" />
 </div>
 
 
@@ -142,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932746.jpg" />
 </div>
 
 
@@ -168,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932690.jpg" />
 </div>
 
 
@@ -194,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932651.jpg" />
 </div>
 
 
@@ -220,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932420.jpg" />
 </div>
 
 
@@ -246,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931950.jpg" />
 </div>
 
 
@@ -272,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931942.jpg" />
 </div>
 
 
@@ -298,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931911.jpg" />
 </div>
 
 
@@ -324,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931904.jpg" />
 </div>
 
 
@@ -352,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931778.jpg" />
 </div>
 
 
@@ -378,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931724.jpg" />
 </div>
 
 
@@ -405,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931705.jpg" />
 </div>
 
 
@@ -431,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931646.jpg" />
 </div>
 
 
@@ -457,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931629.jpg" />
 </div>
 
 
@@ -483,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931587.jpg" />
 </div>
 
 
@@ -509,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931499.jpg" />
 </div>
 
 
@@ -535,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931493.jpg" />
 </div>
 
 
@@ -561,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931487.jpg" />
 </div>
 
 
@@ -587,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931468.jpg" />
 </div>
 
 
@@ -613,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931458.jpg" />
 </div>
 
 
@@ -639,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931440.jpg" />
 </div>
 
 
@@ -665,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931411.jpg" />
 </div>
 
 
@@ -677,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8020CB6E2F40428EF68168CCAFFA032F612748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365117   (931396) от 06.03.2020
+
+Дочь волка / Daughter of the Wolf (2019) BDRip [H.264/1080p] [VO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клэр — бывший военный специалист, которая большую часть своей жизни посвятила работе. Узнав о смерти отца, она отправилась в родной город на похороны. Связь с родными женщина поддерживала по телефону, но ее не покидали нехорошие предчувствия. К сожалению, интуиция никогда не подводила ее, и, вернувшись домой, она поняла, что ее тринадцатилетний сын пропал. Его телефон (   Читать дальше...   )Производство: Канада / Falconer Pictures, Minds Eye Entertainment, VMI WorldwideЖанр: боевик, триллерРежиссер: Дэвид ХэклАктеры: Джина Карано, Ричард Дрейфусс, Брендан Фер, Сидель Ноэль, Антон Гиллис-Адельман, Брок Морган, Stew McLean, Джошуа МердокПеревод: Одноголосый любительский (datynet)Субтитры: АнглийскиеПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9593012927195DCABD3A18994EBA081FEE7AF37A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365061   (931389) от 06.03.2020
+
+Прекрасный день по соседству / A Beautiful Day in the Neighborhood (2019) BDRip [H.264/1080p] [AVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931389.jpg" />
+</div>
+
+
+###  Подробнее
+
+1988 год. Журналист Ллойд Вогел, известный своими разоблачительными статьями, получает задание взять интервью у ведущего популярной детской передачи Фреда Роджерса. Сам Вогел с детства обижен на отца, цинично смотрит на мир, поэтому считает чересчур вежливого кумира детей неподходящим кандидатом для исследования. Но после личного знакомства неубиваемое стремление (   Читать дальше...   )Производство: Китай, США / Big Beach Films, Tencent Pictures, TriStar PicturesЖанр: драма, биографияРежиссер: Мариэль ХеллерАктеры: Том Хэнкс, Мэттью Риз, Крис Купер, Сьюзэн Келечи Уотсон, Марианн Планкетт, Энрико Колантони, Уэнди Маккена, Тэмми Бланчард, Ной Харпстер, Carmen CusackПеревод: Двуголосый любительский (LakeFilms), Авторский одноголосый (В. Назаров)Субтитры: Русские, Английские, УкраинскиеПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CA2315A40EABCA1E7DCA55D4C430F38D0229D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

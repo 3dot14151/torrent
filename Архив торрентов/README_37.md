@@ -6,7 +6,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5529.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040236.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.1265]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040234.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ CCleaner 6.09.10300 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040233.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Neon Abyss (2020) [Ru/Multi] (1.5.0.0src/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040227.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Udemy, Dr. Angela Yu | The Complete 2020 Flutter Development Bootcamp with Dart 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040218.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Total Commander 9.51 64bit 32bit VIM 42 Matros portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040217.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Nova 4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040196.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Cookie 6.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040195.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ QLab 4 v4.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040194.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VisualDiffer 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040193.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Amadine 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040192.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Alfred 4 Powerpack 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040190.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Grid 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040189.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ WinX DVD Ripper for Mac 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040184.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Skype 8.93.0.408 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040173.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Perfectly Clear WorkBench 4.3.0.2423 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040168.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Monkey's Audio 9.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040164.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Avdshare Video Converter for Mac 7.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040163.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ iWork Converter 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040157.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ FotoJet Photo Editor 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040155.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Avdshare Audio Converter for Mac 7.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040152.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Blocs 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040151.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ SiteSucker 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040150.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Bigasoft Audio Converter for Mac 5.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040144.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ RJ TextEd 15.80.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040137.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Hallo northern sky 4.2.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040135.jpg" />
 </div>
 
 

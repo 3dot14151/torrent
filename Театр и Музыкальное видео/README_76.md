@@ -1,107 +1,3 @@
-###  Публикация: 1314439   (519371) от 14.07.2019
-
-Квартирник НТВ у Маргулиса. Рожден Ануси (13.07.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске в гости к Евгению Маргулису пришел известный украинский певец и саунд-продюсер Рожден Ануси, который выступает под именем ROZHDEN. Российской публике он известен такими композициями, как «Знаешь», «Без тебя, "Пустяк"», «Герой», «Ни ты, ни я». Рожден поделился интересными воспоминаниями из творческой жизни, и исполнил свои лучшие композиции. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A18F0CCDB06946BD04A71C07AFEAAB08D8A27C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314381   (519272) от 14.07.2019
-
-Славянский базар в Витебске. Песнярам - 50  (12.07.2019) HDTVRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Песняры» — советский вокально-инструментальный ансамбль под управлением Владимира Мулявина. Широкой аудитории он известен по песням «Белоруссия», «Беловежская пуща», «Александрина», «Вологда», «Косил Ясь конюшину» и другими. Славу ансамблю принесли авторские и народные композиции, в аранжировках которых использована исконно славянская песенная культура. Началом (   Читать дальше...   )Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C71492860EE84AC7A8C318CBDDB2DFDBB40525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928252   (519253) от 19.08.2015
-
-Интим не предлагать! (2013) HDTVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Острейшая комедия отношений, которая использует секс как фон, чтобы исследовать человеческие эмоции через доверие и уязвимость. Это - юмористический и честный взгляд на сложность современных повседневных личных отношений. Этот спектакль отличная прививка от снобизма и подзатыльник "семейному" ханжеству. Понятие Пост Коитум означает блаженная истома, наступающая (   Читать дальше...   )Производство: Украина, Киевский театр-студия импровизации «Чёрный Квадрат»Жанр: КомедияРежиссер: Анатолий НеёловАктеры: Алексей Курилко, Оксана Брагинец, Анатолий Неелов, Вячеслав Никоноров, Ксения Полухина, Ирина Андреева, Руслан ИваненкоПродолжительность: 01:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F528247BD1F4D7E401FE7F12074826E08719D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314459   (519040) от 14.07.2019
-
-Три тенора: Каррерас, Доминго и Паваротти - Первый концерт / The Original Three Tenors Concert (Carreras Domingo Pavarotti in Concert) (1990) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Первый концерт Каррерас, Доминго и Паваротти на развалинах древнеримских Терм Каракаллы. Съёмка проходит в живописных руинах, напоминающих развалины древнего замка, в действительности - ''Термы Каракаллы'', красно-кирпичные руины Caracalla лежат к юго-востоку от центра древнего Рима. Действие великолепно вписывается в ни с чем несравнимую атмосферу древности...Производство: СШАЖанр: ОпераРежиссер: Брайан ЛарджАктеры: Хосе Каррерас, Пласидо Доминго, Лучано Паваротти, Зубин МетаПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B1235B3109F5014811A996C9D710F2109B0996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929576   (518342) от 20.08.2015
 
 Anathema – Universal (2013) BDRip [H.264/1080p]
@@ -110,7 +6,7 @@ Anathema – Universal (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518342.jpg" />
 </div>
 
 
@@ -139,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518261.jpg" />
 </div>
 
 
@@ -167,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518229.jpg" />
 </div>
 
 
@@ -193,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518167.jpg" />
 </div>
 
 
@@ -224,7 +120,7 @@ EMERSON LAKE & PALMER "Live at the Royal Albert Hall" (1993) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517624.jpg" />
 </div>
 
 
@@ -253,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517338.jpg" />
 </div>
 
 
@@ -281,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517238.jpg" />
 </div>
 
 
@@ -312,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517216.jpg" />
 </div>
 
 
@@ -340,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517033.jpg" />
 </div>
 
 
@@ -367,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516593.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ VA - Летний марафон № 184 / (Марафон Русских Хит
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516146.jpg" />
 </div>
 
 
@@ -425,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516056.jpg" />
 </div>
 
 
@@ -451,7 +347,7 @@ Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516008.jpg" />
 </div>
 
 
@@ -480,7 +376,7 @@ DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515569.jpg" />
 </div>
 
 
@@ -506,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515495.jpg" />
 </div>
 
 
@@ -543,7 +439,7 @@ Slipknot / Live At Download (2009/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515357.jpg" />
 </div>
 
 
@@ -569,7 +465,7 @@ Led Zeppelin - The Song Remains The Same (1976) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515279.jpg" />
 </div>
 
 
@@ -598,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515246.jpg" />
 </div>
 
 
@@ -627,7 +523,7 @@ Scorpions - Live At Wacken Open Air (2006) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515148.jpg" />
 </div>
 
 
@@ -656,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515080.jpg" />
 </div>
 
 
@@ -685,7 +581,7 @@ Scorpions - Acoustica (2001) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515067.jpg" />
 </div>
 
 
@@ -714,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514931.jpg" />
 </div>
 
 
@@ -728,6 +624,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA4D74F5FD3CB868743FA5F66444123E34C83888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299765   (514359) от 18.08.2012
+
+Hurts - Live in SWR3 New Pop Festival (2010) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Hurts на фестивале немецкой радиостанции SWR3 Баден-Баден, Германия.01. Silver Lining
+02. Sunday
+03. Happiness
+04. Blood, Tears & Gold(   Читать дальше...   )Жанр: Концерт, SynthpopПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8105704BE0619717610432A2F4ADFB7237AD79D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930893   (513869) от 24.08.2015
+
+VA - Летний марафон № 185 / (Новый Хитовый Сборник) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (23.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 5 Seconds Of Summer - She's Kinda Hot (Official Video) (00:04:05)
+2. Achtabahn - To The King (Official Video) (00:02:54)
+3. Amure - Horses (Official Video) (00:05:15)
+4. Black Fox ft. Dj Chris Parker - Live show (Official Video) (00:07:32)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, House, ProgressiveПродолжительность: 01:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF80D2CFECA00A81D7119D8775A6567A5C7B09A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930584   (513660) от 24.08.2015
+
+Muse - Live At Rome Olympic Stadium (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертная запись и альбом английской альтернатив-рок группы Muse, выпущенный 29 ноября 2013 года в CD/DVD и Blu-ray форматах. 5 ноября также фильм был показан в 20 городах по всему миру, а на следующую ночь еще в 40 разных местах. Альбом содержит выступление группы на Stadio Olimpico в Риме, которое состоялось 6 июля 2013 года с аудиторией более чем в 60 тысяч человек.01. Intro
+02. Supremacy
+03. Panic Station
+04. Plug In Baby(   Читать дальше...   )Жанр: Alternative Rock, New Prog, Progressive Metal, Space RockРежиссер: Matt AskemПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2018FFC3E07E7D3D82C02267D69E7B7B30AEF492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536198   (513190) от 19.08.2012
+
+PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: K-pop, hip-hopПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F84BC367DB23A475243259C72CAEBFD55A21A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1607632   (1043927) от 27.01.2023
-
-Землетрясение / Tangshan da dizhen (2010) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В 1976 году в городе Таншань произошло мощное землетрясение, унесшее жизни нескольких сотен тысяч человек. Юань Ни потеряла в нём не только мужа, бросившегося в разваливающееся здание, но и дочь. Упавшая балка придавила её дочь и сына так, что вытащить можно было только одного, и женщине пришлось сделать страшный выбор. Спасённый мальчик потерял руку, а Юань Ни так (   Читать дальше...   )Производство: Китай, China Film Group Corporation, Emperor Motion Pictures, Huayi Brothers, Media Asia Films Ltd., Shanghai Film Group, Tangshan City Government, Zhejiang TelevisionЖанр: драма, историяРежиссер: Сяоган ФэнАктеры: Сюй Фань, Цзинчу Чжан, Чэнь Ли (II), Цзыфэн Чжан, Чжан Цзяцзюнь, Лу И, Чжан Гоцян, Цзывэнь Ван, Ян Лисинь, Жонг Люй, Юн Мэй, Лили Лью, Даомин Чэнь, Цзинь Чэнь, Дэвид Ф. МоррисПеревод: дублированный , профессиональный многоголосый (BBC Saint-Petersburg)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45770D87BBB7362514572ECFC7135CF588C2AB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607571   (1043926) от 27.01.2023
-
-Реальность / Realite (2014) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Джейсон — неприметный кинооператор, мечтающий снять свой первый фильм ужасов. Состоятельный продюсер Боб Маршалл соглашается финансировать его съёмки при одном условии: в течение 48 часов Джейсон должен отыскать самый впечатляющий крик за всю историю кино. В ходе своих поисков Джейсон постепенно погружается в настоящий кошмар...Производство: Франция, Бельгия, США, Canal+ (fr), Centre National de la Cinématographie (CNC), Inver Invest...Жанр: комедияРежиссер: Квентин ДюпьёАктеры: Ален Шаба, Джонатан Ламбер, Элоди Буше, Кайла Кенеди, Джон Хидер, Эрик Верхейм, Джон Гловер, Мэтт Батталья, Сьюзан Диол, Эрик ПассоджаПеревод: любительский одноголосый (Eugene Greene)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0CD801889F1174A85989E3D41F83F4C6BC3A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607563   (1043892) от 27.01.2023
 
 Шёпоты в ночи / Whispers in the Dark (1992) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043892.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043879.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043874.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043870.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043867.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043866.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043850.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043820.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043819.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043812.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043810.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043795.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043788.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043787.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043786.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043779.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043777.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043776.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043771.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043768.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043762.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043752.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043732.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043726.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75365AB7B25DB09AF0A5701A2E1E2B98EFA00E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608248   (1043723) от 29.01.2023
+
+Двойной обман Мадлен Коллинз / Madeleine Collins (2021) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она живет на две страны, у нее два имени, два любовника, два сына во Франции и дочь в Швейцарии. Из-за роковой случайности часть тайного становится явным. Запутавшись в паутине лжи, она рискует не только своей жизнью.Производство: Франция, Бельгия, Швейцария / Les Films du Bélier, Frakas Productions, Close Up FilmsЖанр: триллер, драмаРежиссер: Антуан БарроАктеры: Виржини Эфира, Ким Гутьеррес, Бруно Саломон, Жаклин Биссет, Франсуа Ростен, Лоис Бенгерель, Тома Жория, Валери Донзелли, Надав Лапид, Натали БутфоПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), Французские (Forced)Продолжительность: 01:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7642CA17E12D40E8F209FD9E54FEA2C13AD78055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608254   (1043722) от 29.01.2023
+
+13 убийц / Jusan-nin no shikaku / 13 Assassins (2010) BDRip [H.264/1080p] [Extended Cut]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония, 1844 год. Советник сёгуна поручает верному самураю Синдзаэмону убить лорда, позорящего самурайский кодекс чести. А тот набирает команду из 12 преданных воинов.Производство: Япония / Sedic International, Recorded Picture Company (RPC), Asahi Broadcasting Corporation (ABC)Жанр: боевик, драмаРежиссер: Такаси МиикеАктеры: Кодзи Якусё, Такаюки Ямада, Юсукэ Исэя, Горо Инагаки, Масатика Итимура, Микидзиро Хира, Хироки Мацуката, Цуёси Ихара, Арата Фурута, Икки СавамураПеревод: Двуголосый профессиональный (BBC Saint-Petersburg), Авторский (Ю. Сербин)Язык озвучки: Русский, ЯпонскийСубтитры: АнглийскиеПродолжительность: 02:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E839B56B8137F3EE5CEB0FAC30D11D9D1F14774
 ```
 
 https://mybot314.ru/tekegram_catalog/

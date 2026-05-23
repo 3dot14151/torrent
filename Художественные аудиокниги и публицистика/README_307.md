@@ -1,86 +1,3 @@
-###  Публикация: 1512210   (787405) от 24.11.2021
-
-Такэси Сиота | Голос греха (2021) [MP3, Александр Аравушкин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-…Вы нашли среди вещей своего отца старую аудиокассету и потрепанный дневник. И застыли от ужаса. Потому что, читая пожелтевшие страницы, поняли: ваш отец был причастен к самому громкому преступлению последних 30 лет. А с магнитной пленки доносится инструкция преступников, диктующая, куда им должны привезти деньги. И читает ее… ваш детский голос!
-Для Сонэ Тосии, преуспевающего (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 15:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3999F10748A9FCA97B2E88F5CF18E9D69F5B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512256   (787393) от 24.11.2021
-
-Эд Данилюк | Сыщик Вийт и его невероятные расследования (2021) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Его мужественное лицо покрывают царапины. Но взгляд уверенный и беспардонный. Сделав комплимент очаровательной даме, он спешит распутать очередное громкое дело. Это легендарный сыщик Вийт.
-
-Действие происходит в 2025 году, но мир все еще застрял в XIX веке. Мужчины носят цилиндры, дамы ходят в длинных платьях, повсюду пыхтят паромобили, на улицах и в домах горят (   Читать дальше...   )Жанр: Детективная фантастика, СтимпанкПродолжительность: 17:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5559DB0E84133AAF09D247BDD24717D15772ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512357   (787380) от 24.11.2021
-
-Элис Хоффман | «Практическая магия» Книга 3. Уроки магии (2021) [MP3, Марина Никитина]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У каждой саги есть начало.
-История многовекового проклятья семьи Оуэнс началась с необычного младенца – девочки, найденной в заснеженном поле. Оказавшись под опекой доброй женщины, сведущей в Непостижимом искусстве, Мария Оуэнс, ведьма по рождению, с раннего детства наблюдала, что с женщинами может сотворить любовь.
-Будучи еще ребенком, Мария клянется никогда не (   Читать дальше...   )Жанр: Зарубежные любовные романы, легкая прозаПродолжительность: 14:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23EB4613A6A1FEE3E40756D27A27C977FF21851B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512409   (787363) от 24.11.2021
 
 Григорий Федорец | Сирийский марафон (Книга 1). В тени летучей мыши (2021) [MP3, Иван Никонов]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787363.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787360.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_787352.jpg" />
 </div>
 
 
@@ -168,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787192.jpg" />
 </div>
 
 
@@ -194,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787174.jpg" />
 </div>
 
 
@@ -222,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787136.jpg" />
 </div>
 
 
@@ -249,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787130.jpg" />
 </div>
 
 
@@ -275,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787128.jpg" />
 </div>
 
 
@@ -301,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787122.jpg" />
 </div>
 
 
@@ -327,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787114.jpg" />
 </div>
 
 
@@ -353,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787106.jpg" />
 </div>
 
 
@@ -379,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787085.jpg" />
 </div>
 
 
@@ -407,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787048.jpg" />
 </div>
 
 
@@ -436,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786868.jpg" />
 </div>
 
 
@@ -462,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786861.jpg" />
 </div>
 
 
@@ -488,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786860.jpg" />
 </div>
 
 
@@ -516,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786840.jpg" />
 </div>
 
 
@@ -542,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786813.jpg" />
 </div>
 
 
@@ -568,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786764.jpg" />
 </div>
 
 
@@ -594,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786743.jpg" />
 </div>
 
 
@@ -620,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786707.jpg" />
 </div>
 
 
@@ -646,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786660.jpg" />
 </div>
 
 
@@ -673,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786654.jpg" />
 </div>
 
 
@@ -684,6 +601,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CE66D8689CDC24F9E11BF14A303798D9C94765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388466   (786650) от 06.06.2020
+
+Владимир Поселягин | Сопротивленец (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мог ли мечтать отставной военный инженер с планеты Земля, имевший последнюю стадию рака, о возможности жить дальше? Оказалось – мог, и он этот шанс получил.
+
+Космическая цивилизация. Существующая на краю бедности планета Турия, тяжёлый климат и полуторное тяготение. В большом, но бедном клане Генсов после тяжёлой болезни очнулся десятилетний мальчик, разговаривающий (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, ПопаданцыПродолжительность: 13:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D60F6E4109F1CCAC37CEBC911E806F60A4D5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388490   (786643) от 06.06.2020
+
+Антон Емельянов, Сергей Савинов | Тайна Кота (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший вестник Хаоса, Сабутей, захватил сотни миров и восстановил империю Атиса, Хаос готовится идти в наступление, у людей практически нет надежды… И только Кот, который ради собственной выгоды пообещал во всем разобраться, стал тем самым лучиком света, за которым готовы идти все, кто не сдался. Собирается ли он вести за собой людей? Точно нет! Но если это сможет (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 08:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D138031DB807F3F44F4538BD0C9FC2FC40CA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388438   (786636) от 06.06.2020
+
+Андрей Красников | Папирус любви (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет аудиокнигу известного российского писателя Андрея Красникова – «Папирус любви». Аудиокнига озвучена популярным артистом и известным актером дубляжа Сергеем Горбуновым.
+Студентка филологического факультета Катя, подрабатывающая во время летних каникул в городской библиотеке и мечтающая о нежном любящем принце, сдуру читает вслух выпавший (   Читать дальше...   )Жанр: Попаданцы в магические миры, Эротическое фэнтезиПродолжительность: 10:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A722EB3737C0FFDAEB86822C7AEB20B118809D
 ```
 
 https://mybot314.ru/tekegram_catalog/

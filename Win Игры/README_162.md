@@ -1,29 +1,3 @@
-###  Публикация: 1219254   (715056) от 13.04.2018
-
-Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В древнем кельтском повествовании молодая девушка по имени Солас (Solas) должна пройти через суровую безжалостную зиму, чтобы исправить ошибки прошлого своей семьи. Solas и White WInter - это атмосферная приключенческая игра с с элементами головоломок и темной историей, которую Солас должна раскрыть.Тип издания: LicenseРазработчик: Savepoint StudiosЖанр: AdventureЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB3F9172CD9441D7DC384DF8D702BCD065AA599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219245   (715054) от 13.04.2018
 
 Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) Repack Other s
@@ -32,7 +6,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715054.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715053.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Riverhill Trials (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714972.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ SINISTRY SILINIUM (2018) [Ru/En] (1.04) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714964.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mystery of the Ancients 8: No Escape / Тайны древних 8: Тупики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714800.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) License PLAZA [Episode 1-3
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714621.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ PC Building Simulator - Esports Expansion (2020) [Ru/Multi] (1.8.5) License PLAZ
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714552.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Spintires (2014) [Ru/Multi] (1.6.1/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714549.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714495.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.21/1.0.8) Repack R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714450.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Mystical Riddles: Snowy Peak Hotel / Мистические загадки: От
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714403.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) Repack Other s [Episode 1-
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714359.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Tropico 4 (2011) [Multi] (1.6.345/dlc) License GOG [Complete Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714307.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Boulder Dash Deluxe (2022) [Ru/Multi] (1.0.5) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714205.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Clockwise (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713935.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713928.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713427.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ HeartZ: Co-Hope Puzzles (2016) [En/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713401.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Tick Tock Bang Bang (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713274.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Danse Macabre 9: A Lovers Pledge (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713171.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Christmas Stories 6: A Little Prince (2017) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713145.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Z: The Game (2014) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713129.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Harrowed Halls 2: Hells Thistle (2017) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713114.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ The Park (2015) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713074.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Star Rage VR (2017) [En/Ch] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712992.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Star Rage VR - приключенческий экшн о ближайшем б�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE04D0DE7329C7071BC30901C76D88D4AB4E968A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219486   (712931) от 14.04.2018
+
+Lobotomy Corporation | Monster Management Simulation (2018) [Ru/Multi] (1.0.1.0а) Repack Other s
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712931.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре «Lobotomy Corporation» вам предстоит возглавить необычную компанию, занимающуюся содержанием SCP-объектов, а, проще говоря, монстров. Делается это для извлечения из них специальной энергии. Ваша задача - построить специальные камеры и содержать самых ужасных монстров. Будьте предельно осторожны, ведь SCP-объекты крайне опасны, каждый обладает своими уникальными (   Читать дальше...   )Тип издания: RepackРазработчик: Project MoonЖанр: Strategy, Simulator, RoguelikeЯзык субтитров: Русский, Английский, Китайский и другиеЯзык интерфейса: Русский, Английский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59E74FEF9867EEB6721715F89FF1EF075EC8401
 ```
 
 https://mybot314.ru/tekegram_catalog/

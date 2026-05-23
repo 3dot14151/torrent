@@ -6,7 +6,7 @@ Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771985.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ulla Haesen - Rio (2018) [MP3|320 Kbps] <Jazz, Bossa Nova>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771933.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ John Lewis - Grand Encounter (1956) Remaster, 2014, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771734.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Archie Shepp Quartet feat. Annette Lowman - Lover Man (1988) Remaster, 2015, Sol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771728.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Glenn Kaiser - Bound For Glory (2006) [FLAC|Lossless|tracks + .cue] <Christian B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771725.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771640.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bridget Kelly Band - Dark Spaces (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771629.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771592.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Catfish John Tisdell - Nothin but the Blues (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771474.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771422.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Jazz For Traveling (2020) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771382.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Jimmy Rogers All-Stars - Blues Blues Blues (1999) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770759.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Oscar Peterson - The Will To Swing 1949-1971 (1991) 2CD, Verve [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770690.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Righteous Blues Band - The Righteous Blues Band (2014) [MP3|320 кб/с] <Ch
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770535.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Tom Grant - Mystified (1976) Remaster, 2015, Solid Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770525.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Masabumi Kikuchi, Gary Peacock, Paul Motian - Tethered Moon (1991) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769700.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Nobby Reed Project - Hold the Truth (2006) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769691.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Stefano Bollani - Live From Mars (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769690.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Duke Ellington - Second Sacred Concert 1974 (2000) ADA Sound [APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769394.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Duke Ellington - The Great Duke Ellington 1959 (2000) ORO [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769250.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Jae Sinnett's Zero To 60 Quartet - Just When You Thought... (2020) Self-Released
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768997.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sinne Eeg & The Danish Radio Big Band - We've Just Begun (2020) Stunt Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768949.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Eric Bell - Exile (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768817.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The Stumble - Lie to Me (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768815.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Club Des Belugas - Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Be
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768733.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Sam Rivers Trio - Emanation 1971 (2019) NoBusiness Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768610.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 998751   (867493) от 20.03.2016
-
-Hitman Trilogy HD (2013) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Три легендарные игры из серии Hitman в одном издании! Проверьте способности знаменитого киллера-клона со штрихкодом на затылке, одного из самых популярных и узнаваемых игровых персонажей. Более сорока контрактов на убийства и великолепное HD не оставят равнодушными фанатов серии и новых игроков. Вспомните, как Агент 47 стал легендой - или пройдите с ним этот путь (   Читать дальше...   )Тип издания: UnofficialРазработчик: Io InteractiveЖанр: Action/ 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86DB637A38660F227E2FB79103A107BB20402B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998870   (867410) от 20.03.2016
 
 Alien Shooter (2016) [PS3] [EUR] 4.21+ CFW [Repack] [Ru/En]
@@ -32,7 +6,7 @@ Alien Shooter (2016) [PS3] [EUR] 4.21+ CFW [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867410.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Call of Duty: Advanced Warfare (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [L
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867405.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Spore Hero [Wii] [PAL] [Multi 7] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866836.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Culdcept DS  (2008) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865708.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Sam & Max: Season Two (Beyond Time and Space) [Wii] [PAL] [Multi 5] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865430.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Just Dance 3 (2011) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865157.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865124.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865120.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Just Dance 4 (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [License] [Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865088.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Gravity Rush (2012) [PSVita] [USA] 3.60 [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863673.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Let's Dance with Mel B (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Lic
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863363.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Ace Attorney Investigations 2: Miles Edgeworth: Prosecutor's Path (2011) [NDS] [
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862141.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Sega Bass Fishing (2011) [PS3] [EUR] 4.21 [PSN] [Multi] [MOVE]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862026.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Furu Furu Park [Wii] [NTSC-U] [English] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861656.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Left 4 Dead: Dilogy (2008 - 2009) [Xbox360] [RegionFree] 7371 - 8507 [Freeboot] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860405.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Fallout 3 (2008) [PS3] [EUR] 2.60 [License / 5 DLC] [Ru] | HiddenEX-PS3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860299.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Fallout 3: Game of the Year Edition (2008) [PS3] [EUR] 4.21+ [Repack / ALL DLC] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860285.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ Fire Emblem: Heroes of Light and Shadow (2010) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860191.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ MySims Kingdom [Wii] [PAL] [Multi 9] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859617.jpg" />
 </div>
 
 
@@ -523,32 +497,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 768641   (859514) от 20.03.2014
-
-LittleBigPlanet 2 / Little Big Planet 2 [PS3] [EUR] [Multi16] [3.50] [3k3y / Cobra ODE / E3 ODE PRO ISO] (2011)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая творческая мастерская с аркадными элементами снова приглашает всех в удивительный мир, где можно воплотить в жизнь любую фантазию. Полноценный сиквел платформера LittleBigPlanet. Ключевым нововведением станет режим создания пользовательских уровней. Игроки смогут создавать игры любых жанров на базе LittleBigPlanet 2: гонки, пазлы, скроллшутеры, RPG и даже (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Media MoleculeЖанр: Arcade (Platform) / 3D / AdventureЯзык озвучки: MULTi16 (в том числе русский)Язык интерфейса: MULTi16 (в том числе русский)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADB8AC0D1D95E2DDFD7F49FFF6863D128D05A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000253   (856966) от 26.03.2016
 
 Dragon's Dogma (2012) [PS3] [EUR] 4.11  [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -557,7 +505,7 @@ Dragon's Dogma (2012) [PS3] [EUR] 4.11  [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856966.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ Trauma Center: Second Opinion [Wii] [PAL] [Multi 5] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856145.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856102.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ Binary Domain (2012) [Xbox360] [RegionFree] 13599 [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855133.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ Ferrari Challenge [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854426.jpg" />
 </div>
 
 
@@ -675,6 +623,59 @@ Ferrari Challenge: Trofeo Pirelli - инновационная гоночная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AE30353F2FCB8F785FE6B188D094644623660A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647833   (854328) от 24.04.2013
+
+Star Trek: The Video Game [PS3] [USA] [En] [4.31 CFW] (2013)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экшен «Стартрек» предлагает игрокам выступить в роли культовых героев «Звездного пути» — капитана Кирка и коммандера Спока — и вместе отправиться навстречу приключениям.
+События игры происходят в альтернативной вселенной «Звездного пути», начало которой положил полнометражный фильм режиссера Дж. Дж. Абрамса, вышедший на экраны в 2009 году. Фанатов ожидает захватывающий (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Digital ExtremesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD90C85BA56BEF59322D0713A7FAF71657BF2DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306245   (852456) от 09.03.2011
+
+Mushroom Men: The Spore Wars [Wii] [PAL] [Multi 5] (2009)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарная завязка Mushroom Men: The Spore War выполнена в знакомом ключе «а вы и не знали». То есть нам предлагается взглянуть себе под ноги и выяснить, что там, в траве, кипит удивительная жизнь. Формальные дебютанты из Red Fly Studios рассказывают историю эпической схватки... грибов. Согласно сюжету, пролетевшая над Землей комета не возымела, как показалось человечеству, (   Читать дальше...   )Разработчик: Red Fly StudioЖанр: action, platformerЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25AF8CB3270B1C169DA5F6F165B7F2236A34753
 ```
 
 https://mybot314.ru/tekegram_catalog/

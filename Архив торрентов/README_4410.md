@@ -6,7 +6,7 @@ Microsoft .Net Packages AIO 09.01.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122223.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RS Explorer / RS Проводник 2.0.9 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122216.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CPU-Z 2.09.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122212.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FontLab 8.3.0.8766 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122202.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Telegram Desktop 4.14.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122198.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Busuu - изучение языков 31.11.0(911013) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122195.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Capture One 23 Pro 16.3.4.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122190.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Perfectly Clear WorkBench 4.6.0.2632 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122187.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BitComet 2.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122185.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Java SE Development Kit 21.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122181.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WhyNotWin11 2.6.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122180.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Java SE Development Kit 17.0.10 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122170.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ NonVisual Desktop Access (NVDA) 2023.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122160.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ SponsorBlock for YouTube 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122159.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Bike Outliner for Mac 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122158.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ dBpoweramp Music Converter 2023-12-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122147.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ PhotoRoom 4.8.1 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122143.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Text Workflow 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122139.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ QuickLinks 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122138.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ PullTube 1.8.5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122134.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Topaz Photo AI 2.3.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122084.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Topaz Photo AI for Mac 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122079.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Windows and Office Genuine ISO Verifier 11.13.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122073.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Floorp Browser 11.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122068.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Opera One 106.0.4998.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122066.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122060.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 830566   (1001066) от 14.08.2021
-
-Черная дыра / Pitch Black (2000) BDRip [1080p] [Director's Cut]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем космический корабль терпит бедствие, в результате чего совершает вынужденную посадку на отдаленной планете. Но в результате такой посадки погибает командир корабля, часть команды и большинство пассажиров.
-Оставшиеся в живых оказываются одни на жуткой и безжизненной планете. Первое, что бросается в глаза — это то, что планета имеет три солнца, (   Читать дальше...   )Производство: США / Interscope CommunicationsЖанр: Фантастика, Боевик, ТриллерРежиссер: Дэвид ТуиАктеры: Вин Дизель, Рада Митчелл, Коул Хаузер, Кит Дэвид, Льюис Фитц-Геральд, Клаудия Блэк, Риана Гриффит, Джон Мур, Саймон Бурк, Лес Чэнтери, Рик Андерсон, Вик Уилсон, Анджела Макин, Питер Чианг, Кен ТвохиПеревод: Дублированный x2, Многоголосый, Двухголосый, Авторский x4Язык субтитров: Русский (Forced (на непереведенные места), Full), АнглийскийПродолжительность: 01:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11AF695DE1A5E9735BA1FE9861DA1FBAC7A87F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352301   (1000961) от 14.01.2020
-
-Приговор / Une intime conviction (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает событиях 2010 года — судебном процессе над Жаком Вигье, которого обвиняют в убийстве своей жены Сюзанны. Разбирательство о его предполагаемом преступлении идёт почти 10 лет. В то время как абсолютно все вокруг убеждены в том, что Жак виновен, его знакомая Нора пытается идти против толпы и ведёт своё собственное расследование, раскрывающее самые (   Читать дальше...   )Производство: Франция, Бельгия | Canal+ (fr), Ciné, Cinéventure 3, Delante FilmsЖанр: драмаРежиссер: Антуан РэймбоАктеры: Марина Фоис, Оливье Гурме, Лоран Люка, Филипп Юшан, Жан Бенгиги, Франсуа Фенер, Франсуа Карон, Филипп Дормуа, Жан-Клод Легэ, Арман БуланжерПеревод: Дублированное (iTunes)Субтитры: отсутствуютПродолжительность: 01:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA299B2F3EC4D347FAD271F033DD705F6CFDE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352403   (1000960) от 14.01.2020
 
 Обратный отсчет / Countdown (2019) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000960.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000944.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000942.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000941.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000935.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000931.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000927.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000915.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000824.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000794.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000784.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000769.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000759.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000754.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000730.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000726.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000720.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000718.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000421.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000354.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000342.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000339.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000305.jpg" />
 </div>
 
 
@@ -659,13 +606,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000303.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Выпускника-отличника ловят в компании главного школьного хулигана за употреблением наркотиков. Когда парень оказывается перед необходимостью сдать анализы на наличие психотропных препаратов в организме, он решает накачать этими препаратами всех своих однокашников, чтобы не слишком выделяться на их фоне.Жанр: КомедияРежиссер: Джон СталбергАктеры: Эдриан Броуди, Шон Маркетт, Мэтт Буш, Колин Хэнкс, Адхир Кальян, Майкл Чиклис, Майкелти Уильямсон, Луис Чавез, Макс Ван Вилле, Бретт Келли, Джозеф Джулиан Сория, Джордж Бэк, Алисия Сикстос, Эндрю Уилсон, Камилль Мана, Эрика Виттина Филлипс, Аркадий Голубович, Джулия Линг, Коди Лонго, Мэри Бердсонг, Ярдли Смит, Кертис Армстронг, Алекс Биатс, Джон Бирд, Бэррет Сватек, (   Читать дальше...   )Перевод: Одноголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597430   (1000302) от 02.01.2013
+
+Зак и Мири снимают порно / Zack and Miri Make a Porno (2008) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зак и Мири — два лучших друга, которые занялись созданием порнографического кино для того, чтобы срубить наличных. По ходу сьёмок, Зак и Мири понимают, что они испытывают большие и сильные чувства друг к другу, о чём они даже не могли представить.Жанр: КомедияРежиссер: Кевин СмитАктеры: Элизабет Бэнкс, Сет Роген, Джейсон Мьюз, Крэйг Робинсон, Трейси Лордс, Рики Мейб, Брэндон Рут, Джастин Лонг, Тиша Кэмпбелл, Дженнифер Швалбах СмитПеревод: ДублированныйЯзык субтитров: АнглийскиеПродолжительность: 01:41:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598420   (999917) от 04.01.2013
+
+Их собственная лига / A League of Their Own (1992) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джимми Дуган — бывший бейсболист, чьи славные дни в Большой Лиге уже миновали. Его приглашают тренером в Женскую Бейсбольную Лигу, созданную в 1943 году, когда все мужчины были на войне. Видя отчаянное стремление и решительность своих подопечных, он забывает о своем пессимизме и обретает уверенность в себе и своей команде.Жанр: Драма, Комедия, СпортРежиссер: Пенни МаршаллПродюсер: Эллиот Эбботт, Роберт ГринхатАктеры: Том Хэнкс, Джина Дэвис, Мадонна, Лори Петти, Джон Ловиц, Дэвид Стрэтэйрн, Гэрри Маршалл, Билл Пуллман, Меган Кэвэна, Рози О’ДоннеллПеревод: Дублированный / Многоголосый закадровый / Одноголосый закадровый (Алексей Михалёв)Язык субтитров: Русские, английскиеПродолжительность: 02:07:59
 
 ## Скачать торент
 ```bash

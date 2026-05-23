@@ -6,7 +6,7 @@ Display Driver Uninstaller 15.3.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637622.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GPU-Z 0.5.3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637610.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Privacy Eraser Free 4.49.0 Build 2851 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637563.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ CyberSafe Top Secret 2.2.27 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637554.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4405.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637550.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kaspersky Internet Security 2017 17.0.0.611 TR [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637539.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Office 2016 Standard 16.0.4405.1000 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637538.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4405.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637537.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ WinCatalog 2018 18.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637508.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Soft Organizer 7.20 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637505.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Internet Download Manager 6.12 Beta Build 2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637494.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Privacy Eraser Free 4.25.2 Build 2345 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637461.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ iTunes 10.3.1.55 [Многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637452.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ SRWare Iron 73.0.3800.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637407.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Daum PotPlayer 1.7.12248 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637372.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Wondershare MobileGo 7.6.1.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637303.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Auslogics BoostSpeed 5.1.0.0 (от 08.06) [Русский / Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637292.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ SolidRocks 1.8.2 for 3ds Max [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637285.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ MediaHuman YouTube Downloader 3.9.9.13 (3003) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637283.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Insofta 3D Text Commander 5.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637277.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Display Driver Uninstaller 18.0.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637271.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ NetLimiter Pro 4.0.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637268.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Opera GX 85.0.4341.65 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637245.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Auslogics BoostSpeed 10.0.11.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637230.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Mozilla Firefox 14.0 Beta 11 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637220.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ WSUS Offline Update 7.4 portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637206.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kingston SSD Manager 1.5.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165958.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SamDrivers 23.11 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165953.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vectorworks 2021 v26.0.1 SP1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165948.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Compressor 4.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165943.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ XnConvert 1.90.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165940.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (1412) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165927.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Macrorit Data Wiper 6.6.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165923.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Whale Browser 2.8.108.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165921.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Display Driver Uninstaller 18.0.6.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165920.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Xliff Editor 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165916.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ CheckBook Pro 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165913.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Scrutiny 9 v9.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165909.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PDF to Numbers Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165899.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Brother Ali - Secrets & Escapes (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165898.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Samsung SSD Magician Tool 8.0.0.900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165897.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Macrorit Partition Expert 7.2.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165894.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Advanced SystemCare Pro 17.0.1.108 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165892.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Smultron 12.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165890.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ FileMenu Tools 7.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165883.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Affinity Publisher Beta 1.8.0.523 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165881.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Magnétophone - I Guess Sometimes I Need To Be Reminded Of How Much You Love Me 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165875.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ KCNcrew Pack 12-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165871.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ BELOFF [dp] 2021.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165870.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ EarthView 7.5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165869.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ PDF to Pages Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165865.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Tap Forms Organizer 5 5.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165860.jpg" />
 </div>
 
 

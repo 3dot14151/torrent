@@ -6,7 +6,7 @@ CCleaner 5.21.5700 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572198.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Avast Internet Security 17.5.2303 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572197.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Emsisoft Emergency Kit 11.9.0.6508 DC 16.08.2016 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572194.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572168.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Themes Windows 7 PURGATORY 2012 [английский + русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_572146.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Photoshop CC 2018 (19.1.5) x86-x64 Portable by punsh (with Plugins) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572123.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wise Registry Cleaner Pro 10.8.1.702 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572116.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572113.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Valhalla DSP - Valhalla Supermassive 2.0.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572108.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Opera 87.0.4390.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572102.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ UNetbootin 6.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572060.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Avast Free Antivirus 17.5.2303 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572054.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ StartIsBack++ 1.3.3 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571998.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Cent Browser 4.0.9.72 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571995.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Viber 6.2.0.1306 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571986.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.00.5100 (&Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571983.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4849.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571980.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4849.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571977.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Honeyview 5.48 Build 6130 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571966.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WinToUSB Technician 6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571961.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Avast Premier 17.5.2303 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571940.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Futuremark 3DMark 2.8.6572 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571914.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ SideFx Houdini FX 17.5.258 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571911.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Substance Painter 2019.1.1 Build 3066 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571909.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4849.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571906.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ K-Lite Codec Pack 12.3.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571886.jpg" />
 </div>
 
 

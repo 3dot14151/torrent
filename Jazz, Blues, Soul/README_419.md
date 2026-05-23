@@ -6,7 +6,7 @@ VA - Texas Guitar Killers (1995) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224608.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Michele D'Amour and the Love Dealers - Wiggle Room (2018) [FLAC 2.0|96/24|tracks
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224595.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ella Fitzgerald - The Complete 1960-1961 Ella in Berlin (2017) Essential Jazz Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224482.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Marc Miralta - New York Flamenco Reunion (1997) 2000, Nuevos Medios S.A.[FLAC|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224233.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Eddie Condon featuring Wild Bill Davison 1951 - 1952 - Dr. Jazz Series, Vol. 5 (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224230.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Complete Felsted Mainstream Collection (1958, 1959) 5CD, 2011, Solar Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224140.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Ultra-Lounge Part 2: The Tiki Sampler (1999) Capitol Records[FLAC|tracks+.c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224132.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Cory Weeds - What is There to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224045.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kurt Elling - SuperBlue (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz,Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224024.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Christmas Swing Orchestra - Christmas Swing (1999) [FLAC|Lossless]<Jazz Holi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223801.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Milt Jackson - Ain't But A Few Of Us Left (1981) 1993, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223682.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tom Bacon - The Flipside: Jazz Horn Solos (1989) Summit Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223516.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bunny Berigan - 1938 - 1942 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223510.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ted Sirota's Rebel Souls - Breeding Resistance (2004) Delmark Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223500.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Howard Rumsey's Lighthouse All-Stars - Lighthouse At Laguna (1955) 1989, Origina
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223494.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rachel Caswell - We're All In The Dance (2018) Turtle Ridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223489.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rosemary Clooney - 16 Most Requested Songs (1950-e - 1960-e) 1989, Columbia [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223479.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ronnie Scott - Six Classic Albums Plus Bonus Singles (1956 - 1961) 4CD, 2015, Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223446.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Cash Box Kings - Oscar's Motel (2023) [FLAC|Lossless|tracks + .cue] <Modern 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223291.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Papik - Bossarama (2023) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Easy Listeni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223182.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Beaux J Poo Boo - All Things Are New (2005) Summit Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222904.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Miho Hazama - Imaginary Visions (2021) Edition Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222897.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ John Dankworth & Rochester Pops - Ellington: Echoes of Harlem (1988) ProJazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222884.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Art Farmer, Benny Golson, Jazztet - The Complete Argo-Mercury Sessions (1960 - 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222860.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Tamara Kuldin - This May Only Be a Dream (2020) [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222792.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Peps and Blues Quality - Sweet Mary Jane (1969) Remastered, 1994, Sonet Grammafo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222765.jpg" />
 </div>
 
 

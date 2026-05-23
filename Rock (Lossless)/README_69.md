@@ -6,7 +6,7 @@ Mike Bloomfield And Al Kooper - The Live Adventures of Mike Bloomfield and Al Ko
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637491.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ayers Rock - Big Red Rock (1974) Remastered, 2016, Aztec Music [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637329.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ The Ring - Imaginator (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637258.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Lee Abraham - The Seasons Turn (2016) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636266.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Vasya Club - Хiпан (2002) [FLAC|image+.cue]<Folk-Rock >
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636155.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Captain Beefheart & The Magic Band - 2 альбома (1980-1982) [FLAC|image+.c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636060.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Smokie - Changing All The Time (1975) [FLAC|image +.cue]<Soft Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635968.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Smokey Fingers - Columbus Way (2011) [FLAC|Lossless|image + .cue] <Southern Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635390.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Black Sorrows - Certified Blue (2014) [FLAC|Lossless|tracks + .cue] <Roots R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635388.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Fortune - Level Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635333.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Jeff Lynne And Friends - Every Little Thing (2010) Compilation [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635246.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Foreigner - 40 (2017) 1977 - Forty Hits From Forty Years - 2017 (2CD) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634975.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Mystery Lights - The Mystery Lights (2016) [FLAC|Lossless|tracks] <60's Gara
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634359.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ London Symphony Orchestra - The Best of Classic Rock: The Ballads (1997) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634048.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Glenn Frey (Ex. Eagles) - Above The Clouds: The Collection (2018) 3CD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633913.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Flower Kings - By Royal Decree (2022) 2xCD [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633670.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Suzi Quatro - No Control (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633611.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Joe Satriani - The Elephants of Mars (2022) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633555.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ The Orange Alabaster Mushroom - Space & Time: A Compendium Of The Orange Alabast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633389.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Paul McCartney - The Paul McCartney Collection (1970-1989) 16 Remastered CD /199
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_632834.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Elvis Presley - From Nashville To Memphis - The Essential 60's Masters I vol.2, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632439.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Little Feat - Hoy-Hoy! (1981) [FLAC|Lossless|tracks + .cue] <Southern Rock, Boog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632198.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Tom Petty and The Heartbreakers - The Best Of Everything (2019) 2CD, Compilation
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631849.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ FM - Thirteen (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631841.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Tommy James & The Shondells - Hanky Panky & It's Only Love (1994) [WavPack|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631702.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Bryan Ferry - I'm In The Mood For Love (2000) [FLAC|Lossless|image + .cue] <Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630423.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bigasoft Audio Converter for Mac 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756892.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Downie 4 v4.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756891.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Bigasoft Total Video Converter for Mac 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756884.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ MusicBee 3.3.7491 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756856.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ K-Lite Codec Pack 15.6.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756854.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ NVIDIA GeForce Desktop 451.67 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756850.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Aeonian Sorrow - Into The Eternity A Moment We Are (2018) [FLAC|Lossless|Web-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756843.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ GoodSync Enterprise 10.9.23.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756839.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Icecream PDF Converter Pro 2.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756838.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Whistlers - Gold (2019) [MP3|320 Kbps] <Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756837.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Autorun Organizer 3.06 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756830.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756829.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ashampoo Snap 10.0.8 RePack&(Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756825.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ NG: Тайные истории НЛО / Secret history of UFO's (2012) IPTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756818.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ AnyToISO Pro 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756794.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Advanced SystemCare Pro 8.2.0.795 DC 13.04.2015 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756792.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Microsoft Windows 10 TP Language Pack build 10056 (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756791.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VideoProc Converter 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756781.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Infuse PRO 7 v7.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756779.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ OmniPlayer Pro - Media Player 1.4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756776.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VideoProc Converter 4K 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756771.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756698.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Juuou Mujin no Fafnir / Unlimited Fafnir / Безграничный Фафнир
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756669.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Fabio Carioli - Relaxing Sensation Music (2018) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756597.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ MAGIX Movie Edit Pro 2019 Premium 18.0.2.235 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756587.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Skype 8.38.0.138 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756583.jpg" />
 </div>
 
 

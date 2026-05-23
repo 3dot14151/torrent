@@ -6,7 +6,7 @@ Altium Designer 17.1.6 Build 538 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SiSoftware Sandra Lite 20/21 R12 (версия 31.83) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600812.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cyberduck 8.3.3 Build 37544 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600808.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WhatsApp 2.2214.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600805.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SanDisk SSD Dashboard 3.6.2.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600797.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AVG PC Tuneup 2015 15.0.1001.604 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600793.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Pale Moon 28.5.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600754.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600746.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MediaInfo 19.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600743.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Skype 8.44.0.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600735.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Astra Image PLUS 5.5.5.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600733.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Adobe Prelude CC 2019 8.1.0.139 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600701.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Unity Pro 2018.3.14f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600696.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sam Broadcaster Studio 2015.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600366.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Wise Care 365 Pro 3.73.331 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600277.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CoolUtils Total Image Converter 5.1.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600270.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Sandboxie 5.55.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600267.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ RegCool 1.318 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600262.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Sandboxie plus 1.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600260.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Tipard Video Converter Ultimate 9.2.20 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600240.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Adobe AIR 26.0.0.127 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600236.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Slimjet 15.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600209.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ GPU-Z 0.8.4 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600182.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ EfficientPIM Pro 3.81 Build 383 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600178.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ PicPick 4.0.6 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_600176.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Sam Broadcaster Pro 2015.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600174.jpg" />
 </div>
 
 

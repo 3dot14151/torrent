@@ -6,7 +6,7 @@ Wiztree 3.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723126.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 4.8.3.465 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723121.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft Blu-ray Player 6.6.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723108.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Skype 7.4.0.102 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723040.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Viber 8.6.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723021.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ JRiver Media Center 26.0.103 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722960.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BurnAware Professional 13.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722957.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ XMedia Recode 3.5.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722956.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kaspersky Rescue Disk 2018 18.0.11.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722922.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TweakPower 1.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722863.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Glary Utilities Pro 5.114.0.139 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722765.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ContaCam 9.9.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722740.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AOMEI Backupper Technician Plus 5.9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722731.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Steinberg SpectraLayers Pro 7.0.0 Build 217 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722730.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Auslogics Windows Slimmer 2.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722727.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ GeoGebra 6.0.688.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722698.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ IObit Driver Booster Pro 9.2.0.173 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722692.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Allavsoft Video Downloader Converter 3.17.1.6994 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722686.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ OBS Studio 22.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722671.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AOMEI Backupper Pro 5.9.0 [Multi] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722645.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wondershare Filmora 9.5.2.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722640.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ MAGIX Vegas Pro 18.0.0.284 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722638.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722633.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SolveigMM Video Splitter 7.4.2007.29 Business Edition RePack (& Portable) by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722632.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ USDownloader 1.3.5.9 Portable (28.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722618.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Acoustica Premium Edition 7.3.27 (x64) RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722609.jpg" />
 </div>
 
 

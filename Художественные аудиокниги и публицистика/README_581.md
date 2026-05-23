@@ -1,82 +1,3 @@
-###  Публикация: 566546   (388994) от 06.11.2012
-
-Андрей Земляной | Академик (Странник-5) [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Путешествуя по вселенной, Рей решает посетить Академию, находящуюся в пространстве Сопряжения, где начинает постигать магические науки. На этом пути, ему предстоит столкнуться с полным харсом оборотней в Мире Хайтор, вступить в противостояниями с богами и небожителями, посетить места «былой славы» и многое другое. Но переломный момент наступает в войн с технологической расой эднорнов. Результатом такого противостояния становится Посмертное проклятие уничтожившее все пространственные слои и мембраны. Как говорится: «свято место пусто не бывает» — и если Рей не желает проникновения хаоса, ему придется сделать выбор. Да будет СВЕТ!Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67EAD0A8594B8AAFEC5AEF1C64D013D2DE1CC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173880   (388986) от 13.10.2017
-
-Семён Малков | Голубая кровь. Золотая клетка (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть знаменитой эпической трилогии Семена Малкова «Две судьбы».
-.. Жизнь продолжается. И вот уже дети полюбившихся читателям героев попадают в сети безответной любви. Драматическая интрига, динамичное действие, откровенные любовные сцены захватывают читателя с первых страниц. Тонкий психолог и мастер слова Семен Малков с необычайной остротой и яркостью рисует (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 36:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDEBA0AF10346DF9EBA28CD86D8F8CDE3C60E931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173756   (388759) от 13.10.2017
-
-Роман Злотников, Антон Корнилов | Последняя крепость. Том 1 (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Давно повержен маг-узурпатор Константин Великий. Но желанный мир не пришел в королевства людей. Король Гаэлона Эрл Победитель бессилен повелевать своими землями. Его величество Эрл Победитель бессилен повелевать даже самим собою. Ибо во власти Высокого Народа не только Шесть Королевств, но и разум и сердце короля Эрла. Лишь рыцари Болотной Крепости Порога в состоянии (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9722BD2DD677E1FCA6B4F55B84017D0E0E73716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173881   (388637) от 13.10.2017
 
 Артем Каменистый, Аля Холодова | S-T-I-K-S. Шесть дней свободы (2017) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388637.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388462.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388448.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388278.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388229.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388223.jpg" />
 </div>
 
 
@@ -245,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388217.jpg" />
 </div>
 
 
@@ -271,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388150.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388048.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388046.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387962.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387816.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387806.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387726.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387708.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_387655.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387641.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387625.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387567.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387562.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387551.jpg" />
 </div>
 
 
@@ -638,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387420.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387413.jpg" />
 </div>
 
 
@@ -675,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F01240EB4953B45D64F8C21E77E258C3BA541CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571812   (387352) от 07.11.2012
+
+Андрэ Нортон | Паутина колдовского мира [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воины Карстена похищают наследницу Верлейна. Женитьба на ней — единственная возможность для герцога Ивьяна получить законные права на власть в Карстене и примириться с знатью, ненавидящей наемника, узурпировавшего трон. Корис и Саймон разрабатывают план спасения Лойз, захвата замка Верлейн — его первый этап.Жанр: Фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10106BD1A1C567ECDD075E71592799E8C625E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326047   (387313) от 19.09.2019
+
+Джон Берендт | Полночь в саду добра и зла (2019) [MP3, Степан Старчиков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387313.jpg" />
+</div>
+
+
+###  Подробнее
+
+В старинном особняке Саванны туманным утром 2 мая 1981 года прогремели выстрелы – убит Дэнни Хэнсфорд, молодой человек с сомнительной репутацией. Под подозрением оказывается хозяин дома…
+Так начинается расследование, длившееся десять лет. Именно столько времени потребовалось, чтобы узнать, что же все-таки тогда произошло – убийство или акт самозащиты. Однако главное (   Читать дальше...   )Жанр: ДетективПродолжительность: 15:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8F01A7139C1B33B7FC1E723F222569D652C46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326048   (387309) от 19.09.2019
+
+Маргарет Йорк | Поместье Даунтон. Начало (2019) [MP3, Наталья Баданова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот роман – не пересказ самого популярного любовного телесериала, не подражание или новеллизация. Перед вами предыстория легендарного «Аббатства Даунтон», отправная точка грандиозной семейной саги, покорившей сотни миллионов зрителей по всему миру.Жанр: Исторический детективПродолжительность: 10:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5096685638F35262CE5D84BBCFB272FDA0B836F
 ```
 
 https://mybot314.ru/tekegram_catalog/

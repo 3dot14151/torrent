@@ -1,81 +1,3 @@
-###  Публикация: 1687310   (125633) от 26.12.2023
-
-Андрей Панченко | Болотник (Книга 5) (2023) [MP3, TED]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Кирилла Найдёнова. Главный герой с большим трудом но вернулся домой. Главная тайна болота разгадана, но впереди ещё много интересных приключений. Читаем продолжение истории нашего современника, волею судьбы попавшего в прошлое.Жанр: фантастика, фэнтезиИздательство: Клуб любителей аудиокнигПродолжительность: 07:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E03736BD3FC0B0BC8F6F2E2F9959CE7ABDF8F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687378   (125618) от 26.12.2023
-
-Рэй Брэдбери | Тёмный карнавал [сборник] (2022) [MP3, Виталий Сулимов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Настоящая аудиокнига поистине уникальна – это самый первый сборник Брэдбери, с тех пор фактически не переиздававшийся, не доступный больше нигде в мире и ни на каком языке уже несколько десятков лет! Отдельные рассказы из «Тёмного карнавала» (в том числе такие классические, как «Странница» и «Крошка-убийца», «Коса» и «Дядюшка Эйнар») перерабатывались и включались (   Читать дальше...   )Жанр: Антиутопия, Классика фантастики, Литература 20 века, Социальная фантастикаПеревод: Марина ВоронежскаяИздательство: ЭксмоПродолжительность: 11:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E62365DED15E8124843708069D24E088AD62124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687432   (125610) от 26.12.2023
-
-Гарри Гаррисон | Резервный линкор (2023) [MP3, Владимир Коваленко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Если космический линкор не пускает безалаберных хозяев, то нужно вызвать на помощь специалистов. Именно для таких ситуаций подходит Язон динАльт - известный спаситель. Но как он справится с этой проблемой?...Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F4FB806CA48D23995CEC45C0CCA22EB6FBAF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687390   (125607) от 26.12.2023
 
 Тесс Герритсен | Джейн Риццоли и Маура Айлз (Книга 5). Смертницы (2021) [MP3, Алла Човжик]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125607.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125582.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125577.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125565.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125563.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125562.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125540.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125538.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125516.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125513.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125510.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125504.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125503.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125502.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125489.jpg" />
 </div>
 
 
@@ -487,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125486.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125469.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125461.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125452.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125447.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125423.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125386.jpg" />
 </div>
 
 
@@ -672,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125372.jpg" />
 </div>
 
 
@@ -685,6 +607,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106AA9C1C7C869B1924E23EDD3EC1CC88DADC71C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688129   (125352) от 28.12.2023
+
+Василий Головачёв | Трилогия «Атлантарктида» (2023) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125352.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь знаменательного юбилея, трилогия «Атлантарктида» под одной обложкой любимой серии автора. Гиганты фантастики нашли друг друга. Новое издание, в 75 лет! Героические приключения в холодной Антарктиде
+
+Майор Вербов не предполагал, что целью его следующей служебной командировки станет далекая и холодная Антарктида, такая же загадочная, как и два века назад. Что (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЭксмоПродолжительность: 24:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB3CE59F6936AD08AFAF6FE0182520873675703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687937   (125345) от 28.12.2023
+
+Евгения Гинзбург | Крутой маршрут (2022) [MP3, Галина Тюнина]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125345.jpg" />
+</div>
+
+
+###  Подробнее
+
+1937 год. Жернова сталинских репрессий работают на полную мощь. За один только год большевиками расстреляно более трёхсот тысяч человек, почти по тысяче в день… Любой в одночасье мог быть признан врагом народа: по надуманному обвинению, клевете или анонимному доносу. Именно это произошло и с корреспондентом «Литературной газеты», работником образования, членом партии (   Читать дальше...   )Жанр: Биографии и мемуары, РоманИздательство: СОЮЗПродолжительность: 30:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25ADBE2E444EB062023633B8B8539412B0818E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688157   (125325) от 28.12.2023
+
+Наталья Александрова | Приключения поручика Ордынцева (Книга 5). Тьма над Петроградом (2023) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город, где тысячи и тысячи русских эмигрантов наконец нашли пристанище… Но во Франции никому нет дела до их судьбы. Здесь графы и князья вынуждены служить шоферами и официантами, а их сестры и дочери – петь в ночных кабаках или искать богатых покровителей… Среди других несчастных, бежавших от ужасов «красной России», оказался и Борис Ордынцев. Жизнь его утратила (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 10:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D30C3C90E7F0C3EB139E5C13546F7010A84001
 ```
 
 https://mybot314.ru/tekegram_catalog/

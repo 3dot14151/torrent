@@ -6,7 +6,7 @@ LibreOffice 6.0.3.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740054.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740021.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Calibre 3.21.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740004.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zoner Photo Studio X 19.1804.2.61 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739999.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hetman FAT Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739992.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Hetman NTFS Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739950.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Macrium Reflect 7.1.2963 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739948.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ TeamViewer 13.1.3629 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739919.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ PassMark PerformanceTest 10.0 Build 1007 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739822.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ IObit Software Updater Pro 3.2.0.1659 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739766.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AVS Video Software 12.9.6.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739764.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ YouTube By Click Premium 2.2.134 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739763.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Adobe Prelude 2020 9.0.1.64 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739759.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Daum PotPlayer 1.7.21239 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739713.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Revo Uninstaller Free 2.1.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739712.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ SoftPerfect RAM Disk 4.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739703.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ CCleaner 5.69.7865 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739701.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ GoodSync Enterprise 10.9.24.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739663.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Kaspersky Rescue Disk 2018 18.0.11.3(c) (20.07.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739649.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Master PDF Editor 5.3.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739608.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The Bat! Professional 8.8.0 x86 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739592.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ uTorrent 3.5.5 Build 45081 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739530.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 14.02.2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739522.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v18.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739471.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ KMSAuto Lite 1.5.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739444.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Process Lasso Pro 10.4.2.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739065.jpg" />
 </div>
 
 

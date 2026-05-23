@@ -1,55 +1,3 @@
-###  Публикация: 1576234   (367972) от 13.09.2022
-
-Горячий отпуск / Azuro (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Компания друзей наслаждается долгожданным летним отдыхом, неспешно убивая время под раскалённым солнцем между бесконечным морем и статными горами. От скуки ребят спасают только пьянки да гулянки. И им нет дела ни до разгорающегося поблизости пожара, ни до туманящего рассудок зноя. Неожиданно в море появляется яхта, с нее сходит незнакомый мужчина, и их спокойному (   Читать дальше...   )Производство: Франция / Angoa-Agicoa, Tabo Tabo Films, Comic Strip Production, PanameЖанр: драма, комедияРежиссер: Матьё РозеАктеры: Валери Донзелли, Томас Шимека, Нуну Лопеш, Янник Шуара, Майя Санса, Флоранс Луаре, Одилон Обер Хора, Антуан Козан, Роуз Тимберт, Адам БессаПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C0FF06E01861B103C4140EACD5EF19468359EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406565   (367946) от 04.11.2011
-
-Поцелуй на удачу / Just My Luck (2006) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сексуальная жительница Манхеттена Эшли слывет самой удачливой девчонкой в округе. Однако после случайного поцелуя с одним неудачником, Эшли понимает, что ее удача «повернулась к ней спиной и уплыла к тому парню». И как теперь «отъявленной неудачнице» вернуть свой «счастливый поцелуй»?Жанр: Комедия, МелодрамаРежиссер: Дональд ПитриАктеры: Линдси Лохан, Крис Пайн, Сэмэр Армстронг, Бри Тернер, Фэйзон Лав, Мисси Пайл, Макензи Вега, Карлос Понсе, Том Флетчер, Дэнни ДжонсПеревод: ДублированныйПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D302903F4BD8DF23A92683B035F24E5A5E5572D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255161   (367943) от 16.10.2018
 
 Судная ночь 2 / The Purge: Anarchy (2014) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367943.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_367940.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367927.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367926.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367917.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367884.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367813.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367811.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367809.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367807.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_367792.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367743.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_367713.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_367697.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367631.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367629.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367625.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367622.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367614.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367610.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367608.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367603.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367555.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367521.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5446F5F39BC54B573D247D0246CD61AEE63DB7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328078   (367516) от 28.09.2019
+
+Долгий день уходит в ночь / Di qiu zui hou de ye wan (Long Day's Journey Into Night) (2018) HDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ло Иву возвращается в родной город на похороны отца. 12 лет назад у него здесь был роман с девушкой друга, и с тех пор она поселилась в его воспоминаниях, желаниях и даже кошмарах. Теперь для Иву в поисках той женщины прошлое смешивается с настоящим, а реальность — с вымыслом.Производство: Китай, Франция / CG Cinéma, Dangmai Films (Shanghai)Жанр: Драма, детектив, мелодрама, фильм-нуарРежиссер: Би ГаньАктеры: Тан Вэй, Хуан Цзюэ, Сильвия Чан, Ли Хунчи, Чэнь Юнчжун, Ло Фэйян, Цзэн Мэйхуэйцзы, Чун-хао Туан, Yanmin Bi, Се ЛисюньПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские, английские, французские (отдельно)Продолжительность: 02:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55476F61FBD89CD824D3DD4021982AB6DAB7FB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328072   (367511) от 28.09.2019
+
+Долгий день уходит в ночь / Di qiu zui hou de ye wan (Long Day's Journey Into Night) (2018) WEBRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ло Иву возвращается в родной город на похороны отца. 12 лет назад у него здесь был роман с девушкой друга, и с тех пор она поселилась в его воспоминаниях, желаниях и даже кошмарах. Теперь для Иву в поисках той женщины прошлое смешивается с настоящим, а реальность — с вымыслом.Производство: Китай, Франция / CG Cinéma, Dangmai Films (Shanghai)Жанр: Драма, детектив, мелодрама, фильм-нуарРежиссер: Би ГаньАктеры: Тан Вэй, Хуан Цзюэ, Сильвия Чан, Ли Хунчи, Чэнь Юнчжун, Ло Фэйян, Цзэн Мэйхуэйцзы, Чун-хао Туан, Yanmin Bi, Се ЛисюньПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Китайский, английский (хардсаб)Продолжительность: 02:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0B7B49E03D13B8E691480D1C8874ECFEF39D7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

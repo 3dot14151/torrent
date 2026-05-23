@@ -6,7 +6,7 @@ High School DxD BorN | High School DxD Third | High School DxD 3rd Season | Де
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blend S | Садистская смесь [2017, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596345.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Love Live! Sunshine!! (2017) | Живая любовь! [ТВ-4] [2017, TV, 13 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596144.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hakaima Sadamitsu / Sadamitsu the Destroyer / Разрушитель Садам�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594590.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lost Universe / Затерянная вселенная [1998, TV, 26 эп.] WEB
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594582.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Piano no Mori (2019) | Рояль в лесу [ТВ-2] [2019, TV, 12 из 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593775.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Hinamatsuri | Праздник Хины [2018, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593241.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Darker Than Black: Kuro no Keiyakusha / Darker Than Black / Темнее чер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592713.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Yamada-kun to 7-nin no Majo / Ямада и семь ведьм [2015, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592196.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Bakuretsu Hunter | Ganso Bakuretsu Hunters | Sorcerer Hunters | Охотники
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591801.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Golgo 13: The Professional | Голго-13: Профи [1983, MV] DVDRip 480p Hi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591788.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Aoi Tamago | Pale Cocoon | Бледный Кокон [2006, OVA] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591765.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Plastic Memories | Синтетические воспоминания [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591705.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Date a Live II / Рандеву с Жизнью 2 [2014, TV, 10] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591463.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ane Log / Дневник сестры [2014, OVA, 3 + 3 sp] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591283.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Angel Beats! / Ангельские ритмы! [2010, TV, 13ep + 3sp] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590810.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Маг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590669.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 эп. + 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590285.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Gekijouban Fate/Kaleid Liner Prisma Illya Licht: Namae no Nai Shoujo | Судь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588967.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu Omega | How Not to Summon a Demon
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588914.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Higurashi no Naku Koro ni: Sotsu | Higurashi: When They Cry - Sotsu | Когда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588845.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588839.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Memories Off 3.5 | Omoide no Kanata e | Inori no Todoku Toki | Забыть пр
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588638.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Chivas 1-2-3 | Sorcerer on the Rocks | Чародей на мели [1999, OVA, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588628.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi | Ателье Эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587722.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Angel Beats! / Ангельские ритмы! (2010, 13 +2 sp) BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586873.jpg" />
 </div>
 
 

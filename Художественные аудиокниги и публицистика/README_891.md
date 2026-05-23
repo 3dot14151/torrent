@@ -1,83 +1,3 @@
-###  Публикация: 1685664   (127050) от 19.12.2023
-
-Вальтер Скотт | Айвенго (2006) [MP3, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Один из популярнейших романов Вальтера Скотта (1771–1832)  «Айвенго» (1819) повествует об увлекательных и героических событиях из жизни средневековой Англии. Писатель обращается к важному историческому моменту, когда король Ричард Львиное Сердце возвращается в Англию после Крестовых походов и пребывания в плену. Страна раздираема конфликтами между саксами и норманнами, (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: БиблиофоникаПродолжительность: 19:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26AD6D3292471F08593952C153FB47847CBE3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685453   (127049) от 19.12.2023
-
-Надежда Дурова | Записки кавалерист-девицы. Происшествие в России (2007) [MP3, Татьяна Горчакова]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-В начале XIX столетия в рядах русских войск, сражавшихся в Пруссии, появилась загадочная личность – кавалерист-девица, русская амазонка, выступавшая под мужским именем Соколов, затем, с высочайшего позволения – Александров. Необычайность этого «происшествия в России» долгое время волновала не только армию, но и все слои общества. Однако (   Читать дальше...   )Жанр: Историческая литература, приключения, мемуарыИздательство: ИД «Равновесие»Продолжительность: 12:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB952D74B99334DE3012ECC30A9894455CF335D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685672   (127048) от 19.12.2023
-
-Вальтер Скотт | Талисман, или Ричард Львиное Сердце в Палестине (2012) [MP3, Вадим Максимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-«Талисман, или Ричард Львиное Сердце в Палестине» – исторический роман Вальтера Скотта, посвященный событиям Третьего крестового похода. Сложные взаимоотношения короля Англии Ричарда Львиное Сердце и предводителя арабов султана Саладина, любовь бедного шотландского рыцаря Кеннета и дамы его сердца леди Эдит и таинственный талисман (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: Студия «АРДИС»Продолжительность: 15:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC86CDC2DF78EB6639C095EFAAD15CD8BA50705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685666   (127044) от 19.12.2023
 
 Вальтер Скотт | Айвенго (2006) [MP3, Ростислав Плятт, Евгений Леонов, Георгий Менглет и др.]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127044.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127042.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127041.jpg" />
 </div>
 
 
@@ -169,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127030.jpg" />
 </div>
 
 
@@ -195,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126988.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126971.jpg" />
 </div>
 
 
@@ -249,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126966.jpg" />
 </div>
 
 
@@ -276,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126958.jpg" />
 </div>
 
 
@@ -305,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126946.jpg" />
 </div>
 
 
@@ -331,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126909.jpg" />
 </div>
 
 
@@ -358,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126904.jpg" />
 </div>
 
 
@@ -384,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126902.jpg" />
 </div>
 
 
@@ -410,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126889.jpg" />
 </div>
 
 
@@ -436,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126885.jpg" />
 </div>
 
 
@@ -464,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126878.jpg" />
 </div>
 
 
@@ -491,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126874.jpg" />
 </div>
 
 
@@ -518,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126872.jpg" />
 </div>
 
 
@@ -545,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126871.jpg" />
 </div>
 
 
@@ -573,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126862.jpg" />
 </div>
 
 
@@ -601,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126861.jpg" />
 </div>
 
 
@@ -627,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126856.jpg" />
 </div>
 
 
@@ -655,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126854.jpg" />
 </div>
 
 
@@ -683,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126733.jpg" />
 </div>
 
 
@@ -694,6 +614,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F039681B14FDCE0E3044B1C68AE45D148DA6A1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374024   (126693) от 22.12.2023
+
+Джером Д. Сэлинджер | Над пропастью во ржи (Радиоспектакль) (2006) [MP3, Андрей Ташков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Коллекция радиоспектаклей, Из архива «Гостелерадиофонда».
+«Над пропастью во ржи» (1951) – самый знаменитый роман Джерома Д. Сэлинджера (1919–2010), принесший автору грандиозный успех и необычайную популярность как в США, так и во всем мире. Современники приняли эту книгу как откровение. Молодые люди видели в главном герое романа, шестнадцатилетнем Холдене (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 02:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8968653DEAD3F65CB44DF727FE6185A9080B6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374023   (126684) от 22.12.2023
+
+Джером Д. Сэлинджер | Повести о Глассах (2004) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: XX век. Зарубежная проза.
+Джером Дэвид Сэлинджер – (1919–2010) известный американский писатель. Мировую известность Сэлинджеру принес роман под названием «Над пропастью во ржи».
+Повести о семье Глассов, как и знаменитый роман «Над пропастью во ржи» обращены в первую очередь к молодому читателю. Одна из героинь повестей – Фрэнни – восклицает в порыве откровения: (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 14:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000517C04D44C3FB22008DA8FECC1F1484E77DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374020   (126679) от 22.12.2023
+
+Джером Д. Сэлинджер | Девять рассказов + 1 (2004) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Зарубежная проза.
+Джером Дэвид Сэлинджер – (1919–2010) известный американский писатель. Мировую известность Сэлинджеру принес роман под названием «Над пропастью во ржи». Писатель-классик, писатель-загадка, на пике своей карьеры объявивший об уходе из литературы и поселившийся вдали от мирских соблазнов в глухой американской провинции. Книги Сэлинджера, (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 06:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D3FB33EBF89063E5095E33650BEC0A5EF44E26
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Amongst Liars - Amongst Liars (2022) [MP3|320 Kbps] <Alternative Metal, Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506321.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Rubens - Hoops (2015) [OGG| 477-516 кб/с]<Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506255.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Molotov - Con Todo Respeto (2004) [MP3|320 Kbps] <Alternative Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506225.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ the Bloodhound Gang - 22 релиза (1994-2010) [MP3|192-320 кб/с]<Rock/Alt
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504116.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Orianthi - Believe II (2010) [MP3|320 kbps]<Alt. Rock/Modern Rock/Female Vocals>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501752.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Rage Against The Machine - Live & Rare (1997) Remaster, 2022, Epic-Legacy [MP3|3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499700.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Break Me Down - 1 Album, 3 Singles (2019-2022) [MP3|320 Kbps] <Alternative Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499597.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ The Stooges - Les Genies du Rock - Kill City (1994) [MP3|320 кб/с]<Garage Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498451.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Cold Showers - Matter of Choice (2015) [OGG| 462-555 кб/с]<Alternative, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498449.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Threar - You Live With What You Create (2022) [MP3|320 Kbps] <Melodic Hardcore, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497728.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Sleeper Agent - Celabrasion (2011) [OGG| 456-521 кб/с]<Alternative Rock, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497559.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Sleeper Agent - About Last Night (2014) [OGG| 458-516 кб/с]<Alternative, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497555.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Rise Against - Endgame (2011) [MP3|320 кб/с]<Punk/HardCore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497122.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Bring Me The Horizon - That’s the Spirit (2015) [MP3|320 кб/с]<Alt. Rock, M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495740.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Villain of the Story - Divided (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495002.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Patient Sixty-Seven - Wishful Thinking (2022) [MP3|320 Kbps] <Metalcore, Post-Ha
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495000.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Fame on Fire - Welcome to the Chaos (2022) [MP3|320 Kbps] <Alternative rock, Pos
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494902.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Fight The Fade - Apophysitis (2022) [MP3|320 Kbps] <Alt.Rock, Electronic Rock, C
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494898.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Palisades - Reaching Hypercritical (2022) [MP3|320Kbps] <Post-Hardcore, Alt.Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494896.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Chumbawamba - Tubthumper (1997) [MP3|320 Kbps] <Folk Rock, Pop Rock, Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494831.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Nicolas Cage Fighter - The Bones That Grew from Pain (2022) [MP3|320 Kbps] <Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494662.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Garbage - A Darker Religion - The Singles 1995-2000 (2000) [MP3|320 Kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492376.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Callejon - Metropolis (2020) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489757.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Crafting the Conspiracy - The Cosmic Key, Pt. II (2020) [MP3|320 Kbps] <Deathcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489741.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Seether - Si Vis Pacem, Para Bellum (2020) [MP3|320 Kbps] <Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489405.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Brutto - Родны Край (2015) [MP3|320 кб/с]<Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489265.jpg" />
 </div>
 
 

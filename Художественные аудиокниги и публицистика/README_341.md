@@ -1,86 +1,3 @@
-###  Публикация: 1020093   (746908) от 25.05.2016
-
-Видиадхар Найпол | Полужизнь (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Писатель из Тринидада Видиадхар Найпол, автор книг «Флаг над островом», «Подражатели» и «Территория тьмы», представляет на суд читателей еще одно свое произведение – книгу «Полужизнь». Главным героем романа «Полужизнь» является индиец Вилли Чандран.
-Однажды ему приходится покинуть свою родную провинцию и оказаться в Лондоне, а затем и в Африке. Безусловно, везде (   Читать дальше...   )Жанр: РоманПродолжительность: 10:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3CDB4178AD85CB24C6D33A85288481A92C6FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019944   (746904) от 25.05.2016
-
-Михал Вивег | Игра на вылет (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Михал Вивег - самый известный чешский писатель из поколения "после Кундеры".
-Простота и воздушность изложения, тщательно дозированная "клубничка", отсутствие морализаторства - все это сделало Вивега любимцем читающей публики...
-Писатель повторяет судьбу многих современных писателей: Бернарда Вербера, Милана Кундеры, Милорада Павича.
-В своем романе (   Читать дальше...   )Жанр: РоманПродолжительность: 07:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085C59A8AB083E645E6C4E5761BB00DD7B4223A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020185   (746902) от 25.05.2016
-
-Михаил Строганов | Поколение победителей (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Поколение победителей рождалось в страшные годы Первой мировой войны, в дни национальной трагедии эпохи гражданской, в смутное безвременье НЭПа, когда и любящие и ненавидящие Россию в один голос утверждали, что с ней покончено навсегда. Что не пройдет и четверти века, как русские исчезнут с лица земли, растворившись в водовороте истории...
-Необученные и необстрелянные (   Читать дальше...   )Жанр: историческая публицистикаПродолжительность: 02:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742D42739F41C7C8A2147E0C64EB0C5471E1A19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019777   (746901) от 25.05.2016
 
 Сергей Волконский | Быт и бытие (2015) [MP3]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746901.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746897.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746895.jpg" />
 </div>
 
 
@@ -168,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746831.jpg" />
 </div>
 
 
@@ -195,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746826.jpg" />
 </div>
 
 
@@ -221,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746821.jpg" />
 </div>
 
 
@@ -247,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746820.jpg" />
 </div>
 
 
@@ -274,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746817.jpg" />
 </div>
 
 
@@ -300,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746816.jpg" />
 </div>
 
 
@@ -326,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746736.jpg" />
 </div>
 
 
@@ -352,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746735.jpg" />
 </div>
 
 
@@ -378,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746734.jpg" />
 </div>
 
 
@@ -405,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746731.jpg" />
 </div>
 
 
@@ -431,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746632.jpg" />
 </div>
 
 
@@ -457,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746629.jpg" />
 </div>
 
 
@@ -483,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746611.jpg" />
 </div>
 
 
@@ -512,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746609.jpg" />
 </div>
 
 
@@ -538,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746603.jpg" />
 </div>
 
 
@@ -565,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746520.jpg" />
 </div>
 
 
@@ -591,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746519.jpg" />
 </div>
 
 
@@ -619,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746511.jpg" />
 </div>
 
 
@@ -645,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746505.jpg" />
 </div>
 
 
@@ -672,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746368.jpg" />
 </div>
 
 
@@ -683,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1057F00421D8526E7FB00C77B022BFD76B74856A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524174   (746361) от 14.01.2022
+
+Владислав Хапров | Чёрный космос – чёрный флаг (2021) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тысячу лет наше время и даже наше ближайшее будущее будет для людей такой же туманной историей как для нас морские походы викингов, кругосветное плавание Френсиса Дрейка или пиратские набеги на Маракайбо и Панаму Генри Моргана. И через тысячу лет наверняка учёные будут так же изучать первые космические полёты, первые полёты к планетам Солнечной системы и первые (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 15:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B578ADBF8EB9A307DB206B4F9576CDEEABBEEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019898   (746354) от 25.05.2016
+
+Анна Гаврилова | Путь магии и сердца (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевики и защитницы — извечный симбиоз и извечное противостояние. Они всегда работают в паре: один бьет, вторая прикрывает. И так уж сложилось, что обзавестись партнером, с которым предстоит работать всю оставшуюся жизнь, каждый старается как можно раньше. Но из всякого правила есть исключения. Для Эмелис из рода Бьен карьера мага недоступна. Завершив учебу, она (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3AB7CD0261755C153A58E3FAF69D4BE35864E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524102   (746262) от 14.01.2022
+
+Владимир Мясоедов | Черный космос (2022) [MP3, Дмитрий Поляков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш современник Игорь, смертельно раненный в перестрелке, поверил в грядущее исцеление и согласился на заморозку своего тела до лучших времен. Несколько столетий спустя его «саркофаг» был обнаружен. Врачи совершили чудо, и воскрешенный ими Игорь вступил в новый для себя мир. Откуда ему было знать, что после ядерной войны власть на Земле захватили мегакорпорации, (   Читать дальше...   )Жанр: Космическая фантастикаПродолжительность: 10:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF5072AD910EB750040A742FBBA891536BAE04F
 ```
 
 https://mybot314.ru/tekegram_catalog/

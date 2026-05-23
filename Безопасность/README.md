@@ -7,7 +7,7 @@ Text Encrypter 256 1.0.2.5 Portable [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070198.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Auslogics Anti-Malware Pro 1.23.0.4 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070191.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PrivWindoze 7.0.0 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069411.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Minimal Firewall 2.8.1 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069288.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Watchdog Anti-Malware Premium / Business 4.4.1 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069108.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Microsoft Safety Scanner 1.449.583.0 Portable [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069007.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Minimal Firewall 2.8.0 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068912.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ MinerSearch 1.4.9.0 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068766.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Windows Firewall Control 6.32.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068764.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sandboxie 5.72.5 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068289.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sandboxie plus 1.17.5 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068288.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows Firewall Control 6.32.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067723.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Minimal Firewall 2.7.3 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067302.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Nsauditor Network Security Auditor 3.2.7 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066851.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Windows Firewall Control 6.31.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066174.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Windows Firewall Control 6.31.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066127.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Glary Malware Hunter Pro 1.215.0.849 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066079.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Sandboxie 5.72.4 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064888.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Sandboxie plus 1.17.4 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064886.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Minimal Firewall 2.7.2 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064606.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Sandboxie 5.72.3 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064161.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Sandboxie plus 1.17.3 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064159.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Glary Malware Hunter PRO 1.214.0.848 Portable by FC Portables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064152.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Glary Malware Hunter Pro 1.214.0.848 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064127.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ simplewall 3.8.7 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063888.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Abelssoft KeyDepot 2026.12.11 & Portable [Multi]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063711.jpg" />
 </div>
 
 

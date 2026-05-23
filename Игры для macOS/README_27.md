@@ -6,7 +6,7 @@ The Lord of the Rings: The Battle for Middle-Earth II (2006) [+1DLC] [Ru] [macOS
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234220.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Return of the Obra Dinn v.1.2.120 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233306.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DEX v.6.0.0.0 (2015) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233288.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Farming Simulator 22 1.5.0 (2021) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230685.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Doom 3 & Resurrection of Evil & Mods v1.3.1 (2004-2005) [Ru] [macOS Cider]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228479.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Jenny LeClue - Detectivu v2.1.1 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226789.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226706.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ This War of Mine v6.0.8 (2014) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225151.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ The Book of Unwritten Tales: The Critter Chronicles [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222476.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ GRIS (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220646.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lionheart: Legacy of the Crusader (2003) [Ru] [macOS WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220378.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Assassins Creed 2 (2010) [Ru] [OS X WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219629.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Blacksad: Under the Skin (2019) [Multi/Ru] [macOS Native port]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219628.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Total War™: Shogun 2. Fall of the Samurai (2014) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218620.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Fort Triumph v1.1.7 (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216888.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Sims™ 2: Super Collection v1.2.4 (2005) [Multi] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216146.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Alekhine's Gun (2016) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215945.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215741.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ I Am Alive (2012) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215659.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Burnout Paradise: The Ultimate Box (2009) [Ru] [macOS WineSkin]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215427.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Shantae and the Seven Sirens v2.4.0 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215270.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Portal v1.7.4.5010 (2007) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215171.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Slime Rancher v1.4.4 (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214755.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Mini Metro r.39 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214375.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Gardens Between (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214280.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Euro Truck Simulator 2 + (76 DLC) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213201.jpg" />
 </div>
 
 

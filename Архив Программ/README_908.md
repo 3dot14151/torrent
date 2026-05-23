@@ -6,7 +6,7 @@ Aiseesoft Screen Recorder 2.2.88 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589351.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FinePrint 11.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589350.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 87.0.4390.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589348.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Inkscape 1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589340.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MediaHuman YouTube Downloader 3.9.9.71 (1605) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589318.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Honeyview 5.47 Build 6122 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589312.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Google Earth Pro 7.3.4.8642 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589303.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v6.2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589301.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ableton - Live Suite 11.1.5 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589276.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Spotify 1.1.85.895 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589264.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ FurMark 1.30.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589262.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wise JetSearch 2.12.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589119.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Wise System Monitor 1.3.2.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589112.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ R-Studio 7.7 Build 159149 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589111.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Wise Registry Cleaner 8.63.553 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589101.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ R-Studio 7.7 Build 159149 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589100.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ R-Studio 7.7 Build 159149 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589094.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Wise Disk Cleaner 8.62.607 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589085.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Wise Memory Optimizer 3.36.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589082.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Wise PC 1stAid 1.43.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589071.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Wise Game Booster 1.31.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589069.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Wise Program Uninstaller 1.72.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589060.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wise Data Recovery 3.72.196 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589059.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ashampoo WinOptimizer 11.00.70 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589049.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ R-Studio 7.7 Build 159149 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589038.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ WinToUSB Free 2.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589034.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ DuneCrawl (2026) [Ru/Multi] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053830.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RuneQuest: Warlords (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053829.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ They Are Billions (2019) [Ru/Multi] (1.0.14) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053757.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Caravan SandWitch (2024) [Ru/Multi] (1.13.72.2/dlc) Repack Other s [Digital Coll
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053745.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Loot & (and) Ledger (2026) [Ru/Multi] (1.0) Reack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053718.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.980/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053692.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053691.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (1.0.6/dlc) Licen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053690.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053689.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.28) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053558.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ I Sell Lemonade (2025) [Ru/Multi] (.05) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053495.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ My Winter Car (2025) [Ru/Multi] (build 21360632) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053494.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Leaf Blower Co. (2025) [Ru/Multi] (2025 NL Dec 17) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053493.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Perpetuo (2025) [Ru/Multi] (2.0e) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053492.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Horses (2025) [Multi] (1.0.16497) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053470.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/dlc) Repack seleZe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053449.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053448.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Divinity: Original Sin II (2): Divine Edition (2017) [Ru] (30.04.2025) Unofficia
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053444.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Head's Adventures: chibichibi (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053419.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) Repack FitGirl [Black Razor Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053418.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053415.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Worldwide Rush (2025) [Ru/Multi] (1.0.22/1.0.25) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053414.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Night Swarm (2025) [Ru/Multi] (1.1.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053406.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Argonauts Agency 12: Patterns of Morpheus / Агентство Аргонавт�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053404.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ The Last Faith (2023) [Ru/Multi] (2.0.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053401.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Thrae (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053392.jpg" />
 </div>
 
 

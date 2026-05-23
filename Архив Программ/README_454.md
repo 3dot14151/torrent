@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806152.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Serif Affinity Photo 1.10.3.1191 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806151.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Boilsoft Video Joiner 9.1.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806149.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ByClick Downloader Premium 2.3.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806146.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Revo Uninstaller Free 2.3.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806143.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Topaz DeNoise AI 3.3.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806138.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Text Editor Pro 9.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806034.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Revo Uninstaller Free 2.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806024.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Display Driver Uninstaller 18.0.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806020.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wise Auto Shutdown 1.7.7.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806019.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Topaz DeNoise AI 3.3.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806014.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ PDF-XChange PRO 9.2.358.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806012.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Comodo Internet Security Premium 10.1.0.6476 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805913.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805902.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ LosslessCut 3.23.7 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805892.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ IObit Driver Booster Pro 7.4.0.731 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805891.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ IObit Driver Booster Pro 7.4.0.730 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805884.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mailbird Pro 2.8.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805883.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Tor Browser Bundle 10.5.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805878.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805867.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ All AVS4YOU Software in 1 Installation Package 4.0.4.148 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805765.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ KMSAuto++ Portable 1.6.2 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805690.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Windows 7 Ultimate SP1 x64 3in1 OEM May 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805589.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.05.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805586.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Slimjet 9.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805568.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Gilisoft Privacy Protector 7.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805565.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Movavi Video Suite 17.4 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664724.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 professional 1803 x86 x64 Matros 05 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664667.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SolidAngle Arnold for Cinema 4D 2.3.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664666.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Office 2016 Standard 16.0.4678.1000 (2018.05) RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664651.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ChromePlus Portable  v.1.6.1.0 AdBlock [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_664642.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Reg Organizer 8.90 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664402.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Zentimo xStorage Manager 2.0.4.1264 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664390.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Zentimo xStorage Manager 2.0.4.1264 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664326.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mozilla Firefox 39.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664301.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Pale Moon 30.0.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664287.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Internet Download Manager 6.40 Build 9 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664286.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ USB Safely Remove 6.0.6.1259 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664262.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Zentimo xStorage Manager 2.0.4.1265 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664258.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Google Chrome 43.0.2357.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664235.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Download Master 6.23.1.1683 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664231.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Universal Media Creation Tool 18.03.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664211.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ USB Safely Remove 6.0.6.1259 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664204.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Start Menu X 5.45 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664190.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ CCEnhancer 4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664188.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Ummy Video Downloader 1.4.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664178.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ R-Studio Network 9.0 Build 190296 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664172.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664168.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ IrfanView 4.60 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664163.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ PotPlayer 220302 (1.7.21620) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664155.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ FileMenu Tools 7.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664140.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mail.Ru Облако 15.05.0032 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664128.jpg" />
 </div>
 
 

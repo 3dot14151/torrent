@@ -1,29 +1,3 @@
-###  Публикация: 1485168   (1005539) от 24.07.2021
-
-Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Summer of '58 — это психологический триллер от первого лица. Действие игры разворачивается в заброшенном здании советского лагеря. Пионерский лагерь «Юность» обычное место, где родители оставляли детей на лето из года в год. Пока в один день 1958 года не случился кошмар, который оказался намного страшнее рассказов у костра. На этом месте были убиты проживающие и (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDC640CCA76B8FC3CC2FCAC33DE0F2DEE5E25A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178770   (1005237) от 26.07.2021
 
 Divinity: Dragon Commander (2013) [Ru/En] (1.0.124hf/dlc) License GOG [Imperial Edition]
@@ -32,7 +6,7 @@ Divinity: Dragon Commander (2013) [Ru/En] (1.0.124hf/dlc) License GOG [Imperial 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005237.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005139.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Creepy Tale 2 (2021) [Ru/Multi] (1.1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005034.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Final Fantasy II (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004921.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Final Fantasy (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004918.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Eldest Souls (2021) [Ru/Multi] (Build 7099613) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004836.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Vesper (2021) [Multi] (1.0.i0b) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004830.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004828.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Phoenotopia: Awakening (2021) [Ru/Multi] (1.2.9) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004826.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.0.3) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004822.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Omno (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004806.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Eastern Exorcist (2021) [Multi] (Build 6990221) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004795.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Horror Tales: The Wine (2021) [Ru/Multi] (Build 6722952) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004670.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.0.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004660.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ HORROR TALES: The Wine (2021) [Ru/Multi] (Build 6722952) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004650.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Liberated (2020) [Ru/Multi] (1.16/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004637.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Haunted Hotel 20: A Past Redeemed / Проклятый отель 20: Искуп
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004548.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Night Delivery (2021) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004537.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Signs of the Sojourner (2020) [En] (4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004471.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lichdom: Battlemage (2014) [En] (1.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004416.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004398.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Symphonia (2021) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004294.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Vesper (2021) [Multi] (1.0.i0b) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004251.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Guild of Darksteel (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004249.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Labyrinths of the World 11: The Wild Side (2020) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004224.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Labyrinths of the World 11: The Wild Side (2020) [En] (1.0) Unofficial [Collecto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28B5E260CA638DEA37917378F4045DE8986FFF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349692   (1004188) от 02.01.2020
+
+Freeman: Guerrilla Warfare (2018) [Ru/Multi] (1.32) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Партизанская Bойна происходит в мире, где между собой воюют несколько фракций: бандиты и милитаристы, желающие править миром. В этой игре вам предстоит стать лидером фракции. Начните с минимальными ресурсами, найдите источник доходов, создайте армию, объявите войну другим фракциям, уничтожьте всех противников, используя хитрые стратегии и навыки ведения боя, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: KK Game StudioЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D16E5848D6021EE295AAA73EB73F4D9DDE4F5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

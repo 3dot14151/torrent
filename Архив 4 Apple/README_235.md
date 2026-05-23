@@ -6,7 +6,7 @@ Permute 2.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743943.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ iSoftPhone Pro 4.1010 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743941.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Omni Recover 3 v3.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743935.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ aText 2.40.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743934.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SyncBird Pro 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743928.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Auto Highlight 2.80 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743926.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Arq 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743881.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Blocs 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743868.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ OmniOutliner Pro 5 v5.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743862.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bigasoft FLAC Converter for Mac 5 v5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743860.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Lunar Pro for Mac 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743859.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ start 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743854.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ PDF Reader Pro Edition 2.8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743850.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SoundSource 5.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743849.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Apeaksoft Android Toolkit 1.1.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743848.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ProFind 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743842.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ PullTube 1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743840.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ EverWeb 2.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743836.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Principle 6 v6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743766.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Clearview X 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743765.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Viwizard Spotify Music Converter for Mac 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743762.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ PCDJ DEX 3 v3.17.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743758.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dato 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743755.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Blocs 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743748.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ KCNcrew Pack 01-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743644.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Luminar Neo 0.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743640.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666721.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666593.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666578.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666501.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666500.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sergio Santini - Коллекция (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666466.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, P
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_666227.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_666103.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kevin Wood - Eternal (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666012.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666008.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665421.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Союз нерушимый... - Песни и танцы народов С
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664684.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664342.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664194.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663350.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661293.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661291.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660499.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ John Barry - The Real... John Barry (2016) 3CD [FLAC|Lossless|tracks + .cue] <So
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660008.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660006.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659910.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659611.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659283.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659214.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659194.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Pos
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659118.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Trace Adkins - The Definitive Greatest Hits: Til The Last Shot's Fired (2010) 2C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646681.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Brennan Heart - Show Your True Colors (2019) [MP3|320 Kbps] <hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646680.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Opera 58.0.3135.127 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646678.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Telegram Desktop 1.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646677.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ pdfFactory Pro 6.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646676.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ YTD Video Downloader PRO 5.9.11.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646675.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Mr. Oizo - Rythme Plat (2019) [MP3|~225 Kbps (V1)] <Electronic, Rap, Trap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646673.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Opera 85.0.4341.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646664.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Calibre 5.40.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646648.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646642.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646629.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Windows 7 SP1 x86 Plus WPI Rock Design By StartSoft v21.06.003.12 [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_646626.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Ant Download Manager PRO 1.7.9 Build 50575 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646599.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ First Rebirth - 2 Releases (2009-2014) [MP3|320 кб/с]<Downtempo, IDM, Trip Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646561.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ EndNote X9 v9.1.1 (Build 14483) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646557.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ PreSonus - Studio One Professional 4.1.4.51719 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646555.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ FinePrint 9.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646554.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646550.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ MediaMonkey Gold 4.1.24.1883 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646544.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Movavi Video Editor Plus 15.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646543.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646541.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ WSCC (Windows System Control Center) 7.0.1.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646532.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Blender 3.1.2 Portable для Windows 7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646531.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ PowerISO 6.9 RePacK by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646516.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Ashampoo Snap 10.0.3 RePack (& Portable) by D!akov  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646515.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Dr.Web Remover 11.1.3.201705310 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646504.jpg" />
 </div>
 
 

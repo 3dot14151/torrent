@@ -6,7 +6,7 @@ Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399305.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akad
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391726.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391712.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391699.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390233.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388956.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388769.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Kurogane no Linebarrels | Linebarrels of Iron | Стальной Лайнбар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387590.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Gekijouban Mahouka Koukou no Rettousei: Hoshi o Yobu Shoujo | Непутевый
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387273.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Gekijouban Kidou Senshi Gundam 00: A Wakening of the Trailblazer | Mobile Suit G
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386807.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Captain Earth | Капитан Земля [2014, TV, 25] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386227.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385639.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gochuumon wa Usagi Desuka?? Sing for You | Кролика заказывали? 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385505.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Gochuumon wa Usagi Desuka?? Dear My Sister | Кролика заказывали
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385504.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Yuru Yuri San Hai! / Свободу лесбиянкам! Три подружк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384258.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ One Punch Man | One-Punch Man | Ванпанчмен [2015, TV, 12 + 6sp] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384159.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381552.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381538.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Aria the Benedizione | Ария: Благословение [2021, Movie] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381534.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Ai no Utagoe o Kikasete | Sing a Bit of Harmony | Спой немного гар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381464.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381457.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381448.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381414.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Amanchu! / Аманчу! [2016, TV, 12 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380799.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Ghost in the Shell: Stand Alone Complex 2nd GIG / Призрак в доспех
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379748.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Liz to Aoi Tori | Liz and the Blue Bird | Лиз и синяя птица [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378643.jpg" />
 </div>
 
 

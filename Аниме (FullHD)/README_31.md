@@ -6,7 +6,7 @@ Citrus | Цитрус [2018, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548718.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Seikaisuru Kado | Seikai Suru Kado  | Kado: The Right Answer | Правильн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548653.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sacred Seven / Священная Семерка [2011, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548408.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Samurai Champloo / Самурай Чамплу [2004, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547246.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Aokana | Four Rhythm Across the Blue | Ao no Kanata no Four Rhythm | Четыр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544544.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mushishi Zoku Shou: Suzu no Shizuku / Мастер Муси: Капли коло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542547.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bakuman. 2 / Бакуман [ТВ-2] [2011, TV, 25 из 25] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540236.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538461.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Grimms Notes The Animation | Заметки Гримм [2019, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538113.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Genmu Senki Leda | Fantastic Adventure Of Yohko: Leda | Леда: Фантаст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538019.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534955.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Miss Monochrome The Animation 2 | Мисс Монохром 2 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528549.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Miss Monochrome The Animation 3 | Мисс Монохром 3 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528547.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528054.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Yakusoku no Nanaya Matsuri | Starlight Promises | Звездное паломн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523663.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Sho
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521855.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Peace Maker Kurogane | Железный миротворец (фильм) [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520212.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые ведьмы OVA-2 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518109.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516586.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514762.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Drifters (2017) | Скитальцы [2017, OVA, 3 из 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512353.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Higashi no Eden Gekijoban II: Paradise Lost / Eden of The East the Movie II: Par
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511856.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Madan no Ou to Vanadis | Повелитель волшебных стрел и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507827.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Yuukoku no Moriarty (2022) | Патриотизм Мориарти OVA [2022, OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506217.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Yuyushiki / Формула ЮЮ [2013, TV, 12 + 6 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503339.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Fantasy Bishoujo Juniku Ojisan to | Life with an Ordinary Guy who Reincarnated i
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499666.jpg" />
 </div>
 
 

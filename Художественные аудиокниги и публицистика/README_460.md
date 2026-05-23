@@ -1,84 +1,3 @@
-###  Публикация: 1042200   (579593) от 12.08.2016
-
-Энн Бронте | Агнес Грей (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Творчество сестер Бронте - уникальное явление в мировой литературе.
-Роман "Агнес Грей" написан от первого лица и носит автобиографический характер. В этом первом литературном опыте начинающей писательницы отразились ее переживания в то время, когда она была гувернанткой.
-Агнес Грей" - книга, пожалуй, абсолютно уникальная в литературной истории XIX (   Читать дальше...   )Жанр: зарубежная проза, романПродолжительность: 08:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A2E11C40CD539BAF2F5CB3A642D87F8CF03DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042210   (579533) от 12.08.2016
-
-Джейн Остин | Леди Сьюзен (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман «Леди Сьюзан» Джейн Остин – также переводимый как «Леди Сюзанна» - небольшое произведение, которое писательница написала в промежутке между 1803 и 1805 годами. Многие относят его к незавершенным работам романистки. Ни при жизни автора, ни в течение долгого времени после ее смерти произведение не публиковалось.
-Написанная Джейн Остин «Леди Сьюзан», как и «Любовь (   Читать дальше...   )Жанр: роман в письмахПродолжительность: 02:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67982EA3443D587BB7D50E0824BD93FF57E057A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042202   (579483) от 12.08.2016
-
-Джейн Остин | Нортенгерское аббатство (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Нортенгерское аббатство" наряду с романами "Гордость и предубеждение", "Мэнсфилд-парк", "Эмма" принадлежит перу знаменитой английской писательницы Джейн Остин, чье творчество получило широчайшее признание во всем мире. Достаточно заметить, что к числу почитателей ее таланта принадлежали В.Скотт, В.Вулф, С.Моэм, Д.Б.Пристли (   Читать дальше...   )Жанр: Роман, классикаПродолжительность: 10:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77958294576B0DB23FF3D3CC654A0F281B83165C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042158   (579478) от 12.08.2016
 
 Джейн Остин | Сэндитон (2013) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579478.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579470.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579423.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579295.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579082.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579022.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579020.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579016.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578997.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578952.jpg" />
 </div>
 
 
@@ -351,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578948.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578860.jpg" />
 </div>
 
 
@@ -403,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578843.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578829.jpg" />
 </div>
 
 
@@ -455,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578791.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578462.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578404.jpg" />
 </div>
 
 
@@ -536,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578340.jpg" />
 </div>
 
 
@@ -562,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578064.jpg" />
 </div>
 
 
@@ -588,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577990.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577938.jpg" />
 </div>
 
 
@@ -641,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577893.jpg" />
 </div>
 
 
@@ -668,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577797.jpg" />
 </div>
 
 
@@ -679,6 +598,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B26719ACD41D3315B5D8A4EE9A811F8B488FB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150665   (577732) от 16.07.2017
+
+Александра Лисина | Мэтр на охоте (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлому студенту Академии всеобщей магии, а по совместительству — некроманту, который, как считают, погиб еще пятьдесят лет назад, не до скуки. Столько дел, что голова кругом. Тайный заговор раскрой, с наемными убийцами договорись, новые знания по светлой магии освой… И пусть на вид ты всего лишь рыжий мальчишка-первокурсник — не беда. Чем меньше подозрений вызывает (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750CB4AA3294C7F3FCEFD2AA2F3C102C984E7B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554477   (577628) от 30.05.2022
+
+Абрахам Меррит | «Доктор Гудвин» Книга 2. Металлическое чудовище (2022) [MP3, Владимир Соловейчик]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Металлическое чудовище – фантастический роман Абрахама Меррита, вторая книга цикла «Доктор Гудвин», жанр научная фантастика.
+
+Доктор Гудвин исследует недоступный район Гималаев и сталкивается с явными проявлениями коллективного сознания у загадочных металлических существ, которые имеют форму кубов, шаров и конусов и способны свободно передвигаться в пространстве (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастикаПродолжительность: 07:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CCEE1617B62A8AD455C6C3B32D2313EA1D46C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554486   (577604) от 30.05.2022
+
+Чайна Мьевиль | Посольский город (2022) [MP3, Александра Грин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577604.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем люди колонизировали планету Ариеку, обитатели которой владеют самым уникальным языком во Вселенной. И лишь немногие из землян, специально модифицированные, способны общаться с этими существами. После долгих лет, проведенных в глубоком космосе, на планету возвращается Ависа Беннер Чо. Она не может говорить на языке ариекаев, но она – неотделимая (   Читать дальше...   )Жанр: Космическая фантастика, Социальная фантастикаПродолжительность: 15:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4531DCD1FC3A7B0C81795383837862A759021490
 ```
 
 https://mybot314.ru/tekegram_catalog/

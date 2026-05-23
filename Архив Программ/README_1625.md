@@ -6,7 +6,7 @@ u-he - Hive 1.2.0.8115 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226255.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ uTorrent Pro 3.5.5 Build 46542 Stable RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226247.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Athentech Perfectly Clear + Essentials v3.6.3.1372 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226238.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ JRiver Media Center 30.0.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226237.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ QQ Browser 10.3.1.2843 Portable by Cento8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226204.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Macrium Reflect v7.2.3906 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226193.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SiSoftware Sandra Lite 2013.01.19.19 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226189.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Stellarium 0.14.65.0 Test [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226166.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ HomeBank 5.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226141.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ uTorrent Pro 3.5.5 Build 46542 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226133.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dr. Folder 2.8.6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226125.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Uninstall Tool 3.7.1 Build 5695 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226094.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Avira Scout 2015.12.03.00064s (46.0.2490.86) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226087.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Dropbox 3.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226079.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ foobar2000 1.6.13 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226076.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ CPU-Z 2.03.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226065.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Geek Uninstaller 1.5.1 Build 163 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226018.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy 10.2022 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225951.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Equinox Skin Pack Beta-Win8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225923.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Opera 72.0.3815.371 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225920.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Torch Browser 42.0.0.10695 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225890.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ GeoGebra 6.0.793.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225851.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2060.0 (17.10.2022) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225831.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy 10.2022 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225821.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Freemake Video Converter 4.1.9.1 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225818.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ MEGA Sync Client 2.5.1 (31dbb) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225792.jpg" />
 </div>
 
 

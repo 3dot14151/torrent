@@ -1,29 +1,3 @@
-###  Публикация: 1593026   (156466) от 27.12.2022
-
-Lunistice (2022) [Multi] (1.05a) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Lunistice может заинтересовать тех, кто ностальгирует по ранним трехмерным платформерам. Графика в этом проекте специально сделана в низкополигональном стиле и в низком разрешении. Этот ретро-платформер подражает консольным хитам, выходившим на приставках пятого поколения в 90-е годы. Он предлагает исследовать воспоминания главной героини по имени Хана. По сюжету (   Читать дальше...   )Тип издания: LicenseРазработчик: A Grumpy FoxЖанр: Экшны, Приключение, ПлатформерЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27BF0557BB18B01E4917E8B0840FD0B58114C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194332   (156377) от 24.12.2017
 
 ECHO (2017) [En/Fr/Ge] (1.05) License GOG
@@ -32,7 +6,7 @@ ECHO (2017) [En/Fr/Ge] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156377.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Gunz The Duel / Поединок на оружии (P) [En/8672] 2005 | R.G. Act
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156351.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156341.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156313.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Human: Fall Flat (2016) [Ru/Multi] (842523) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156304.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Redout (2016) [Ru/Multi] (1.6.0/dlc) License PLAZA [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156291.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sine Mora [En/Multi6] (Steam-Rip/1.0.0.1) 2012 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156219.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156198.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Disney Classic Games Collection: Aladdin, The Lion King, The Jungle Book (2021) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156147.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Test Drive: Ferrari Racing Legends [En] (Lossless Repack) 2012 | R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155832.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Yuletide Legends 3: Who Framed Santa Claus (2018) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155502.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Royal Legends: Marshes Curse (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155424.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Millidor (2016) [Ru] (0.9.0.3) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155375.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Crime O'Clock (2023) [Multi] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155178.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Remain (2016) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155103.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Christmas Wonderland 9 / Рождество 9. Страна чудес (2018) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155080.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sundered (2017) [Ru/Multi] (911) Repack xatab [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155068.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154920.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Iris.Fall (2018) [Ru/Multi] (1.0.00024) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154918.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Salt and Sacrifice (2023) [Multi] (2.0.0.0a8) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154898.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ State of Survival (2023) [Ru/Multi] (1.20.20.644) License (обновляема�
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154866.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154796.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154783.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ BELOW (2018) [Ru/Multi] (1.0.0.30) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154778.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154770.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B5B9A0B3D7A0535B4B9D91DAEF29538C4152F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516876   (154752) от 19.12.2021
+
+Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это небольшая побочная история скрытности и решения головоломок со знакомыми персонажами и сеттингом из классического приключения Studio Pixel. После того, как Балрог забирает рождественские подарки, украденные Чабой, трусливый Мимига по имени Санта должен проникнуть в каждый дом и вернуть пропавшие пакеты. Проходя на цыпочках мимо кроватей спящих жителей и избегая (   Читать дальше...   )Тип издания: LicenseРазработчик: Nicalis, Inc.Жанр: Приключение, Головоломка, СтелсЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23890AA3ECF1B54B9118974E4BECB09B97963671
 ```
 
 https://mybot314.ru/tekegram_catalog/

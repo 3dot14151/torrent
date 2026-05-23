@@ -6,7 +6,7 @@ Bootstrap Studio 5.8.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002801.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Doogie White & La Paz - 2 альбома Collection (2012-2013) [FLAC|Lossless|i
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002770.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Berner & Curren$y - Pheno Grigio (2019) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002769.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Wilma Vritra - Burd (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hop,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002768.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002763.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Eto & Superior - Long Story Short (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002762.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Slimjet 25.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002758.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Monster Jam: All Star Challenge, Las Vegas, Night 1 (11.10.2019) WEB-DL [H.264/1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002755.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Chromium 79.0.3945.117 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002718.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ DestroyPix Pro 1.5.3 (build 7) [En] - Изменение фотографий
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002717.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ UltraISO Premium Edition 9.7.6.3829 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002703.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ MInstAll v.01.08.2021 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002693.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Google Chrome 79.0.3945.117 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002682.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Format Factory 4.10.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002681.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Opera 66.0.3515.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002678.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Windows 10 Manager 3.2.0.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002648.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ornatrix v1.0.0.21988 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002641.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Auslogics BoostSpeed 11.3.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002640.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ DVDFab All-In-one 11.0.6.5 (32/64 bit) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002622.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002613.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Firefox Browser ESR 78.13.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002602.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Balabolka 2.15.0.795 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002599.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ OCCT 9.0.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002598.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Skype 8.75.0.134 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002596.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ BurnAware Professional 14.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002590.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ TapinRadio 2.14.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002589.jpg" />
 </div>
 
 

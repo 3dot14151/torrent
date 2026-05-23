@@ -6,7 +6,7 @@ Wondershare PDFelement 9.5.1.2174 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242267.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XYplorer 24.30.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242265.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PotPlayer 230405 (1.7.21900) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242250.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinNTSetup 5.2.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242248.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pioneer DJ Rekordbox 6 Professional 6.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242247.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ O&O DiskImage Professional 18.3 Build 286 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242243.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Edge 112.0.1722.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242235.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft PowerToys 0.69.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242227.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Complete Internet Repair 8.1.3.5219 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242225.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ OCCT 12.0.0.b5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242223.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VueScan Pro 9.7.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242216.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Topaz Video AI 3.2.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242198.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Opera 97.0.4719.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242182.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ StaxRip 2.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242179.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MediaInfoXP 2.45 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242158.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Perfectly Clear WorkBench 4.4.0.2473 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242140.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ AIMP 5.11 Build 2428 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242134.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ StartAllBack 3.5.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242132.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Revo Uninstaller Pro 4.5.5 (+ Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242129.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ File & Image Uploader 8.3.1 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242123.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Mandelbulber 2.29.0 + Standalone [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242121.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ MassTube Plus 16.5.4.659 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242115.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ PhotoDiva Pro 3.25 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242112.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ StartAllBack 3.5.1 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242109.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AllDup 4.5.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242106.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ MassTube Plus 16.5.4.659 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242072.jpg" />
 </div>
 
 

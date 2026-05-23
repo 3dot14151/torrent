@@ -6,7 +6,7 @@ macOS 12 Monterey 12.6 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207862.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Uninstall Tool 3.7.3 Build 5712 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207858.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera One 101.0.4843.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207851.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Malwarebytes AdwCleaner 8.4.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207847.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AMD Radeon Software Adrenalin Edition 23.7.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207845.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PotPlayer 230208 (1.7.21876) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207834.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FinePrint 11.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207833.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Process Explorer 17.05 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207832.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Clipboard Fusion Pro + Portable + MSI 6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207829.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Microsoft Visual Studio 2022 Enterprise 17.6.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207827.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NVCleanstall 1.15.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207826.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Firefox Browser 115.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207824.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ HomeBank 5.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207822.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Pineapple Pictures 0.7.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207818.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ FolderSizes 9.5.425 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207815.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Navicat Premium 16.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207813.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Topaz Video AI 3.3.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207808.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Windows 10 Manager 3.7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207802.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ simplewall 3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207798.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Aqua Mail Pro 1.45.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207793.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CCleaner Pro: ПО для очистки 23.14.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207789.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Windows 10 Manager 3.7.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207788.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ KeePassXC 2.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207782.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PC HelpSoft Driver Updater 7.0.990 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207781.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ KeePass Password Safe 2.53.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207773.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ uTorrent 3.5.5 Build 46514 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207768.jpg" />
 </div>
 
 

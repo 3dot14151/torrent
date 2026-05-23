@@ -1,29 +1,3 @@
-###  Публикация: 1400588   (718642) от 05.08.2020
-
-BBC. Чудеса живой природы с Дэвидом Аттенборо / David Attenborough's Natural Curiosities (2017) WEB-DL [H.264/1080p] (Сезон 4, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мир полон удивительных существ. Природа некоторых из них кажется невероятной. Отдельные животные своей необычной биологией привлекают особое внимание. Какие-то из них известны уже несколько веков, другие обнаружены совсем недавно. В этой программе сэр Дэвид Аттенборо расскажет, почему они считаются чудесами живой природы.Производство: Великобритания, A humble bee films, BBC EarthЖанр: Документальный, природа, флора, фаунаРежиссер: Хилари Джеффкинс, Шармила ЧадхуриПеревод: Одноголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: 6 х ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0D184E7F33168435010CD6C04E4A4892051C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129957   (718513) от 30.04.2017
 
 NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
@@ -32,7 +6,7 @@ NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718513.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery: Почему? Вопросы мироздания. Наступит �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717920.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Horizon. Жизнь без старости / Don't Grow Old (2009) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717775.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Discovery: Почему? Вопросы мироздания. Существуе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717767.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC. Horizon. Играя роль Бога / Horizon. Playing God (2012) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717761.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ NG. Десятка лучших фотографий National Geographic / Nat G
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717728.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC. Умные обезьяны / Clever Monkeys (2008) HDTVRip [H.264/720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717627.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NGW: Выживание в Серенгети / Surviving the Serengeti (2015) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717522.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NGW: Африканская суперзмея / Africa's super snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717513.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ NGW: Переменчивые животные. Подростковые кош�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717511.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ BBC: Горизонт - Как убить человека / Horizon - How to Ki
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717475.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ NGW: Дикая природа Дальнего Востока / Wild Far East (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717408.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ NGW: Переменчивые животные. Брачные игры / Moody 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717391.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Discovery: Как сконструировать человека / Discovery: H
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_717357.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ NGW: Город выдр / Otter town (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717307.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ NGW: Супер-белки / Super Squirrel (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717304.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ NGW: Дикие маленькие кошки / Wild little cats (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717302.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716719.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716707.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716619.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ BBC: Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716431.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716351.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ NG: 1989: Год, сотворивший современный мир / 1989: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716274.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716226.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Discovery. Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715866.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Discovery Channel и Морган Фримен снова ведут зрите�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7AB7893A4F2A59B3C1A29A95834C0F1187986D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 328790   (715815) от 26.04.2011
+
+NG: Самые страшные стихийные бедствия: Торнадо / Ultimate Disaster: Tornado (2007) TVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торнадо - это яркое зрелище, но его разрушительная сила колоссальна. С помощью специалистов и компьютерной графики, мы увидим к чему может привести это стихийное бедствие.Производство: СШАЖанр: ДокументальныйРежиссер: Jeff SwimmerПеревод: Одноголосый профессиональныйПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E77D3E0998157B8B99CDB486F40304BEC7018A
 ```
 
 https://mybot314.ru/tekegram_catalog/

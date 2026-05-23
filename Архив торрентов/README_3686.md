@@ -6,7 +6,7 @@ FanControl V159 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240053.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PhotoResizerOK 2.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240047.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PDF Checkpoint 1.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240044.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VueScan Pro 9.7.99 (17.04.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240031.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chromium 114.0.5735.91 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240030.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Metadatics 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240027.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ OneCommander Pro 3.41.3.1 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240024.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ FanControl V154 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240022.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240013.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Dropzone 4 Pro v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240012.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Wondershare AllMyMusic 3.0.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240009.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Viber 20.2.0.4 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240008.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ TreeSize Professional 8.3.2.1665 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240002.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ NIUBI Partition Editor 9.4.1 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239998.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ EazyDraw 10.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239996.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Pixelmator Classic 3.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239986.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239984.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Rainlendar Lite 2.19.2 Build 174 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239982.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ MetaImage  2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239977.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ OCCT 12.0.0.b4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239976.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Amadine 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239972.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ SuperDuper! 3.5 beta1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239969.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ FinePrint Software (FinePrint 11.22 / pdfFactory Pro 8.22) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239964.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Markster 2.12.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239962.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Sandboxie plus 1.9.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239961.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ AirFoil+Airfoil Satellite 5.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239960.jpg" />
 </div>
 
 

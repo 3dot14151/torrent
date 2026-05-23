@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.6.0.2645 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62255.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Process Lasso Pro 14.0.1.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62253.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62252.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AMD Radeon Software Adrenalin Edition 24.3.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62248.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Windows and Office Genuine ISO Verifier 11.15.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62246.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ocenaudio 3.13.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62235.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Skype 8.115.0.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62233.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Waterfox Current G6.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62230.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ CherryTree 1.1.0.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62228.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0319) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62223.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Process Lasso Pro 14.0.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62221.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ O&O Defrag Professional 28.0 Build 10005 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62217.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Joplin 2.14.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62216.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.6 Build 7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62210.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AIDA64 Extreme Edition 7.20.6807 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62192.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Blackmagic Design Fusion Studio 18.6.6 Build 4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62153.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ AOMEI Backupper Technician Plus 7.3.4 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62150.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Office Installer & Office Installer+ 1.08 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62149.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Windows 10 Manager 3.9.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62147.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Foobar2000 2.1.3 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62144.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AMD Radeon Software Adrenalin Edition 24.3.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62140.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ uTorrent Pro 3.6.0 Build 47028 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62137.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Opera One 108.0.5067.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62133.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ SupRemo 4.11.0.2489 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62132.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Wise Care 365 Pro 6.6.6.636 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62130.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Viber 22.3.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62129.jpg" />
 </div>
 
 

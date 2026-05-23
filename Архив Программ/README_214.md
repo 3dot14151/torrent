@@ -6,7 +6,7 @@ BlueStacks Tweaker 5.16.1 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964054.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ MiniTool Partition Wizard Technician 11.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964005.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Sprint-Layout 6.0 DC 11.02.2020 RePack by NikZayatS2018 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964004.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ R.saver 6.23 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964001.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Zoom Player MAX 15.0 Build 1500 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963940.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ SpeedCommander 13.00.5900 (feSS Edition v1.02) (x86 и x64 версии) [тол
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963610.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ oCam Screen Recorder 202.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963428.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PicPick 4.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963349.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963301.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ HWiNFO 32-64 5.12-2740 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963296.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adblock Plus 2.7.1 for Mozilla Firefox [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963284.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ MediaHuman YouTube Downloader 3.9.9.32 (1202) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963267.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Download Master 6.7.1.1497 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963233.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Emsisoft Emergency Kit 11.0.0.6082 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963226.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Chromium 80.0.3987.100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963223.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Telegram Desktop 1.9.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963207.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ OCCT 5.5.3.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963206.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CPU-Z 1.75.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963177.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Emurasoft EmEditor Professional 19.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963159.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Opera 66.0.3515.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963155.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ LDPlayer 3.83 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963150.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Product Key Explorer 4.2.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963148.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ FoneLab Data Retriever 1.2.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963147.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Mirillis Action! 4.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963145.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963116.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Office 2016 Standard 16.0.4312.1000 RePack by KpoJIuK (2016.01) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963111.jpg" />
 </div>
 
 

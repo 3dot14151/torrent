@@ -6,7 +6,7 @@ Dead Space (2008) [Ru/En] (1.0.0.222) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shapez 2 - Factory (2024) [Ru/Multi] (1.0.2-rc1/dlc) Repack Other s [Supporter E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066830.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sudden Strike 5 (2026) [Ru/Multi] (1.02.28385/dlc) Repack Let'sРlay [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066816.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DeadHunt / DeadHunt: Охотник на Нежить (2005) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066809.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kristala (2024) [Multi] (1.0.3/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066771.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack seleZen [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066746.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/En] (1.2/dlc) Repack FitGirl [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066740.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Bō: Path of the Teal Lotus (2024) [Ru/Multi] (1.2.7) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066683.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ YAR: Forgotten Throne / ЯР: Забытый Чертог (2024) [Ru/Multi] (1.0
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066642.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Jay and Silent Bob: Chronic Blunt Punch (2026) [Multi] (Build 22858920) Scene Te
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066630.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066628.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066599.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Terraformers (2022) [Ru/Multi] (1.7.79/dlc) Repack Let'sРlay [Collection]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066591.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ All Will Fall (2026) [Ru/Multi] (1.0.1f1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066491.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.5/dlc) Repack HardwareMining
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066484.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Gori: Cuddly Carnage (2024) [Ru/Multi] (1.0.187/dlc) Repack Let'sРlay [Special 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066482.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Europa Universalis V (2025) [Ru/Multi] (1.1.10/dlc) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066475.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ChainStaff (2026) [Ru/Multi] (1.0.4.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066375.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bylina / Былина (2026) [Ru/Multi] (Build 22857118) Repack seleZen [Digital
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066374.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sintopia (2026) [Ru/Multi] (1.0.2.519/dlc) Repack FitGirl [Chairman Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066373.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ DarkSwitch (2026) [Ru/Multi] (R26.0417.9249) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066189.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dawn Break (2026) [Ru/Multi] (Build 22861684) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066130.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Long Dark (2017) [Ru/Multi] (2.52 Build 179852/dlc) Repack FitGirl [Quiet Ap
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066129.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ People of Note (2026) [Ru/Multi] (2026.4.13.2026-CL156094) Repack Let'sРlay [So
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066093.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ChainStaff (2026) [Ru/Multi] (1.0.5.8) Repack Let'sРlay [The Ultimate Weapon]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066084.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Bylina (2026) [Ru/Multi] (Build 22857118/dlc) Repack Let'sРlay [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066071.jpg" />
 </div>
 
 

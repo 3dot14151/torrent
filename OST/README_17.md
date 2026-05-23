@@ -6,7 +6,7 @@ Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403152.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402405.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401596.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401554.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401216.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399290.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398628.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397697.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397682.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Randy Newman - Maverick (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396779.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396734.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396680.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversa
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396560.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395754.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395703.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Thomas Newman - The Shawshank Redemption (1994) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395697.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392902.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391533.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390696.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390602.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389891.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383305.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Gianni Marchetti - Le Notti Porno Nel Mondo N. 2 (Original Motion Picture Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380281.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selectio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377887.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377656.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376456.jpg" />
 </div>
 
 

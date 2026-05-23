@@ -6,7 +6,7 @@ VA - Record Super Chart № 194 (2011) [MP3|320 kbps]<House, Trance, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_626056.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Midimal - The Pursuit Of Happiness (2011) [MP3|192-320 kbps]<Progressive Psy Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_626053.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ VA - Breaks At Dawn (2011) /EMOTION 001/ [MP3|320 kbps]<Drum'n'Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_626043.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Celemony - Melodyne Studio 4 4.1.1.011 STANDALONE, VST, VST3, RTAS, AAX (x86/x64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626040.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Syflex 1.0 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626033.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Malwarebytes AdwCleaner 7.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626031.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Visual Studio 2017 Community 15.7.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626026.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626019.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626018.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Let It Roll Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626015.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Flash Player 18.0.0.186 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626011.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626006.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MotoGP. Этап 7/18. Гран При Испания Каталония. Гон
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626004.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ O&O SafeErase Professional 8.0 Build 140 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626000.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Fusspils 11 - Elektro-Polizei - Alarm Fur Fusspils 11! (2005) [MP3|320 kbps]<EBM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625986.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ XYplorer 19.90 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625974.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ WinUtilities Professional Edition 15.7 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625973.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Glary Utilities Pro 5.117.0.142 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625971.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ LibreOffice 6.2.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625963.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Infuse PRO 7 v7.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625956.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ EditReady 22.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625954.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625940.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ PlistEdit Pro 1.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625919.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ KMS Tools Portable 17.07.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625914.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Phrasebook Pro v1.79 [Ru/Multi] - многоязычный разговорни�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625903.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Oxenfree (2016) [Ru/En] (2.1.0F26) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625901.jpg" />
 </div>
 
 

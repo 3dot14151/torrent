@@ -6,7 +6,7 @@ Satin - Appetition (2022) [MP3|320 Kbps] <Rock & Metal World>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225675.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Outlanders - From Chaos to Extinction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225670.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gatoebrio - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225030.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Divisiv - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224897.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Diamond Chazer - 2 Albums (2020-2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224810.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hangar 55 - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224770.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Ira - Identidad (2022) [FLAC|Mp3|320 kbps] <Hard & Heavy>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224767.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Big Big Train - Summer Shall Not Fade. Live At Loreley (2022) 2CD [MP3|320 Kbps]
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224694.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Ultimate Holocaust - Blackmail The Nation (2015) [MP3|320 кб/с] <Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224635.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Feskarn - 3 Albums (2014-2022) [MP3|320 Kbps] <Viking Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224398.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Dark Tranquillity - Moment (2020) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224186.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sahg - Born Demon (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223001.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Cassius King - Dread the Dawn (2022) [MP3|320 Kbps] <Doom Metal, Stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222906.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Bloody Hell - Bloody Hell (2015) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222785.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Avantasia - Mystery Of A Blood Red Rose (2015) Single [MP3|320 кб/с] <Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222755.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Orden Ogan - Final Days (Orden Ogan and Friends) (2022) [MP3|320 Kbps] <Heavy Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222695.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Ketha - 4 Albums (2012-2022) [MP3|320 Kbps] <Progressive Metal, Experimental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222687.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ White Skull - Metal Never Rusts (2022) [MP3|320 Kbps] <Heavy Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222619.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Abyssos - Fhinsthanian Nightbreed (1999) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222594.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ DragonForce - 12 Release (2003-2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222585.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Gateway - Aeternae (2014) Demo [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222551.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Brutally Deceased - Black Infernal Vortex (2014) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222537.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Mracnij Znec - 8 Albums (2022-2023) [MP3|320 Kbps] <Epic Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222525.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Brutally Deceased - Satanic Corpse (2016) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222515.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Gateway - Gateway (2015) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222505.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Abyssos - Together We Summon the Dark (1997) [MP3|320 Kbps] <Melodic Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222493.jpg" />
 </div>
 
 

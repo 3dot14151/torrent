@@ -6,7 +6,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765907.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Рожденные в Африке. Уроки охоты / Born in Africa 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765398.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NGW: Дикая Ботсвана / Wild Botswana (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765396.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765395.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery. Техногеника. Гиперболоидные конструк
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765372.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765359.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765333.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765274.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765249.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765214.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765087.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765038.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764434.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Animal Planet: Хищник в городе: лев на свободе / Urban 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764381.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG: Инстинкт выживания: Китай. Яростная река /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764301.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Инстинкт выживания: Пустыни / Primal survivor: Deser
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764300.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763116.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BBC. Horizon: Возможно ли создать звезду на Земле?
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762635.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC. Horizon. Как развить творческие способности?
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762630.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG. Грандиозные переезды - Перенос древнего Е
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761953.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG: Просто магия / General Magic (2018) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761878.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761726.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761572.jpg" />
 </div>
 
 
@@ -597,32 +597,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570532   (761318) от 25.04.2014
-
-BBC. Все о космосе / The Complete Cosmos (1998) DVDRip [1, 2 серии]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм "Все о космосе" - это целая астрономическая энциклопедия у вас дома, уникальное и наиболее полное исследование нашей Солнечной Системы и галактики "Млечный Путь". Взрыв сверхновой, формирование новых звезд и планет, Черные дыры - загадочные убийцы целых галактик и далекие квазары - каждый эпизод расскажет нам много нового и интересного об этих явлениях. Красочная 3D анимация с использованием передовой компьютерной графики позволят увидеть собственными глазами космические облака, где рождаются звезды, проследить путь комет - одиноких странников во вселенной, изучить строение Солнца. Этот фильм был переведен на 60 языков мира и удостоен нескольких наград научных фестивалей, он предназначен для широкой и разносторонней аудитории и будет интересен не только любителям астрономии.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 02:07:54 + 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007A8EF5FC1DF8F3B66571B3AA5496167EE80DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514381   (761299) от 25.04.2014
 
 BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [H.264/720p-LQ] HDTVRip
@@ -631,7 +605,7 @@ BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761299.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Discovery: Новый Мир. Метро будущего / Discovery: Next Worl
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760973.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Discovery Channel приглашает совершить запредельно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FFFFFEE4D174C68FEBDB13D341B620CE9C0CC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 750178   (760785) от 17.05.2016
+
+NG: Взгляд изнутри. Крупнейший круизный лайнер в мире / Inside. The World's Biggest Cruise Ship (2007) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Побывайте на новогоднем круизе лайнера ""Свобода Морей"" - первого в мире корабля, имеющего на борту бассейн с бегущей волной, зону для водных видов спорта, скалодром, ледовый каток и боксерский ринг.Производство: National GeographicЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B43490581C738904FC13B0BECC22107F8DA3E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

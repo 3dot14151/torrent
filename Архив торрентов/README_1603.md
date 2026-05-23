@@ -6,7 +6,7 @@ WhatsApp 2.2206.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688357.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688356.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PortableApps.com Platform 20.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688352.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Kombot - Bass Impact (2012) [MP3|320 кб/с]<Dubstep,Grime>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688345.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688341.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ SpeedUpMyPC 2012 5.2.1.74 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688340.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_688338.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Nitro PDF Professional 7.4.1.8 (x86/x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688335.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VLC Media Player 2.1.0-git-20120606-0004 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688334.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Process Lasso Pro 9.8.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688327.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ ReviverSoft Driver Reviver 5.34.1.4 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688324.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ WinX HD Video Converter Deluxe 5.16.0 (акция Comss) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688322.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Subtitle Edit 3.5.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688320.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Microsoft Edge 84.0.522.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688316.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Carino Coni / Кролик из Карино (2014, ТV, 10 из 12) HDTV 720p R
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688299.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Antivirus Zap - Virus & Adware 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688287.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Vivaldi 2.3.1440.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688285.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Pama International vs Manasseh - Trojan Sessions In Dub (2018) [FLAC|Lossless|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688283.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ ACDSee Photo Studio 5.1.1130 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688274.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ GPU-Z + ASUS_ROG v 2.18.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688270.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ReviverSoft Driver Reviver 5.27.2.16 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688259.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Red Giant Trapcode Suite 13.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688241.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Chief Architect Premier X8 18.3.0.47 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688239.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688237.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Red Giant Shooter Suite 13.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688236.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Steinberg - Cubase Pro 12.0.0.205 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688216.jpg" />
 </div>
 
 

@@ -1,136 +1,3 @@
-###  Публикация: 1847493   (1052387) от 15.01.2026
-
-За голосовые оскорбления в интернете будут штрафовать
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Отправка голосового сообщения с нецензурной бранью через мессенджер в России может стать основанием для наложения административного штрафа. Об этом говорится в судебных материалах, содержание которых приводит РИА Новости.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847427   (1052251) от 14.01.2026
-
-Эксклюзив от Micron: почему потребители совершенно неправильно понимают ситуацию с нехваткой памяти
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Компания Micron, являющаяся одним из трех крупнейших производителей памяти на рынке, решила объяснить сложившуюся в нем ситуацию с самой памятью, заверив, что компания не бросила потребительский рынок, как можно было бы подумать.Напомним, ранее Micron отказалась от потребительского бренда Crucial , которому почти 30 лет, чтобы сильнее привлекать внимание на рынке (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847474   (1052118) от 13.01.2026
-
-NekoVPN — премиальное качество по удивительно низким ценам! YouTube без рекламы. Подключение до 5 устройств. От 100 рублей в месяц
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-NekoVPN позволит настроить защищенное соединение на любом устройстве за 1 минуту!Бесплатный тест 15 дней 🚀🔸 Прямой выделенный доступ 10 Гбит/с на каждом сервере!
-🔸 Youtube без рекламы, 4K грузится за секунды.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847420   (1052117) от 13.01.2026
-
-Италия потребовала от Cloudflare блокировать сайты без суда в течении 30 минут
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Итальянский регулятор связи AGCOM оштрафовал Cloudflare на 14,2 млн евро за отказ блокировать доступ к пиратским сайтам через сервис DNS 1.1.1.1. Компания ответила на претензии.Компания заявила, что будет оспаривать решение и не исключает радикальных мер вплоть до вывода своей инфраструктуры из страны.Штраф выписан в рамках закона Piracy Shield, который обязывает (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847348   (1052026) от 13.01.2026
-
-0xZeOn взломал Denuvo в Dead Space Remake, а voices38 обошел DRM в FIFA 22 и Sonic Colors Ultimate
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Похоже, что в сообществе «крякеров» появился еще один специалист, способный взламывать антипиратскую защиту Denuvo Anti-tamper.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846520   (1051712) от 11.01.2026
 
 Комплект DDR5 за $1500 и Starbucks в подарок
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051712.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051367.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051269.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ Blu-ray отметил 20-летний юбилей — и пока на пен�
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051220.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051110.jpg" />
 </div>
 
 
@@ -270,7 +137,7 @@ Starlink объявила о запуске бесплатного доступ�
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051015.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050986.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050943.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ C  Новым Годом!
 >>10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050619.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050567.jpg" />
 </div>
 
 
@@ -401,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050533.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050329.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050324.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050223.jpg" />
 </div>
 
 
@@ -506,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050138.jpg" />
 </div>
 
 
@@ -532,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049981.jpg" />
 </div>
 
 
@@ -560,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049922.jpg" />
 </div>
 
 
@@ -586,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049882.jpg" />
 </div>
 
 
@@ -612,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049818.jpg" />
 </div>
 
 
@@ -639,7 +506,7 @@ ID для каждого пользователя хотят ввести в р�
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049801.jpg" />
 </div>
 
 
@@ -665,13 +532,147 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049761.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Программист из «Яндекса» нанял для себя няню из детсада. Благодаря ей он заново научился есть, гулять, вовремя ложиться спать, и увеличил свой доход на 46%.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844034   (1049715) от 24.12.2025
+
+К РКН подали иск из-за ограничений звонков в мессенджерах
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользователи WhatsApp и Telegram подали в суд на Роскомнадзор и Минцифры. По их мнению, ведомства нарушают их конституционные права, ограничивая звонки в мессенджерахВ Таганский районный суд Москвы 23 декабря подан административный иск от группы россиян — пользователей мессенджеров Telegram и WhatsApp*, рассказали РБК представители истцов.В иске, с которым ознакомился (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843788   (1049630) от 23.12.2025
+
+Социальное приложение Be My Eyes для слабовидящих людей перестало работать в РФ из-за ограничений в стране
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользователи сообщили СМИ, что социальное мобильное приложение Be My Eyes для кооперации волонтёров и незрячих или слабовидящих людей перестало работать в РФ. Эксперты считают, что это произошло, вероятно, из-за ограничений видеозвонков в стране от иностранных платформ со стороны регулятора.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843660   (1049585) от 22.12.2025
+
+Mozilla позволит полностью отключать ИИ-функции в браузере Firefox
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla официально заявила, что в Firefox появится единый переключатель, полностью отключающий все ИИ-функции браузера. Компания рассчитывает таким образом повысить лояльность пользователей, обеспокоенных внедрением ИИ.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843602   (1049450) от 22.12.2025
+
+Почему тактовая частота перестала быть определяющим фактором производительности процессоров
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тактовая частота перестала определять реальную мощность процессоров. Анализ влияния архитектуры, кэша L3 и IPC на производительность в современных задачах. Разбор причин стагнации частот на уровне 5-6 ГГц и преимуществ стабильной работы под нагрузкой над кратковременными пиками ускорения
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843147   (1049287) от 21.12.2025
+
+Обход "белых списков",  ответ Амнезии
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых популярных вопросов — обход "белых списков" при отключении мобильного интернета. Здесь, как всем казалось, всё просто: есть список сервисов, которые работают при мобильных ограничениях и нужно просто маскировать наше VPN-подключение в подсетях VK или Яндекс.
 (   Читать дальше...   )
 
 ## Скачать торент

@@ -1,29 +1,3 @@
-###  Публикация: 1745816   (45372) от 28.08.2024
-
-Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Скандинавская стратегия Northgard с углублением в древнюю мифологию викингов, которые нашли Нордгард - город, полный богатств, мифов и древних легенд. Игра сочетает в себе миролюбивую графику и постепенное развитие вашего поселения. Однако викинги быстро охладили свой пыл, когда встретились с первой опасностью Northgard - зверским холодом, окутывающим все берега (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EC03B817E3824E6C900BEE1B374DE203034A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735156   (45327) от 29.08.2024
 
 The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
@@ -32,7 +6,7 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45327.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45325.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45322.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45302.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45297.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45256.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ inZOI: Character Studio (2024) [Ru/Multi] (15485995) Repack Meadwey [Early Acces
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45217.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45211.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Patron (2021) [Ru/Multi] (1.906.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45207.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Wargame: Red Dragon (2014) [Ru/Multi] (130278/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45201.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Monster Jam Showdown (2024) [Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45200.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Crypt Custodian (2024) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45190.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ World Turtles (2023) [Multi] (1.02) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45185.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Golf Club Wasteland / Golf Club Nostalgia (2021) [Ru/Multi] (1582) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45184.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Fireside (2024) [Ru/Multi] (1.0.3_rc1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45169.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Highwater (2024) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45165.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Alter Ego (2010) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45163.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Just Xiangqi / Сянци (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45155.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45147.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Raiders! Forsaken Earth (2020) [En] (1.4.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45061.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ People Playground (2019) [En] (1.27.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45010.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Regiments (2022) [Ru/Multi] (1.4.5/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45003.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.5.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44985.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44978.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44977.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3EFF08A388370EBB1076F9813F8435A2C6307A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746634   (44973) от 01.09.2024
+
+Campaign Series: Vietnam (2022) [En] (1.00.00) Scene SKIDROW
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Campaign Series: Vietnam - тактическая пошаговая варгейм-игра, посвященная различным военным конфликтам в Юго-Восточной Азии и в частности войне во Вьетнаме. Игра охватывает знаменитые события 20-го века, которые берут свое начало в послевоенный период с 1948 года по 1967 года. Разработчики постарались сделать бои и локации максимально аутентичными и правдоподобными, (   Читать дальше...   )Тип издания: SceneРазработчик: Campaign Series LegionЖанр: СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34A22629D4603BC255C4FB8AF9683A82608AB1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

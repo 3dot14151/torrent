@@ -1,55 +1,3 @@
-###  Публикация: 835257   (844349) от 02.04.2016
-
-QuickPic 4.7.2.2404 [Ru] - Просмотрщик изображений с мультитачем
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Простой, быстрый и надежный просмотрщик картинок с мультитачем. Лучшая замена стандартной галерее. И, наверное, лучший вьювер, из всех, что есть в Google Play.Тип издания: FreeРелиз состоялся: 02.04.16Разработчик: SoftXperienceПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CBB9C7938324A0B8B3DDE859FEA47C985C2107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112356   (842992) от 08.03.2017
-
-Деловые заметки - Блокнот v1.2 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет добавлять, редактировать, группировать и удалять заметки.Тип издания: Пиратка (Pro)Релиз состоялся: 26.01.2017Разработчик: A7-studioПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9A105F662497C041A28ECD311B087CE4367077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003433   (842944) от 03.04.2016
 
 Блюда из мяса v1.14 Ad-Free [Ru/Multi] - более 100 рецептов блюд из мяса на любой случай
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842944.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842924.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842627.jpg" />
 </div>
 
 
@@ -142,7 +90,7 @@ ROEHSOFT DRIVE-EXPERT 1.21 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839632.jpg" />
 </div>
 
 
@@ -169,7 +117,7 @@ Ebook Converter v1.13.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837404.jpg" />
 </div>
 
 
@@ -195,7 +143,7 @@ Advanced Download Manager and Torrent downloader v12.6.1 Pro Mod  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835860.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ Battery Widget Plus v2.43 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835807.jpg" />
 </div>
 
 
@@ -248,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834759.jpg" />
 </div>
 
 
@@ -274,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833463.jpg" />
 </div>
 
 
@@ -303,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833462.jpg" />
 </div>
 
 
@@ -329,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833357.jpg" />
 </div>
 
 
@@ -356,7 +304,7 @@ Sobotta Anatomy Atlas 2.9.0 [En/Ge] - анатомический атлас че
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832052.jpg" />
 </div>
 
 
@@ -385,7 +333,7 @@ Electrical Cost v3.0.4 Pro [Ru/Multi] - прогнозный расчет сто
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831469.jpg" />
 </div>
 
 
@@ -411,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830186.jpg" />
 </div>
 
 
@@ -438,7 +386,7 @@ Glitch Lab v1.4.5 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_829525.jpg" />
 </div>
 
 
@@ -466,7 +414,7 @@ AppMgr Pro III v5.01 (Lite Mod) [Ru/En] - Перенос приложения н
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828941.jpg" />
 </div>
 
 
@@ -492,7 +440,7 @@ Maths Formulas 9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827969.jpg" />
 </div>
 
 
@@ -518,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824892.jpg" />
 </div>
 
 
@@ -544,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824637.jpg" />
 </div>
 
 
@@ -570,7 +518,7 @@ WhatsTool: Toolkit for WhatsApp v3.0.17 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824315.jpg" />
 </div>
 
 
@@ -599,7 +547,7 @@ Open Camera 1.48.1 [Ru] - Фото и видеокамера
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823844.jpg" />
 </div>
 
 
@@ -625,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822091.jpg" />
 </div>
 
 
@@ -653,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816884.jpg" />
 </div>
 
 
@@ -679,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815723.jpg" />
 </div>
 
 
@@ -693,6 +641,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DFC92CF110F5879FCA054CF807EB7B9CCCF068D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922620   (815389) от 21.10.2021
+
+Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа с дробями. Пошаговые операции. Алгебра. Выдает промежуточные результаты при вводе выражения. Вводимые выражения преобразуются и выдаются в виде картинки, как если бы вы записывали формулы в привычном виде на листе бумаги. На одном экране, можно вводить несколько разных выражений для расчета, разделяя их. Каждое выражение получается на отдельной строке. Вы (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 19.08.2021Разработчик: Mathlab Apps, LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F89BF642778A0E50B42A9AAB6AA1C257396D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383044   (815293) от 13.05.2020
+
+Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы задумывались, почему некоторые люди в последний момент не садятся в самолет, который разобьется?
+Как успешные бизнесмены чувствуют тенденции рынка? Неужели для этого надо быть ясновидящим? Каждый день каждый из нас сталкивается с множеством выборов, от которых зависит наша жизнь. Как сделать выбор наиболее благоприятным? Можно часами размышлять и анализировать, (   Читать дальше...   )Тип издания: Пиратка (открыта Premium, удалён мусор)Релиз состоялся: 22.01.2020Разработчик: Oleksandr AlbulПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5361D12B40D13897D0B55F50FFCF04F38CB8EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

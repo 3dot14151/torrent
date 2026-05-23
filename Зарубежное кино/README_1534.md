@@ -1,55 +1,3 @@
-###  Публикация: 1636803   (251874) от 01.06.2023
-
-Подземелья и драконы: Честь среди воров / Dungeons & Dragons: Honor Among Thieves (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Эдгин Дарвис вместе с верной воительницей Хольгой объединяются с рассеянным магом Саймоном, ловкой друидкой Дорик и чопорным паладином Зенком, чтобы вернуть утерянную реликвию, наделенную огромной силой. Однако всё быстро идет наперекосяк, когда на их пути встает злодей Фордж.Производство: США, Канада, Великобритания, Исландия, Ирландия, Австралия / Paramount Pictures, Entertainment One, Allspark PicturesЖанр: фэнтези, боевик, комедияРежиссер: Джон Фрэнсис Дейли, Джонатан М. ГолдштейнАктеры: Крис Пайн, Мишель Родригес, Джастис Смит, София Лиллис, Хью Грант, Хлоя Коулмэн, Дэйзи Хэд, Реге-Жан Пейдж, Кайл Хиксон, Спенсер УайлдингПеревод: Дублированный (Iyuno-SDI Group, Le Doyen), Многоголосый профессиональный (LostFilm, Jaskier, TVShows, NewComers), авторский (Ю.Сербин)Язык озвучки: русский, украинский, английскийСубтитры: русские (Forced, Full), украинские (Forced, Full), английские (Forced, Full, SDH), ивритПродолжительность: 02:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E4E67284F06EE14818AF20D58C32E5B5FAA4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444198   (251861) от 01.06.2023
-
-Искусственный интеллект / Superintelligence (2020) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Искусственный интеллект выбрал женщину в качестве образца для наблюдений за человечеством. В зависимости от поведения героини высший компьютерный разум решит, оставлять несовершенных людишек в живых или стереть с лица Земли.Производство: США / Creative Wealth Media Finance, New Line Cinema, On the DayЖанр: Фантастика, мелодрама, комедияРежиссер: Бен ФэлкоунАктеры: Мелисса Маккарти, Джеймс Корден, Бобби Каннавале, Брайан Тайри Генри, Сэм Ричардсон, Бен Фэлкоун, Майкл Бич, Рэйчел Тикотин, Джессика Ст. Клэр, Каран СониПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089A452CA723E826A2ADD3CF830B890CDDCBE8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835807   (251846) от 08.11.2025
 
 Последний неандерталец / Ao, le dernier Neandertal (2010) BDRip [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251846.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251840.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251835.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251832.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251831.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251827.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251826.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251825.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251820.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251806.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251792.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251774.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251769.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251759.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251739.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251737.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251734.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251723.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251702.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251687.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251684.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251677.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251667.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251660.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4406F07883BA0CCCF11738AA5C182359774E7ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495537   (251570) от 12.05.2012
+
+Киборг 2: Стеклянная тень / Cyborg 2: Glass Shadow (1993) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251570.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2074 году Земля охвачена борьбой крупнейших корпораций. Кобайяши Электроникс (Япония) и Пинуил Роботикс (США) сражаются за контролем над индустрией производства программного обеспечения и производства киборгов. Киборги заменили людей во всех отношениях: от солдата на поле боя до проститутки в борделе. На карту поставлены миллиарды долларов.
+ В американской корпорации создан киборг в виде красивой женщины, в тело которой была введена мощнейшая жидкая взрывчатка. Эта «киборгша» должна была пойти на переговоры с руководством японской корпорации и там взорваться. После этого акции бы упали, и конкурент был бы устранен. Все, наверное, так и произошло бы, но красоткой увлекся ее учитель каратэ. Когда она узнала, что обречена на смерть своими творцами, он пришел ей на помощь и началась погоня…Жанр: Фантастика, БоевикРежиссер: Майкл ШродерАктеры: Анджелина Джоли, Элиас Котеас, Джек Пэланс, Билли Драго, Карен Шеперд, Аллен Гарфилд, Рик Янг, Рени Гриффин, Свен-Оле Торсен, Трейси УолтерПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA753FDEA40CB34C47BD3ABF8159ED19529CB927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495189   (251511) от 12.05.2012
+
+Много шума из ничего / Much Ado About Nothing (2005) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то у телеведущих Беатрис и Бенедика был роман. Однажды он сел в самолет и улетел, даже не попрощавшись. Вернулся, как ни в чем не бывало, через три года, чтобы занять место рядом с ней в студии. Она не скрывает своего презрения к нему и осыпает ядовитыми комплиментами. Он не остается в долгу – называет ее блеклой дурой и демонстративно флиртует с ассистенткой. Коллегам сразу стало ясно: Беатрис и Бенедик без ума друг от друга. И коллектив решил вмешаться в войну телезвезд…Жанр: КомедияРежиссер: Брайан ПерсивалАктеры: Сара Пэриш, Дэмиан Льюис, Билли Пайпер, Том Эллис, Дерек Риддел, Нина СозэньяПеревод: Многоголосый закадровыйПродолжительность: 01:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B4A18770DD32DCBA6EF22E440C219998B3B6DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

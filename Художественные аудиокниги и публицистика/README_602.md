@@ -1,81 +1,3 @@
-###  Публикация: 1255923   (356901) от 21.10.2018
-
-Елена Арсеньева | Алена Дмитриева (Книга 15). Лесная нимфа (2018) [MP3, Ольга Петрова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Автор дамских детективов Алена Дмитриева давно встречалась с ним – молодым, красивым и женатым, и ничто не мешало их счастью: ни разница в возрасте, ни законная супруга. Но на все – воля случая… Как-то раз Алена стала свидетелем дорожной разборки. И конечно же, приняла сторону пострадавшего. Тем более что Дмитрий Анненский выдернул писательницу буквально из-под колес (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 10:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41485ED5B151B99349D9EF3FF62CBCE338011C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577329   (356882) от 18.09.2022
-
-Валерий Шарапов | Тревожная весна 45-го. Послевоенный детектив. Ножевая атака (2022) [MP3, Юрий Катарманов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Послевоенный Псков. В ходе массовой драки убит нападающий футбольного клуба «Труд» Аркадий Зацепин. Подозреваемый, которого задержали по горячим следам, оказался не причастен к преступлению. Начальник оперативного отдела Павел Зверев уверен: драка была затеяна специально, чтобы убить футболиста, и причиной тому – совсем не спорт. Но кто и зачем организовал эту расправу? (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 06:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB81B090BBFF57889690DC19D1AED05F6406F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071396   (356831) от 11.11.2016
-
-Крессида Коуэлл | Как приручить дракона (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Во времена молодости Иккинга Кровожадного Карасика III на свете водились драконы. Драконы были разные. Одни, большие и мрачные, парили в небесах, как огромные грозные птицы, и строили гнезда на вершинах утесов. Другие, мелкие и проворные, сновали дружными стайками и ловили крыс и мышей. Несусветно громадные Морские Драконы были в двадцать раз крупнее Большого Синего (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 03:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3283E54CDACA4BDFBC18E112775FBB8426E516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255936   (356788) от 21.10.2018
 
 Елена Арсеньева | Алена Дмитриева (Книга 18). Фигурки страсти (2018) [MP3, Татьяна Ненарокомова]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356788.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356786.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356729.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356721.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356697.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356683.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356677.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356665.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356661.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356648.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356550.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356544.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356510.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356437.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356425.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356419.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356411.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356393.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356380.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356285.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356169.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355883.jpg" />
 </div>
 
 
@@ -671,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355878.jpg" />
 </div>
 
 
@@ -683,6 +605,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500DE48D4274FBDF09452CD053B9F7459DAAC86B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417615   (355626) от 21.10.2020
+
+Франциска Вудворт | Наша сила (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тени наступали. Они охотились на нас, пожирая одного за другим. Я пыталась спасти других, но потеряла самое дорогое. Кайл пожертвовал собой, а его предсмертный крик навсегда останется в моей памяти.
+Марианцы прибыли лишь на следующий день. Высшие знали, какую реакцию вызывают у людей – жажда немедленного поклонения. Меня же раздражал их самодовольный вид, о чем я (   Читать дальше...   )Жанр: Любовное фэнтезиПродолжительность: 09:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891A593CA6BFEEADF9B89F4F6DBA62C4A8975BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408562   (355553) от 09.11.2011
+
+Джон Фаулз | Любовница французского лейтенанта (2005) [MP3, Владимир Вихров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Классика в пересказе.
+На первый взгляд «Любовница французского лейтенанта» – это пикантная история страсти, разыгранная в гениально воссозданных декорациях викторианской Англии. Герои так же чопорны, благородны и... безвольны. Что их ждет – банальный адюльтер или решение вечного конфликта между долгом и чувством? Для менее поверхностного читателя «Любовница (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Издательский дом «Союз»Продолжительность: 09:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7BDC069DC0212CB8D8649784CCD404F6FADD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417682   (355025) от 21.10.2020
+
+Артем Каменистый | Набирая силу (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторые считают, что страшнее этого места на Севере ничего нет и быть не может. Гиблые края, шрам на теле планеты, обитель самых страшных созданий Рока. Даже сама Смерть здесь отметилась, оставив целые территории, кишащие созданиями, в которых уродливо переплелись силы разной природы.
+Попасть в Чащобу сложно, выбраться еще сложнее. А если тебя в нее занесло не (   Читать дальше...   )Жанр: Боевое фэнтези, героическое фэнтези, городское фэнтезиПродолжительность: 15:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A852AAC723AEB464F91EB66CB19CF39E773565
 ```
 
 https://mybot314.ru/tekegram_catalog/

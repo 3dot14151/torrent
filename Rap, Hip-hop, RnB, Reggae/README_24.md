@@ -1,264 +1,3 @@
-###  Публикация: 1076880   (310936) от 26.11.2016
-
-Лигалайз - Живой (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Живой (feat. Misha Nuteki)
-03. Карма
-04. Мелодия души (feat. Тина Кузнецова)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8602868A7710F5C6A33C0FEAA94B36F60F9C7B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265700   (310459) от 03.12.2010
-
-Rihanna - 7 Albums + 6 Singles (2005-2010) [FLAC|Lossless] <R'n'B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рианна (англ. - Rihanna, урожденная Robyn Rihanna Fenty; род. 20 февр. 1988 г.) - барбадоcская певица, автор песен, фотомодель и модный дизайнер. Является вторым артистом и первой певицей с Барбадоса, получившей премию ГрэммиСписок альбомов:
-2005 - Music Of The Sun
-2006 - A Girl Like Me
-2007 - Good Girl Gone Bad(   Читать дальше...   )Жанр: R'n'BПродолжительность: 09:37:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266786   (303767) от 06.12.2010
-
-Black Eyed Peas - The Beginning (2010) [FLAC|Lossless]<Hip-hop, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. The Time (Dirty Bit)
-02. Light Up The Night
-03. Love You Long Time
-04. Xoxoxo(   Читать дальше...   )Жанр: Hip-hop, PopПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078236   (302167) от 30.11.2016
-
-Рем Дигга - 42/37 (2016) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Добро пожаловать в тёмные воды
-02. Простой
-03. Give it up feat. Onyx
-04. Шахта feat. Mania(   Читать дальше...   )Жанр: RapПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DF6B525227888749A2F6F02EAB2CBE39724583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333738   (301355) от 26.10.2019
-
-ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1. Каренина (feat. 25/17, Нигатив & Качмар)
-2. Счастье любит тишину (feat. Михаил Шуфутинский)
-3. Моя вина (feat. Artik & Asti)
-4. Восьмой ряд (feat. PIZZA & Ах Астахова)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702BAD3761D1E8252B6977203DC00436466085D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184167   (301074) от 17.11.2017
-
-ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Ангелы
-02. Не беда
-03. Сплин
-04. Хелта Скелта(   Читать дальше...   )Жанр: RapПродолжительность: 00:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3896BA3A333B35F74234151E8E2C32225FD643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961218   (301031) от 01.12.2015
-
-Nana - Father (1998) [FLAC|tracks+.cue]<RnB, Swing, Pop Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Father (5:06)
-02. Do You Really Think You Know Me? (4:32)
-03. Remember the Time (4:38)
-04. Nigga 4 Life (3:35)(   Читать дальше...   )Жанр: RnB, Swing, Pop RapПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194E17F5D1C198F567A538E58ED064B706707B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423431   (300251) от 13.11.2020
-
-Jubilee - Меланхолия Drive 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Подземные Люди [03:45]
-02. 315 км [03:07]
-03. Все Мои Друзья Мертвы [02:57]
-04. Берёзовый Сок [02:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD8760B2648647EBECF7D3B38C81A05AA6E902E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423429   (300089) от 13.11.2020
-
-Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Круче, чем ты запланировал (Interlude) [00:30]
-02. Perk [02:50]
-03. Остап Бендер [02:42]
-04. Switch [02:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423435   (299940) от 13.11.2020
 
 ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -267,7 +6,7 @@ ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299940.jpg" />
 </div>
 
 
@@ -296,7 +35,7 @@ Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299800.jpg" />
 </div>
 
 
@@ -325,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299668.jpg" />
 </div>
 
 
@@ -354,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299654.jpg" />
 </div>
 
 
@@ -383,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299638.jpg" />
 </div>
 
 
@@ -412,7 +151,7 @@ Guf & Slim - GUSLI II (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298613.jpg" />
 </div>
 
 
@@ -441,7 +180,7 @@ Napoleon Solo - Open Channel D (2018) [MP3|320 Kbps] <Jamaican Ska, Reggae, Rhyt
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298588.jpg" />
 </div>
 
 
@@ -470,7 +209,7 @@ Lenin & Карандаш - После шоу (2016) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295768.jpg" />
 </div>
 
 
@@ -499,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294083.jpg" />
 </div>
 
 
@@ -528,7 +267,7 @@ The 27 Bridges Of Kaya - UNDAJAZZBIT (2017) [MP3|320 Kbps] <Jazzy Hop, Instrumen
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293309.jpg" />
 </div>
 
 
@@ -557,7 +296,7 @@ Rick Rock - Rocket The Album (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293151.jpg" />
 </div>
 
 
@@ -586,7 +325,7 @@ Schnitt - Die Nacht der langen Messer (2011) [MP3|320 Kbps] <German Hip-Hop, Rap
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291522.jpg" />
 </div>
 
 
@@ -615,7 +354,7 @@ VA - Boogie Funk Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, RnB>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290970.jpg" />
 </div>
 
 
@@ -644,7 +383,7 @@ The Chemodan - Абсурд и аллегория (2015) [MP3|320 кб/с]<Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290618.jpg" />
 </div>
 
 
@@ -673,7 +412,7 @@ Noize MC - *кустик* (2015) Live [MP3|320 кб/с]<Acoustic, Rap, Alternati
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290608.jpg" />
 </div>
 
 
@@ -702,7 +441,7 @@ Apollo Brown - Sincerely, Detroit (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289575.jpg" />
 </div>
 
 
@@ -731,7 +470,7 @@ The 27 Bridges Of Kaya - UNDAJAZZBIT (2017) [FLAC|Lossless|Web-DL|tracks] <Jazzy
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285849.jpg" />
 </div>
 
 
@@ -745,6 +484,267 @@ The 27 Bridges Of Kaya - UNDAJAZZBIT (2017) [FLAC|Lossless|Web-DL|tracks] <Jazzy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CEC5B0125470D781BD53519909282E80368E097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263820   (285745) от 20.11.2018
+
+Децл aka Le Truk - Неважно кто там у руля (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сигналы
+02. Кто там у руля?!
+03. Мысли глубоко
+04. Узурпаторов план(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9EE3CAC3630927FCFB7BFD627B3305D340C721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963581   (285464) от 09.12.2015
+
+Shaggy - Boombastic (1995) [FLAC|tracks+.cue]<Ragga HipHop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Summertime (3:47)
+02. Boombastic (4:10)
+03. Something Different (4:32)
+04. Forgive Them Father (3:28)(   Читать дальше...   )Жанр: Ragga HipHopПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BDE038F47659AF7E060B0A608B72150ADE1378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964333   (283292) от 10.12.2015
+
+Guf (Гуф) - Ещё (2015) [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом Гуфа, который поклонники репера и все музыкальное сообщество, ждали уже несколько лет, наконец выходит в свет. Имя музыканта уже давно знакомо и не нуждается в дополнительном представлении – участник легендарной группы CENTR, обладатель премий MTV Russia Music Awards, Муз-ТВ, Rock Alternative Music Prize и медиа-персона, личной жизнью которой постоянно (   Читать дальше...   )01. Хэллоу
+02. Маугли
+03. Выдох-вдох
+04. Неделя(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C6AC6E9D0F6309A256C4441E1F87CB393FA662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187030   (281896) от 27.11.2017
+
+Грот - Ледокол «Вега» (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Город в море трав
+2. На панельных островах
+3. Ледокол «Вега»
+4. Стирательный обряд(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B47ED6DD52B87D5669646E074C4E4A17BD2B844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336593   (278961) от 07.11.2019
+
+KillaGram - Возвращение легенды (2019) [MP3|192 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Меня радует (3:28)
+ 02. Хащ, Хащ (4:04)
+ 03. Не за хрен (3:06)
+ 04. Восемь выстрелов (3:48)(   Читать дальше...   )Жанр: RapПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247AB3D85F6E68AD10FC2555AB62B23B256F2284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265153   (276418) от 26.11.2018
+
+Вася В. (Кирпичи) - Триумф (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Йоу, православные (feat. DJ-108)
+02. Один за всех (feat. Стас Сытник)
+03. Миру мир (feat. Дмитрий «Фео» Порубов, Маша Макарова и Децл aka Le Truk)
+04. Созерцатель (feat. Nos MC и MC DannyBoy)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7066B4F8CEAA42E76B24E2720BE0006D67F4614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187892   (275818) от 01.12.2017
+
+Честер Небро - Караван (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город убитых дорог
+02. По вертикали
+03. На подъём
+04. Туда(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BE024A40CAC43D8C440107B91B3E4E43FF78C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083720   (273178) от 16.12.2016
+
+Noize MC - Царь Горы (2016) [MP3|320 Kbps] <Rap, Rock, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Some Noize [3:33]
+02. Стэнли запишет хит [2:52]
+03. Царь Горы [4:29]
+04. Эмпайр Стэйт [2:50](   Читать дальше...   )Жанр: RapПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DB2691FFF5FE481E11FB7E5342F4599C918CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189379   (270341) от 06.12.2017
+
+Cмоки Мо и Zloi Negr - Доспехи Бога 2 (2017) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слава КПСС, Murovei, King Mozi, D.masta, Пика - Пыл
+02. Murovei - Ядовито
+03. D.masta, King Mozi, Yung Trappa - Сияние
+04. Нигатив - Там и я(   Читать дальше...   )Жанр: RapПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164CB5CEE69BBCAD03076A39B01FC6962FDA2E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

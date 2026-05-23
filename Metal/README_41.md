@@ -6,7 +6,7 @@ Ark - 2 альбома (1999-2001) Дискография [MP3|320 кб/с]<Prog
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693209.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Bullet - Dust To Gold (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693079.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692082.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Crystal Ball - Crystallizer (2018) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691374.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Godsmack - When Legends Rise (2018) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691132.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Beyond All Recognition - Beyond All Recognition (2016) [MP3|320 кб/с] <Metalc
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690799.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Whitechapel - Mark of the Blade (2016) Deluxe Edition [MP3|320 кб/с] <Hardcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690662.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Napalm Death - Throes Of Joy In The Jaws Of Defeatism (2020) [MP3|320 Kbps] <Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690491.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ The Browning - Isolation (2016) [MP3|~245 кб/с (V0)] <Deathcore, Electronic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688589.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688562.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ KMFDM - In Dub (2020) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688554.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ In Extremo - Quid Pro Quo (2016) [MP3|320 кб/с] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688524.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Fallujah - 4 Альбома + 1 EP (2011-2019) [MP3|320 кб/с]<Technical Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688268.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Misery Index - 6 Альбомов + 2 EP (2003-2019) [MP3|~245-320 кб/с]<Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688263.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Any Given Day - 3 Альбома + 1 Сингл (2014-2019) [MP3|320 кб/с]<Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687987.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Delain - We Are The Others (2012) Deluxe Edition [MP3|320 кб/с]<Symphonic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687699.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Riot V - Armor Of Light (2018) 2CD Digipak Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687479.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Orbit Culture - Redfog (2018) EP [MP3|320 Kbps] <Groove Metal, Melodic Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687357.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Highlord - Hic Sunt Leones (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686908.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Black Therapy - Echoes Of Dying Memories (2019) [MP3|320 Kbps] <Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686753.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Serdce - Timelessness (2014) [MP3|320 Kbps] <Technical Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686751.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Hackneyed - Burn After Reaping (2009) [MP3|320 kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686466.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ ReinXeed - Welcome To The Theater (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686419.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Malsain - The Disease (2007) [MP3|320 kbps]<Horror Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686352.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Dragonforce - Reaching Into Infinity (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684573.jpg" />
 </div>
 
 
@@ -751,7 +751,7 @@ Gloomy Grim - The Age Of Aquarius (2016) [MP3|320 кб/с] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684536.jpg" />
 </div>
 
 

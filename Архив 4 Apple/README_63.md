@@ -6,7 +6,7 @@ FxFactory Pro 7.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004763.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Picture Instruments Preset Converter Pro 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004754.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wondershare UniConverter 13.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004750.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Wondershare Filmora Х v10.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004728.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PDF Expert 2.5.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004716.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ GrandTotal 7 v7.1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004610.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ MacX Video Converter Pro 6.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004595.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Wondershare PDFelement Pro 7.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004574.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ App Cleaner & Uninstaller Pro 7.4.1 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004554.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Submerge 3 v3.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004388.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Eon Timer 2.8.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004384.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Chrono Plus - Time Tracker 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004383.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Contexts 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004381.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Serial Box & SerialSeeker 2021-08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004379.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Alfred 4 Powerpack 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004378.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ RAW Power 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004367.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Usher 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004162.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ PatterNodes 2 v2.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004161.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Allavsoft Video Downloader Converter 3.23.7.7873 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004160.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Airtool 2 v2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004157.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ EzyCal: Time & Date 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004155.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Sublime Merge 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004151.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Bandizip: Archiver 7.09 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004145.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Export for iTunes 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004141.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ start 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004140.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Live Home 3D Pro Edition 4.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004138.jpg" />
 </div>
 
 

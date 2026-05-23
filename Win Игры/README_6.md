@@ -6,7 +6,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (1.1.2.0/dlc) Repack Let'sРlay [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065249.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Samson (2026) [RuMulti] (Build 22731263) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065243.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1077) Repack dixen18
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065241.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Possessor(s) (2025) [Ru/Multi] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065180.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack Other s [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065072.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065064.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Occultist (2026) [Ru/Multi] (1.0.0.0) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065042.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Origament: A Paper Adventure (2026) [Ru/Multi] (1.8.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065041.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack HardwareMini
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065024.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Samson (2026) [RuMulti] (Build 22731263) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064932.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Eastern Era (2026) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064929.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Old World (2022) [Ru/Multi] (1.0.83082/dlc) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064901.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Truck Mechanic: Dangerous Paths (2026) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064763.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064762.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Soulmask (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064761.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack seleZen [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064759.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Neva (2024) [Ru/Multi] (1.2/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064758.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack FitGirl [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064755.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Occultist (2026) [Ru/Multi] (1.0.0.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064753.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hozy (2026) [Ru/Multi] (Build 22569174) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064744.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064740.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ No Vacation for an Executioner (2026) [Ru/Multi] (1.22) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064737.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ People of Note (2026) [Ru/Multi] (2026.3.31.2043-CL.141515) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064660.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Occultist (2026) [Ru/Multi] (1.0.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064658.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Paranormal State: Poison Spring / Паранормальные явления: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064622.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Samson (2026) [RuMulti] (Build 22679769) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064619.jpg" />
 </div>
 
 

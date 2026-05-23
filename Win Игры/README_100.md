@@ -1,29 +1,3 @@
-###  Публикация: 1374595   (872276) от 10.04.2020
-
-Reflections of Life 9: Utopia / Отражения жизни 9: Утопия (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Увлекательное продолжение сказочной серии игр Reflections of Life. Вы получили приглашение на ярмарку механических игрушек. Однако радость вскоре сменяется ужасом - мастер из игрушечного театра крадет вашего механического летающего спутника. Вы пускаетесь в погоню за похитителем и попадаете в мир игрушечного театра, где во тьме скрыты бесчисленные волшебные существа. (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499EFE6BBD196CB2CC09254405815E72B7798FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373029   (872167) от 10.04.2020
 
 In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
@@ -32,7 +6,7 @@ In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872167.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ DOOM VFR (2017) [Ru/Multi] (6.1.1.1930) Repack xatab [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872165.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ ANNIE: Last Hope (2020) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872161.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871107.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871106.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Victory and Glory Napoleon (2016) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870993.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Assassin's Creed Chronicles: Russia / Assassin's Creed Chronicles: Россия 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870983.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Tails of Iron (2021) [Ru/Multi] (1.37768) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870820.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Emergency Room: Code Red  / Скорая Помощь 3 [Ru] (L) 2001/2005
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870647.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Mountain Trap 2: Under The Cloak Of Fear (2016) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870364.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Fear for Sale 8: The House on Black River (2016) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870272.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wanderlust: Transsiberian (2020) [En] (1.1.13.2003271410) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870250.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Alder's Blood (2020) [En] (1.0.4f1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870237.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.05.75935) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870236.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Mask of Mists (2020) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870227.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Endless Fables:The Minotaur's Curse (2016) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870211.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Amaranthine Voyage 4: The Obsidian Book / Вечное путешествие 4.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869697.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Shadow Wolf Mysteries 6: Curse of Wolfhill / Призрачная тень во�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869693.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Shadow Warrior: Anthology (1997-2016) [Ru/Multi] (1.1.6/1.5.0/1.1.2/1.1.9.0/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869140.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ NecroVisioN: Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869125.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Bonfire Stories 3: Manifest Horror / Истории у костра 3: Вопл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868537.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Dark City 4: Dublin / Мрачный город 4: Дублин (2020) [Ru] (1.0
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868534.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868526.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ WARTILE (2018) [Ru/Multi] (1.1.9.4/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868462.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Dead Reckoning 3: The Crescent Case / Точный расчет 3: Дело По
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867964.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Dead Reckoning 3: The Crescent Case / Точный расчет 3: Дело По
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:219345FFBD48A2EF3A45580D23608690A6947DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998700   (867787) от 20.03.2016
+
+Dead Reckoning 4: Broadbeach Cove / Точный расчет. Бухта Бродбич (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867787.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Добро пожаловать в Бродбич, один из наших самых знаменитых, национальных курортов. Не стесняйтесь, чтобы осмотреться и насладиться потрясающими пейзажами". Такова реклама курорта. В Бродбиче благополучно, до сих пор, побывало множество знаменитостей, но не в этом сезоне. На своей яхте, в роскошных апартаментах найден убитым известный своей экстравагантностью (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F441450187D0FD12F8966CBB19F4F5431C4C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

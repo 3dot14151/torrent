@@ -1,29 +1,3 @@
-###  Публикация: 1560081   (256617) от 15.11.2025
-
-The Stillness of the Wind (2019) [Ru/Multi] (1.1.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Один за другим все уехали из некогда людной деревни в город. Все, кроме Тальмы. На склоне лет она ведет простую уединенную жизнь, день за днем ухаживая за своим хозяйством и козами. Распоряжайтесь своим временем и решайте, как вы будете заботиться о ферме и животных. Ухаживайте за козами, варите сыр из их молока, собирайте яйца, готовьте еду, выращивайте овощи и (   Читать дальше...   )Тип издания: LicenseРазработчик: Memory of God, Lambic StudiosЖанр: ПриключениеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7824570115AECAA95523B9DA6BC81CF48CB5A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837028   (255904) от 14.11.2025
 
 Venba (2023) [En] (2025.10.06) License GOG
@@ -32,7 +6,7 @@ Venba (2023) [En] (2025.10.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255904.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255620.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (Build 10917954) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255496.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255250.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242/dlc) Repack DjDI [Premium 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255151.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.4.5a-rc-1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255117.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ New Tales from the Borderlands (2022) [Multi] (10415597/dlc) Repack DjDI [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254972.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Unbeatable Path (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254942.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ I Know This Place..? (chapter I) (2023) [Ru/En] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254648.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Project Nightmares Case 36: Henrietta Kedward (2021) [Ru/Multi] (1.06) License G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254626.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Between (2023) [Ru/En] (1.1.3.200423) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254623.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254616.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Chernobyl: Origins (2023) [Ru/Multi] (Build 10809098/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254599.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Sherlock Holmes The Awakened (2023) [Ru/Multi] (2204_1.1/dlc) License GOG [Premi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254522.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Serial Cleaners (2022) [Ru/Multi] (1.2.3404/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254461.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Lost in Darklight (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254387.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Paradise Killer (2020) [En] (1.3.0) License GOG [Perfect 25 Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253094.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Creepy Tale Collection (2020-2024) [Ru/Multi] (1.0.2d/1.0.1d/1.1/1.0.8) Repack N
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253079.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252537.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252470.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252286.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Quarry (2022) [Ru/Multi] (Build 11105655/dlc) Repack Other s [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252113.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252023.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251852.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251765.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBAA2194B630820661096DC01F36D6AAD830B613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412598   (251240) от 06.11.2025
+
+The Sojourn (2020) [Ru/Multi] (1.2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251240.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о свете, тьме и природе бытия. Пройдите хитросплетенную головоломку в завораживающем и красочном мире света и тьмы. The Sojourn переносит вас в таинственное место, где свет указывает путь. Вскоре вы убедитесь, что этот мир полон загадок. Препятствия будут становиться все сложнее, но вам предстоит преодолеть их и раскрыть природу реальности.Тип издания: LicenseРазработчик: Shifting TidesЖанр: Приключение, Головоломка, МистикаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

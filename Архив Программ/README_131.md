@@ -6,7 +6,7 @@ Wise Care 365 Pro 5.7.1.571 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009585.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kid3 3.8.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009580.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Care 365 Pro 5.7.1.572 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009579.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Brave Browser 1.26.67 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009546.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Psiphon 3 build 167 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009514.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Tor Browser Bundle 10.0.18 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009504.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Alcohol 120% 2.1.1 Build 611 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009483.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe Illustrator 2021 25.3.1.390 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009482.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ HiBit Uninstaller 2.6.10 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009469.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Skype 8.73.0.124 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009463.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wise Care 365 Pro 5.7.1.572 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009457.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009453.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Calibre 5.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009452.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Q-Dir 9.61.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009446.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Skype 8.73.0.124 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009440.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft Visual Studio 2019 Community 16.10.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009439.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Telegram Desktop 2.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009434.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft Visual Studio 2019 Professional 16.10.2 (Offline Cache, Unofficial) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009433.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Nox App Player 7.0.1.3000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009430.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Futuremark 3DMark 2.19.7216 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009427.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Google Chrome 91.0.4472.124 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009426.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009425.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ DMG Audio - All Plugins 2021.06.22 VST, VST3, AAX, RTAS (x86/x64) RePack by VR [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009423.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Skype 8.73.0.124 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009420.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Microsoft Visual Studio 2019 Enterprise 16.10.2 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009418.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Opera 77.0.4054.146 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009415.jpg" />
 </div>
 
 

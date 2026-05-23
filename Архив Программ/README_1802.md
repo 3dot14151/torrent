@@ -6,7 +6,7 @@ doPDF 11.7.357 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187135.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sumatra PDF 3.5.15578 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187132.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ GPU-Z 2.51.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187131.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mp3tag 3.22a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187130.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ExamDiff Pro Master Edition 14.0.1.13 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187123.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SiSoftware Sandra Lite 20/21 R18 (версия 31.112) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187122.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ HWiNFO 7.63 Build 5215 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187121.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ kiloHearts Subscription 2.0.11 VST/VSTi, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187120.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ MediaHuman YouTube Downloader 3.9.9.85 (1509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187112.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Windows and Office Genuine ISO Verifier 11.11.33.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187106.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Glary Utilities Pro 5.211.0.240 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187105.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Zoner Photo Studio X 19.2209.2.409 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187102.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows Update Viewer 0.5.21.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187101.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ant Download Manager Pro 2.8.2 Build 83236 (Giveaway) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187100.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ TweakNow WinSecret Plus! 4.9.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187099.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Zoner Photo Studio X 19.2309.2.490 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187095.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Viber 21.0.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187093.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ IObit Uninstaller Pro 13.1.0.3 Portable by  FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187092.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ WinSCP 6.1.2 Build 13797 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187087.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PDF Shaper Professional 13.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187086.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Reg Organizer 9.01 RePack (& Portable) by Dodakaedr (18.11.2022) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187083.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ O&O Defrag Professional + Server 27.0 Build 8039 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187078.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ DesktopDigitalClock 4.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187077.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Qalculate! 4.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187072.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187071.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Psiphon 3 build 176 (DC 16.11.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187070.jpg" />
 </div>
 
 

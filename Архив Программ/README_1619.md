@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 16.1.1.005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228246.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent 3.2.3 build 28705 Stable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228243.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Victoria 5.21 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228238.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.20.5300 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228229.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FonePaw iPhone Data Recovery 6.7.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228211.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Defender Tools 1.10 test Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228174.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Slimjet 21.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228169.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Remote Manipulator System 6.10.10.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228131.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Autorun Organizer 3.04 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228125.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Windows 7/10/11 Pro х86-x64 by systemp 21.11.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228048.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Movavi Video Converter 20.0.1 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228017.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ JMG Sound - Cryostasis 1.0 VST, VST 3, AAX (x86/x64) RePack by TeamCubeadooby [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227916.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Glary Utilities 5.111.0.136 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227863.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PrivaZer 4.0.14 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227857.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Viber 14.2.0.35 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227851.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Sigil 1.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227824.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Geek Uninstaller 1.4.5 Build 134 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227818.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Remote Desktop Manager Enterprise 14.0.11.0 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227804.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ PDF24 Creator 10.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227796.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Autorun Organizer 4.45 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227779.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Mozilla Firefox Quantum ESR 60.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227775.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sumatra PDF 3.5.15259 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227753.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Chromium 86.0.4240.198 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227736.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AdwCleaner 5.025 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227712.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ pdfFactory Pro 7.43 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227674.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Remote Desktop Manager Enterprise 14.0.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227662.jpg" />
 </div>
 
 

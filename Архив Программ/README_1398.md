@@ -6,7 +6,7 @@ GeoGebra 6.0.734.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328002.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macrorit Partition Expert 6.3.0 Unlimited Edition RePack (& Portable) by 9649 [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327999.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Macrorit Partition Extender 2.0.0 Unlimited Edition  RePack (& Portable) by 9649
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327995.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser 105.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327993.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PhotoLine 23.50 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327989.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FontViewOK 8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327986.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VueScan Pro 9.7.93 (DC 01.10.2022) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327945.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PhotoLine 23.50 + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327942.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DesktopNoteOK 3.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327939.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Edge 106.0.1370.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327938.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MediaInfo 22.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327930.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ MyLanViewer 4.3.5 (Rus) [Репак от Dopex]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_327876.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ System software for Windows v.3.5.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327781.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Mozilla Firefox 43.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327619.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ QQ Browser 9.2.5063.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327618.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ KakaoTalk 2.0.8.999 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327616.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Baidu Browser 43.21.1000.275 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327613.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Citrio 45.0.2454.266 (5381.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327607.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Soft Organizer 5.02 Final RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327603.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Registry Life 3.22 DC 17.11.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327598.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Dropbox 3.10.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327596.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sleipnir 6.1.9.4000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327593.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327590.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Soft Organizer 5.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327563.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ CocCoc 51.2.109 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327560.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Torch Browser 42.0.0.10546 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327554.jpg" />
 </div>
 
 

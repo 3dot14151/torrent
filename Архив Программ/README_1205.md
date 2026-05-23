@@ -6,7 +6,7 @@ Windows 7 SP1 with Update [7601.24560] AIO 44in2 (x86-x64) by adguard (v20.09.10
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433282.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.7.010 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433281.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VeraCrypt 1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433262.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ qBittorrent 3.2.4 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433245.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Malwarebytes AdwCleaner 7.4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433232.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Uniblue PowerSuite PRO 2013 4.1.3.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433150.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Athentech Perfectly Clear + Essentials v3.6.1.1263 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433147.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SoftPerfect RAM Disk 3.3 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433146.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Mp3tag 2.90a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433143.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ IObit Driver Booster Pro 6.0.2.632 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433137.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Hide Folders 4.0 Build 4.0.6.775 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433123.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ TV Player Classic 6.8.7 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433119.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Malwarebytes Anti-Exploit Premium 1.07.1.1015 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433115.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Digieffects MegaSuite for CS6 x64 v2.5 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433027.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Revo Uninstaller Pro 2.5.9 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433022.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ The KMPlayer 3.3.0.33 Final LAV by 7sh3 [Ru/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_433002.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Total Commander 8.01 LitePack | PowerPack | ExtremePack 2012.10 Final + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432999.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Auslogics Disk Defrag Pro 4.9.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432976.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ iTunes 12.3.0.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432968.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Duplicate File Remover 3.7.25 Build 0 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432961.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Norton Security Premium 22.5.4.24 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432953.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Rollback Rx Professional 10.4 Build 2700722190 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432951.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Re-Loader Activator 1.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432841.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Microsoft Office 2013-2016 C2R Install 4.5 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432831.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ ACDSee Pro 6.0 Build 169 Final (x86) Lite by MKN *Fix [Русский/Англи
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432829.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Easy CD-DA Extractor 16.1.0.1 Final RePack by elchupacabra [Русский/Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432815.jpg" />
 </div>
 
 

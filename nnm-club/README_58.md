@@ -1,139 +1,3 @@
-###  Публикация: 1870144   (1068665) от 
-
-MotoGP. Этап 05 из 22. Гран-при Франции. Квалификация (09.05.2026) WEBRip [H.264/1080p] [50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-9 мая 2026 суббота 11:50 МСК этап 6 Ле Ман. Гран-при Франции. Квалификация.Телекомпания: MotoGPЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DDE7F3649DC0AD8AAF6F6A24F2A3C759E424B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870205   (1068664) от 
-
-Интегра Агатис | Жусан (2026) [MP3, CHUGA]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Семипалатинский полигон. Сотни ядерных взрывов. Мёртвая земля. В августе 2005-го земля ответила.
-
-Артём Чернов застревает в казахской степи, когда мёртвые начинают подниматься. Вместе с Асем — девушкой, чей отец-офицер пропал, — он добирается до военной базы в городе-призраке Курчатов. Но и там нет спасения: мёртвые тянутся к югу, степная полынь — жусан — почему-то (   Читать дальше...   )Жанр: Постапокалипсис, Триллер, УжасыИздательство: Аудиокнига своими рукамиПродолжительность: CHUGA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B817A440E8FC5F3658F5D6B0CB4DDAC54ECFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870198   (1068663) от 
-
-Салини Голденберг | Последний охотник на демонов (2026) [MP3, Карина Муса]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Мифическое мрачное фэнтези с динамичным сюжетом, тонким юмором и тайской магией! В королевстве назревают перемены, но охотник на духов-фи по имени Экс во что бы то ни стало хочет удержаться за свое ремесло. Его главная добыча - легендарная Шар-Ала, демон кошмаров и безумия, которого наставники Экса безуспешно выслеживали десятилетиями. В дороге Экс встречает обаятельную (   Читать дальше...   )Жанр: ФантастикаИздательство: ЭКСМОПродолжительность: 13:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4384FAD6D6FA783589B9C270B6CFEB916A877F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870195   (1068662) от 
-
-Журнал | BOUDOIR Inspiration (ARTISTIC NUDE) (апрель 2026) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: ARTISTIC NUDE IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E171A02FE5EECB1D954886711360A7E908B7D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870185   (1068660) от 
-
-Журнал | BOUDOIR Inspiration (LINGERIE) (апрель 2026) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: LINGERIE InspirationЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92486799BC66D21929A1C2F405A812C199B2E042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870184   (1068659) от 
 
 Виктор Молотов, Игорь Алмазов | Бывает и хуже? (Том 1) (2026) [MP3, Константин Загацкий]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068659.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068658.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068657.jpg" />
 </div>
 
 
@@ -223,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068656.jpg" />
 </div>
 
 
@@ -252,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068655.jpg" />
 </div>
 
 
@@ -280,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068654.jpg" />
 </div>
 
 
@@ -306,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068653.jpg" />
 </div>
 
 
@@ -332,7 +196,7 @@ Kdenlive 26.04.1 + Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068652.jpg" />
 </div>
 
 
@@ -358,7 +222,7 @@ KiCad 10.0.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068651.jpg" />
 </div>
 
 
@@ -384,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068649.jpg" />
 </div>
 
 
@@ -411,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068648.jpg" />
 </div>
 
 
@@ -437,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068647.jpg" />
 </div>
 
 
@@ -464,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068646.jpg" />
 </div>
 
 
@@ -493,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068645.jpg" />
 </div>
 
 
@@ -519,7 +383,7 @@ HELLBREAK (2025) [Ru/Multi] (Build 23163584) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068644.jpg" />
 </div>
 
 
@@ -545,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068643.jpg" />
 </div>
 
 
@@ -572,7 +436,7 @@ VA - Morning Coastline: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068642.jpg" />
 </div>
 
 
@@ -601,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068641.jpg" />
 </div>
 
 
@@ -629,7 +493,7 @@ Kowloon Generic Romance | Обычный роман в Цзюлуне [2025, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068640.jpg" />
 </div>
 
 
@@ -655,7 +519,7 @@ Rise of Piracy (2026) [Ru/Multi] (0.501) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068639.jpg" />
 </div>
 
 
@@ -681,7 +545,7 @@ Crimson Oath (2026) [Ru/Multi] (1.4.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068638.jpg" />
 </div>
 
 
@@ -692,6 +556,138 @@ Crimson Oath (2026) [Ru/Multi] (1.4.1) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37332F7B54E527751FCED3C1F05AE71498626212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870232   (1068637) от 
+
+Игра киллера / The Killer's Game (2024) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наёмный убийца Джо — один из лучших в Европе. Во время выполнения задания в Будапеште он спасает танцовщицу Мейзи, с которой у него постепенно завязываются романтические отношения. Обеспокоенный внезапными приступами, Джо проходит медицинское обследование и узнаёт, что неизлечимо болен, а жить ему осталось не больше 3 месяцев. Чтобы не страдать, он решает нанять (   Читать дальше...   )Производство: Испания, США / Dogbone Entertainment, Endurance Media, K. JAM MediaЖанр: боевик, комедия, криминалРежиссер: Дж.Дж. ПерриАктеры: Дэйв Батиста, София Бутелла, Терри Крюс, Скотт Эдкинс, Марко Сарор, Пом Клементьефф, Бен Кингсли, Алекс Кингстон, Дрю Гэлловэй, Шейна УэстПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02C9F5BE73FC0422DEB60A4373B98A5F1B292B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870230   (1068635) от 
+
+Призрак в доспехах / Ghost in the Shell (2017) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кибертехнологии подчинили себе все сферы жизни, а самые опасные преступники переместились в виртуальное пространство. Киборг-гибрид, стоящий во главе элитного подразделения полиции, идет по следу могущественного хакера.Производство: США, Индия, Гонконг, Китай, Канада / Arad Productions, DreamWorks SKG, Paramount PicturesЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Руперт СандерсАктеры: Скарлетт Йоханссон, Пилу Асбек, Такеши Китано, Жюльет Бинош, Майкл Питт, Чинь Хань, Дануся Самал, Ласарус Ратуэре, Ютака Идзумихара, Таванда МаниймоПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57379F1D4C37F90A73CDF6646B18B431C5AD0968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870228   (1068634) от 
+
+Люди Икс: Апокалипсис / X-Men: Apocalypse (2016) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068634.jpg" />
+</div>
+
+
+###  Подробнее
+
+События «Дней Минувшего Будущего» оказали колоссальное влияние на мир, где мутанты и люди борются за свое место под Солнцем. В это нелегкое время Людям Икс предстоит столкнуться со своим самым опасным противником - древним мутантом Апокалипсисом, существом, схватка с которым может стать последней не только для мутантов, но и в принципе для всего человечества. В поисках (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Bad Hat Harry ProductionsЖанр: фантастика, боевик, приключенияРежиссер: Брайан СингерАктеры: Джеймс МакЭвой, Майкл Фассбендер, Дженнифер Лоуренс, Николас Холт, Оскар Айзек, Роуз Бирн, Эван Питерс, Джош Хелман, Софи Тёрнер, Тай ШериданПеревод: Дублированный (CPIG)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 02:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E70A10407224BC9D5A80A3AEEE2471059F9EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870242   (1068633) от 
+
+Хантер Киллер / Hunter Killer (2018) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская атомная подлодка «Хантер Киллер» вместе с подразделением военно-морских сил США вступает в крайне рискованную боевую авантюру по спасению мира от катастрофы. Когда время на исходе и каждая минута на счету, элитной команде придется совершить невозможное, чтобы предотвратить конфликт мирового масштаба.Производство: США / Hunter Killer Productions, Summit Entertainment, Original FilmЖанр: боевик, триллерРежиссер: Донован МаршАктеры: Джерард Батлер, Гари Олдман, Коммон, Зейн Холц, Микаэл Нюквист, Тоби Стивенс, Линда Карделлини, Этан Бейрд, Джейкоб Скипио, Демпси БовеллПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95F89D535BDFDA3F60BD39D8DF3C6E001F05CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870250   (1068632) от 
+
+Emurasoft EmEditor Professional 26.1.0 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068632.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor — это быстрый, легкий и простой в использовании текстовый редактор для Windows, идеально подходящий для работы с кодом, CSV-файлами и очень большими файлами. EmEditor поддерживает мощные макросы, полный набор символов Unicode и надежную обработку больших файлов.
+
+EmEditor использует различные оптимизации процессора, такие как многопоточность и SIMD- технологии, (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E234E3B810C9730C207CC6844DDC10D2C9D9EEAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

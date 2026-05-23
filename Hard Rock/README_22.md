@@ -6,7 +6,7 @@ Autograph - Buzz (2003) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404006.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Loosely Tight - Fightin' Society (1981) Reissue, Not On Label [MP3|320 Kbps] <Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403154.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ UFO - Salentino Cuts (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401425.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Sweet - Grand collection (1997) [MP3|320 Kbps] <Hard rock, Glam rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400382.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Aerosmith - Music From Another Dimension! (2012) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396708.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Smokey Fingers - Columbus Way (2011) [MP3|320 kbps]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395174.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Joon Wolfsberg - 1220 Wells Street (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390564.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Who Are You: An All Star Tribute To The Who (2012) [MP3|320 кб/с]<Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387860.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Slash & Myles Kennedy And The Conspirators - Living The Dream Tour (2019) Live [
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384988.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Klee Project - The Long Way (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382965.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Evolution Eden - Modern Nostalgia (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382961.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Roxxie Dee - Leather Up (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382650.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Southern Gentlemen - S G Double 20 (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381177.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Oda - Oda (1971) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379577.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Nazareth - Tattooed on My Brain (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379183.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Crash The System - The Crowning (2009) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378682.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - 5CD Rock Tributes (2006) [MP3|320 кб/с]<Rock, Southern Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377976.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Europe - Walk The Earth (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376120.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Bon Jovi - This House Is Not For Sale (2016) Exclusive Target Edition [MP3|320 �
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375659.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Taboo - Taboo (2022) [Mp3|320 kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375380.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Kamboja - Ate o Freio Estourar (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373876.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Random Play - Beware Of The Dog (2020) [MP3|320 Kbps] <Hard Rock, Female Vocal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371916.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ RavenEye - Nova (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371405.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Julliet - Julliet (1990) [MP3|320 кб/с]<Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370364.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Electric Angels - Electric Angels (1990) [MP3|320 кб/с]<Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370253.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Rakel Traxx - Dirty Dollz (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369013.jpg" />
 </div>
 
 

@@ -1,31 +1,3 @@
-###  Публикация: 589981   (143866) от 16.12.2012
-
-Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R.G. Shift
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Через два года после того, как командор Шепард отразил вторжение Пожинателей, у человечества появился новый враг. На окраинах обитаемого космоса кто-то постепенно уничтожает колонии людей. Чтобы остановить надвигающуюся угрозу, Шепарду предстоит сотрудничать с сетью Цербер - безжалостной организацией, провозглашающей выживание человечества любой ценой.
-
-Для выполнения этой ответственной миссии Шепард должен собрать очень сильную команду и принять командование самым мощным космическим кораблем в галактике. Но даже с такими ресурсами большинство считает его затею безнадежной. Командор Шепард должен доказать скептикам, что они ошибались. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087616   (143856) от 28.12.2016
 
 The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3]
@@ -34,7 +6,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143856.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ Shadwen (2016) [Ru/Multi] (1.0.0.1356/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143836.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ Grim Facade 10: The Message / За гранью жестокости 10: Пис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143718.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ Mystery Case Files 26: A Crime in Reflection (2023) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143568.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ Stary (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143465.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ BioShock™ 2 Remastered (2016) [Multi] (1.0.122864) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143373.jpg" />
 </div>
 
 
@@ -190,7 +162,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143169.jpg" />
 </div>
 
 
@@ -216,7 +188,7 @@ YOHANE THE PARHELION -BLAZE in the DEEPBLUE- (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143128.jpg" />
 </div>
 
 
@@ -242,7 +214,7 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143059.jpg" />
 </div>
 
 
@@ -268,7 +240,7 @@ Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143035.jpg" />
 </div>
 
 
@@ -294,7 +266,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143018.jpg" />
 </div>
 
 
@@ -320,7 +292,7 @@ Kerbal Space Program (2015) [Ru] (1.11.0.03045/dlc) Repack xatab (обновля
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142956.jpg" />
 </div>
 
 
@@ -346,7 +318,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142953.jpg" />
 </div>
 
 
@@ -372,7 +344,7 @@ Nerved (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142931.jpg" />
 </div>
 
 
@@ -398,7 +370,7 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142666.jpg" />
 </div>
 
 
@@ -424,7 +396,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142552.jpg" />
 </div>
 
 
@@ -450,7 +422,7 @@ Chimeras 3: Cursed and Forgotten / Химеры 3: Проклятые и заб�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142418.jpg" />
 </div>
 
 
@@ -476,7 +448,7 @@ Lost Grimoires: Stolen Kingdom / Утерянные Гримуары: Краде
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142212.jpg" />
 </div>
 
 
@@ -502,7 +474,7 @@ NotGTAV (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142159.jpg" />
 </div>
 
 
@@ -528,7 +500,7 @@ Californium (2016) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141981.jpg" />
 </div>
 
 
@@ -554,7 +526,7 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141977.jpg" />
 </div>
 
 
@@ -580,7 +552,7 @@ The Cave (2013) [Ru/En] (1.0/u2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141934.jpg" />
 </div>
 
 
@@ -606,7 +578,7 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141816.jpg" />
 </div>
 
 
@@ -632,7 +604,7 @@ Amnesia: The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141764.jpg" />
 </div>
 
 
@@ -658,7 +630,7 @@ Bladed Fury (2018) [En/Ch/Jp] (1.0.1819) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141717.jpg" />
 </div>
 
 
@@ -669,6 +641,32 @@ Bladed Fury (2018) [En/Ch/Jp] (1.0.1819) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:959FB1D151D945A8BA623BB30DF46522297D6B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087836   (141656) от 29.12.2016
+
+Livelock (2016) [Ru/En] (1.0.25218) Repack Mizantrop1337
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Livelock — многопользовательский аркадный шутер, где вы в одиночку или с друзьями должны положить конец бесконечной войне между машинами. В роли одного из роботов с человеческим сознанием — Хекса, Авангарда или Катализатора, -  вы должны открыть Эдем и оживить человечество.Тип издания: RepackРазработчик: Tuque GamesЖанр: Action, Arcade, ShooterЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B16EB63E9A9EED86D926628E45A32E32CADFD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

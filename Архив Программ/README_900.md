@@ -6,7 +6,7 @@ ZD Soft Screen Recorder 8.1.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591295.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bandicam 2.2.3.804 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591294.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Avira Antivirus Free 2015 15.0.11.579 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591293.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AusLogics BoostSpeed 8.0.1.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591287.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Illustrator CC 2015 19.0.0 Portable by PortableWares (07.07.2015) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591284.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Illustrator CC 2015 19.0.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591282.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591278.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Photoshop CC 2015 (20150529.r.88) Portable by PortableWares (07.07.2015) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591276.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Rufus 2.3 (Build 692) Alpha Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591274.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ MCS Drivers Disk 11.0.57.955 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591270.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mailbird Pro 2.1.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591267.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Audition CC 2015.0 8.0.0.192 Portable by PortableWares (07.07.2015) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591264.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Total Commander 8.51a Final MAX-Pack Extended 2015.06.29 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591260.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ IObit Driver Booster PRO 2.4.0.19 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591250.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Emurasoft EmEditor Professional 21.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591199.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ File & Image Uploader 8.2.0 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591196.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ jv16 PowerTools 7.4.0.1418 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591189.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Zoner Photo Studio X 19.2203.2.380 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591185.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Google Chrome 101.0.4951.67 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591154.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ IObit Smart Defrag Pro 7.5.0.121 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591153.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Phase One Capture One Pro 22 15.2.1.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591121.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Bridge 2022 12.0.2.252 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591108.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Topaz Gigapixel AI 6.1.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591060.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe After Effects 2022 22.4.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591058.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Foxit PDF Editor Pro (PhantomPDF) 11.2.2.53575 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591054.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CCleaner 6.00.9727 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591051.jpg" />
 </div>
 
 

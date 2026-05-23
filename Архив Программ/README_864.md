@@ -6,7 +6,7 @@ WinTuning 7 2.05.1 [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_606988.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack 9.1.0 (x86, Basic, Standart, Full, Mega) / 9.1.0 (x64) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_606987.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Symantec Endpoint Protection 11.0.7 MP2 Xplat 11.0.7200.1147 x86+x64 [Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_606986.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Scanitto Pro 3.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606918.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Media Player Codec Pack 4.3.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606914.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VueScan Pro 9.5.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606911.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Air Explorer Pro 2.3.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606880.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ LimBackup 1.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606844.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Reg Organizer 7.15 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606837.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ FastStone Capture 9.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606780.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ O&O Defrag Professional 18.9 Build 60 Portable by speed.net [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606739.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Antivirus Remover 2.35 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606737.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ ProgDVB 7.09.4 Professional Edition + Channels [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606731.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mentor Graphics Capital 2014.1.92 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606729.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ XnSketch 1.14 (x86) Portable by pp0312 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606725.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ qBittorrent 3.3.0 alpha [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606721.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ MediaHuman YouTube Downloader 3.9.9.14 (1904) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606679.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Wise Care 365 Pro 5.2.9.524 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606673.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Foundry NUKE STUDIO + HIERO 11.1 v4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606660.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Adobe Media Encoder CC 2015.0 9.0.0.222 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606574.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Calibre 3.41.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606566.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Internet Download Manager 6.32 Build 11 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606550.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ IsMyLcdOK 3.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606549.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FastStone Capture 9.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606539.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ vMix Pro 20.0.0.42  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606522.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ KMS Tools Portable 15.06.2018 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606517.jpg" />
 </div>
 
 

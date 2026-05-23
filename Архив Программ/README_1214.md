@@ -6,7 +6,7 @@ VirtualBox 5.1.28.117968 Final RePack (& Portable) by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427903.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zentimo xStorage Manager 1.9.6.1257 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427898.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Revo Uninstaller Pro 2.5.9 RePack (& Portable) by KpoJIuk [MULTi / Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_427871.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Recovery DVD for Acer Aspire V3-571G / Windows 7 Home Premium (х64) SP1 [рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_427867.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ K-Lite Codec Pack Update 12.4.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427754.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Acronis Backup 12.5.7970 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427728.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Zentimo xStorage Manager 1.9.6.1257 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427656.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ YouTube By Click Premium 2.2.140 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427617.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Chromium 85.0.4183.121 Portable by henrypp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427610.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VirtualBox 5.1.8 Build 111374 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427571.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AVG AntiVirus 2016 16.121.7859 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427564.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Athentech Perfectly Clear Complete 3.10.0.1843 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427540.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Skype 8.64.0.88 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427531.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Chromium 85.0.4183.121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427529.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Zoner Photo Studio X 19.2009.2.276 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427516.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Firefox Browser ESR 102.2.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427500.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ AVG Internet Security 2016 16.121.7859 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427497.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Mozilla Thunderbird 78.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427475.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PTE AV Studio Pro 10.0.13 Build 4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427473.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ CoolUtils Total PDF Converter 6.1.0.242 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427470.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ CrystalDiskInfo 8.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427466.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ XnViewMP 0.97.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427462.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Vivaldi 5.4.2753.40 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427441.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427430.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Firefox Browser 104.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427428.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Firefox Browser ESR 91.13.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427425.jpg" />
 </div>
 
 

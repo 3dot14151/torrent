@@ -1,29 +1,3 @@
-###  Публикация: 509307   (674123) от 12.06.2012
-
-Bang Bang Racing (RePack/1.0) [Multi5\-] 2012 | VANSIK
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Bang Bang Racing - веселая, насыщенная постоянным экшеном гоночная игра с множеством замечательных графических эффектов и прокаченных спорт-каров. За игрушечной графикой, скрывается горячее сердце настоящей труёвой гонки. Динамическая обработка физических эффектов добавляет в игру значение мастерства - проход поворотов в заносе и срезание траекторий доставит массу удовольствия любому игроку. (   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3D / Top-downЯзык озвучки: АнглийскийЯзык интерфейса: Aнглийский, немецкий, французский, итальянский, испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F650926BAB859498E98B433B97CE280F9E29328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290951   (673818) от 22.03.2019
 
 We. The Revolution (2019) [En/Po/Fr] (1.0) License HOODLUM
@@ -32,7 +6,7 @@ We. The Revolution (2019) [En/Po/Fr] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673818.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Rayman Origins (RePack/1.0.32504.1.02) [Ru] 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673747.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.08/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673729.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673727.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0.10246.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673722.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Grim Tales 8: The Final Suspect (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673173.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Farm Frenzy 3: Madagaskar / Веселая ферма 3. Мадагаскар (P
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673026.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.0.3965) License SK
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672945.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Starship Corporation (2018) [Ru/En/De] (2.6.8) License SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672943.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Redemption Cemetery 12: The Day of the Almost Dead / Кладбище искуп
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672437.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Fidelio Incident (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672308.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Witches Legacy 12: Secret Enemy / Наследие Ведьм 12: Тайный �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672208.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Darkness and Flame. Born of Fire (2016) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671971.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная л
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671967.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Agent 9 (2019) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671930.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Monster Hunter: World (2018) [Ru/Multi] (1.0 build 166925/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671929.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ RICO (2019) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671928.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Malzbie's Pinball Collection (2017) [Multi] (1.0/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671313.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Super Mega Baseball 2 (2018) [En] (1.0.29017.0/dlc) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671113.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Royal Detective 5: The Princess Returns (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670697.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Haunted Hotel 16: Lost Dreams (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670693.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Vermillion Watch 4: In Blood (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670686.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Nevertales 7: Creators Spark (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670578.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dark Tales 15: Edgar Allan Poe's. Speaking with the Dead (2019) [En] (1.0) Unoff
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670568.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ StarCrawlers (2017) [En] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670530.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ StarCrawlers — это сплав из классического Dungeon Crawl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5211E2C79D22CC9DA2AF86E11B69ED0F014AF627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136880   (670525) от 24.05.2017
+
+Late Shift (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Late Shift - это криминальный FMV-триллер, ставки в котором как никогда высоки. После того, как студента-математика Мэтта силой втягивают в ограбление рентабельного аукционного дома, ему не остаётся ничего иного, кроме как попытаться доказать свою невиновность в этом жестоком лондонском ограблении. Ваши выборы будут иметь последствия с самого начала и до самого конца.Тип издания: SteamRipРазработчик: CtrlMovieЖанр: Movie, Action, Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730AF62046B8F21B3BA9B2924CFDE8481C72F8C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

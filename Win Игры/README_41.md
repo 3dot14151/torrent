@@ -6,7 +6,7 @@ Panicore (2024) [Ru/Multi] (1.3) Repack FitGirl [Supporter Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Panicore (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049437.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PlateUp! (2022) [Ru/Multi] (1.4.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049436.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Minecraft: Bedrock Edition (2025) [Ru/Multi] (1.21.130) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049435.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Storage Hunter Simulator (2024) [Ru/Multi] (17755) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049434.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TIEBREAK+: Official Game of the ATP and WTA (2024) [Ru/Multi] (1.0.6099/dlc) Rep
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049430.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LEGO Voyagers (2025) [Ru/Multi] (build 19911812) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049414.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049413.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dynasty Warriors 8 Empires (2015) [Multi] (1.0) Scene CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049412.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049411.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Candy Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049410.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Uncanny Tales: 1992 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049409.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Supercar Collection Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049408.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Fragile Reflection (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049395.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mourningwood Lodge / 欢迎来到林葬屋 (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049394.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Misty Judgment / 迷雾审判 (2025) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049393.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Wandering Village (2022) [Ru/Multi] (1.0.4) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049392.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Star Birds (2025) [Ru/Multi] (0.1.1b) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049390.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Garfield Kart 2: All You Can Drift (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049377.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hunted Within: The Walls (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049376.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049375.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049374.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Artifact Protocol (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049373.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dead In Bermuda (2015) [Ru/Multi] (1.1c v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049372.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Gravewood High (2021) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049371.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049370.jpg" />
 </div>
 
 

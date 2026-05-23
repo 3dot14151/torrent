@@ -6,7 +6,7 @@ Magic Battery 5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914270.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Smart Disk Image Utilities 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914266.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ One Switch 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914265.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Scrutiny 10 v10.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914263.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Passion In Night (2011) [MP3|192-320 kbps]<House, Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914261.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Kiwi for Gmail 2.0.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914260.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ MediaHuman YouTube Downloader 3.9.9.34 (1603) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914259.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ PD (Progressive Downloader) 4.6 (build 9531) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914258.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MediaHuman YouTube Downloader 3.9.9.34 (1603) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914257.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Glary Utilities Pro 5.138.0.164 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914253.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ InstaCal 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914252.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ iFlicks 2 v2.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914249.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ AudioTool v7.2.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914248.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Affinity Designer 1.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914247.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Affinity Publisher 1.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914246.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ DJ Khaled - Father Of Asahd (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914243.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Ultra Mood - Red Sea (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914241.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Astral Terror - Ayahuasca Shamans (2011) [MP3|~203 kbps] <Full On, Psytrance, Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914197.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Tidy Up 5 v5.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914194.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Static Insane - Break the Seal (2009) [MP3|320 kbps] <Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914190.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Text Scanner - PDF & Document 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914188.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Scherlokk - Files finder 4 v4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914184.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ BBEdit 14.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914177.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914176.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ SideNotes 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914173.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Dr.Web Remover 11.1.1.201612140 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914171.jpg" />
 </div>
 
 

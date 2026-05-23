@@ -1,29 +1,3 @@
-###  Публикация: 1185729   (315776) от 05.11.2018
-
-WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-ЛОВИТЕ, ИЗМЕНЯЙТЕ И РАЗВИВАЙТЕ! Отправьтесь в волшебное путешествие вместе с близнецами Рейнн и Ланн по бескрайним землям Гримуара. Узнайте тайны прошлого и спасите будущее! Наслаждайтесь очаровательной графикой и ловите, изменяйте и развивайте волшебных существ, составляя их в «башенки».Тип издания: LicenseРазработчик: Square EnixЖанр: RPG, Action, Adventure, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A00CCC663E099A13104477405C29CED1DFD1591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331892   (315706) от 19.10.2019
 
 X4: Foundations (2019)  [Ru/Multi] (2.60.368124) SteamRip =alexalsp= [Updates Pack]
@@ -32,7 +6,7 @@ X4: Foundations (2019)  [Ru/Multi] (2.60.368124) SteamRip =alexalsp= [Updates Pa
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315706.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315612.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Myths of the World: Born of Clay and Fire / Мифы народов мира. Р
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315560.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ PuppetShow 10: Bloody Rosie / Шоу марионеток 10. Кровавая �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315555.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Adam Wolfe - Flames of Time / Адам Вулф: Пламя времен (2016) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315463.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Way of the Red (2016) [En] (1.0.0.0/24.11.2016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315331.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ DeathSpank: Thongs of Virtue [En] (L) 2010 l SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315201.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ World Keepers: Last Resort / Хранители Мира: Последняя Н�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314629.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Mushroom 11 (2015) [En] (1.03) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314061.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Fear For Sale 12: Tiny Terrors / Страх на продажу: Кукольн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313969.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Agents of Mayhem (2017) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313774.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Stories Untold (2017) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313740.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Stranded Deep (2015) [En] (0.50.01) SteamRip R.G. Игроманы
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313620.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.0) License H
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313316.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313104.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ RollerCoaster Tycoon World (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312896.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Mystery Case Files 13: Ravenhearst Unlocked (2015) [En] Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312410.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312382.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dark Tales 8: Edgar Allen Poe's The Tell-tale Heart (2015) [En] Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312260.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ashley Clark 2: The Secrets of the Ancient Temple / Эшли Кларк. Сек�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311918.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Blitzkrieg: Mission Kursk [Ru] (L) 2006
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_311767.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dark Asylum: Mystery Adventure / Загадки разума. Грани доз�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311757.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Haunted Hotel 15: The Evil Inside / Проклятый отель 15: Зло в�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311699.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311665.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Far Cry 3 (Русификатор/1.0) [Ru] 2012 | Бука
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311574.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Far Cry 3 (Русификатор/1.0) [Ru] 2012 | Бука
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7051309CB68CEF2BC1FBC7321BD759D4E33A4ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959873   (311545) от 26.11.2015
+
+Rampage Knights (2015) [En] (1.5) Unofficial
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rampage Knights - хардкорный 2D-экшен с великолепной анимацией, случайно генерируемыми уровнями, и кровавыми битвами с врагами! Можно играть как одному, так и в кооперативе с другом. Вы будете играть за героя, который оказался заточен заклинанием в волшебном лесу. Все тропинки этого леса ведут в полуразрушенный замок, в котором находится источник черной магии.Тип издания: UnofficialРазработчик: Rake in GrassЖанр: ArcadeЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F3EA175C3A963F265E024C51023271C97C08CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

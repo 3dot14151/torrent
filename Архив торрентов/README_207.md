@@ -6,7 +6,7 @@ Total Commander 10 final 64bit 32bit VIM 43 portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008507.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Feeder 4 v4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008488.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Auditory - Rec lecture & notes 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008487.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Artstudio Pro 3.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008486.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Any RecScreen 2.0.69 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008485.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Nova 7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008484.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008482.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Grids for Instagram 7.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008480.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Reeder 5 v5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008479.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ AnyTrans for iOS 8.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008474.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Speedio: Internet Speed Test 3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008470.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Mp3tag 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008466.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Super Vectorizer Pro for Mac 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008465.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Microsoft Edge 91.0.864.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008458.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Sketch 73.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008457.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Pixelmator Pro 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008451.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Audio Hijack 3.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008449.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Carbon Copy Cloner 6 v6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008447.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ GIMP 2.10.24 Update 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008446.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Maxthon Browser 6.1.2.1800 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008445.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Focusplan Pro - Mind Map 1.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008432.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Acon Digital Collection 07.2021 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008417.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ NVIDIA GeForce Desktop Game Ready 471.22 Hotfix + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008412.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Futuremark 3DMark 2.19.7225 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008399.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Princess Principal: Crown Handler | Принцесса-шпионка: Укро�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008391.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.2 Build 4 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008387.jpg" />
 </div>
 
 

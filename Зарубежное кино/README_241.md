@@ -1,57 +1,3 @@
-###  Публикация: 611395   (987914) от 31.01.2013
-
-Американская Мэри / American Mary (2012) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет нам историю Мэри Мэнсон, которая работает в салоне, специализирующемся на модификации тела человека. Вскоре она понимает что ей нравится уродовать тела и клиентов салона ей становится мало. Она решает уродовать людей на свой вкус, без их согласия.Жанр: Ужасы, ТриллерРежиссер: Джен Соска, Сильвия СоскаАктеры: Кэтрин Изабель, Антонио Цупо, Тристан Риск, Дэвид Ловгрен, Паула Линдберг, Клэй Ст. Томас, Джон Эммет Трэйси, Твэн Холлидэй, Нельсон Вонг, Сильвия СоскаПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43ABA81F7E94FE09F92839DF42B9FF900BE986E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611658   (987913) от 31.01.2013
-
-Легенда о пианисте / La leggenda del pianista sull'oceano / The Legend of 1900 (1998) DVD9 [Полная версия / Full Version]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Началось все с того, что в первый день 20-го столетия на пароходе «Вирджиния» в коробке из-под лимонов был найден младенец. Мальчик вырос и провел всю свою жизнь на громадном океанском лайнере, курсирующем между Америкой и Европой, ни разу не сойдя на берег.
-
-Загадочным образом научившись играть на рояле, Дэнни Будманн Т. Д. Лемон 1900-й стал настоящим виртуозом и развлекал публику, играя в ресторанном оркестре. С ним связаны потрясающие истории, а его жизнь превратилась в красивую легенду…Жанр: Фэнтези, Драма, Мелодрама, МузыкаРежиссер: Джузеппе ТорнатореАктеры: Тим Рот, Прюитт Тэйлор Винс, Мелани Тьерри, Билл Нанн, Кларенс Уильямс III, Питер Воэн, Ниал О`Брайэн, Габриэль Лавиа, Вернон Нерс, Альберто Васкес, Кевин МакНэллиПеревод: Профессиональный (многоголосый закадровый), BBC SPb & LHSПродолжительность: 02:42:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 433902   (987870) от 09.01.2012
 
 Возвращение Джека потрошителя / Ripper (2001) DVDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987870.jpg" />
 </div>
 
 
@@ -88,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987851.jpg" />
 </div>
 
 
@@ -115,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987841.jpg" />
 </div>
 
 
@@ -141,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987839.jpg" />
 </div>
 
 
@@ -167,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987831.jpg" />
 </div>
 
 
@@ -193,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987815.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987784.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987755.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987745.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987724.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987705.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987702.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987627.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987611.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987499.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987446.jpg" />
 </div>
 
 
@@ -482,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987364.jpg" />
 </div>
 
 
@@ -510,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987351.jpg" />
 </div>
 
 
@@ -537,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987314.jpg" />
 </div>
 
 
@@ -563,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987309.jpg" />
 </div>
 
 
@@ -589,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987281.jpg" />
 </div>
 
 
@@ -615,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987273.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987270.jpg" />
 </div>
 
 
@@ -669,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987201.jpg" />
 </div>
 
 
@@ -686,6 +632,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969845   (987161) от 02.01.2016
+
+Земля обетованная / Promised Land (2012) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпоративный агент Стив Батлер и его партнер Сью Томасон приезжают в маленький городок, в последние годы переживающий кризис. Местные жители готовы принять предложение компании и дать согласие на бурение скважины на территории их собственности. Все осложняется, когда в дело вмешиваются школьный учитель и представитель профсоюза, с которым у Стива личные счеты.Производство: США, ОАЭ / Focus Features, Participant Media, Imagenation Abu Dhabi FZ, Sunday Night, Pearl Street Films, Media FarmЖанр: ДрамаРежиссер: Гас Ван СентАктеры: Мэтт Дэймон, Бенжамин Шилер, Терри Кинни, Карла Бьянко, Джо Койл, Хэл Холбрук, Дороти Сильвер, Фрэнсис МакДорманд, Титус Уэлливер, Лекси КоуэнПеревод: Многоголосый закадровый, Одноголосый закадровый, любительскийЯзык субтитров: Русский, Английский, Французский, ИспанскийПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B68DFDAEBCE88BF35ABB2C11B6B3A4380FBC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611809   (987116) от 01.02.2013
+
+Отрава / Toxic (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизни владельца ночного клуба, криминального босса, стриптизерши, бармена, двух наемных убийц, проститутки и психиатра превращаются в кошмар, когда они сталкиваются со сбежавшим психопатом, который идет по своему зловещему пути безумия и разрушения.Жанр: Триллер, ДрамаРежиссер: Алан ПаоПродюсер: Кори Лардж, Алан Пао, Митчелл БэйкерАктеры: Том Сайзмор, Дэнни Трехо, Доминик Суэйн, Сьюзэн Уорд, Кори Лардж, Мастер Пи, Чарити Ши, Костас Мэндилор, Пол Йоханссон, Бай ЛинПеревод: Многоголосый закадровыйПродолжительность: 01:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5103E672D6309126E3E52A2979D5BA98670EE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

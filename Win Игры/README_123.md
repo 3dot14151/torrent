@@ -1,29 +1,3 @@
-###  Публикация: 1508109   (797886) от 07.11.2021
-
-Airplane Racer 2021 (2021) [Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пристегните ремни безопасности и приготовьтесь к этой реалистичной летной игре. Летайте самостоятельно или против соперников на воздушной трасе. Совершенствуйте самолеты и приобретайте новые, открывайте новые трассы по мере продвижения в игре. Играйте с помощью геймпада или клавиатуры. Соревнуйтесь со своими противниками с оружием и щитами. И станьте легендой неба!Тип издания: LicenseРазработчик: Özgün BURSALIOĞLUЖанр: Симулятор (Самолет), Гонки, АркадаЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B787E6C4C68A31811ECB997F698AAF5024EB8E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199733   (797861) от 17.01.2018
 
 Bike Rush (2018) [Ru/Multi] (1.0) Repack MAXSEM
@@ -32,7 +6,7 @@ Bike Rush (2018) [Ru/Multi] (1.0) Repack MAXSEM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797861.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ InnerSpace (2018) [Ru/Multi] (1.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797853.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Get Even (2017) [Ru/En] (1.0/u1) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797847.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.1) License GOG [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797836.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Miner's Mettle (2021) [En] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797828.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Death Slayer V (2021) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797827.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Saints Row: The Third - Remastered (2020) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797684.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ SkateBIRD (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797392.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Garden Paws (2018) [En] (1.5.2e/dlc) License PLAZA [Human Characters]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797387.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Halcyon 6: Starbase Commander (2016) [En] (0.1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797356.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ My Night Job (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797351.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.03) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797347.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Curved Space (2021) [Ru/Multi] (1.0.10.11/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797329.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ lineage 2 interlude (2007) [En] (interlude) Unofficial
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797309.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Demons with Shotguns (2016) [En] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797292.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Judgment: Apocalypse Survival Simulation (2016) [En] (0.5.1776) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797291.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Project Runner (2021) [En] (1.0) License DARKSiDERS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797268.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (2021.11.01/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797264.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Midnight Ohota (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797261.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Street Fighter V (2016) [Ru/Multi] (3.002/dlc) Repack =nemos= [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797252.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Car Tuning Simulator (2021) [En] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797189.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ The Legend of Tianding (2021) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797186.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Tormentum: Dark Sorrow (2015) [Ru/Multi] (1.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797108.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Dead Synchronicity: Tomorrow Comes Today (2015) [Ru/Multi] (1.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797088.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Filament (2020) [Ru/Multi] (1.0.2726) License GOG [Marmalade Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797067.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Filament — это спокойная головоломка с увлекат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3850841385235250C772B9A886CB07C4E461610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132920   (797062) от 25.05.2020
+
+STRAFE (2017) [Ru/Multi] (23.05.2020/dlc) License GOG [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797062.jpg" />
+</div>
+
+
+###  Подробнее
+
+STRAFE® - самый динамичный, кровопролитный и убойный боевик в стиле 90-х и с видом от первого лица. Устройте врагам мясорубку и залейте кровью все вокруг! Однако имейте в виду: на исследование леденящих кровь уровней вам отведена всего одна жизнь. После смерти все будет уже совсем иначе.Тип издания: LicenseРазработчик: Pixel TitansЖанр: Шутер, От первого лица, ФантастикаЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E26C56CEAF1672F8A63A70662E5AA8E33E4CF30
 ```
 
 https://mybot314.ru/tekegram_catalog/

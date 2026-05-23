@@ -6,7 +6,7 @@ VA - Extrema Summer Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474153.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Progressive Trance Selections Vol.06 (2018) [MP3|320 Kbps] <Trance,Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474107.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Dj Darroo - Harder Trance (2020) [MP3|320 Kbps] <Hard Trance, Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471187.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Essential Vocal Trance (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470084.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Silk Music Pres. Trance Treasures 11 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470065.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Aurosonic - Best Of Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469974.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Armada Trance Vol. 01 - 18 (2007 - 2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469171.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Uplifting Month Of The Year VA (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463569.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Va Liquid Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461570.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Aleksey Litunov - Horizons Of Dreams (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461564.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Uplifting Trance Essentials Vol. 1 (2018) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461563.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Scooter - Instrumental: The Best Hits (2002) Compilation, Mixed [MP3|~238 - 270 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461426.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Electric For Life Top 10: September 2016 (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461257.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Paul van Dyk - Reflections (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460045.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Paul van Dyk - Out There and Back (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459903.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Epic Emotional Uplifting Trance (2016) [MP3|320 Kbps] <Trance ,Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459699.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Dream Dance Vol 93 (2022) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459615.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Frainbreeze - A Year With Suanda (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459148.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Uplifting Trance Essentials Vol. 6 (2022) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458047.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Gravitation Music Vol.2 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457936.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Uplifting Trance Essentials Vol.7 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457935.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - A State Of Trance Top 20 - September (Selected By Armin Van Buuren) (2018) 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456932.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Sounemot State 007 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455806.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - The Sound Of Progressive Trance Vol.14 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455801.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Robert Miles - Dreamland (1996) [OGG|485 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455695.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Future Sound Of Egypt 450 (Mixed By Aly & Fila, Ferry Tayle & Dan Stone, Mo
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455184.jpg" />
 </div>
 
 

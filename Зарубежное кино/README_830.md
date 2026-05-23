@@ -1,55 +1,3 @@
-###  Публикация: 1536855   (672438) от 13.03.2022
-
-Измена / Доверие / Trust (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Брук и Оуэн — идеальная, на первый взгляд, пара. Молодые, красивые и успешные — она владеет частной галереей, а он работает телеведущим. Идиллию нарушает появление чертовски соблазнительного художника Ансгара, чьи откровенные картины предстоит продавать Брук. Одна деловая поездка Брук и Ансгара в Париж может изменить всё: между ними нарастает сексуальное напряжение, (   Читать дальше...   )Производство: США / DeCubellis Films, Untravelled WorldsЖанр: Мелодрама, триллер, драмаРежиссер: Брайан ДеКьюбелисАктеры: Виктория Джастис, Мэттью Даддарио, Кэтрин МакНамара, Люсьен Лависконт, Ронни Чиэн, Линдси Броад, Роза Гилмор, Клэр Кэтрин, Хилари Эдсон, Александр БлэйзПеревод: Дублированный (Кинопоиск HD)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6DB7D4BE07ED96E23FF166D77ED52852292730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534049   (672435) от 13.03.2022
-
-Багровые реки / Les Rivieres pourpres (2000) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В престижном колледже в Альпах совершено зверское убийство, которое расследует опытный комиссар полиции Пьер Ньеманс. Тем временем в другом местечке происходит ещё одно, весьма странное преступление - кто-то раскапывает и оскверняет могилу 10-летней девочки. Это дело ведёт молодой детектив Макс Керкерьян. Кажется, между данными событиями нет связи. Но она существует! (   Читать дальше...   )Производство: Франция / Canal+Жанр: ужасы, триллер, криминал, детективРежиссер: Матьё КассовицАктеры: Жан Рено, Венсан Кассель, Надя Фарес, Доминик Санда, Карим Белхадра, Жан-Пьер Кассель, Дидье Фламан, Франсуа Леванталь, Франсин Берже, Филипп НаонПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, французскийСубтитры: русские, английскиеПродолжительность: 01:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A438010AFC0F9DC4BA824663A04B6091659FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 324550   (672426) от 23.05.2017
 
 Большой толстый лжец / Big Fat Liar (2002) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672426.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672314.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672310.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672305.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672211.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672192.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672191.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672127.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672098.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672092.jpg" />
 </div>
 
 
@@ -327,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672089.jpg" />
 </div>
 
 
@@ -353,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672018.jpg" />
 </div>
 
 
@@ -379,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672003.jpg" />
 </div>
 
 
@@ -406,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671994.jpg" />
 </div>
 
 
@@ -432,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671989.jpg" />
 </div>
 
 
@@ -459,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671984.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671980.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671978.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671958.jpg" />
 </div>
 
 
@@ -564,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671927.jpg" />
 </div>
 
 
@@ -590,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671925.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671921.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671919.jpg" />
 </div>
 
 
@@ -668,13 +616,66 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671885.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Байкер Сэм Чайлдерс имел множество проблем с законом, но после выхода из тюрьмы, вняв мольбам жены Линн, начал посещать церковь. Бывшего преступника словно подменили: он стал примерным прихожанином, основал строительную компанию и сам возвел с нуля протестантский храм для тех, кого благополучные американцы презрительно именовали «отбросами общества»… Ровное течение (   Читать дальше...   )Жанр: Боевик, Драма, Криминал, БиографияРежиссер: Марк ФорстерАктеры: Джерард Батлер, Мишель Монахэн, Кэти Бейкер, Майкл Шеннон, Мадлен Кэрролл, Соулеймейн Сай Савейн, Грант Р. Краузе, Ривис Грэхэм, Питер Кэри, Барбара КовенПеревод: ДублированныйЯзык субтитров: Русские (2 вида), АнглийскиеПродолжительность: 02:08:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510069   (671878) от 13.06.2012
+
+Альфа Дог / Alpha Dog (2006) HD-DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одно преступление. 3 дня. 38 свидетелей. Фильм основан на реальных событиях. Для подростков элитных районов Лос-Анджелеса, у которых слишком много времени и слишком много денег, унылые дни тянутся один за другим. Они развлекаются тем, что играют в головорезов и поклоняются рэпу, видеоиграм и кинофильмам. Когда не несешь ни за что ответственности, случиться может все что угодно. Наркоторговец Шон Майклс, более известный под кличкой Джесси Джеймс Голливуд, — самый молодой преступник, оказавшийся у ФБР в поискном списке номер один. Одно неправильно принятое решение, роковая ошибка, неудачный ход, и жизнь преуспевающего драг-диллера летит под откос. По законам круговой поруки один за другим гибнут все его друзья. Менее чем за сутки Шон становится легендой криминального мира.Жанр: Драма, криминал, биографияРежиссер: Ник КассаветисАктеры: Брюс Уиллис, Джастин Тимберлэйк, Шэрон Стоун, Кортни Кокс, Эмиль Хирш, Антон Ельчин, Шон Хэтоси, Бен Фостер, Доминик Суэйн, Фернандо Варгас, Пол Йоханссон, Оливия Уайлд, Лукас Хаас, Хезер Уолкуист, Аманда Сейфрид, Винсент Картайзер, Гарри Дин Стэнтон, Крис Маркетт, Дэвид ТорнтонПеревод: ДублированныйПродолжительность: 01:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B9CA102DDEBC50A2AFE3F40A0518CDC971575D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510123   (671874) от 13.06.2012
+
+Ультиматум Борна / The Bourne Ultimatum (2007) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он хотел одного — исчезнуть. Вместо этого за Борном теперь охотятся люди, которые сделали его таким, какой он есть. Он потерял память и человека, которого он любил. Но его не удается сдержать даже новому поколению профессиональных убийц. У него только одна цель: вернуться к началу и узнать кем он был, Джейсон Борн.
+Он мечется от Москвы к Парижу, через Мадрид и Лондон (   Читать дальше...   )Производство: ГерманияЖанр: Боевик, Триллер, КриминалРежиссер: Пол ГринграссАктеры: Мэтт Дэймон, Джулия Стайлз, Дэвид Стрэтэйрн, Скотт Гленн, Пэдди Консидайн, Эдгар Рамирез, Альберт Финни, Джоан Аллен, Том Гэллоп, Кори Джонсон, Даниэль Брюль, Джои Анса, Колин СтинтонПеревод: Дублированный, Двухголосый (Гланц и Королёва), Одноголосый (Гаврилов, Живов)Субтитры: Русские, АнглийскиеПродолжительность: 01:55:13
 
 ## Скачать торент
 ```bash

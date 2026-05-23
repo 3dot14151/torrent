@@ -7,7 +7,7 @@ VA - The Orient Collective: Voices of the Ancients (2026) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069605.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068509.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - The Orient Collective: Ash & Amber (2026) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067681.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066971.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - The Orient Collective: Tales From the Sand (2026) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065850.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065092.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - The Orient Collective: Ancestors Still Speak (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065081.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063728.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063477.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061238.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050748.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050661.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030590.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030589.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030581.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030578.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030401.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030368.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Ins
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030357.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030334.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030107.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030098.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029932.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The Best of Paul Mauriat 10 CD
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027979.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indi
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026120.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Deep Forest - 15 альбомов (1992-2020) [FLAC|Lossless|image + .cue|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025688.jpg" />
 </div>
 
 

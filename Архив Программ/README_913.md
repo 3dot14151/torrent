@@ -6,7 +6,7 @@ Opera Unofficial 11.50.1074 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blackmagic Design Fusion 7.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587767.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Anvide Таймер выключения 1.8 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587765.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Opera 30.0.1835.125 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587762.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ O&O Defrag Professional / Server 18.9 Build 60 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587757.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MorphVOX Pro 4.3.13 Build 22345 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587735.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Coolutils Total PDF Converter 5.1.66 Portable by antan [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587726.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ R-Wipe&Clean 10.9 build 1983 RePack by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587724.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Reg Organizer 7.15 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587690.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Baidu Browser 43.18.1000.65 Portable by xxx-man-by [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587676.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Firefox Browser ESR 91.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587669.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Privacy Eraser Free 5.23.4 Build 4232 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587668.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ RegCool 1.320 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587666.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Mozilla Thunderbird 91.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587656.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ iTunes 12.2.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587654.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe Acrobat Reader DC 2015.008.20082 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587651.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Tag&Rename 3.9.1 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587650.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adobe Acrobat XI Pro 11.0.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587646.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Adobe Flash Player 18.0.0.209 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587645.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Adobe Flash Player 18.0.0.209 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587642.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ MSI Kombustor (x64) 3.5.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587641.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Blackmagic Design Fusion Studio 7.7.1 + AVX Edit Connection RePack by TeamVR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587636.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Bulk Crap Uninstaller 5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587622.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe Acrobat Pro DC 2015.008.20082 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587606.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Red Giant Magic Bullet Suite 12.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587596.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Photodex ProShow Producer 7.0.3527 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587595.jpg" />
 </div>
 
 

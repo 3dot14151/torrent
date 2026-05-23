@@ -6,7 +6,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [12.07.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50314.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Office Tool Plus 10.13.10.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50294.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MediaHuman YouTube Downloader 3.9.9.93 (0711) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50281.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ LibreOffice 24.2.5.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50278.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Topaz Video AI 5.2.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50275.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Topaz Photo AI 3.1.1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50272.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Topaz Photo AI 3.1.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50266.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Internet Download Manager 6.42 Build 14 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50264.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ v2rayN 6.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50262.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ R-Studio Network 9.4 Build 191338 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50261.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Firefox Browser ESR 115.13.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50258.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Topaz Video AI 5.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50255.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wondershare PDFelement 10.4.6.2776 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50252.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Mozilla Thunderbird 128.0esr [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50250.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Topaz Photo AI 3.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50247.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0711) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50240.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ YT Downloader 9.9.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50239.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ ApowerREC 1.7.1.10 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50238.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Perfectly Clear Workbench 4.6.1.2671 + AddonsPack Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50237.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Calibre 7.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50230.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ EssentialPIM Pro 12.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50228.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Rhinoceros 3D 8.10.24172.02001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50173.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Nik Collection by DxO 6.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50167.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Master PDF Editor 5.9.85 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50153.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ By Click Downloader Premium 2.4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50142.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50135.jpg" />
 </div>
 
 

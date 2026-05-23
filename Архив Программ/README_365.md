@@ -6,7 +6,7 @@ MediaInfo 0.7.62 Final RePack by nikollo2013 [Русский/Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862521.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Process Lasso Pro 8.9.7.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862517.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MAGIX Vegas DVD Architect 7.0.0 Build 54 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862453.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ASoft .NET Version Detector 16 R3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862451.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SynWrite 6.20.2210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862427.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Foxit Reader 7.3.4.311 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862415.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862412.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Flash Player 21.0.0.197 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862410.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Pepakura Designer 4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862341.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Daum PotPlayer 1.6.59347 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862312.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VMWare ThinApp Enterprise 5.2.1 Build 3655846 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862277.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BestReminder v2020.04.15.15 Covid Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862260.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Bat! Professional 7.4.14 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862251.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adobe Flash Player 21.0.0.197 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862190.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Comodo Internet Security Premium 8.2.0.4978 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862189.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Windows 8 PE x86x64 Universal by Xemom1 22.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862177.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NetBalancer 9.17.1 Build 2297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862160.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Daum PotPlayer 1.7.457 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862154.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862144.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Google Chrome 81.0.4044.113 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862052.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NetBalancer 9.17.1 Build 2297 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862051.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ R-Drive Image Technician 6.3 Build 6301 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862046.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lacey Free Music & Video Downloader 2.40 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862038.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ FastStone Capture 8.4 Final RePack (& portable) by KpoJIuK (23.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861962.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ SamDrivers 16.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861960.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Rufus 2.8 (Build 886) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861947.jpg" />
 </div>
 
 

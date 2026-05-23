@@ -6,7 +6,7 @@ MInstAll v.06.12.2018 By Andreyonohov & Leha342 (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265453.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Loaris Trojan Remover 3.1.1.239 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265336.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soft Organizer Pro 7.46 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265330.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FreeFileSync 10.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265328.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Opera 65.0.3467.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265317.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Freemake Video Converter 4.1.10.460 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265314.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Malwarebytes AdwCleaner 8.0.0.0 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265310.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Google Chrome 78.0.3904.108 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265308.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Internet Download Manager 6.35 Build 12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265295.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Brave Browser 1.0.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265293.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cent Browser 4.1.6.137 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265262.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Vivaldi 1.13.1008.36 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265233.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Aiseesoft Burnova 1.3.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265108.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DiskDigger 1.17.14.2309 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265045.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Screen Gif 2018.2 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265042.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Ant Download Manager PRO 1.7.0 Build 46999 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265041.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MakeMKV 1.10.8 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265038.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Blue Cat's All Plug-Ins Pack (v.2018.12) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265018.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Opera 49.0.2725.56 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264990.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ QuikQuak - Pitchwheel 5.0.2 VST, VST3, AAX (x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264949.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Adobe Flash Player 28.0.0.126 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264942.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mozilla Firefox SM 57.0.2 x64 RePack by Browsers-SM  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264938.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Skype 8.12.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264934.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ ACDSee Photo Studio Ultimate 2018 11.1.1272 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264919.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Total Commander 9.12 LitePack | PowerPack 2017.11 by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264913.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ CCleaner 5.38.6357 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264910.jpg" />
 </div>
 
 

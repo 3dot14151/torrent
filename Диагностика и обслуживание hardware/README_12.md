@@ -6,7 +6,7 @@ Geekbench 6.3.0 Pro RePack (& Portable) by elchupacabra [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58371.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ASUS GPU Tweak III 1.7.7.0 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58334.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AOMEI Partition Assistant Standard Edition 10.4.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58098.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CrystalMark Retro 1.0.2 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57961.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Quick CPU 4.10.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56152.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Futuremark 3DMark 2.29.8256 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55587.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ UninstallView 1.51 Portable [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54800.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mem Reduct 3.5.2 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52130.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51431.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51185.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51078.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by TryRooM [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50954.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50902.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WhyNotWin11 2.6.1.0 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50670.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PassMark RAMMon 3.3 Build 1000 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49111.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NIUBI Partition Editor Technician 9.9.8 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48786.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Macrorit Partition Expert 8.2.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48780.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 Portable by FC Portables [Mu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46718.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ QuickMemoryTestOK 4.82 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42343.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ AMD Ryzen Master 2.13.1.3097 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42258.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ IObit Smart Defrag Pro 10.1.0.419 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41565.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ O&O Defrag Professional 29.0 Build 11110 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41510.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ NIUBI Partition Editor 10.0.0 Technician Edition RePack (& Portable) by elchupac
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39971.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Macrorit Partition Expert 8.3.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37015.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ NIUBI Partition Editor 10.0.9 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36878.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Auslogics Disk Defrag Pro 12.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34481.jpg" />
 </div>
 
 

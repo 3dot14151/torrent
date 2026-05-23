@@ -1,29 +1,3 @@
-###  Публикация: 1363096   (944776) от 26.02.2020
-
-Broken Lines (2020) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Broken Lines — это тактическая ролевая игра с разветвленным сюжетом в сеттинге альтернативной истории Второй мировой войны. Играйте за группу из восьми солдат, потерпевших крушение за линией фронта. Помогите отряду выбраться и преодолеть ужасы войны.Тип издания: RepackРазработчик: PortaPlayЖанр: Strategy, TBS, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C025FD85E1AEA29CC3174DFCA25585F657969FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 174064   (944600) от 11.02.2010
 
 Шахматы в стиле фэнтези Wizard Chess (2009) [RU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944600.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944458.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944454.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Sherlock Holmes: Crimes and Punishments (2014) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944000.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943992.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Inquisitor / Инквизитор (2012) [Ru/En] (1.10.17) Repack R.G. Меха�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943983.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Dark Romance 11: The Ethereal Gardens / Роман тьмы 11: Небесные
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943640.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ BEAUTIFUL DESOLATION (2020) [Ru/Multi] (1.0.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943480.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Infinitesimal Point  (2016) [Ru/En] (1.0) Repack R.G. Жук в Муравейн
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943132.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Mount & Blade: With Fire and Sword / Mount & Blade. Огнем и мечом - �
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942456.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Lost Lands 7: Redemption (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942209.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Northgard (2018) [Ru/Multi] (2.1.4.16370/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941968.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Cat and Ghostly Road (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941963.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Lonely Mountains Downhill (2019) [Ru/Multi] (1.0.4) Repack Butter_
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941872.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.02/Build 927) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941863.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Secrets of the Dark 3: Mystery of the Ancestral Estate / Темные тайны
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940998.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Terminator Salvation: The Videogame / Терминатор: Да придёт с
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940817.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Bequest (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940816.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ MX Nitro: Unleashed (2017) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940517.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Iris and the Giant (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940463.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Atlantis: Mysteries of Ancient Inventors / Атлантида. В поисках
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940370.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Yuletide Legends: The Brothers Claus / Святочные истории: Бра
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939881.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ The Dreamatorium of Dr. Magnus 2 (2015) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939870.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Crossroad Mysteries: The Broken Deal / Тайны Перекрестка: Сор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939861.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная л
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939858.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB3C9FCB913CA63E5A5F997CE93D0118C3B4297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092245   (939559) от 11.01.2017
+
+Horror Hospital (2016) [En/Tr] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы ли вы к лицу со своими встретиться со своими страхами? Страхом, ужасом и паранормальной активностью наполнена ужасная сущность психиатрической больницы. Между тем эта игра является не только игрой ужасов, но головоломкой, основанной на интеллекте. Прогнозируемая продолжительность игры составляет около 18 часов геймплея.Тип издания: RepackРазработчик: Kırmızı Nokta ProductionЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A584212CA063709F6BA34C6DEC826FEF60C4CBCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

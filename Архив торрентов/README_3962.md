@@ -6,7 +6,7 @@ Sumatra PDF 3.5.15481 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199385.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WhatsApp (outdated) 2.2317.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199377.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Firefox Browser 112.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199374.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AnyTrans for iOS 8.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199366.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bandicam 6.2.0.2057 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199355.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Icecream PDF Editor PRO 2.71 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199346.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ WinToHDD 6.0 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199344.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Enigma Virtual Box 10.40 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199340.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199339.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Rainlendar Pro 2.19.2 Build 174 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199334.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199327.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Topaz Photo AI 1.3.1 RePack (& Portable) by TryRooM [En] (25.04.2023)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199325.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v7 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199324.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ HitPaw Photo Enhancer 2.2.0.13 (x64) Portable by Жека [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199319.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Telegram Desktop 4.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199315.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ WhatsApp (outdated) 2.2317.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199312.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ FurMark 1.34.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199305.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ WhatsApp 2.2317.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199299.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Kaspersky Tweak Assistant 23.4.22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199298.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Red Button 5.96 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199290.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ WinNTSetup 5.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199289.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Cockos REAPER 6.79 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199287.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Torrent Merkle Root Reader (TMRR) 2.0g [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199285.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ LDPlayer 9.0.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199282.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Office Tool Plus 10.1.7.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199278.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ CCleaner 6.11.10435 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199277.jpg" />
 </div>
 
 

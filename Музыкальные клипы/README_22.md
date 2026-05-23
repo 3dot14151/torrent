@@ -6,7 +6,7 @@ Nikita - Avocado (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478379.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PEZET - Supergirl (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478280.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Осенний марафон № 192 /  Видеоклипы (Сборни
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473086.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472731.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472726.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471962.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469518.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469420.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467982.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467961.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Secret - Poison (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467683.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467674.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ DJ King Serenity feat. Boonty Rayne Swagger - Body Dance (2012) [H.264/1080p] WE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467209.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Beat Club - Progressive Times - Vol 6. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465825.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Осенний марафон № 193 / Видеоклипы (Презен�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464299.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462962.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Осенний марафон № 194 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462055.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Robbie Williams - Party Like A Russian (2016) WEB-DL [MPEG-4/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461385.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461351.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461254.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460735.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Sika - Love Kills (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460733.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Antonia - Jameia (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460729.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460572.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460330.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460097.jpg" />
 </div>
 
 

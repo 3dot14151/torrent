@@ -6,7 +6,7 @@ AnyBurn 4.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969697.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mirillis Action! 4.1.0 [Multi/Ru] RePack (& Portable) by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969694.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CrystalDiskInfo 6.7.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969661.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Leibo 5.9.110.11086 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969652.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Basilisk 2020.02.06 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969645.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CrystalDiskMark 5.1.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969596.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Auslogics BoostSpeed 11.4.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969560.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BleachBit 1.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969526.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ EF Commander 20.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969488.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ CocCoc 53.2.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969447.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ESET Smart Security 9.0.349.14 [Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969440.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sumatra PDF 3.2.10488 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969439.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969407.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ uTorrent (3.5.5 build 45550) Portable by SanLex [Ad-Free] [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969401.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Shadow Defender 1.2.0.368 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969365.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Waterfox 43.0.4 Final + Portable by PortableApps [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969349.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ The Bat! Professional 4.2.21 Release Christmas Edition [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969282.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Registry Winner 5.7.1.20 ML Rus  [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969278.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6741.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969243.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ AV Uninstall Tools Pack 2016.01 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969238.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ USB Safely Remove 5.3.8.1234 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969233.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Incomedia WebSite X5 Professional 12.0.4.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969232.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Microsoft Office 2007 Standard SP3 12.0.6741.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969228.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7165.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969162.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Microsoft Office 2010 Standard 14.0.7165.5000 SP2 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969156.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ DAEMON Tools Lite 10.2.0.0115 Unlocked (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969148.jpg" />
 </div>
 
 

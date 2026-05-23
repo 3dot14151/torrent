@@ -1,29 +1,3 @@
-###  Публикация: 1009041   (811062) от 20.04.2016
-
-WolfQuest (2015) [En] (2.7.1p3a) License PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-WolfQuest — игра-симулятор жизни волка в Зоопарке Миннесоты, разработанная его командой и компанией Eduweb, чтобы вы могли лучше понять поведение серых волков в естественной среде обитания. В частности, игра позволяет вам оказаться в шкуре одного из волков и исследовать знаменитый Йеллоустонский заповедник.Тип издания: LicenseРазработчик: eduwebЖанр: SimulatorЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F38F4A731D511A2B2B935954CFDEF83225EC69F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009132   (811060) от 20.04.2016
 
 Royal Heroes (2016) [Ru/En] (1.700w) Repack ARMENIAC
@@ -32,7 +6,7 @@ Royal Heroes (2016) [Ru/En] (1.700w) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811060.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ SpeedRunners (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811057.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Out There: Omega Edition (2015) [Ru/Multi] (2.3) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811047.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810935.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ The Butterfly Sign (2017) [Ru/Multi] (1.2.0) License PLAZA [Chapter II: Human Er
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810841.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ War for the Overworld (2015) [Ru/Multi] (1.5.2f4/dlc) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810744.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810738.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ The Crow's Eye (2017) [En/Sp] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810736.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Cyberline Racing (2017) [Ru/En] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810648.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ SnipZ (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810572.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Son of Nor (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810493.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Crusader Kings II/2 (2012) [Multi] (2.1.3/41dlc) SteamRip DWORD [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809867.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Ultimate General: Gettysburg (2014) [En] (1.8mpfix2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809739.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ A Little Golf Journey (2021) [Multi] (1.0.72) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809618.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Sphere - Flying Cities (2021) [Ru/Multi] (0.1.3/dlc) License GOG [Save the World
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809614.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ Sally's Salon - Beauty Secrets / Спа-салон Салли. Секреты к
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809589.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809496.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ Starmancer (2021) [En] (0.1.49) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809484.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809475.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Melty Blood Actress Again Current Code (2016) [En/Multi] (1.0) License POSTMORTE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809358.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ Pang Adventures (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809357.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809208.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Gnomoria (2016) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809095.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Nomad Fleet (2016) [En/Es] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809092.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Desert Car (2015) [Ru/En] (1.4) License TT Games/deema35
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809087.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ Desert Car - Новый гоночный симулятор позволяющи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C7F07B6301A56CD9895675C4412FED086978C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119227   (808861) от 27.03.2017
+
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.10.0/dlc) License SKIDROW [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Warrior 2, продолжение неординарного шутера от студии Flying Wild Hog, рассказывает о новых злоключениях бывшего корпоративного сёгуна Ло Вана. Превратившись в наемника-одиночку, великий воин борется за жизнь в насквозь прогнившем мире: теперь он должен сокрушить легионы демонов, заполонивших планету, в чем ему поможет огромный арсенал пистолетов, мечей, магических (   Читать дальше...   )Тип издания: LicenseРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50407754E337E4BC02E3C549C24AFB37847BC080
 ```
 
 https://mybot314.ru/tekegram_catalog/

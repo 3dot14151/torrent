@@ -6,7 +6,7 @@ Internet Download Manager 6.38 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381019.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XnView Classic 2.51.1 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380963.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ F-Secure Freedome VPN 2.54.73 RePack by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380947.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ F-Secure Freedome VPN 2.54.73.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380937.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Movavi Video Editor Plus 21.0.0 (x64) RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380901.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WhatsApp 2.2041.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380890.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NirLauncher Package 1.17.04 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380853.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VirtualBox 5.1.30 Build 118389 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380802.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Uninstall Tool 3.5.3 Build 5563 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380796.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ HP Service Pack for ProLiant 2019.03.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380768.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Bootstrap Studio 5.4.1 RePack by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380766.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ UnHackMe 11.99 Build 999 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380753.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AusLogics Disk Defrag Pro 9.5.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380750.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ O&O ShutUp10 1.6.1391 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380667.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Driver Talent Pro 6.5.56.164 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380660.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Paint.NET 4.2.4 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380638.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AllDup 4.4.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380630.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ O&O Defrag Professional 24.0 Build 6023 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380617.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Mail.Ru Агент 6.0.6001 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380573.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VueScan Pro 9.1.19 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380571.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Uninstall Tool 3.5.3 Build 5563 Final RePack (& portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380520.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ CPUID HWMonitor 1.41 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380503.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Auslogics BoostSpeed 11.5.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380459.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ PrivaZer 3.0.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380454.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ MediaInfo 0.7.90 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380452.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ IrfanView 4.35 Final RePack (& portable) by KpoJIuK [Русский / Англи
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380421.jpg" />
 </div>
 
 

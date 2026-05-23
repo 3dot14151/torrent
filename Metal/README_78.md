@@ -6,7 +6,7 @@ Armored Saint - Punching The Sky (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337801.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bullet-Proof - De-Generation (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337651.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VoidOath - 2 Albums (2020-2022) [MP3|320 Kbps] <Doom, Death, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336611.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eye of Void - Eye of Void (2022) [Mp3|320 kbps] <Stoner Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336608.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Another Now - 5 Albums (2020-2022) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336420.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Unison Theory - Arctos (2016) [MP3|320 Kbps] <Technical Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336237.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dark Quarterer - Pompei (2020) [MP3|320 Kbps] <Epic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335820.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Autopsy - Morbidity Triumphant (2022) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334705.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Severoth - When The Night Falls... (2018) [MP3|320 Kbps] <Atmospheric Black Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334596.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ashenvoid - Psalms of the Grave Serpent (2020) [MP3|320 Kbps] <Heavy Metal, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334009.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Seraphic - Chrysalis (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333986.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jester's Tears - Perception (2020) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333952.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ NightFear - Drums Of War (2015) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333902.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Slipknot - Greatest Hits (2010) [MP3|320 kbps]<Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332839.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Vanden Plas - Chronicles of the Immortals: Netherworld II (2015) [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332628.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Volume 4 (Redux) (2020) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332608.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ SeeYouSpaceCowboy - The Correlation Between Entrance and Exit Wounds (2019) [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332350.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Brujeria - 3 albums, 5 singles, 3 compilations (1990-2008) [MP3|128-320 кб/с]
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332337.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Swallow The Sun - Songs From The North I, II & III (2015) 3CD [MP3|320 кб/с]<
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332216.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Judas Priest - Fuel for Life 1986 (live) (1986) Reissue, 2022, Cult Legends [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332139.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Drowning Pool - Strike A Nerve (2022) [MP3|320 Kbps] <Alt. Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332015.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Sabaton - Weapons Of The Modern Age (2022) EP [MP3|320 Kbps] <Heavy Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331996.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Machine Head - 7albums + 3EPs + 7singles (1993-2011) [MP3|320kbps] <Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331874.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Aviana - Corporation (2022) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331845.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Machine Head - 2 Studio Albums, 2 Live Albums, 3 Singles (2012-2019) [MP3|320 к
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331757.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Soulfly - 8albums + 2EPs + 3singles (1998-2012) [MP3|320kbps] <Groove/Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331747.jpg" />
 </div>
 
 

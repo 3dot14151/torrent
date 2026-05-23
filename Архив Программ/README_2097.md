@@ -6,7 +6,7 @@ Microsoft Windows 7 AIO SP1 x64 Integrated March 2012 Russian - CtrlSoft (Rus) (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83368.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83346.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dr.Web CureIt 6.0.16 от 16.03.2012 года[Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83330.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ The KMPlayer 3.2.0.12 Final Portable by PortableAppZ + Skins [Мульти, ес
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83312.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ FotoMix 8.8 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83250.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Xara Designer Pro 7 7.1.2.18680 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83142.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Windows 7x86 Ultimate UralSOFT v.3.5.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83133.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ WinMate 0.9.15 [Английский, Русский, Шведский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83118.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Alarm from ENOT 1.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83065.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Google Chrome 18.0.1025.109 Beta [Русский/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83004.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Rog RocketDock 2012 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82990.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Lenovo b570e One Key Recovery DVD Windows 7 x64 Ultimate 7.0 [rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82988.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 WPI Boot by OVGorskiy 16.03.2012
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82973.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82938.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ The KMPlayer 3.0.0.1440 (LAV) (сборка 7sh3 от 17.03.2012) [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82928.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VideoCharge Studio 2.12.2.684 [английский, русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82900.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Xilisoft Video Converter Ultimate 7.1.0 build 20120222 RePack by CTYDEHT [ENG/RU
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82863.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 от 16.03.2012 года [русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82829.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Windows 7 Ultimate SP1 х64 by Loginvovchyk с программами (Март 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82755.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Audio Damage - Eos 1.1 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82704.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VideoCharge Studio 2.12.0.682 [английский, русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82697.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Audio Damage - DubStation 1.5.2 by ASSiGN  [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82689.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ TuneUp Utilities 2012 12.0.3010.5 RePack by elchupacabra [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82686.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Audio Damage - Ratshack Reverb 2.1.0 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82622.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Native Instruments - Guitar Rig Pro 5.0.2 by ASSiGN [x86 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82571.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82558.jpg" />
 </div>
 
 

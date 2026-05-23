@@ -1,87 +1,3 @@
-###  Публикация: 1731988   (52371) от 23.06.2024
-
-Иннокентий Белов | Апокалипсис начнется в 12:00 (Книга 6). Новая жизнь. Хозяин замков (2024) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Наши герои смогли выжить в череде непрерывных схваток, найти союзников и вот уже небольшое войско находится под их управлением, а у самих появилась репутация непобедимых бойцов, ведущих своих людей от победы к победе.
-Теперь остается только и дальше побеждать, чтобы получить возможность начать небольшую победоносную войну за главную ценность этих суровых земель - (   Читать дальше...   )Жанр: Боевая фантастика, РеалРПГ, ПостапокалипсисИздательство: ЛиТрес: Чтец, Автор
-Категория: 18+Продолжительность: 07:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B91FFE18CB9CC91BA303D10A22B48001B1D4282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731985   (52367) от 23.06.2024
-
-Иннокентий Белов | Апокалипсис начнется в 12:00 (Книга 3). (2024) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-События закручиваются все быстрее и страшнее. Колеса новой жизни катятся по всем, оставляя только один выбор - освобождать зараженных и качаться.
-Вот и Серый со своей поредевшей командой скачут, как белки в колесе, не успевая остановиться и задуматься, куда приведет эта постоянная прокачка...
-Судьба и чужая злобная воля уносят Героя в другой мир...Жанр: Боевая фантастика, РеалРПГ, ПостапокалипсисИздательство: ЛиТрес: Чтец, Автор
-Категория: 18+Продолжительность: 06:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58811EFCECA2A837B404CB39358A49FAB47FBE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731986   (52364) от 23.06.2024
-
-Иннокентий Белов | Апокалипсис начнется в 12:00 (Книга 4). Новая жизнь. Вожак шайки (2024) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение цикла «Апокалипсис начнется в 12.00».Наш современник с немалыми таким плюшками попадает в мир магического Средневековья.Здесь все трудно, страшно и кроваво, жизнь человеческая не стоит и гроша.Правда, он сам и его товарищ по несчастью, или все же счастью, готовы к испытаниям, сражениям, рекам пролитой крови, ударам в спину и захвату неприступных замков (   Читать дальше...   )Жанр: Боевая фантастика, РеалРПГ, ПостапокалипсисИздательство: ЛиТрес: Чтец, Автор
-Категория: 18+Продолжительность: 06:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BD28EE722CA6EB9598486B6A694C7A8E40BE9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731984   (52360) от 23.06.2024
 
 Иннокентий Белов | Апокалипсис начнется в 12:00 (Книга 2). (2024) [MP3, Михаил Обухов]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52360.jpg" />
 </div>
 
 
@@ -120,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52302.jpg" />
 </div>
 
 
@@ -146,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52294.jpg" />
 </div>
 
 
@@ -172,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52290.jpg" />
 </div>
 
 
@@ -198,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52289.jpg" />
 </div>
 
 
@@ -224,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52268.jpg" />
 </div>
 
 
@@ -250,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52266.jpg" />
 </div>
 
 
@@ -276,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52263.jpg" />
 </div>
 
 
@@ -305,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52257.jpg" />
 </div>
 
 
@@ -331,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52255.jpg" />
 </div>
 
 
@@ -357,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52252.jpg" />
 </div>
 
 
@@ -383,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52242.jpg" />
 </div>
 
 
@@ -410,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52216.jpg" />
 </div>
 
 
@@ -438,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52215.jpg" />
 </div>
 
 
@@ -464,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52214.jpg" />
 </div>
 
 
@@ -492,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52212.jpg" />
 </div>
 
 
@@ -520,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52205.jpg" />
 </div>
 
 
@@ -548,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52193.jpg" />
 </div>
 
 
@@ -574,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52192.jpg" />
 </div>
 
 
@@ -600,7 +516,7 @@ Zampolit | Рождение империи (Книга 1). Прямой насл
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52129.jpg" />
 </div>
 
 
@@ -629,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52098.jpg" />
 </div>
 
 
@@ -655,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52096.jpg" />
 </div>
 
 
@@ -681,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52068.jpg" />
 </div>
 
 
@@ -693,6 +609,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E7C0913990599F42043F568B278F78C8C7EB8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821375   (52061) от 02.10.2025
+
+Николай Данилевский | Россия и Европа (2007) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52061.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самом известном своем сочинении "Россия и Европа" Н.Я.Данилевский выдвинул теорию "культурно-исторических типов" которая оказала огромное влияние на современную западную философию культуры и предвосхитила концепции локальных цивилизаций О.Шпенглера, А.Тойнби и других. История есть циклический процесс возникновения, расцвета и упадка сменяющих (   Читать дальше...   )Жанр: История, Философия, МировоззрениеИздательство: АРДИСПродолжительность: 18:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1FE8C57C4E2EC4B7D0EEC8A973BDA6B4C5A657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732551   (52013) от 25.06.2024
+
+Джон Варли | Охота (2024) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52013.jpg" />
+</div>
+
+
+###  Подробнее
+
+"На внешних границах Солнечной системы сохранились еще микроскопические черные дыры. Обнаружить их весьма сложно, поэтому промысел ведется старателями-энтузиастами, тратящими на один рейс иногда десятки лет и, в большинстве случаев, остающихся ни с чем. Зои повезло, ее прошлые находки позволили оплатить дальнейшие поиски, и сейчас ее напарница-двойник Ксантия (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83191413AB380C9D03ECA412D90729F58B4898F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732712   (51930) от 26.06.2024
+
+Павел Корнев | Резонанс (Книга 6). Нелегал (Том 2) (2024) [MP3, Алексей Воленко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51930.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где живёт главный герой, царит беспощадный капитализм, причём всем управляют аристократы, поэтому у простых людей перспектив немного. Однако есть шанс пройти инициацию и получить управление сверхэнергией, что позволит герою разом достичь невиданных высот и возвеличиться над теми, кто считает себя хозяевами жизни. Но прохождение инициации несёт с собой смертельные (   Читать дальше...   )Жанр: Боевое фэнтези Героическое фэнтезиИздательство: 1С-ПаблишингПродолжительность: 11:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18B30F5E9C2F52C08F335D54E1675DA383DDE2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

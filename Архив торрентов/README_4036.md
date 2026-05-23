@@ -6,7 +6,7 @@ Sumatra PDF 3.5.15623 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186577.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FireAlpaca 2.11.9 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186576.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera GX 102.0.4880.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186572.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Plus Messenger (Telegram+) v10.0.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186570.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Calibre 6.27.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186565.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Google Chrome 117.0.5938.92 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186564.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Vivaldi 6.2.3105.51 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186561.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Soft Organizer Pro 9.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186557.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Windows and Office Genuine ISO Verifier 11.12.41.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186553.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Blender 3.6.3 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186551.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ simplewall 3.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186544.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Reg Organizer 9.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186541.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ LDPlayer 9.0.59 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186539.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ vpnify - Безлимитный VPN 2.1.4.4 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186538.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186532.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CyberLink PowerDirector 2024 Ultimate 22.0.2118.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186524.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Brave Browser 1.58.131 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186423.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Java SE Development Kit 21.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186420.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ OCCT 12.1.5 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186413.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Joplin 2.12.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186409.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Telegram Desktop 4.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186407.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ jetAudio HD Music Player Plus v11.2.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186395.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Google Chrome 117.0.5938.92 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186386.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Imagine 1.1.9 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186381.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Display Driver Uninstaller 18.1.3.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186313.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ KMSAuto++ Portable 1.8.3 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186308.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1782892   (24226) от 19.03.2025
-
-Подай знак / Blink Twice (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Переодевшись в вечерние платья, Фрида и Джесс проникают в качестве гостей на приём, где они должны были работать официантками. Там Фрида знакомится со своим кумиром, IT-миллионером Слейтером Кингом, и хорошо проводит вечер в его компании, а затем он приглашает девушек и других гостей на свой частный тропический остров. В течение нескольких дней компания веселится (   Читать дальше...   )Производство: США, Мексика / Bruce Cohen Productions, Free AssociationЖанр: триллер, драмаРежиссер: Зои КравицАктеры: Наоми Аки, Ченнинг Татум, Алиа Шокат, Кристиан Слэйтер, Саймон Рекс, Адриа Архона, Кайл Маклоклен, Хейли Джоэл Осмент, Джина Дэвис, Левон ХоукПеревод: Дублированный, Многоголосый, ДвухголосыйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH) и др.Продолжительность: 01:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12E6F377BCED3A6B306388993741BDC296E9A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786209   (24217) от 19.03.2025
-
-Дикость / Wild Things (1998) UHD BDRip [H.265/1080p] [10-bit] [Unrated]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Семнадцатилетняя Келли влюбляется в своего учителя Сэма. Она использует всевозможные способы, чтобы привлечь его внимание, но безрезультатно. А когда девушка не получает желаемого, она начинает мстить. Несостоявшаяся любовница обвиняет Сэма в изнасиловании. Улик явно недостаточно, пока на помощь Келли не приходит её подруга, которая готова давать показания. Но вскоре (   Читать дальше...   )Производство: США / Mandalay EntertainmentЖанр: триллер, драма, криминал, детективРежиссер: Джон МакНотонАктеры: Кевин Бейкон, Мэтт Диллон, Нив Кэмпбелл, Тереза Расселл, Дениз Ричардс, Дафна Рубин-Вега, Роберт Вагнер, Билл Мюррей, Кэрри Снодгресс, Джефф ПерриПеревод: дублированный официальный (Невафильм), профессиональный многоголосый (Видеосервис, ОРТ, СТС), авторский (Андрей Гаврилов, Юрий Живов, Владимир Королёв), любительский одноголосый (неизвестный)Язык озвучки: русский, английскийСубтитры: русские (SDH), английские (SDH)Продолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0D00870A0D1BBDBABA60426146C53865F863EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782967   (24216) от 19.03.2025
 
 Дыхание / Respiro (2002) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24216.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24214.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24196.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24180.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24089.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24087.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24043.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24018.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23885.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23790.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23775.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23746.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23667.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23665.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23650.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23644.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23610.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23573.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23504.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23405.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23320.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23319.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23305.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23301.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13929B88D908A72BB431AFAB3F7B433E20D74E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787981   (23244) от 28.03.2025
+
+Игра киллера / The Killer's Game (2024) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наёмный убийца Джо — один из лучших в Европе. Во время выполнения задания в Будапеште он спасает танцовщицу Мейзи, с которой у него постепенно завязываются романтические отношения. Обеспокоенный внезапными приступами, Джо проходит медицинское обследование и узнаёт, что неизлечимо болен, а жить ему осталось не больше 3 месяцев. Чтобы не страдать, он решает нанять (   Читать дальше...   )Производство: Испания, США / Dogbone Entertainment, Endurance Media, K. JAM MediaЖанр: боевик, комедия, криминалРежиссер: Дж.Дж. ПерриАктеры: Дэйв Батиста, София Бутелла, Терри Крюс, Скотт Эдкинс, Марко Сарор, Пом Клементьефф, Бен Кингсли, Алекс Кингстон, Дрю Гэлловэй, Шейна УэстПеревод: Дублированный (Велес), Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCE66E3BD34D33EFCB340FF421E29EAB5C6E0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787996   (23243) от 28.03.2025
+
+Игра киллера / The Killer's Game (2024) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наёмный убийца Джо — один из лучших в Европе. Во время выполнения задания в Будапеште он спасает танцовщицу Мейзи, с которой у него постепенно завязываются романтические отношения. Обеспокоенный внезапными приступами, Джо проходит медицинское обследование и узнаёт, что неизлечимо болен, а жить ему осталось не больше 3 месяцев. Чтобы не страдать, он решает нанять (   Читать дальше...   )Производство: Испания, США / Dogbone Entertainment, Endurance Media, K. JAM MediaЖанр: боевик, комедия, криминалРежиссер: Дж.Дж. ПерриАктеры: Дэйв Батиста, София Бутелла, Терри Крюс, Скотт Эдкинс, Марко Сарор, Пом Клементьефф, Бен Кингсли, Алекс Кингстон, Дрю Гэлловэй, Шейна УэстПеревод: Дублированный (Велес)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD1DEABF6A4D58927AF111BDC82A17BBA5C999C
 ```
 
 https://mybot314.ru/tekegram_catalog/

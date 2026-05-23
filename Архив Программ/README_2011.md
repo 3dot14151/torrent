@@ -6,7 +6,7 @@ Rufus 4.4 (Build 2103) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121803.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Resource Hacker 5.2.7.427 Final Portable by alexalsp [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121768.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AVS All-In-One Install Package 5.6.1.185 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121764.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AVS Media Player 5.6.3.157 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121754.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GPU-Z 2.57.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121751.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AVS Image Converter 6.0.1.333 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121732.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PotPlayer 240112 (1.7.22077) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121627.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Psiphon 3 build 181 (21.01.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121619.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ GPU-Z 2.57.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121614.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ OCCT 12.1.15 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121611.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VueScan Pro 9.8.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121610.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BlueStacks App Player 5.14.21.1004 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121608.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Download Master 7.1.1.1727 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121599.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ HDCleaner 2.063 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121594.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SIV (System Information Viewer) 5.75 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121592.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Process Explorer 17.05 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121585.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ uTorrent Pro 3.6.0 Build 47006 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121582.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Process Monitor 3.96 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121580.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Malwarebytes Windows Firewall Control 6.9.9.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121554.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ TweakPower 2.049 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121552.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Imagine 1.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121550.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121549.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Firefox Browser 122.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121538.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ HWiNFO 7.69 Build 5335 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121528.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ RegCool 1.360 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121510.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ RogueKiller Anti-Malware 15.14.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121503.jpg" />
 </div>
 
 

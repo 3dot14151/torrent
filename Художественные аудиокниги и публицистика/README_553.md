@@ -1,86 +1,3 @@
-###  Публикация: 1570454   (442856) от 17.08.2022
-
-Хайдарали Усманов | Дух (Книга 8). Пока дышу, надеюсь… (2022) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Не знаю как сейчас, но стоило раньше спросить у кого-нибудь из детей, хотя бы восьмидесятых годов прошлого столетия о том, о чём они мечтают, то можно было услышать самый распространённый в то время ответ. Практически все дети на Земле мечтали улететь к звёздам. Открывать новые планеты и осваивать новые миры. Но никто из них никогда не задумывался о том, чем чревато (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаПродолжительность: 10:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079BF528190DF17251B795BBACD267FD04B3BC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570429   (442850) от 17.08.2022
-
-Аркадий Аверченко и др. | Классика русского юмористического рассказа (Выпуск 1). (2010) [MP3, Александр Бордуков  и др.]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По словам Гете, юмор – это один из элементов гения.
-По мнению Бернарда Шоу, «Юмор – черта богов!»
-Многие века и тысячелетия человечество пыталось ответить на вопрос: «В чем сущность юмора?»
-Но до сих пор никто так и не нашел исчерпывающего и точного определения этого понятия.(   Читать дальше...   )Жанр: ЮморПродолжительность: 04:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CF0CB664B13272E9A1F3F431CE1E1F827DE259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944140   (442767) от 06.10.2015
-
-Григорий Неделько | Здоровый образ Смерти (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Незлобивая пародия на прекрасный цикл Терри Пратчетта «Плоский мир»; также присутствуют отсылки к другим авторам.
-Сюжет: Что бы сделал Смерть, если бы у него снова отшибло память, на этот раз после сильного удара по голове... в смысле, по черепу? Спорим, не догадаетесь. А тут ещё боги разрезвились. И души раздухарились! И остальные поддают парку...
-В центре повествования (   Читать дальше...   )Жанр: ФентезиПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2680BB6D59BA75F29BF857C68A4AC157F10D64CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706843   (442741) от 03.10.2013
 
 Альманах фантастики | Фантаскоп №004 (2013) [MP3]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442741.jpg" />
 </div>
 
 
@@ -116,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442738.jpg" />
 </div>
 
 
@@ -142,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442664.jpg" />
 </div>
 
 
@@ -168,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442591.jpg" />
 </div>
 
 
@@ -194,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442512.jpg" />
 </div>
 
 
@@ -223,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442503.jpg" />
 </div>
 
 
@@ -249,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442415.jpg" />
 </div>
 
 
@@ -276,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442413.jpg" />
 </div>
 
 
@@ -302,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442405.jpg" />
 </div>
 
 
@@ -328,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442314.jpg" />
 </div>
 
 
@@ -354,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442247.jpg" />
 </div>
 
 
@@ -381,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442168.jpg" />
 </div>
 
 
@@ -407,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442153.jpg" />
 </div>
 
 
@@ -433,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442149.jpg" />
 </div>
 
 
@@ -459,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441973.jpg" />
 </div>
 
 
@@ -487,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441965.jpg" />
 </div>
 
 
@@ -513,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441960.jpg" />
 </div>
 
 
@@ -539,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441635.jpg" />
 </div>
 
 
@@ -565,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441625.jpg" />
 </div>
 
 
@@ -591,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440823.jpg" />
 </div>
 
 
@@ -621,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440793.jpg" />
 </div>
 
 
@@ -648,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440792.jpg" />
 </div>
 
 
@@ -676,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440790.jpg" />
 </div>
 
 
@@ -687,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A067A4E8D35586EBC98995BA57CAC19EA6DD537B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570747   (440647) от 18.08.2022
+
+Лев Толстой | Детство. Отрочество. Юность (2016) [MP3, Максим Суслов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440647.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей трилогии Лев Николаевич Толстой исследует внутренний мир юного человека — сначала ребенка, затем подростка, потом юноши. Писатель пытается понять законы, по каким формируется сознание. В созданных им образах обнажается внутренняя жизнь человека — сложный, противоречивый процесс, обычно скрытый от посторонних глаз. Повести автобиографичны: в истории Николеньки (   Читать дальше...   )Жанр: Классика, ПовестьПродолжительность: 13:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF22B433879CD3398253F51D7C13AA533D77DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244172   (440619) от 10.10.2010
+
+Стивен Кинг | Извлечение троих [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Роланд - последний благородный рыцарь в мире, `сдвинувшемся с места`. Ему во что бы то ни стало нужно найти Темную Башню - средоточие Силы, краеугольный камень мироздания. Когда - нибудь он отыщет эту башню, а пока ему предстоит долгий и опасный путь- путь по миру, которым правит черная магия, по миру, из которого порой открываются двери в нашу реальность...Жанр: Фантастика
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570662   (440497) от 18.08.2022
+
+Хайдарали Усманов | Дух (Книга 10). Тайный враг (2022) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не знаю как сейчас, но стоило раньше спросить у кого-нибудь из детей, хотя бы восьмидесятых годов прошлого столетия, о чём они мечтают, то можно было услышать самый распространённый в то время ответ. Практически все дети на Земле мечтали улететь к звёздам. Открывать новые планеты и осваивать новые миры. Но никто из них никогда не задумывался о том, чем чревато подобное (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаПродолжительность: 11:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C03FB2691BAE99B683F65A2908B4E1EFDFB911
 ```
 
 https://mybot314.ru/tekegram_catalog/

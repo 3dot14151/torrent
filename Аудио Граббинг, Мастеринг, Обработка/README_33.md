@@ -6,7 +6,7 @@ Minimal Audio - Effect Bundle 2025.10 VST, VST 3, AAX Repack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94753.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dawesome - Kontrast 1.01 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91195.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Audified - MixChecker Ultra 1.0.2 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91182.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Plugin Alliance - Noveltech Character v1.1.1 x86.x64 [VST|VST3|RTAS][англи�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89117.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Steinberg - Virtual Bassist Repack by AIR [VSTi][ISO][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87065.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Melda Production - MTotal Bundle v6.00 x86 x64 by ASSiGN [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85796.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Sound Performance Lab - SPL ALL 2012 Bundle v1.0.R2 x86.x64 by ASSiGN [англ�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85431.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Plugin Alliance - Maag EQ4 v1.1 x86.x64 By ASSiGN [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84990.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ LinPlug - Organ VSTi v3.1.5 x86/x64 by AiR [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84947.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Hamburg-audio - NUKLEAR 1.1.3 [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84888.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Oxford Native VSTi v1.0 by AiR [English]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81119.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Waldorf - Blofeld 1.1.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71438.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ United Plugins & Muramasa - MorphVerb 4.0 VST, VST 3, AAX (x64) RePack by BUBBiX
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71392.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CoolUtils Total Audio Converter 6.1.0.278 RePack (& Portable) by TryRooM [Multi/
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71356.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sixth Sample & Integraudio - Deelay 1.3.1 VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70981.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ W.A. Production - KickShaper 1.0.1 VST, VST 3, AAX (x86/x64) RePack by BUBBiX [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70535.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ W.A. Production - ChopBeast 1.0.0 VSTi, VSTi 3, AAX (x86/x64) RePack by BUBBiX [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70533.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ MusicBrainz Picard 2.13.3 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70474.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ W.A. Production - Put Me On Drums by K391 1.0.4 VST, VST3, AAX RePack by BUBBiX 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70283.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Plugin Alliance - Vertigo 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70134.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Plugin Boutique - DC Snares 1.2.0 VSTi 3, AAX (x64) RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69709.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Plugin Alliance & Kiive Audio - XTComp 1.0.2 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69391.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ W.A. Production - Detroubler 1.0.0 VST, VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69390.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Excite Audio - Bloom Drum Percussion 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68672.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Three-Body Technology - VO-TT 1.1.0 VST, VST 3, AAX (x64) RePack by SEnki [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68665.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Lese - Sweep (Infinity Filter) 1.3.5 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68652.jpg" />
 </div>
 
 

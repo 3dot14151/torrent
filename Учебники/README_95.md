@@ -1,135 +1,3 @@
-###  Публикация: 1587207   (193150) от 29.10.2022
-
-Б.Л. ван дер Варден | Алгебра (1979) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Книга Б. Л. ван дер Вардена уже давно получила широкое признание читательской аудитории и является классическим учебником основ абстрактной алгебры. Доступность и простота удачно сочетаются со строгостью изложения. Начиная с объяснения элементарных понятий, автор постепенно вводит читателя в увлекательный мир современной алгебры.
-В частности, рассматриваются следующие (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884AB02F159DD26BD6DB549B4B0998EEA381DF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587096   (193144) от 29.10.2022
-
-Ю.М. Перунов, А.И. Куприянов | Методы и средства радиоэлектронной борьбы (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются радиоэлектронные системы и средства, функционирующие в условиях информационного противоборства, а также средства и способы радиоэлектронного подавления информационных каналов радиоэлектронных систем различной структуры и функционального назначения. Приводятся технические решения при построении средств радиоэлектронного противодействия, методы оценки (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72C6B883FE77901D61E1DBF7BEFD8E9EA7E79FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657043   (193013) от 02.09.2023
-
-А.С. Ястржембский | Техническая термодинамика (1960) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Учебник по термодинамике для ВТУЗов. Излагаются основы термодинамики и дается их приложение к теории тепловых двигателей и холодильных установок. В первой части книги рассматриваются законы термодинамики, газовые процессы и циклы, во второй части - теория реальных газов и водяного пара, паровые процессы и циклы паровых и холодильных установок. В третьей части - основы (   Читать дальше...   )Жанр: ФизикаИздательство: ГосэнергоиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A693EA16B7BD5A23BAA01C504483F0E8EB144AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657034   (192936) от 02.09.2023
-
-Е.И. Бутиков и др. | Физика для поступающих в вузы (1991) [3-е издание] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой пособие по курсу физики средней школы. Особое внимание в ней уделяется тем вопросам, которые по тем или иным причинам не изложены в школьном учебнике или изложены там недостаточно глубоко и подробно.Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501523777E7A55599E40834868D497868FD41C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586955   (192833) от 30.10.2022
-
-И.М. Гельфанд | Лекции по линейной алгебре (1998) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Читателю предлагается пятое, исправленное издание курса лекций И.М. Гельфанда, читавшихся автором в Московском государственном университете на протяжении ряда лет.
-Для студентов-математиков и широкого круга специалистов, использующих методы линейной алгебры.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A996609C68D3AA0942F1976E67A35BF7272FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587240   (192792) от 30.10.2022
 
 Н.М. Меламедман, К.К. Пономарёв | Курс высшей математики [2 книги] (1974) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192792.jpg" />
 </div>
 
 
@@ -166,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192587.jpg" />
 </div>
 
 
@@ -192,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192579.jpg" />
 </div>
 
 
@@ -218,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192565.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192288.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192098.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192030.jpg" />
 </div>
 
 
@@ -322,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191984.jpg" />
 </div>
 
 
@@ -349,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191582.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191553.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191551.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191536.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ Donald Knuth и др. | Concrete Mathematics: A Foundation for Computer Science 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191230.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191022.jpg" />
 </div>
 
 
@@ -507,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190919.jpg" />
 </div>
 
 
@@ -533,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190398.jpg" />
 </div>
 
 
@@ -560,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190327.jpg" />
 </div>
 
 
@@ -587,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190322.jpg" />
 </div>
 
 
@@ -613,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190310.jpg" />
 </div>
 
 
@@ -639,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190289.jpg" />
 </div>
 
 
@@ -666,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190221.jpg" />
 </div>
 
 
@@ -677,6 +545,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C876B1650AFF9BC7F999B19A1ADE1682E03672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589549   (189946) от 10.11.2022
+
+Е.А. Лебедев, Л.В. Миротин | Фидерные перевозки грузов и их мультипликативный эффект (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены результаты научно-прикладных исследований, направленных на снижение плотности транспортных потоков на автодорогах регионального и федерального уровня путем организации фидерных перевозок массовых грузов водным транспортом. Дан обзор отечественного и зарубежного опыта в организации фидерных перевозок. Представлены рекомендации относительно организации фидерных (   Читать дальше...   )Жанр: ТранспортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDE6521BF37D66EC04FAF0D8AE9519A4D506490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660298   (189656) от 12.09.2023
+
+А.В. Погорелов | Лекции по основаниям геометрии [2 издание] (1964) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит изложении курса 'Основания геометрии' в объеме, предусмотренном программой министерства высшего образования для университетов. Она отличается оригинальностью изложения многих разделов курса, в особенности раздела 'Геометрия Лобачевского' и раздела 'Проективная геометрия'.Жанр: МатематикаИздательство: Издательство Харьковского университетаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FEBE778D4662C1C3DF74993271C5747E9A6E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590139   (189349) от 12.11.2022
+
+В.В. Синявский (ред.) | Энергетические установки космических аппаратов (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189349.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены основы теории энергетических установок косми­ческих аппаратов. Большое внимание уделено физическим процессам, про­текающим в агрегатах установок, их устройству, основам конструкции, а также анализу влияния различных факторов на их характеристики.
+Рассмотрены основные типы энергетических установок, предназначен­ных для использования в условиях космического (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FFD69A60BA7264AA3684B8E3DDD36616C8B98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590067   (189321) от 12.11.2022
+
+Б.М. Верников, Д.М. Скоков | Многочлены от одной переменной (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189321.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии излагается одна из стандартных тем курса «Алгебра и геометрия» — теория многочленов от одной переменной. Приводятся примеры решения типов задач, имеется подборка задач для самостоятельного решения. Для студентов и преподавателей математических и компьютерно-информационных направлений подготовки и специальностей.Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9DD4A494E26E53A2BE4B1C43DC2484D638BAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590125   (189303) от 12.11.2022
+
+А.Г. Светлаков и др. | Делопроизводство и режим секретности (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие раскрывает теоретические и организационно-методические основы документооборота, содержит описание методик составления документов, а также принципы и методы защиты секретной информации. В работе приведены контрольные вопросы и тесты для самостоятельной работы, что способствует закреплению полученных знаний и приобретению практических навыков работы (   Читать дальше...   )Жанр: ДелопроизводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CDC14D591CBB5840D2DFCB6A2772AE8234A244
 ```
 
 https://mybot314.ru/tekegram_catalog/

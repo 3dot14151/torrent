@@ -1,29 +1,3 @@
-###  Публикация: 1168312   (410428) от 23.09.2017
-
-The Secret Order 4: Beyond Time / Тайный орден 4: Вне времени (2015) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новая часть увлекательной серии игр The Secret Order. Борьба Добра и Зла продолжается - Орден Грифона и Клан Дракона снова сражаются. Сара Пеннингтон, член Тайного Ордена Грифона отправилась в Прошлое - в Древнее Царство Aeronheart. Там ей удалось уничтожить магические артефакты: Маску и Скипетр Драконов, иначе Миру грозила опасность и разрушение. Однако, как только (   Читать дальше...   )Тип издания: UnofficialРазработчик: Sunward GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2663625829000CDAB55917BD1558E9424DC2D06F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168326   (410349) от 23.09.2017
 
 Forgotten Kingdoms 2: The Ruby Ring / Забытые Королевства 2: Рубиновое кольцо (2015) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Forgotten Kingdoms 2: The Ruby Ring / Забытые Королевства 2: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410349.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Forgotten Kingdoms: Dream of Ruin / Забытые Королевства: Ра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410244.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Forbidden Secrets: Alien Town Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410153.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Ironsight (2018) [Ru] (1.3.369.62175.01) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409764.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition / Дома с 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409690.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Tales of Terror: Crimson Dawn / Трепетные истории: Багров�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409496.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409202.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409148.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Arena Wars 2 [En] (L) 2012 | RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409105.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409076.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408944.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Madden NFL 19 (2018) [En] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408912.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ WWE 2K19 (2018) [Multi] (1.0/dlc) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408907.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Secret Order 3: Ancient Times / Тайный орден 3: Древние в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408716.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Figment (2017) [Ru/Multi] (1.0) Repack CoolGames
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408556.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Mystery Trackers 15: Darkwater Bay / Охотники за тайнами 15. Б
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408532.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Nantucket (2018) [En] (1.4c/dlc) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408405.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408333.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Daymare: 1998 (2019) [Ru/Multi] (9731) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408312.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Daymare: 1998 (2019) [Ru/Multi] (9731) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408310.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dead Cells (2018) [Ru/Multi] (1.4.9/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408308.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408300.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407752.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Observation (2019) [Ru/Multi] (1.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407750.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Overload (2018) [Ru/Multi] (1.1.1886/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407739.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Revival Productions с гордостью вам представляет нов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:107998B3E1338B22867C5001ECA7A175FF9D9FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252786   (407615) от 06.10.2018
+
+Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Digital Deluxe Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Train Sim World — это симулятор поезда с видом от первого лица, позволяющий управлять мощными реалистичными поездами на самых удивительных железных дорогах мира. Реальные данные используются для точной передачи характеристик, звуков и ощущений поездов, создания реалистичных миссий, движения с круглосуточным расписанием; вы можете отдохнуть в качестве пассажира или (   Читать дальше...   )Тип издания: RepackРазработчик: Dovetail GamesЖанр: Simulator, 3DЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968271A4082C0DDA76391F266ED6064A7A615F09
 ```
 
 https://mybot314.ru/tekegram_catalog/

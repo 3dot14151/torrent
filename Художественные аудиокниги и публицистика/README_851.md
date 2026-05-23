@@ -1,83 +1,3 @@
-###  Публикация: 588739   (156321) от 13.12.2012
-
-Линкольн Чайлд | Из глубины [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-На глубине 12 000 футов под поверхностью Атлантического океана исследователи обнаруживают нечто совершенно удивительное. Величайшая археологическая находка в истории? Или что-то такое, с чем еще не приходилось сталкиваться человечеству? В обстановке сверхсекретности ученые приступают к изучению странных артефактов, однако внезапно всех, кто работает на исследовательской базе на дне океана, поражают странные болезни. На базу срочно вызывают бывшего военного врача Питера Крейна, который постепенно начинает понимать, что медицинские проблемы — лишь малая часть огромной проблемы, которая угрожает самому существованию человеческой цивилизации.Жанр: Научная фантастика, триллер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8FC5C1D799EB1A3530A94D73B682F22FCE60CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 275571   (156317) от 13.11.2023
-
-Уильям Сомерсет Моэм | 10 лучших рассказов (2004) [MP3, Елена Морозова, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Виртуозы рассказа.
-Уильям Сомерсет Моэм (1874-1965) - один из самых читаемых и любимых современных классиков. Сомерсет Моэм создал 25 пьес, 21 роман и более 100 рассказов. Герои его рассказов удивляют своим разнообразием: это и пациенты туберкулёзного санатория, жертвующие жизнью ради любви в рассказе «Санаторий», и священник, одержимый греховной страстью (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказыИздательство: СиДиКомПродолжительность: 08:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB52AF926B88FA7C51FBB268149A6DCF9B652263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276384   (156312) от 13.11.2023
-
-Уильям Сомерсет Моэм | Наверху, на вилле (Радиоспектакль) (2002) [MP3, Ирина Печерникова, Михаил Козаков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль театра Радио РОССИИ по мотивам одноимённого романа Сомерсета Моэма.
-Действие происходит в Италии тридцатых годов. Где-то приходят к власти фашисты... Где-то гибнут невинные люди... А на роскошной итальянской вилле надежно отгородилась от мира легкомысленная компания эстетствующих «светских львов и львиц и их богемных приятелей. Они развлекаются изысканными (   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаВ ролях: Ирина Печерникова, Михаил Козаков и др.Издательство: Радио РОССИИПродолжительность: 01:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995A1DC6F21FCD46888DDB836924EC24A18DEA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 275594   (156296) от 13.11.2023
 
 Уильям Сомерсет Моэм | Луна и грош (2003) [MP3, Владимир Самойлов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156296.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156238.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156056.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156041.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155959.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155931.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155917.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155844.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155834.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155829.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155828.jpg" />
 </div>
 
 
@@ -378,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155825.jpg" />
 </div>
 
 
@@ -404,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155819.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155809.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155764.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155704.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155686.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155677.jpg" />
 </div>
 
 
@@ -563,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155655.jpg" />
 </div>
 
 
@@ -590,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155652.jpg" />
 </div>
 
 
@@ -616,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155648.jpg" />
 </div>
 
 
@@ -643,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155623.jpg" />
 </div>
 
 
@@ -671,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155597.jpg" />
 </div>
 
 
@@ -682,6 +602,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75AB92D315BC852EFED64BB900FB47770092483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194419   (155596) от 25.12.2017
+
+Антон Леонтьев | Танцующая с дьяволом (2017) [MP3, Ирина Воробьёва]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешная бизнес-леди Лариса Марыгина осматривала новый офис, который собиралась приобрести ее компания, и неожиданно наткнулась на странную комнату. Когда бронированную дверь вскрыли, в помещении обнаружились вещи, принадлежащие жертвам маньяка-убийцы. Лариса сразу поняла это, ведь много лет назад трагедия коснулась и ее семьи. Женщина до сих пор мучительно переживала, (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 09:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B666881448110D65C098C6C97AAD42A032F89BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676739   (155588) от 14.11.2023
+
+Омар Хайям | Рубаи (2008) [MP3, Альберт Филозов, Егор Бероев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155588.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Спорщик с Богом, бесстрашный ум, чуждый иллюзий, учёный, и в стихе стремящийся к точной формуле, к афоризму, – таков Хайям, астроном и математик. Каждое четверостишие – уравнение. Учёный по-новому комбинирует известные ему величины, стремясь найти Неизвестное. Точность, немногословность, отсутствие случайного, симметрия формы – всё это роднит рубаи Хайяма с математической (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияПеревод: Герман ПлисецкийИздательство: СиДиКомПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120392BC6265BBE216A6BE5D054979712FCC4074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518457   (155556) от 19.12.2021
+
+Антон Чехов | Шалость (2021) [MP3, Hemming Estorsky]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155556.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шалость» — первый сборник юмористических рассказов А. П. Чехова, подготовленный в 1882 году. Состоял из 12 рассказов, но так и не был издан.
+
+Рассказы были написаны ещё в «пору литературного ученичества». Известны два экземпляра сборника, но без титульных листов, последних страниц и оглавления. Для этого издания братом писателя и художником Н. П. Чеховым были выполнены (   Читать дальше...   )Жанр: ЮморПродолжительность: 02:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD62C9FF752E05F267301238CD2E8225301F141
 ```
 
 https://mybot314.ru/tekegram_catalog/

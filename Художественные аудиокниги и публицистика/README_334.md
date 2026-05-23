@@ -1,84 +1,3 @@
-###  Публикация: 1215773   (756594) от 27.03.2018
-
-Грэхэм Мастертон | Дьяволы Судного дня (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В маленькой французской деревне со времен второй мировой войны стоит на пьедестале старый американский танк. Люди боятся вечером и ночью близко подходить к нему, им кажется, что они слышат, как мертвые стонут и разговаривают друг с другом, а в танке находится сам дьявол.
-Грэхэм Мастерсон — признанный мастер остросюжетного детектива. Главное, что его отличает от других (   Читать дальше...   )Жанр: Триллер, мистикаПродолжительность: 04:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27CD105ADBF13D38EC30F19A1A58C933A9EFFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781456   (756157) от 28.04.2014
-
-Дэвид Герберт Лоуренс | Женщины в любви (2014) [MP3, Людмила Панкратова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самый скандальный роман Лоуренса, для которого не нашлось издателя - и автору пришлось его публиковать за собственный счет. Роман, который привел автора на скамью подсудимых - за нарушение норм общественной морали.
-Времена меняются - и теперь в истории двух сестер из английской глубинки, исповедующих идею «свободных отношений», не осталось ничего сенсационного. Однако (   Читать дальше...   )Жанр: Зарубежная классикаИздательство: Азбука-КлассикаПродолжительность: 27:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF05353158E84A1A0BE27477BFA9584C5AE1CD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018226   (756024) от 20.05.2016
-
-Анна Саакянц | Спасибо Вам (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли рассказы о встречах с А. Эфрон, А. Ахматовой, И. Одоевцевой, В. Сосинским, П. Антокольским, И. Андронниковым и др., а также письма и документы, в большинстве своем относящиеся к периоду работы с дочерью М. Цветаевой над изданиями поэта - и вообще к цветаевской теме.
-Памяти Анны СаакянцЖанр: Воспоминания, письма, эссеПродолжительность: 13:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD16C11C6E24EEBF3F3F6E16EFD4FEC4C3B0EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191621   (756011) от 27.03.2018
 
 Андрей Ливадный | Алчущие (2017) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756011.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755844.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755829.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755817.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755813.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755764.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755742.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755741.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755740.jpg" />
 </div>
 
 
@@ -324,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755736.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755722.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755676.jpg" />
 </div>
 
 
@@ -404,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755588.jpg" />
 </div>
 
 
@@ -431,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755581.jpg" />
 </div>
 
 
@@ -458,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755312.jpg" />
 </div>
 
 
@@ -486,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755311.jpg" />
 </div>
 
 
@@ -514,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755307.jpg" />
 </div>
 
 
@@ -542,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755297.jpg" />
 </div>
 
 
@@ -568,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755190.jpg" />
 </div>
 
 
@@ -594,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755185.jpg" />
 </div>
 
 
@@ -620,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755182.jpg" />
 </div>
 
 
@@ -646,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755071.jpg" />
 </div>
 
 
@@ -672,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755069.jpg" />
 </div>
 
 
@@ -685,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BFD942070E730CC37DCAF22BCEA33B5B5F2CB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522937   (755064) от 09.01.2022
+
+Майкл Коннелли | Гарри Босх (Книга 2). Чёрный лёд (2019) [MP3, Олег Новиков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер спецподразделения по борьбе с наркотиками найден в номере мотеля мёртвым, с загадочной предсмертной запиской в заднем кармане. Улики однозначно указывают на самоубийство, но детектив полиции Лос-Анджелеса Гарри Босх уликам не верит. Расследуя это дело, он вспоминает о давнем правиле: нужно искать не факты, а связь между ними. Гарри заводит опасные знакомства (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективы, ТриллерыПеревод: Владимир ГришечкинПродолжительность: 14:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BA55E195DF612AD6409ACF51BBC20E754E4A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395489   (755039) от 10.07.2020
+
+Владимир Поселягин | Перевертыш (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валерий Шихт стал Миком Одином и все начинает с нуля. Становление нового государства тянет ресурсы, как пылесос, и он готов даже выйти на большую дорогу для добычи необходимого. Кстати придутся связи с военными и СБ, встретившиеся на пути нечистые на руку дельцы, да и честные торговцы пригодятся, хотя сначала придется побарахтаться, чтобы выбраться из рабства и вернуть (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 13:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E6643B6931F8FBD675A112C29B9676FE29F987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018145   (754986) от 20.05.2016
+
+Сальвадор Дали | Мысли и анекдоты (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сальвадор Дали – один из величайших оригиналов XX века. Его гениальные картины известны даже тем, кто не интересуется изобразительным искусством. А его шокирующие откровения о своей жизни и изящные ироничные рассуждения о людях и предметах позволят читателю взглянуть на окружающий мир глазами великого мастера эпатажа.Творчество и личность Дали всегда порождали немало (   Читать дальше...   )Жанр: Зарубежная ПрозаПродолжительность: 03:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DAF79F26CE2CD91E3D5CA35B662F50C3E899D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1171101   (397335) от 03.10.2017
-
-Hob (2017) [Ru/Multi] (1.12.2.0/dlc) License CODEX
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Torchlight и Torchlight II представляют Hob — захватывающее приключение в прекрасном, но жестоком мире. Проникните в тайны планеты, узнайте правду и исцелите этот мир прежде, чем он погрузится в хаос.Тип издания: LicenseРазработчик: Runic GamesЖанр: Action, Arcade, AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DF528567BD14E304659F9CC9FAF7B8E0957EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171153   (397328) от 03.10.2017
 
 Hitman: Sniper Challenge (2012) [Ru/Multi] (1.0.364.0) Repack Other s
@@ -32,7 +6,7 @@ Hitman: Sniper Challenge (2012) [Ru/Multi] (1.0.364.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397328.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396407.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Hob (2017) [Ru/Multi] (1.12.2.0) Repack Covfefe
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396406.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Road Redemption (2017) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396402.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Atlantis Sky Patrol [En] (P) 2006
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395666.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Scania Truck Driving Simulator - The Game [En/Ru/Multi33] (L) 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395559.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Viktor (2014) [En] (1.06) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395519.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (22997) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395459.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Omega Strike (2017) [Ru/Multi] (1.0.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395423.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Dream Of The Blood Moon [En] (L) 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394631.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Delicious: Emily's Taste of Fame / Объедение от Эмили: Вкус 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394618.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Uprising 44. The Silent Shadows [Ru] (Repack/1.03) 2012 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394613.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Virtual Villagers 3: The Secret City / Робинзоны. Затерянный 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394560.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Alter Ego (2010) [Ru] (1.07) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394556.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Monopoly Plus (2017) [Ru/Multi] (1.0) License STEAMPUNKS
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393695.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ Weeping Skies / Плач Небес (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391953.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Runaway Express Mystery / Тайна Летящего Экспресса (2015) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391858.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ Psycho Train / Поезд Психопата (2014) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391851.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Quantum Conundrum [En/Multi6] (Steam-Rip/1.0.8623.0/2 DLC) 2012 | R.G. Origins
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391678.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Auto Age: Standoff (2017) [En] (1.1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391654.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ Forgotten Land (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391652.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Sleeping Dogs (2014) [Ru/En] (1.0/u1) Repack xatab [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391646.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391640.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391425.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1 202) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391034.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Batman: The Enemy Within - The Telltale Series содержит все пять 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:083B181DE7E9DB229180489977238CA75980163E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140524   (390962) от 10.10.2017
+
+Immortal Redneck (2017) [Ru/Multi] (1.3.2) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Immortal Redneck — это шутер с элементами жанра роуглайт, действие которого происходит в Египте. Классические перестрелки от первого лица сочетаются здесь с механиками, свойственными играм жанра роуглайт: бешеный темп, отзывчивое управление и аркадная атмосфера, с одной стороны, и случайно создаваемые подземелья, 9 классов с разными особенностями, дерево навыков (   Читать дальше...   )Тип издания: RepackРазработчик: CremaЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4072ED03553F860F5EA6DC7D3E6894333ECC36
 ```
 
 https://mybot314.ru/tekegram_catalog/

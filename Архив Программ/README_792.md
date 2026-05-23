@@ -6,7 +6,7 @@ Cyberlink PowerDirector Ultra v8.00.3022 [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_647455.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Transmission-Qt 2.84.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647439.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ IObit Smart Defrag 4.1.0.741 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647436.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Any Video Converter Professional 5.9.7 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647392.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BenVista PhotoZoom Pro 6.1 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647372.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NETGATE Registry Cleaner 9.0.105.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647322.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Balabolka 2.11.0.581 + Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647315.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mail.Ru Агент 6.0 Build 5754 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647286.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Xrecode II 1.0.0.190 [Multi\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647284.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ BitComet 1.42 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647279.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ CyberLink PowerDVD 10 Ultra 3D Build 1830.51 [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_647233.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Bat! Professional 6.8.2 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647218.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Araxis Merge 2015.4634 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647216.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Process Lasso Pro 8.1.0.0 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647215.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ IrfanView 4.38 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647212.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WinX HD Video Converter Deluxe 5.6.0 RePack by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647211.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Opera Beta 30.0.1835.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647210.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Mixxx 1.10.1 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647161.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ foobar2000 1.3.8 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647141.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ CorelCAD 2015.5 Build 15.2.1.2037 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647125.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647092.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ CorelCAD 2015.5 Build 15.2.1.2037 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647072.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Volume2 1.1.4.336 RC2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647065.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Advanced Driver Updater 2.7.1086.16493 Final RePack by KaktusTV [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647057.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Baidu Cloud 5.2.7 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647010.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Steinberg - Model E & VB-1 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_646957.jpg" />
 </div>
 
 

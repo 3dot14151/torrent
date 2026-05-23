@@ -6,7 +6,7 @@ Start Everywhere 1.3.5.31 (x64) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045154.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Creative Sound Blaster Command 3.5.9.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045151.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Substance 3D Painter 8.3.0 Build 2094 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045128.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5365.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045124.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kazrog - Synth Warmer 1.1.5 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045078.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PrivaZer Pro 4.0.62 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045074.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kazrog - True Iron 1.3.3 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045071.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Skype 8.93.0.403 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045070.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kazrog - KClip 3.5.1 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045068.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ PrivaZer (Donors) 4.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045065.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kazrog - True Dynamics 1.1.2 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045063.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Glary Utilities Pro 5.200.0.229 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045061.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ GoldWave 6.72 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045060.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Glary Disk Cleaner 5.0.1.285 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045059.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Aiseesoft Video Converter Ultimate 10.6.16 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045052.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Process Lasso Pro 12.0.2.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045046.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Auslogics Registry Cleaner Pro 10.0.0.2 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045043.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ XnViewMP 1.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045038.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Bat! Professional 10.3.3.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045018.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sandboxie 5.61.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044980.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Skype 8.93.0.403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044978.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ PrivaZer 4.0.62 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044976.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sandboxie plus 1.6.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044965.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DesktopOK 10.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044954.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Windows 11 Manager 1.2.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044951.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ WonderFox HD Video Converter Factory Pro 26.0 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044947.jpg" />
 </div>
 
 

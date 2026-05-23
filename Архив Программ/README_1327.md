@@ -6,7 +6,7 @@ Adobe Flash Player 23.0.0.207 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363799.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Lasso Pro 6.0.1.88 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_363778.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Privacy Eraser Free 4.54.3 Build 3228 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363716.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SlimBrowser 11.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363713.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Slimjet 5.0.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363660.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Flash Player 23.0.0.207 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363646.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Bridge CC 2017 7.0.0.93 RePack by KpoJIuK (08.11.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363637.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.11.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363635.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ DearReality - dearVR pro 1.2.0 VST, VST3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363618.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Nox App Player 6.2.3.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363616.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Win7codecs 3.8.7 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_363567.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Slimjet 24.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363564.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Advanced Uninstaller PRO 12.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363463.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NetWorx 5.5.5.16308 DC 03.11.2016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363428.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ USDownloader 1.3.5.9 (28.10.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363311.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Process Lasso Pro 8.8.8.6 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363306.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Office 2013-2021 C2R Install + Lite 7.4.5 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363295.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Planet VPN 1.4.01.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363294.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.2006]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363290.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ MyPhoneExplorer 1.8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363265.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363255.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Dropbox 1.6.0 Final [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_363216.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Light Image Resizer 5.1.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363198.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Mozilla Thunderbird 78.3.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363177.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363148.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Topaz Sharpen AI 1.4.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363140.jpg" />
 </div>
 
 

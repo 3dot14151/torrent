@@ -6,7 +6,7 @@ Office Customization Tool (или миф о Blue Edition)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975848.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mozilla Firefox 44.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975807.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tor Browser Bundle 2.3.25-3 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975786.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ K-Lite Codec Pack Update 11.8.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975741.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Dr.Web CureIt! 8.0.2 (09.02.2013) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975725.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Wise Care 365 Pro 4.01.383 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975673.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Skype 7.18.0.103 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975667.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Adobe Shockwave Player 12.2.3.183 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975665.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Slimjet 7.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975633.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Privacy Eraser Free 4.59.0 Build 3378 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975609.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AdwCleaner 5.029 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975587.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wise Disk Cleaner 8.91.626 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975582.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Actual Window Manager 8.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975568.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ WinSnap 5.2.0 (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975534.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Microsoft Silverlight 5.1.41212.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975491.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Zoner Photo Studio Professional 18 Build 7 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975482.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Skype 7.18.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975481.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Glary Utilities Pro 5.42.0.62 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975478.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Actual Multiple Monitors 8.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975476.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ KeePass Password Safe 2.31 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975471.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Opera 34.0.2036.47 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975470.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ReviverSoft PC Reviver 3.9.0.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975459.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ ReviverSoft PC Reviver 3.9.0.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975457.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Adobe Acrobat Reader DC 2015.010.20056 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975408.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Avanquest Architect 3D Ultimate 17.6.0.1004 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975398.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Adobe Acrobat XI Pro 11.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975395.jpg" />
 </div>
 
 

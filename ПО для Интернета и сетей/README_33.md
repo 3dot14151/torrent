@@ -6,7 +6,7 @@ YTD Video Downloader PRO 5.9.18.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479144.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YTD Video Downloader PRO 5.9.18.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478830.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Network Notepad Professional Edition 1.1.38 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477263.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CyberLink YouCam Deluxe 7.0.0824.0 Retail [Multi/Rus]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476950.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tipard Video Downloader 5.0.20 RePack (& Portable) by AlekseyPopovv [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470966.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adblock Plus 1.5 for Internet Explorer [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466286.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Master Browser config 2019.08.002 [En/Ru] (Обновляемая)
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464790.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kindle Converter 3.16.926.370 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462398.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kindle Converter 3.16.926.370 Portable by SceneDL [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462050.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ RusTV Player 3.3 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456248.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Wondershare AllMyTube 4.7.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455143.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BWMeter 8.4.9 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440287.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438089.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Aiseesoft Video Downloader 7.1.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435297.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ K-Meleon 75.1 Final + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433098.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425160.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Zello 1.57 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424704.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Network Password Recovery 1.40 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424556.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SafeInCloud Password Manager 16.2.7 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423067.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Chromodo Browser 52.15.25.665 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420673.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Net Speakerphone Pro 4.10 RC1 build 140319 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419891.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ ManyCam Virtual Webcam Free 6.0.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409818.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ ProgDVB 7.11.3 Professional Edition [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408972.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Superbird 69.0.3497.92 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407725.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ RadioSure 2.2.1046.0 Free  [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400196.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ LAN Speed Test 3.1.0 [Англ.]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398613.jpg" />
 </div>
 
 

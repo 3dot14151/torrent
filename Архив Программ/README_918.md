@@ -6,7 +6,7 @@ Adobe Acrobat XI (v11.0.12) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585593.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 10 RTM Escrow build 10240 Language Pack (x86-x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585589.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Acrobat XI Pro 11.0.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585580.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Macrium Reflect Free Edition 8.0.6758 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585516.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ FlipBuilder Flip PDF 4.4.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585433.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Any Video Converter Ultimate 5.9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585367.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Any Video Converter Ultimate 5.9.9 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585355.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ MediaHuman YouTube Downloader 3.9.9.16 (1005) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585338.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ PDF-XChange Pro v4.0196.196 Final + PDF-XChange Pro v4.0196.196 Portable [2011, 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585313.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Mozilla Firefox ESR 45.3.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585290.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Total Uninstall Professional Edition 6.17.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585287.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ IceCream Screen Recorder Pro 3.70 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585283.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Auto Shutdowner 1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585272.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Opera 60.0.3255.84 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585268.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ MediaHuman YouTube Downloader 3.9.9.16 (1005) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585255.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ WinUtilities Pro 15.72 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585212.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ISO Workshop 8.5 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585209.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ YTD Video Downloader PRO 5.9.12.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585203.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Revo Uninstaller Free 2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585192.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PrivaZer 3.0.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585185.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Display Driver Uninstaller 18.0.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585181.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ YouTube Video Downloader PRO 5.7.2 (20160802) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585180.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Moovida Media Player 2.0.0.14. [Multi(русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585138.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Microsoft Windows and Office ISO Download Tool 3.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585123.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Wondershare Video Converter Ultimate 8.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585106.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ ImTOO DVD Ripper Ultimate 6.6.0.0623 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585079.jpg" />
 </div>
 
 

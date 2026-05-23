@@ -1,87 +1,3 @@
-###  Публикация: 291195   (63348) от 11.03.2024
-
-Михаил Волконский | Вязниковский самодур (2007) [MP3, Галина Самойлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Волконский Михаил Николаевич (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Роман «Вязниковский самодур» написан Михаилом Николаевичем Волконским в 1914 году. В авантюрно-приключенческом романе «Вязниковский самодур», действие которого происходит (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 03:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54A80D64F7BC71F9F9A2E8167735D748D44A9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291210   (63346) от 11.03.2024
-
-Михаил Волконский | Записки прадеда (2009) [MP3, Борис Хасанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Волконский Михаил Николаевич (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Роман «Записки прадеда» написан Михаилом Николаевичем Волконским в 1914 году. Изучать XVIII столетие, в особенности конец его, и оставлять без внимания ту несомненную (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 05:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B551216A507979CA69B7936F6E8C4D26AFC3DF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291191   (63344) от 11.03.2024
-
-Михаил Волконский | Воля судьбы (2007) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Волконский Михаил Николаевич (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Роман «Воля судьбы» написан Михаилом Николаевичем Волконским в 1914 году. В романе на фоне событий, связанных с царствованием Петра III и воцарением на русский престол (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 13:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589DCA5D739545A25E90E2DA5131F4E015BA9C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291202   (63343) от 11.03.2024
 
 Михаил Волконский | Два мага (2005) [MP3, Галина Самойлова]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63343.jpg" />
 </div>
 
 
@@ -118,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63341.jpg" />
 </div>
 
 
@@ -146,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63327.jpg" />
 </div>
 
 
@@ -174,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63324.jpg" />
 </div>
 
 
@@ -202,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63323.jpg" />
 </div>
 
 
@@ -228,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63321.jpg" />
 </div>
 
 
@@ -255,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63320.jpg" />
 </div>
 
 
@@ -282,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63312.jpg" />
 </div>
 
 
@@ -310,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63309.jpg" />
 </div>
 
 
@@ -338,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63302.jpg" />
 </div>
 
 
@@ -364,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63299.jpg" />
 </div>
 
 
@@ -392,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63294.jpg" />
 </div>
 
 
@@ -420,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63292.jpg" />
 </div>
 
 
@@ -448,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63288.jpg" />
 </div>
 
 
@@ -474,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63258.jpg" />
 </div>
 
 
@@ -501,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63234.jpg" />
 </div>
 
 
@@ -527,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63230.jpg" />
 </div>
 
 
@@ -553,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63216.jpg" />
 </div>
 
 
@@ -581,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63214.jpg" />
 </div>
 
 
@@ -610,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63207.jpg" />
 </div>
 
 
@@ -636,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63205.jpg" />
 </div>
 
 
@@ -664,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63182.jpg" />
 </div>
 
 
@@ -692,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63176.jpg" />
 </div>
 
 
@@ -703,6 +619,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:738862D6BFEF85E5AD016F4024E0B28FAA45F8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706272   (63168) от 12.03.2024
+
+Джон Гришэм | Парни из Билокси (2024) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то в очаровательный курортный городок Билокси приехали двое молодых иммигрантов из Европы – нищих, но полных надежд на счастливую жизнь. И они добились успеха, пусть каждый по-своему: одному суждено было возглавить преступный мир Билокси, другому – стать окружным прокурором, полным решимости очистить Побережье от криминала.
+Так было положено начало войне между (   Читать дальше...   )Жанр: детектив, триллерИздательство: Аудиокнига (АСТ)Продолжительность: 17:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B16F4D9A3CC1EA6A5434CCD941FD7F95E4E3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706664   (63106) от 13.03.2024
+
+Валерий Гуров, Рафаэль Дамиров | Физрук (Книга 1). Назад в СССР (2024) [MP3, Григорий Андрианов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я был успешным предпринимателем, но погиб от рук конкурентов. Судьба подкинула подлянку – я не отправился «на покой», а попал в прошлое. Душа вселилась в выпускника пединститута. На дворе 1980 год, а я простой физрук в советской школе, который должен отработать целых три года по распределению.
+Биологичка положила на меня глаз, завуч решила сжить со свету, а директор-фронтовик (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3CF1DD0C1CD93E0F6804DFCEA7F84BE6591623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706461   (63104) от 13.03.2024
+
+Алекс Гор | Контуженный (Книга 5). Интеграция (2024) [MP3, Александр Мозгунов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беглым преступникам нелегко было выжить, но они смогли это сделать. Теперь им предстоит вновь влиться в общество. Выбор сделан, и «Пламя Дагора» держит свой путь во фронтир, в место, где найдется кусочек пространства для каждого. Для каждого, кто докажет на это свое право.Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 09:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66521CF3FC9AFDF2F2000D4851ED5EDE701A38A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

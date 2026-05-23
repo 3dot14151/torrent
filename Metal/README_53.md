@@ -6,7 +6,7 @@ Shade Empire - Poetry Of The Ill-Minded (2017) [MP3|320 Kbps] <Melodic Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602514.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Orden Ogan - Gunmen (2017) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602486.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rammstein - Radio (2019) Single [MP3|320 kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602117.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Steel Prophet - The God Machine (2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601766.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Astral Doors - Worship or Die (2019) [MP3|320 kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601628.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Belzebubs - Pantheon of the Nightside Gods (2019) [MP3|320 Kbps] <Sympho Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600841.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Witchgrinder - Haunted (2015) [MP3|320 кб/с]<Industrial Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600483.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ HaddaH - Path To Nefrath (2015) EP [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600436.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ CellRot - Interstellar Telepathy (2015) [MP3|320 кб/с]<Avant-garde Black Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600426.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Thy Art Is Murder - 3 Albums, 2 EP (2007-2015) [MP3|167-175, 320 кб/с]<Techni
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600183.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Powerwolf - Demons Are a Girl‘s Best Friend (2018) Single [MP3|320 Kbps] <Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599924.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Armored Dawn - Power Of Warrior (2016) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599677.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Powerwolf - The Metal Mass (2016) Live [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599415.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Tarja - The Shadow Self (2016) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599281.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Marduk - Viktoria (2018) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598233.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Chaos Magic (Timo Tolkki & Caterina) - Chaos Magic (2015) [MP3|320 кб/с]<Symp
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598175.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Byfrost - Of Death (2011) [MP3|320 kbps]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_597131.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Decapitated - Anticult (2017) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596615.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ No Return - Fearless Walk to Rise (2015) [MP3|320 кб/с]<Melodic Death/Thrash 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595195.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Cradle Of Filth - Cryptoriana - The Seductiveness Of Decay (2017) [MP3|320 Kbps]
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595078.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Nine Inch Nails - Bad Witch (2018) EP [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595003.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Protos Nemesis, Keld, Keldian - The Hidden History of Keldian (2018) 5 диск�
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593953.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Bullet for My Valentine - Gravity (2018) [MP3|320 Kbps] <Melodic Metalcore, Alte
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593769.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Mass Deception - Revelations (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593647.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Craft - White Noise And Black Metal (2018) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593403.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Lord Of The Lost - The Heartbeat Of The Devil (2022) EP [MP3|320 Kbps] <Gothic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593308.jpg" />
 </div>
 
 

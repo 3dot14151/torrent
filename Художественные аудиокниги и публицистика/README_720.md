@@ -1,81 +1,3 @@
-###  Публикация: 1513802   (222512) от 30.11.2021
-
-Ирина Успенская | «Практическая психология» Книга 3. Разрушитель (2021) [MP3, Дмитрий Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Виктория Вавилова, запертая в теле герцога Алана Вас'Хантера, продолжает бороться за свой разум, свою душу и свое существование. Впереди обучение у храмовников и возвращение в город, из которого Алана изгнали еще до рождения. Интриги Храма, предательство друзей и помощь врагов. И возможно… новая любовь, как награда за испытания.Жанр: Героическое фэнтези, ПопаданцыПродолжительность: 19:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249C5A61DAB2F7E7C137F12227F51F5757676812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585191   (222499) от 21.10.2022
-
-Стейси Шифф | Клеопатра: Жизнь. Больше чем биография (2022) [MP3, Никита Моисеев]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Автор биографий и лауреат Пулитцеровской премии Стейси Шифф создала яркий портрет самой неоднозначной женщины в мировой истории – Клеопатры, последней правительницы Египта. Ее дворец сверкал драгоценными камнями и золотом и славился политическими играми. Клеопатру связывали тесные отношения с Юлием Цезарем и Марком Антонием, однако ее личность оказалась слишком плотно (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 13:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB27E68293533EB773DA88FABADA1257FA21DBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425423   (222494) от 20.11.2020
-
-Джеймс Х. Чейз | Сувенир из клуба мушкетеров (1991) [MP3, Эммануил Виторган и др.]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив Лу Брэндон пытается найти убийцу своего друга и компаньона Джека Шеппи. За подкладкой его чемодана Лу обнаруживает пачку отрывных спичек с надписью "Клуб мушкетеров". Сувенир-безделушка из ночного клуба хранит много секретов…Жанр: Детектив, ТриллерВ ролях: Эммануил Виторган, Владимир Корецкий и др.Продолжительность: 02:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D24CB996618C032127984ADA46AC6672EC70C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513789   (222466) от 30.11.2021
 
 Матильда Старр | «Заморыш» Книга 1. Академия мертвых душ (2021) [MP3, Наталия Штин]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222466.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222442.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222413.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222410.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222403.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222402.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222395.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222368.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222313.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222286.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222275.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222163.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222137.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222078.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222057.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222053.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222038.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222002.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222001.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221998.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221976.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221946.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221859.jpg" />
 </div>
 
 
@@ -679,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A39A5A24D9D8E0EFB456B0309823B98412BD8B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965955   (221795) от 16.12.2015
+
+Ли Чайлд | Джек Ричер (Книга 2). Ценой собственной жизни (2015) [MP3, Валерий Стельмащук]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Ричер решил помочь привлекательной женщине на костылях и угодил в самый эпицентр криминальной драмы. В следующее мгновение они оказываются под прицелом двух мужчин с пистолетами. Вооруженные люди похищают Джека и его новую знакомую. Женщина утверждает, что она агент ФБР, работающий под прикрытием. Странную парочку увозят в неизвестном направлении. Судя по времени, (   Читать дальше...   )Жанр: ДетективПродолжительность: 19:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB68F6755BD2ECD1E5D55404EC05881EA3771FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651310   (221771) от 06.08.2023
+
+Владимир Кунин | Русские на Мариенплац (2017) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не зря говорят, что пути Господни неисповедимы. А как иначе объяснить невероятную встречу выходцев из бывшего СССР: сценариста из Москвы, девушки с голосом Нани Брегвадзе, циркача-эквилибриста и казахского танкиста за тысячу километров от родины, в далёком Мюнхене? О том, к чему приводят подобные незапланированные встречи, о злоключениях эмигрантов на чужбине, о (   Читать дальше...   )Жанр: современная русская литература, юмористическая прозаИздательство: СОЮЗПродолжительность: 12:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37D36E6EA2144C245979748596DEAF66A28E37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651306   (221666) от 06.08.2023
+
+Ли Бардуго | Николай Ланцов (Книга 2). Правление волков (2021) [MP3, Алексей Данков, Ксения Бржезовская]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение «Короля шрамов» — бестселлер New York Times. Вторая книга в дилогии о Николае Ланцове. Равка воюет с войсками Фьерды и собирается стоять до последней капли крови на рукаве её правителя Николая. Союзники прибывают, но их помощи оказывается недостаточно. Король готов решиться на что угодно, лишь бы отстоять свою страну. Хотя возможно, не в руках Николая (   Читать дальше...   )Жанр: героическое фэнтези, городское фэнтези, зарубежное фэнтезиПеревод: Ирина МеньшаковаИздательство: АСТ-АудиокнигаПродолжительность: 20:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AED867E87D0D1197E69259F20A3124EF4C8626C
 ```
 
 https://mybot314.ru/tekegram_catalog/

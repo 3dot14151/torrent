@@ -6,7 +6,7 @@ Caught In The Act - Act 1: Relapse Of Reason (1995) Japan [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459934.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bob Dylan - Bob Dylan's Greastest Hits (1967) HDCD, Remastered /2012,Audio Fidel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459845.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Level 42 - True Colours (1984) [FLAC|Lossless|image + .cue] <Pop Rock, Funk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459692.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Profuna Ocean - In Vacuum (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459690.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Janis Joplin - Farewell Song (1982) [FLAC|Lossless|image + .cue] <Blues Rock, Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459520.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Camel - Breathless (1978) Remaster, 1992, Dream [FLAC|Lossless|image + .cue] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459212.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Camel - Rain Dances (1977) Remaster, 1991, Dream [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459204.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ZZ Top - ZZ Top's First Album (1970) SHM-CD, 2013, Warner Music [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458705.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ The Beauty of Gemina - Skeleton Dreams (2020) [FLAC|Lossless|tracks + .cue] <Got
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458298.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Rick Miller - Immortal Remains (2013) [FLAC|image+.cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458214.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Rick Miller - Heart Of Darkness (2014) [FLAC|image+.cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458125.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Artful Dodger - Artful Dodger (1975)/Remastered/1997, P.E.G./[FLAC|tracks+.cue]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457976.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Chris Cornell - Higher Truth (2015) Deluxe Edition [FLAC|image+.cue]<Rock, Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457973.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Clive Nolan & Oliver Wakeman - The Hound Of The Baskervilles (2002) [APE|image+.
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457972.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Fluance Featuring Duncan Mackay - Lunacy (2020) Japanese Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457942.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Cockney Rebel - The Human Menagerie (1973) Reissue, Unofficial Release, 1999, Li
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457857.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Dark Side Of The Moon A Cappella - Dark Side Of The Moon A Cappella (2005) [APE|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457804.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Ladies Sing The Boss (2022) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457781.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Elvis Presley - Elvis Movies (2006) [FLAC|Lossless|image + .cue] <Rock'N'Roll, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456801.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ The Heavy's - Mega Metal Marathon (2008) [FLAC|Lossless|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456629.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Equisa - Strange Release (2013) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456134.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Alcantara - Solitaire (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456120.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Soft Heap (Soft Head) - 4 альбома (1978-2009) Дискография [Wav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455190.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Closure In Moscow - Pink Lemonade (2014) [FLAC|Lossless|tracks + .cue] <Prog Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454943.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Beefeaters - Secret Tapes (1968) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454801.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Eklipse - Electric Air (2013) [FLAC|Lossless]<Instrumental Symphonic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453957.jpg" />
 </div>
 
 

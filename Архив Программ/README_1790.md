@@ -6,7 +6,7 @@ ApowerREC 1.5.9.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189696.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Light Image Resizer 6.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189695.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera One 102.0.4880.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189681.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIMP 5.10 Build 2412 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189680.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Find Same Images OK 5.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189675.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Firefox Browser 117.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189674.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FileZilla Server 1.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189673.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PowerISO 8.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189672.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Google Chrome 116.0.5845.188 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189671.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ GPU-Z 2.55.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189670.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189661.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ JMG Sound - Cryostasis 1.1 VST, VST 3, AAX (x86/x64) RePack by TeamCubeadooby [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189652.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Radeon Software Slimmer 1.10.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189651.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Phase One Capture One 23 Enterprise 16.2.4.1568 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189649.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189648.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CoolUtils Total Image Converter 8.2.0.258 RePack (& Portable) by Dodakaedr [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189647.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Kaspersky Lab Products Remover 1.0.2686.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189645.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Glarysoft Malware Hunter PRO 1.158.0.775 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189637.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ HitPaw Watermark Remover 2.0.2.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189627.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AIDA64 Engineer Edition 6.92.6600 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189625.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Process Explorer 17.02 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189620.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Psiphon 3 build 176 (DC 10.11.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189603.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1 Build 16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189601.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.92.6600 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189594.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ iZotope - RX 10 Audio Editor Advanced 10.2.0 STANDALONE, VST3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189578.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ DVDFab 12.1.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189577.jpg" />
 </div>
 
 

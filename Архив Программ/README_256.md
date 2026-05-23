@@ -6,7 +6,7 @@ Opera 67.0.3575.53 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934877.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YTD Video Downloader PRO 5.9.15.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934876.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Registry Life 5.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934875.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Process Lasso Pro 9.7.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934874.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BurnAware Professional 13.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934872.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VueScan Pro 9.7.23 (DC 01.03.2020) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934871.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Digital Clock 4.5.2 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934864.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Windows and Office ISO Download Tool 4.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934854.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Uninstall Tool 3.5.2 Build 5553 Final RePack (& portable) by KpoJIuK (14.01.2017
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934849.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Components: Flash Player 24.0.0.194 + AIR 24.0.0.180 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934847.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Freemake Video Converter 4.1.9.6 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934831.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SolidRocks 1.9.5 for 3ds Max [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934828.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ O&O Defrag Professional 23.0 Build 3576 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934752.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ummy Video Downloader 1.10.10.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934750.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ BluffTitler Ultimate 14.8.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934748.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ IObit Smart Defrag Pro 6.4.5.105 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934744.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FinePrint Software (FinePrint 10.17 / pdfFactory Pro 7.17) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934722.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Light Image Resizer 6.0.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934718.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Google Chrome 80.0.3987.132 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934716.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Auslogics Disk Defrag Ultimate 4.11.0.6 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934706.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Skype 8.57.0.116 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934704.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Advanced SystemCare Pro 10.1.0.696 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934682.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe Illustrator CC 2017 (v21.0.1) x86-x64 RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934681.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Tixati 2.71 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934659.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Autorun Organizer 4.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934655.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ WSUS Offline Update 11.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934650.jpg" />
 </div>
 
 

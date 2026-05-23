@@ -1,86 +1,3 @@
-###  Публикация: 1591840   (186890) от 19.11.2022
-
-Дарья Донцова | Даша Васильева (Книга 40). Тормоза для блудного мужа (2022) [MP3, Елена Дельвер]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-О чем только думала Даша Васильева, соглашаясь стать ведущей телешоу «Истории Айболита»? Съемки оказались натуральным дурдомом на выезде! Хорошо хоть герои не подставные: бизнес-леди Вера Орлова очнулась от комы и согласилась принять участие в передаче.
-Из-за разгоревшегося в студии скандала запись шоу сорвалась, а на следующий день Орлова исчезла, словно самолет-невидимка! (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7113F5775C1587F6E936A23ECEB97A105E4F875A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591764   (186885) от 19.11.2022
-
-Клиффорд Саймак | Изгородь (2022) [MP3, Гарри Стил]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Удовлетворение жизнью и своей работой — чрезвычайно важно! Именно от этого зависит твой статус в обществе. В обществе, которое предоставляет тебе в обмен все блага. Главное – получать полное удовольствие от любимого дела. Выше статус — больше достаток!
-
-Но как быть, если работа, которой ты решил посвятить всю свою жизнь, оказалось пустышкой, и твой статус катится (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482356C4954579681A1A91AD01CBF5D1B902383B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591766   (186884) от 19.11.2022
-
-Филлис Дороти Джеймс | Адам Дэлглиш (Книга 4). Тайна Найтингейла (2022) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Загадочные убийства происходят в Доме Найтингейла – учебном заведении в самом центре Англии, где готовят сестер милосердия. Неуловимый преступник жестоко расправляется с девушками, призванными облегчать чужую боль и страдания. Похоже, он пытается доказать: лучшее лекарство от всех болезней – смерть…
-
-Адам Дэлглиш сможет остановить убийцу, только если сумеет проникнуть (   Читать дальше...   )Жанр: ДетективПродолжительность: 13:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D25053144C944B786D357167C306157D299055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591847   (186877) от 19.11.2022
 
 Николай Леонов, Алексей Макеев | Полковник Гуров. Клейма ставить негде (2022) [MP3, Евгений Полтавский]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186877.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186840.jpg" />
 </div>
 
 
@@ -143,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186822.jpg" />
 </div>
 
 
@@ -172,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186814.jpg" />
 </div>
 
 
@@ -198,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186802.jpg" />
 </div>
 
 
@@ -225,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186798.jpg" />
 </div>
 
 
@@ -252,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186778.jpg" />
 </div>
 
 
@@ -281,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186771.jpg" />
 </div>
 
 
@@ -307,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186766.jpg" />
 </div>
 
 
@@ -335,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186712.jpg" />
 </div>
 
 
@@ -363,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186593.jpg" />
 </div>
 
 
@@ -389,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186555.jpg" />
 </div>
 
 
@@ -415,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186542.jpg" />
 </div>
 
 
@@ -441,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186534.jpg" />
 </div>
 
 
@@ -467,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186402.jpg" />
 </div>
 
 
@@ -495,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186398.jpg" />
 </div>
 
 
@@ -521,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186391.jpg" />
 </div>
 
 
@@ -549,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186379.jpg" />
 </div>
 
 
@@ -575,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186369.jpg" />
 </div>
 
 
@@ -601,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186359.jpg" />
 </div>
 
 
@@ -628,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186351.jpg" />
 </div>
 
 
@@ -654,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186349.jpg" />
 </div>
 
 
@@ -680,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186331.jpg" />
 </div>
 
 
@@ -691,6 +608,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7F85F6E1187FEB79D466A3F263248573DC61FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663936   (186278) от 24.09.2023
+
+Чингиз Абдуллаев | Дронго ( Книга102). Забава королей (2023) [MP3, Светик]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186278.jpg" />
+</div>
+
+
+###  Подробнее
+
+атель, пригласил своих друзей, в числе которых и трое русских бизнесменов с подругами. Волею судеб там оказался и знаменитый эксперт по борьбе с преступностью Дронго. Компания собралась на «забаву королей» – так издавна называли охоту на львов. Но сафари обернулось трагедией: один из русских бизнесменов во время облавы получил пулю в грудь. Кто стрелял? Был ли это (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 07:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23243C3090BE43D7C4932BED39C4B92A85922411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663892   (186249) от 24.09.2023
+
+Влад Райбер | Лезвие Эры (2022) [MP3, Антон Савченко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год спустя Эра по-прежнему ничего не помнит, но быстро адаптировалась к повседневной жизни. Она ходит в школу, не отстает от других подростков и, кажется, совсем от них не отличается. Однако с каждым днем она всё острее чувствует, что Земля – не её родина. Девочке предстоит столкнуться не только с подростковыми трудностями, но и узнать о том, кто она на самом деле (   Читать дальше...   )Жанр: Городское фэнтези, УжасыИздательство: ЛитРес: чтецПродолжительность: 07:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85ECF17A581580ABA3DEB6A200C6557BAA69CFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664063   (186227) от 24.09.2023
+
+Мартин Скотт | Фракс (Книга 4). Фракс и Эльфийские острова (2023) [MP3, Сергей Оробчук]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну что, пришла пора Фраксу выбраться из родного, но чудовищно неприятного зимой Турая и отправиться далеко на юг, на архипелаг эльфов. Не совсем по своей воле, конечно — да по своей воле никто бы его туда и не пустил. Но один из эльфов, боевой товарищ Фракса, обратился к нему за помощью. Дело в том, что Элит, дочь этого самого эльфа, обвиняется в повреждении Древа (   Читать дальше...   )Жанр: Городское фэнтезиИздательство: аудиокнига своими рукамиПродолжительность: 06:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822BE19E799EC4BB0C801B276B346601416D033B
 ```
 
 https://mybot314.ru/tekegram_catalog/

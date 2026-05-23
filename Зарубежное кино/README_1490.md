@@ -1,55 +1,3 @@
-###  Публикация: 1266587   (269978) от 02.12.2018
-
-Пугающая кампания / Scare Campaign (2016) BDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Жили-были пранкеры (чуваки, которые устраивают розыгрыши) и работали они при некоем телеканале устроителями пугающих сюжетов, транслирующихся в онлайне. Естественно, розыгрыш хорош лишь тогда, когда выполнен на грани нервных переживаний подопытного фигуранта. А посему несчастных не жалели. Всё делалось ради зрителя и рейтингов. Но как известно, зритель быстро пресыщается (   Читать дальше...   )Производство: Австралия / Cyan FilmsЖанр: УжасыРежиссер: Камерон КернсАктеры: Миган Уорнер, Йен Медоуз, Оливия ДеДжонг, Джош Квон Тарт, Патрик Харви, Кассандра Маграт, Стив Музакис, Джон Брамптон, Джейсон Джиари, Сигрид Торнтон, Кейтин ЯпПеревод: Авторский (одноголосый закадровый) Антон Карповский - ненормативная лексика!Продолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CB5628111D4FCBA51D7B581070F3BAD0E6CDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266343   (269976) от 02.12.2018
-
-Я считаю: раз, два, три, четыре, пять (2007) WEB-DLRip [H.264/1080p-LQ] [PR]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь непризнанного писателя средних лет Дмитрия Краткова упорно не складывается: жена Алиса ушла от него к более успешному человеку, худсовет не принимает его пьесу. Единственное место, где он чувствует себя хорошо, — дачный участок, на котором у него даже нет дома…Производство: Украина / "Star Media"Жанр: Мелодрама, комедияРежиссер: Лидия КазбероваАктеры: Алёна Бабенко, Сергей Маковецкий, Елена Панова, Людмила Смородина, Виктор Цекало, Юрий Евсюков, Ирина Стежка, Галина Хильченко, Неонила МаленкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D0EC60B64F0652585475FD4103E84E092F534C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266584   (269975) от 02.12.2018
 
 Расчлененка / Cheun / Slice (2009) BDRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269975.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269974.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269972.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269971.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269961.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269960.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269957.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269955.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269952.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269947.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269944.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269934.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269933.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269927.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269922.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269916.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269914.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269913.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269905.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269856.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269853.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269844.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269835.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269787.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A739E948DA0483BC145C85AFE10E7050F9E913B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338470   (269784) от 15.11.2019
+
+Храбрый лучник 4 / Shen diao xia lu / The Brave Archer and His Mate (1982) WEB-DL [H.264/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куо и его жена Хуанг Йинг наконец-то настигли принца Янг Канга и в финальном противостоянии отправили его на тот свет — вернее, тот погиб по случайности. Но у него остался сын, которого Куо и Хуанг Йинг взяли на воспитание, дав ему имя Янг Гуо. Проходит время, тот вырастает, но его приемные родители боятся, что Янг Гуо пойдет по стопам своего отца и превратится в (   Читать дальше...   )Производство: Гонконг, Shaw Brothers (Hong Kong) Ltd.Жанр: Боевик, мелодрамаРежиссер: Чанг ЧеАктеры: Александр Фу Шенг, Гиги Вонг, Филип Квок, Чинь Сиу, Лунг Фунг, Лунг Тьень, Вонг Лик, Чянг Шенг, Чань Шень, Кэнди Вень, Чань ТакПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские (Виктор Береговых), английские, китайские (Traditional)Продолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A223933247492C0F534523E4D6C1F6C0A04DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266404   (269781) от 02.12.2018
+
+Тумбад / Tumbbad (2018) WEBRip [H.264/720p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269781.jpg" />
+</div>
+
+
+###  Подробнее
+
+На заре веков Богиня-мать породила нескольких Богов, и самым любимым был её первенец — Хастад. Он решил, что всё золото мира должно принадлежать ему, за что был повержен другими Богами и почти уничтожен, но Богиня-мать спасла его и поместила в своё чрево. С тех пор люди забыли падшего Бога, не ставили ему алтари и не возносили молитвы.
+Индия, начало XX века. Неподалеку (   Читать дальше...   )Производство: Индия, Швеция, Colour Yellow Productions,Sohum Shah FIlms,FilmЖанр: Триллер, УжасыРежиссер: Рахи Анил Барве, Адеш ПрасадАктеры: Ронджини Чакраборти, Дипак Дамле, Анита Дате, Дхундирадж Прабхакар Джогалекар, Хэриш Ханна, Джоти Малше, Мохд Самад, Сохам ШахПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Озвучка / Автор перевода: BadBajoСубтитры: Английские (отключаемые)Продолжительность: 01:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69CD45E57E45C534B4221961B417D34A3EABB0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

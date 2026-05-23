@@ -6,7 +6,7 @@ DriverPack Solution 15.10 + Драйвер-Паки 15.10.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432814.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SamDrivers 15.10 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432788.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Easy CD-DA Extractor 16.1.0.1 Portable by PortableAppZ [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432783.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BELOFF 2018.9.1 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432626.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Phase One Capture One Pro 11.3.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432484.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WizTree 3.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432339.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CCleaner 5.34.6207 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432338.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432329.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ USDownloader 1.3.5.9 Portable (15.10.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432246.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Any Video Converter Ultimate 6.1.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432239.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FastStone Image Viewer 6.4 Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432228.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Piriform CCleaner Professional 5.34.6207 RePack (& Portable) by elchupacabra  [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432226.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Hetman Uneraser 4.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432217.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sun Java SE Runtime Environment 6.0 Update 22 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432210.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Bat! Professional Edition 7.3.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432160.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ USB Safely Remove 5.4.6.1244 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432158.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Dataland CD Label Designer 6.0.673 от 15/10/2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432151.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Pepakura Designer 4.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432145.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432121.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ FastStone Image Viewer 6.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432101.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Hallmark Card Studio 2017 Deluxe 18.0.0.14 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432060.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Daum PotPlayer 1.6.63638 Stable RePack + Portable by 7sh3 (16.10.2016) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432056.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ FastStone Image Viewer 6.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432029.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Dicter 3.80 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431970.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Firefox Browser 81.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431928.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ ScreenToGif 2.27.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431922.jpg" />
 </div>
 
 

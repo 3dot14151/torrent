@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.1.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234320.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shotcut 23.05.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234316.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Video AI 3.2.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234312.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stellarium 23.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234311.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIO Boot NewGen 23.5.14.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234303.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wondershare Recoverit for Mac 12.0.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234299.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ USB Raptor 0.18.87.720 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234297.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NCH DreamPlan Plus 8.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234295.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Topaz Photo AI 1.3.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234285.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ WidsMob Portrait Pro 2.0.0.190 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234281.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ TechSmith Camtasia 2022 Studio 2022.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234262.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Brave Browser 1.52.129 Portable by Cento8 + ext [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234261.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Foxit PDF Editor Pro 12.0.1.12430 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234259.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ PCDJ DEX PRO 3.20.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234252.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VueScan Pro 9.8.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234245.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Telegram for Android 9.0.1 (2800) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234241.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ZEDGE 8.8.3 Mod by Mixroot, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234231.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Magic Sort List 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234226.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Integrity Plus 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234223.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ FinalShot 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234216.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ GeoGebra 6.0.778.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234210.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ File List Export 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234208.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ A Better Finder Rename 11 v11.47 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234204.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ WinRAR 6.22 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234189.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Wise Care 365 Pro 6.5.5.628 + Portable [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234188.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ AOMEI Backupper Pro 6.9.2 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234185.jpg" />
 </div>
 
 

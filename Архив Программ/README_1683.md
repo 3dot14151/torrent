@@ -6,7 +6,7 @@ Firefox Browser ESR 115.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209130.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Calcpad 6.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209127.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ qBittorrent 4.4.5 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209122.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Spotify 1.2.3.1115 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209117.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Office 2013-2021 C2R Install + Lite 7.4.4 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209116.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Auslogics Registry Cleaner Pro 10.0.0.3 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209115.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Auslogics Registry Cleaner Pro 10.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209114.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Microsoft .NET 6.0.20 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209108.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ ShareX 15.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209106.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Uninstall Tool 3.7.1 Build 5700 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209103.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Slimjet 40.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209101.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ MuseScore 4.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209099.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Brave Browser 1.52.130 Portable by Cento8 + ext [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209092.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ DesktopDigitalClock 4.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209091.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Exif Pilot 6.21.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209090.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Topaz Video AI 3.3.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209088.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ StaxRip 2.22.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209085.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Kate 23.04.3 Build 2090 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209075.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Auslogics Duplicate File Finder 10.0.0.3 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209070.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wireshark 4.0.7 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209057.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ NetTraffic 1.68.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209051.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Viber 20.5.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209041.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Pale Moon 32.3.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209038.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Wise Disk Cleaner 11.0.3.817 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209033.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ PortableApps.com Platform 24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209028.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Opera One 100.0.4815.54 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209023.jpg" />
 </div>
 
 

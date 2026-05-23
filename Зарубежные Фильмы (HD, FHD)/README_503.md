@@ -1,56 +1,3 @@
-###  Публикация: 360305   (580555) от 07.07.2011
-
-Меняющие реальность / The Adjustment Bureau (2011) BDRip [H.264/1080p] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По рассказу Филипа К. Дика «Команда корректировки».
-Волею случая конгрессмен Дэвид Норрис узнает, что мир движется по заранее написанному плану, за исполнением которого следят работающие в неком Бюро Корректировки люди в шляпах, обладающие сверхъестественными способностями. Как назло, план не предусматривает дальнейших пересечений с балериной Элизой, в которую политик (   Читать дальше...   )Производство: США, Universal Pictures, Media Rights Capital (MRC), Gambit PicturesЖанр: Фантастика, Триллер, МелодрамаРежиссер: Джордж НолфиАктеры: Мэтт Дэймон, Эмили Блант, Энтони Маки, Джон Слэттери, Теренс Стэмп, Майкл Келли, Энтони Руйвивар, Дэвид Бишинс, Джонни Чикко, Брайан Хейли, Донни Кешаварц, Флоренс Кастринер, Филис Макбрид, Лори ДоунПеревод: ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042096   (580378) от 11.08.2016
-
-Dом Zомби / Wicked Little Things (2006) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Карен и ее дочерям Саре и Эмме досталось в наследство небольшое поместье в окрестностях маленького шахтерского городка в Пенсильвании. Дом оказался просторным и милым, но Карен и девочек не оставляет чувство необъяснимой тревоги. В первую же ночь Карен просыпается в холодном поту: ей приснились умершие дети, будто бы не из нашего времени... В подвале дома женщина (   Читать дальше...   )Производство: США / Millennium Films, Nu Image Films, Sandstorm FilmsЖанр: Ужасы, Фэнтези, ДрамаРежиссер: Дж.С. КардонеАктеры: Лори Хёринг, Скаут Тэйлор-Комптон, Хлоя Грейс Морец, Джеффри Льюис, Бен Кросс, Крэйг Вай, Крис Джамба, Джули Роджерс, Мартин МакДугалл, Майкл МакКой, Велизар Бинев, Helia GrekovaПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA4EFEDE4D8D44797F804CB57B9320A3826F6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042101   (580331) от 11.08.2016
 
 Окно в лето / Fenster zum Sommer (2011) HDTV [H.264/1080i]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580331.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580295.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580213.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580155.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580095.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579983.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579883.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579882.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579881.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579853.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579848.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579812.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579794.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579790.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579754.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579749.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579744.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579706.jpg" />
 </div>
 
 
@@ -536,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579695.jpg" />
 </div>
 
 
@@ -562,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579640.jpg" />
 </div>
 
 
@@ -588,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579612.jpg" />
 </div>
 
 
@@ -614,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579223.jpg" />
 </div>
 
 
@@ -640,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579219.jpg" />
 </div>
 
 
@@ -666,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579194.jpg" />
 </div>
 
 
@@ -677,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882809ED2697456E11EF3B2008B82DAF00FBFE75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042401   (579119) от 12.08.2016
+
+Рейд 2 / The Raid 2: Berandal (2014) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из трёх полицейских, выбравшихся из кровавого ада первой части, в живых остаётся только офицер Рама. Уволившись из спецназа, он пробует начать жизнь заново, но вскоре прошлое жёстко напоминает о себе — преступники убивают его брата. Чтобы отомстить, он внедряется в мощный криминальный синдикат, где быстро поднимается до самых вершин бандитской иерархии. Врагов здесь (   Читать дальше...   )Производство: Индонезия, США / Pt. Merantau Films, XYZ FilmsЖанр: боевик, триллер, криминалРежиссер: Гарет ЭвансАктеры: Ико Уайс, Арифин Путра, Тио Пакусодево, Ока Антара, Алекс Аббад, Чечеп Ариф Рахман, Джулия Эстелл, Вери Три Юлисман, Рюхэй Мацуда, Кэнити ЭндоПеревод: Дублированный (Лицензия BD RUS)Продолжительность: 02:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962A85ABE66F156B3701AFE683850AF1644B32C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042159   (579052) от 12.08.2016
+
+Финансовый монстр / Money Monster (2016) BDRip [H.264/720p] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время трансляции рейтингового реалити-шоу «Финансовый монстр» в студию врывается неизвестный и берет ведущего в заложники. Несмотря на чрезвычайную ситуацию, программа не прерывается – ведь шоу должно продолжаться! Постепенно то, что начиналось как мрачная драма, превращается в самый успешный и скандальный выпуск реалити-шоу за всю его историю.Производство: СШАЖанр: Триллер, Драма, КриминалРежиссер: Джоди ФостерАктеры: Джордж Клуни, Джулия Робертс, Джек О'Коннелл, Доминик Уэст, Катрина Балф, Джанкарло Эспозито, Кристофер Денэм, Ленни Венито, Кристофер Бауэр, Дэннис Буцикарис и др.Перевод: Дублированный (Чистый звук)Продолжительность: 01:38:07Реклама: Имеется реклама от спонсора показа!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F9200C587DC15F611210F635001AB8125A68CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

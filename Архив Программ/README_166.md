@@ -6,7 +6,7 @@ OnlineTV 8.2.0.1 [Английский / Немецкий]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996315.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dr.Web CureIt! 8.0.2 (17.01.2013) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996312.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AntiWinBlock 1.0 LIVE CD/USB [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996310.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ mp3DirectCut 2.18 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996308.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nikon Capture NX2 2.3.5 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996289.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Wise Care 365 Pro 2.19 Build 170 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996155.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Windows Repair (All In One) 1.9.6 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996127.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Google Chrome 26.0.1386.0 Dev [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996116.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Mac Blu-ray Player 2.7.5.1112 Portable by SamDel [Русский / Англий�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996093.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ ServiWin 1.55 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996086.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Hard Disk Sentinel Pro 4.20 Build 6014 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996019.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ NOD32 Update Viewer 6.00.0 Final [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996005.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Comodo Firewall 2013 6.0.260739.2674 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995994.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dr.Web Security Space 8.0.1.01150 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995993.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dr.Web Anti-Virus 8.0.1.01150 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995991.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Boot CD USB Sergei Strelec v.1.4 2013 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995970.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Bat! Voyager 5.3.6.1 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995966.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Cloudfogger 1.4.2076 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995833.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Hornil Style Pix 1.11.4.0 + Portable [Multi\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995821.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Audacity 2.0.3 RC1 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995805.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995804.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Hard Disk Sentinel Pro 4.20 Build 6014 RePack (& Portable) by KpoJIuK [MULTi / �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995773.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ AMD Catalyst 13.2 (неофициальные Beta ) [Мульти/Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995760.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Auslogics Disk Defrag Professional 4.2.2.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995735.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Total Commander 8.01 LitePack | PowerPack | ExtremePack 2012.12a Final + Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995708.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ AusLogics BoostSpeed 5.5.1.0 RePack (& portable) by KpoJIuK [Русский / А
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995703.jpg" />
 </div>
 
 

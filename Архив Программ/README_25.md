@@ -6,7 +6,7 @@ Macrorit Partition Expert 5.6.1 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041028.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Everything 1.4.1.1003 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041026.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kerish Doctor 2021 4.85 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041009.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nvidia DriverPack v.461.09 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040989.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Defender Tools 1.15 b06 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040968.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MSAct++ 2.07.6 Portable by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040960.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Q-Dir 9.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040894.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Emurasoft EmEditor Professional 20.4.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040892.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ JRiver Media Center 27.0.52 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040891.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Chromium 87.0.4280.141 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040880.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sandboxie 5.46.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040853.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Glary Utilities Pro 5.201.0.230 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040841.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Glary Utilities Pro 5.201.0.230 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040836.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ TapinRadio 2.15.96 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040830.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ K-Lite Codec Pack Update 17.4.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040829.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ TapinRadio 2.15.96 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040828.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Glary Disk Cleaner 5.0.1.287 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040825.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Glary Disk Cleaner 5.0.1.287 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040824.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ RadioMaximus 2.31.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040799.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ RarmaRadio Pro 2.75.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040793.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ MAGIX Samplitude Pro X5 Suite 16.1.0.208 + справка [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040780.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040775.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ NIUBI Partition Editor 9.3.5 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040763.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ RarmaRadio Pro 2.75.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040759.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Glary Tracks Eraser 5.0.1.252 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040758.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Topaz Gigapixel AI 5.4.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040727.jpg" />
 </div>
 
 

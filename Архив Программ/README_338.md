@@ -6,7 +6,7 @@ Firefox Browser 75.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880040.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Balabolka 2.15.0.738 + Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879974.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rainlendar Pro 2.15.4 Build 166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879951.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ WhatsApp 0.4.2088 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879895.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Kerish Doctor 2020 4.80 DC 30.03.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879850.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ CoolUtils PDF Combine Pro 4.1.67 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879778.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ K-Lite Codec Pack 15.4.4 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879737.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Eassos System Restore 2.0.2.482 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879641.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DriverPack Solution 17.10.14 Полная версия (DP 20035) [Multi/Ru] (о
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879615.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Autodesk AutoCAD 2021 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879608.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PDF Compressor Pro 3.4 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879596.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Flash Player 24.0.0.221 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879506.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Instagiffer 1.62 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879396.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Aiseesoft Total Media Converter 8.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879295.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Tipard Video Converter Ultimate 9.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879281.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Avast Premier 17.1.2286 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879274.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Total Commander 9.0a VIM 19 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879257.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Aiseesoft Video Converter Ultimate 9.0.18 RePack (& Portable) by TryRooM [11.03.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879196.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Aiseesoft MP4 Video Converter 8.1.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879180.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ WinX HD Video Converter Deluxe 5.9.3 Build on Feb 29 2016 RePack by FoXtrot [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879177.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CDBurnerXP 4.5.6.6053 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879161.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ DAEMON Tools Lite 10.5.1.230 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879152.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ ZWCAD 2017 SP2 2017.01.23 (13656) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879151.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Adobe Muse CC 2017.0.2 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879145.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ DAEMON Tools Lite 10.5.1.230 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879144.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Adobe Audition CC 2017 (v10.0.2) Multilingual Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879142.jpg" />
 </div>
 
 

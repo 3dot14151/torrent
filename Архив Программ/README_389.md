@@ -6,7 +6,7 @@ Icecream Slideshow Maker PRO 4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846531.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.1 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846525.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adware Removal Tool 5.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846501.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reg Organizer 7.35 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846499.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Care 365 Pro 4.57.432 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846496.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Teorex PhotoStitcher 2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846486.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PassMark RAMMon 1.0 build 1016 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846485.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Your Universal MultiBoot Installer UEFI 0.0.0.4 Beta Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846465.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Visual Studio 2019 Professional 16.5.1 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846454.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinSCP 5.17.4 Build 10410 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846451.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft Visual Studio 2019 Community 16.5.1 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846446.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Unity Pro 2019.3.10f1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846439.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DAEMON Tools Ultra 4.1.0.0489 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846428.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ EZ CD Audio Converter 5.4.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846418.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Daum PotPlayer 1.7.661 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846413.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Wise Care 365 Pro 4.57.432 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846408.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ PassMark BurnInTest Pro 8.1 Build 1020 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846407.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Hex Editor Neo Ultimate Edition 6.25.00.5960 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846403.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ DiskDigger 1.31.43.3019 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846384.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ESET Endpoint Security 5.0.2260.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846344.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ ESET Endpoint Antivirus 5.0.2260.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846339.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AutoCAD Design Suite Ultimate 2017 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846335.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ WinToUSB Enterprise 3.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846304.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Media Player Classic Home Cinema 1.7.11 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846301.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Topaz Gigapixel AI 4.7.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846286.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ WSCC (Windows System Control Center) 4.0.5.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846284.jpg" />
 </div>
 
 

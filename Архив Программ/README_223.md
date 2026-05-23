@@ -6,7 +6,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957980.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GoodSync Enterprise 8.5.8.0 Beta[Русский(ML)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957965.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Whale Browser 2.6.90.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957929.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Dr.Web Security Space 12.0.1.12240 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957922.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957860.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957859.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957851.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 7 (6in1) Sergei Strelec x64 6.1 (build 7601.24548) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957777.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Windows 10 Enterprise 2019 LTSC, Version 1809 with Update [17763.1039] (x86-x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957770.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Adobe Photoshop Lightroom Classic 9.2.0.10 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957766.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4939.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957759.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957506.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ KakaoTalk 2.1.0.1072 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957442.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WeChat 2.0.0.31 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957348.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Slimjet 7.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957346.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Mozilla Firefox 44.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957328.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Maxthon Cloud Browser 4.9.0.2900 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957326.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Advanced SystemCare Ultimate 9.0.1.622 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957322.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Mozilla Firefox 45.0 beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957314.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ pdfFactory Pro 5.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957280.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ LINE 4.4.0.810 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957222.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ John’s Background Switcher 4.12.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957217.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ NVIDIA GeForce Experience 2.9.1.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957194.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Telegram Desktop 0.9.18 Stable + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957192.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Soft Organizer 5.03 Final RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957186.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Hard Disk Sentinel Pro 4.70 Build 8128 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957185.jpg" />
 </div>
 
 

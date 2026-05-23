@@ -6,7 +6,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980540.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980515.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980356.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Pictu
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980258.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980256.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979122.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, пло
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978790.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978608.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978539.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978291.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Pictur
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978002.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976765.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975610.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Песни нашего кино. Коллекция от Ридерз Да
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973413.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973159.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973131.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973091.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Ennio Morricone - Correspondence (La Corrispondenza) Original Soundtrack (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970803.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Quentin Tarantino's The Hateful Eight / Омерзительная вось
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970471.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969705.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Birds of Prey / Хищные птицы: Потрясающая истор�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969641.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968650.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Alexandre Desplat - Little Women / Маленькие женщины (Original M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967311.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966978.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966675.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Randy Newman - Marriage Story / Брачная история (Original Music fr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966202.jpg" />
 </div>
 
 

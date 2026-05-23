@@ -1,55 +1,3 @@
-###  Публикация: 1524264   (744889) от 15.01.2022
-
-Хэллоуин убивает / Halloween Kills (2021) BDRip [H.264/1080p] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лори Строуд, ее дочь Карен и внучка Эллисон поймали Майкла Майерса в ловушку и оставили гореть в подвале их дома. Раненая Лори отправляется в больницу, уверенная в том, что ее преследователь наконец-то мертв. Но Майклу удается освободиться, и его кровавая расправа продолжается. Лори должна справиться с болью и снова защищаться, однако, в этот раз весь город готов (   Читать дальше...   )Производство: США / Universal Pictures, Miramax, Blumhouse ProductionsЖанр: УжасыРежиссер: Дэвид Гордон ГринАктеры: Джейми Ли Кёртис, Джуди Грир, Энди Мэтичак, Энтони Майкл Холл, Джеймс Джуд Кортни, Ник Касл, Эйрон Армстронг, Уилл Пэттон, Томас Манн, Джим КаммингсПеревод: Дублированный, многоголосый профессиональный, двухголосый любительскийСубтитры: Русские (forced х2, full х2), украинские (forced), английскиеПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77D44A741E3213FC80577C06DE0120C7C939F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519170   (744885) от 15.01.2022
-
-Восход красного солнца / Red Sun Rising (1994) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Жестокий убийца-якудза (Джеймс Лью) убивает в Киото партнёра полицейского Дона Дракона Уилсона при помощи так называемого легендарного прикосновения смерти. Чтобы отомстить, полицейский отправляется за ним в Америку, где якудза разворачивают торговлю оружием, стравливая уличные банды. Пройдя завершающий курс обучения кунг-фу у своего старого учителя, Дракон теперь (   Читать дальше...   )Производство: СШАЖанр: боевикРежиссер: Фрэнсис МегахиАктеры: Дон «Дракон» Уилсон, Терри Фаррелл, Мако, Майкл Айронсайд, О Сун-тхэк, Эдвард Альберт, Джеймс Лью, Стоуни Джексон, Юдзи Окумото, Джеймс Хэтч, Форри Смит, Питер Марк Васкес, Жаклин Обрадорс, Леонард О. Тернер, Диана Липари, Кен Давитян, Джуди Лиа, Джо Курода, Тоширо Обата, Ховард Джексон, Шэшони Холл, Арт Камачо, Эндрю ВалдронПеревод: Двуголосый профессиональный (со ставками Гаврилова), авторский, профессиональный одноголосыйСубтитры: Английские (full, SDH)Продолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270A0D744D444671D1C9C92662226EE5FE229480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282045   (744835) от 12.02.2019
 
 Человек на Луне / First Man (2018) BDRemux [H.264/1080p] [IMAX Edition]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744835.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744825.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744823.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744801.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744799.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744797.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744796.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744788.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744787.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744786.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744785.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744783.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744731.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744727.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744721.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744713.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744711.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744709.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744706.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744669.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744664.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744660.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744657.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744595.jpg" />
 </div>
 
 
@@ -667,6 +615,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC537B754F9CA41F06490DCB8730273DB3E30511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577892   (744589) от 12.02.2019
+
+Временная петля / Los cronocrimenes (2007) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гектор - самый обычный человек, вполне довольный своей жизнью: любящая жена, дом за городом. В один из вечеров внимание Гектора привлекает мелькнувшая в лесу полуобнаженная девушка и движимый любопытством, мужчина отправляется разведать, что же там такое происходит. В лесу он сталкивается с человеком, чье лицо скрыто окровавленными бинтами. Скрываясь от преследования (   Читать дальше...   )Жанр: Триллер, Фантастика, ДетективРежиссер: Начо Вигалондо / Nacho VigalondoАктеры: Карра Элехальде, Кандела Фернандез, Барбара Гоэнага, Начо ВигалондоПеревод: 1)Профессиональный (двухголосый) НТВ+
+2)Любительский (двухголосый)Язык субтитров: русские, английскиеПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A7D942936AA05F5F5B530DDA0E162D166E4723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282267   (744586) от 12.02.2019
+
+Точка невозврата / Beirut (High Wire Act) (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разгар Ливанской войны. Интриги, предательство, грязные компроматы, нравственное падение, жертвенность и любовь, боль и надежда… На руках героя умирает жена, подстреленная террористами. Через десять лет он, преодолев ненависть и отчаяние, возвращается в Бейрут, чтобы вызволить давнего друга, захваченного в плен боевиками.Производство: СШАЖанр: Триллер, драма, криминалРежиссер: Брэд АндерсонАктеры: Розамунд Пайк, Джон Хэмм, Марк Пеллегрино, Дин Норрис, Джонатан Койн, Дуглас Ходж, Лейла Бехти, Кейт Флитвуд, Алон Абутбул, Ши УигхэмПеревод: Дублированный (Лицензия R5)Субтитры: Английские (Full, SDH)Продолжительность: 01:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C4B0094821E1BB5D8564341B0ED0EB76B2FE55
 ```
 
 https://mybot314.ru/tekegram_catalog/

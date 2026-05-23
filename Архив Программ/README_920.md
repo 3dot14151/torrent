@@ -6,7 +6,7 @@ Avant Browser Ultimate 2015 build 11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584784.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Acoustica Premium Edition 7.4.0 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584765.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NextUp TextAloud 3.0.24 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584743.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Reg Organizer 7.15 DC 16.07.2015 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_584727.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MAGIX Samplitude Pro X7 Suite 18.0.0.22190 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584703.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ StartAllBack 3.4.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584693.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Recovery USB-flash for Acer Extensa 2508 / Windows 8.1 (х64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584667.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ MediaHuman YouTube Downloader 3.9.9.72 (2205) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584650.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Wise Care 365 Pro 6.3.1.609 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584645.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ simplewall 3.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584642.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SolidWorks 2010 SP0.0 [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584627.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Total Commander TechAdmin 7.56a [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584622.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows Thin PC (RTM) 6.1 build 7601 [только английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584606.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ uTorrent Pro 3.4.3 Build 40760 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584602.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Microsoft Windows 10 RTM Escrow 10.0.10240 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584581.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Microsoft® Windows® 10 x86-x64 Ru 21H2 8in2 Upd 05.2022 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584497.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ WinToUSB Enterprise 3.1 Release 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584330.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Total Uninstall 6.17.0 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584326.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Total Uninstall 6.17.0 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584267.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ WindowsPlayer 3.3.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584203.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ eM Client Pro 7.2.35542.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584171.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Chromium 74.0.3729.131 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584168.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CareUEyes 1.1.23 Pro Portable by Joo Seng [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584164.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Adobe Audition CC 2015.2.1 9.2.1.19 Release RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584144.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ MemTest86 7.1/4.3.7 Pro Retail [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584142.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Light Image Resizer 4.0.7.2 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584134.jpg" />
 </div>
 
 

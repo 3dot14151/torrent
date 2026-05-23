@@ -1,107 +1,3 @@
-###  Публикация: 1586679   (204721) от 27.10.2022
-
-Splatoon 3 (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Собирайте команду и закрашивайте всех и вся! В Splatoon 3 для Nintendo Switch победит самый яркий игрок! Добро пожаловать в Плюхтон, расположенный в залитой солнцем Плюхтонии! Вас ждет новое оружие, боевые приемы, поля боя и улетные прикиды! Ныряйте с головой в красочные сражения, отражайте атаки самонидов и сдерживайте нашествие осьморян.Тип издания: eShopРазработчик: Nintendo EPDЖанр: Shooter, ActionЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402D86888C3804495A2D1712A273450FC87BB265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586772   (204712) от 27.10.2022
-
-TUNIC (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Исследуй земли, полные легенд, древних сил и яростных монстров. В изометрическом экшене TUNIC тебе предстоит большое путешествие в роли маленького лисенка. Ты просыпаешься среди руин, и все, что у тебя есть, — это любопытство. Сражайся с чудовищами, собирай волшебные предметы и раскрывай древние тайны.Тип издания: eShopРазработчик: Andrew ShouldiceЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B021FB7CD284B355547C5B08861118E356F7880E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586684   (204707) от 27.10.2022
-
-New Tales from the Borderlands (2022) [Switch] [EUR] 14.1.2 [eShop] [En]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В постоянно раздираемом войной мегаполисе на планете Прометея вы будете управлять Ану, Октавио и Фрэн... в худший день их жизни. Помогите этим трем милым неудачникам в их попытках изменить мир (и, возможно, даже спасти его)! Уложите на лопатки планетарное вторжение, свирепого подземного монстра и бесчувственного капиталиста в этом захватывающем кинематографическом (   Читать дальше...   )Тип издания: eShopРазработчик: Gearbox SoftwareЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300028F0D6715817E2314EFBD8FEEA6102E59FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630679   (202204) от 23.08.2023
-
-The Legend of Zelda: Tears of the Kingdom (2023) [Switch] [USA] 16.0.3 [NSP] [License / 1.2.1] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В этом продолжении несравненной The Legend of Zelda: Breath of the Wild горизонты приключений Линка станут еще шире, и он отправится исследовать небеса над бескрайними просторами Хайрула! Сюжетная линия этой игры перенесет вас в путешествие по королевству Хайрул в поисках слез королевства, которые позволяют вернуть мир и процветание в Хайруле.Тип издания: LicenseРазработчик: Nintendo EPDЖанр: Action, Adventure, RPGЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA0A43CFE377C8CCA689E388A12FBA56E493973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617213   (201618) от 08.03.2023
 
 PixelJunk Monsters 2 (2018) [PS4] [USA] [PSN] [Multi]
@@ -110,7 +6,7 @@ PixelJunk Monsters 2 (2018) [PS4] [USA] [PSN] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201618.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Max Payne 3 (2012) [PS3] [EUR] 4.11 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201576.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Injustice 2 Legendary Edition (2018) [PS4] [EUR] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201547.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Get Up And Dance (2011) [PS3] [USA] 3.55 [License] [En] [Move]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200975.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Metal Gear Solid HD Edition (2011) [PS3] [JAP] 3.72 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200202.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ FATAL FRAME: Mask of the Lunar Eclipse (2023) [PS4] [ASIA] 5.05 [HEN] [License] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199232.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ My Little Pony A Maretime Bay Adventure (2022) [PS4] [EUR] [5.05] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199139.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ PAC-MAN and the Ghostly Adventures 2 (2014) [PS3] [EUR] 4.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198915.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198896.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ Big Rumble Boxing: Creed Champions (2021) [PS4] [EUR] [5.05] [HEN] [License / 1.
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198798.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ Angry Birds Star Wars (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198708.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ Assassin's Creed II: Game of the Year Edition (2010) [PS3] [EUR] 3.15 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198684.jpg" />
 </div>
 
 
@@ -422,7 +318,7 @@ Rango: The video game (2011) [PS3] [EUR] 3.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197818.jpg" />
 </div>
 
 
@@ -448,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196969.jpg" />
 </div>
 
 
@@ -474,7 +370,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Lice
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196223.jpg" />
 </div>
 
 
@@ -500,7 +396,7 @@ Earthworm Jim HD (2010) [PS3] [EUR] HEN 4.88 [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194787.jpg" />
 </div>
 
 
@@ -526,7 +422,7 @@ LEGO Brawls (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193111.jpg" />
 </div>
 
 
@@ -552,7 +448,7 @@ Resident Evil Village (2021) [PS4] [USA] 5.05 [HEN] [License / 1.11 / DLC] [Ru/M
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193050.jpg" />
 </div>
 
 
@@ -578,7 +474,7 @@ Bayonetta 2 (2014) [WiiU] [EUR] 5.3.2 / WUP Installer [Repack] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192497.jpg" />
 </div>
 
 
@@ -604,7 +500,7 @@ Bayonetta 3 (2022) [Switch] [EUR] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192442.jpg" />
 </div>
 
 
@@ -630,7 +526,7 @@ Factorio (2022) [Switch] [US] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192202.jpg" />
 </div>
 
 
@@ -656,7 +552,7 @@ Sonic Frontiers (2022) [Switch] [US] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191179.jpg" />
 </div>
 
 
@@ -667,6 +563,112 @@ Sonic Frontiers (2022) [Switch] [US] 14.1.2 [eShop] [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54FE847C30C26890144500DA64558FB195F756C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589641   (189867) от 10.11.2022
+
+Fullmetal Alchemist 2: Curse of the Crimson Elixir (2005) [PS2] [NTSC] [Unofficial] [Ru/En]
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение ролевой игры Fullmetal Alchemist, основанное на известном аниме сериале. Вместе с двумя главными героями вы попадаете в волшебный мир алхимии. История начинается в городе пустыни Lior, который два брата Эдвард и Альфонс посещают в первой части серии. После раскрытия тайн культа Leto братья подвергаются нападению странных существ. Тем временем, ужас охватывает (   Читать дальше...   )Тип издания: UnofficialРазработчик: RacjinЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6677B7AB4AFCB5177FE34D04E45D534977FBDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589964   (189546) от 11.11.2022
+
+The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3] [EUR] 4.55 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очистить Нью-Йорк от преступников оказалось не так легко, как представлял себе Питер Паркер. Несмотря на все способности и умения Человека-паука битва со злом никак не закончится победой правосудия. Но в тенях кроется тот, кому наплевать на закон и порядок. Безжалостный убийца открыл сезон охоты на самых известных преступников города. Бросить ему вызов, остановить (   Читать дальше...   )Тип издания: LicenseРазработчик: BeenoxЖанр: Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641B33B3C9F7C7C9FB4F013AED4F052EBE5353FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590955   (182793) от 23.11.2022
+
+Gal Gun (2012) [PS3] [JAP] 3.55 [License] [Jp] [MOVE]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятный состав: больше семидесяти девушек!
+Главные героини, ангелы и все студентки и сотрудницы академии — в сумме получается больше семидесяти персонажей!
+На своем пути вы встретите не только студенток и сотрудниц академии, но и дам, которых можно увидеть не так уж часто!Тип издания: LicenseРазработчик: Inti CreatesЖанр: Rail shooterЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F039FE46F1D34ACC36F17508668E54AFE342771A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413683   (179137) от 04.10.2023
+
+The Elder Scrolls V: Skyrim (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.26] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Империя Тамриэла находится на грани падения. Король Скайрима убит. Претенденты на трон объединяются в союзы. В разгар конфликта пробуждается гораздо более опасное, древнее зло. Драконы, долгое время не появлявшиеся в летописях, вернулись в Тамриэл. Будущее Скайрима и всей Империи висит на волоске, все ждут предсказанного Драконорожденного, героя с силой Голоса, единственного, (   Читать дальше...   )Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Adventure, RPGЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4FC70553FD808724FAF48D858757252941298A
 ```
 
 https://mybot314.ru/tekegram_catalog/

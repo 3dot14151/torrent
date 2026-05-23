@@ -1,29 +1,3 @@
-###  Публикация: 1001845   (851715) от 29.03.2016
-
-Terrarium Land (2016) [Ru/Multi] (1.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-“Terrarium Land” это аркадная экшн-приключенческая игра с логическими задачами. Робот Тикс терпит крушение на космическом корабле. Теперь начинаются приключения и борьба с механическими противниками ”сайбозургами” в мире ”Terrarium Land”.Тип издания: LicenseРазработчик: Layer gamesЖанр: Adventure, Arcade, Logic, 3DЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0AD1D161E8F668467BA952C4EC62E13872FA0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001633   (851708) от 29.03.2016
 
 Atlantic Fleet (2016) [En] (1.0) Repack ARMENIAC
@@ -32,7 +6,7 @@ Atlantic Fleet (2016) [En] (1.0) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851708.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Panzer Corps: Soviet Corps (2016) [Ru/Multi] (1.25/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851616.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Warshift (2015) [Ru/En] (1.3.7) SteamRip
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851615.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ DESYNC (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851389.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.011.1/1.2.010.1/1.3.001.31/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851257.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851256.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Zoo Empire / Корпорация Зоопарк (P) [Ru] (2004)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851223.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Niffelheim (2018) [Ru/Multi] (1.3.001.31/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851122.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851006.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Mystery Case Files 13: Ravenhearst Unlocked / За семью печатями 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850121.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Axiom Verge (2015) [Ru/Multi] (1.31) Repack ARMENIAC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850052.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ NightCry (2016) [En/Jap] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849944.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Leap of Fate (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849941.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Soldiers Inc. / Конфликт (2013) [Ru] (561) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849939.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Orwell (2016) [En] (1.1.6254.19879) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849791.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack R.G. Механики [G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849681.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ The Shattering (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849480.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849462.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Myth or Reality: Fairy Lands (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849417.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Broken Lines (2020) [Ru/Multi] (1.0.3) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849332.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Impostor Factory (2021) [Ru/Multi] (7455447) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849267.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Aeon Drive (2021) [Ru/Multi] (1.2.03.1825) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849264.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Dicey Dungeons (2019) [Ru/Multi] (1.11.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849196.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Guild of Ascension (2021) [Multi] (8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849065.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Lemnis Gate (2021) [Ru/Multi] (1.1.24736/dlc) License PLAZA
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849051.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Lemnis Gate - искажающий время многопользователь
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B27DB7E27553A6A122C536BC588FD92B344879B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387327   (849044) от 01.10.2021
+
+Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849044.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Those Who Remain вы окажетесь в самом центре захватывающего психологического ужастика, действие которого разворачивается в сонном городке Дормонт – отколовшегося от реальности городке, охваченном тьмой и последствиями поступков местных жителей. Преодолейте страшные, простирающиеся из темноты ужасы и переживите ночь в Дормонте, вместе с Эдвардом подвергнув испытанию (   Читать дальше...   )Тип издания: RepackРазработчик: Camel 101Жанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Немецкий, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57691813C9B1ACAD7D672A7BA4CA07D3DC6E64DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

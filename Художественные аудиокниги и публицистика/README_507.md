@@ -1,82 +1,3 @@
-###  Публикация: 930228   (515989) от 22.08.2015
-
-Олег Шелонин, Виктор Баженов | Ликвидатор нулевого уровня (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бороться с тварями потустороннего мира – задача не из легких. Но если за дело берется ликвидатор нулевого уровня Денис Колобродов со своей лихой командой – держись, нечисть поганая! Им любая задача по плечу. Можно и в райских кущах побывать, и адские легионы разметать, и рога Темному Мастеру обломать. А заодно выяснить по ходу дела: за что серый волк невзлюбил красные (   Читать дальше...   )Жанр: Юмористическая фантастикаПродолжительность: 10:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A759D842BE0B29A5B6FF11B95965EB366C1103B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314956   (515988) от 17.07.2019
-
-Себастьян Барри | Скрижали судьбы (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман Себастьяна Барри «Скрижали судьбы» — это два дневника, врача психиатрической лечебницы и его престарелой пациентки, уже несколько десятков лет обитающей в доме скорби, но сохранившей ясность ума и отменную память. Перед нами истории двух людей, их любви и боли, радостей и страданий, мук совести и нравственных поисков. Судьба переплела их жизни, и читателю предстоит (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 13:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD65845531ADE1D49D7BE9282847ABCBBCABA8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561442   (515533) от 04.07.2022
-
-Александр Дюма | Трилогия о Генрихе Наваррском (Книга 3). Сорок пять (2021) [MP3, Илья Акинтьев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Сорок пять» написан в 1847 и является последним романом трилогии Александра Дюма о Генрихе Наваррском и о гугенотских войнах (Религиозные или гугенотские войны — серия затяжных гражданских войн между католиками и протестантами (гугенотами), куда входят «Королева Марго» и «Графиня де Монсоро».
-События, воскрешенные в романе «Сорок пять», относятся к 1585 году, когда (   Читать дальше...   )Жанр: Зарубежная классика, Историческая литература, Приключенческая литератураПеревод: Андрей Кронеберг (184? – точный год неизвестен)Продолжительность: 24:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AFA10BC52B9C987A6B6C88A1F06E583EF09CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561441   (515526) от 04.07.2022
 
 Александр Дюма | Трилогия о Генрихе Наваррском (Книга 1). Королева Марго (2021) [MP3, Илья Акинтьев]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515526.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515467.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515280.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515216.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515200.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515146.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515058.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515005.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515002.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514934.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514916.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514901.jpg" />
 </div>
 
 
@@ -397,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514825.jpg" />
 </div>
 
 
@@ -423,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514818.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514808.jpg" />
 </div>
 
 
@@ -478,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514803.jpg" />
 </div>
 
 
@@ -505,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514671.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514572.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514569.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514517.jpg" />
 </div>
 
 
@@ -609,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514513.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514512.jpg" />
 </div>
 
 
@@ -661,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514455.jpg" />
 </div>
 
 
@@ -672,6 +593,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDE3F5B03CDEB9F87E4F12868E44C56B630050B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561530   (514448) от 05.07.2022
+
+Серг Усов | Попаданец в Таларею (Книга 8). Император (2022) [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмая заключительная книга серии про нашего современника, попавшего в мир магического средневековья.
+Не только благодаря супермагическим способностям, полученным Олегом на старте появления его в иной реальности, но и с помощью знаний родного мира попаданцу удалось занять достойное место в новой жизни. Избежав участи раба, ему пришлось пройти вовсе не лёгкий путь (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыПродолжительность: 10:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F52D7B532B8FDA5D7A8F5B98C1C14FBEBE6750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561570   (514443) от 05.07.2022
+
+Георгий Смородинский | Телохранитель темного бога (Книга 3). Головная боль наследника клана Ясудо (2022) [MP3, Алиса Тверская, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Над столицей клана Ясудо нависла смертельная угроза. В склепе под городом запечатана древняя тварь, которая, пробудившись уничтожит все живое в округе. Единственный выход – найти способ попасть внутрь и уничтожить чудовище пока оно не проснулось. Решение находится быстро, но для того, чтобы открыть запечатанную дверь, необходимо отправиться на Каме-Шото – архипелаг, (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 09:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79A8878505EE9B7314F7AF3323FCFB609807599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536564   (514310) от 18.08.2012
+
+Эрик Фрэнк Рассел | Зловещий барьер [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514310.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как мир, благодаря шведскому ученому Бьернсену, получил способ расширения границы человеческого зрения за пределы инфракрасного диапазона, гении, стоявшие у разгадки, стали один за другим покидать наш мир. Умирает и Бьернсен, и те его друзья, кто знал об открытии. Но нити, соединяющие странные явления, слишком тонки, чтобы их можно было заметить сразу. Новый, доселе неведомый мир оказался недобрым. За зловещим барьером, создаваемым человеческим ограниченным зрением, скрываются жестокие, всемогущие господа, правящие каждым из нас с колыбели и до могилы, невидимо и безжалостно паразитирующие на нас — истинные хозяева Земли, парящие сферы — витоны, сияющие бледно-голубым светом. Витоны умеют читать человеческие мысли, витоны похищают людей и проводят эксперименты над ними, превращая их в экстрасенсов или в парящие объекты. Витоны не только состоят из энергии, но еще и зависят от энергии, питаются энергией — нашей с вами энергией! Мы для них — производители энергии, которых им любезно предоставила природа (   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08BFE22CCEAB0FE88867D9FD6B5E879BD2B7D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

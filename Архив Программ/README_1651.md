@@ -6,7 +6,7 @@ Windows 10 Manager 2.0.3 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216479.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MKVToolNix 41.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216476.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soft4Boost Document Converter 6.5.5.581 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216462.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Shotcut 22.10.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216447.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ LosslessCut 3.25 Portable (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216434.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Loaris Trojan Remover 3.1.4.242 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216429.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AAF DCH Optimus Sound 6.0.9050.1 Realtek Mod by AlanFinotty1995 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216423.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Sumatra PDF 3.2.11544 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216399.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Total Commander 8.01 LitePack | PowerPack | ExtremePack 2012.12 Final + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216374.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ WinTools.net Professional 13.0.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216342.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ SRWare Iron 78.0.4050.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216309.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Psiphon 3 build 169 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216282.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ ESET NOD32 Internet Security 16.0.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216268.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ EssentialPIM Pro 7.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216264.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ventoy 1.0.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216231.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Total Commander 10.52 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216217.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ SUMo Pro 5.11.9.470 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216209.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Total Commander 10.00 (01.12.2021) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216204.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Cent Browser 4.3.9.206 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216174.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Mp3tag 2.73 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216148.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ RJ TextEd 15.92.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216121.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Cockos - REAPER 6.01 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216118.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Transcend Elite Data Management 4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216113.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ AusLogics BoostSpeed 9.1.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216096.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Paint.NET 4.2.8 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216091.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Strygools 0.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216087.jpg" />
 </div>
 
 

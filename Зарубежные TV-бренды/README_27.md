@@ -6,7 +6,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791193.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791190.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DV: Изящество логики / The Joy of Logic (2013) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791168.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791144.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790368.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790169.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ DV: "Вояджер" - полет за пределы Солнечной сис�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790003.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789790.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789215.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788971.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788783.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ History Channel: Тайны коптских мумий / Coptic Mummies of Anti
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788561.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Animal Planet. Кошек не любить нельзя / Must love cats (2012)
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788533.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788465.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788338.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788313.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788148.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788142.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788141.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788035.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC: Вулканы Солнечной системы (Космические В
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788014.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787964.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787593.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787592.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787545.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787220.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1167276   (401225) от 29.09.2017
-
-BBC: Уникальные способности животных / Animal Super Senses (2014) DVB [H.264/720p-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Наши органы чувств - необыкновенны. У нас отличное зрение, тонкий слух, мы можем уловить слабый аромат в дуновении ветра. Однако это далеко не предел. Представьте, что можно видеть при помощи звука, слышать грозу за сотни километров, воспринимать мир замедленно или уметь разглядеть малейшие детали. Двое ученых - физик др. Хелен Черски и биолог Патрик Арье отправятся (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC) TelevisionЖанр: Документальный, научно-популярный, фаунаРежиссер: Сэм Ходжсон, Кирстин ДэвидсонПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3x~00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57B9CC9E692CD2DD693B6A13B93BA1D6E48A63B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168745   (399226) от 01.10.2017
 
 History Channel: История далекого прошлого / Deep Time History (2016) HDTVRip  (3 серии из 3)
@@ -32,7 +6,7 @@ History Channel: История далекого прошлого / Deep Time Hi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399226.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2017) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398273.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396649.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Discovery: Демонтаж (сезон 1-2, серии 1-26 из 26  ) / Decons
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394853.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393831.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ NGW: Дикие болота / Wild Swamplands (2013) HDTVRip [H.264/720p-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391145.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2014-20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391030.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NG: Ловец комет: Миссия "Розетта" (Розетта: пос
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389700.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388837.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387863.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ NGW: Когда акулы нападают / When sharks attack (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387706.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ NGW: История одной гиеновой собаки / A Wild Dog's Tale
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387703.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ NG. Шаньдун: страна Конфуция / Shandong. Land of Confucius 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387692.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ BBC: Коронация (Коронация с ее Величеством Ко�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387600.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387432.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386973.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Discovery. Торговцы космосом (космические дилер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386793.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ NG. Экстремальный Китай. Горы Сыгунян / Extreme Chi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385441.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ GoPro HD: Dreams with Kelia Moniz - Roxy Wahine Classic 2011 (Music from SKY) [1
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385060.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Discovery: 100 величайших гаджетов со Стивеном Фр�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385054.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383558.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383450.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383020.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ NGW: Замбези / The Zambezi (2010) HDTVRip [H.264/720p-LQ] (эпизоды
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383014.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382631.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D90DC242E62CBA43C4FC556D727EFB2A5A1D08AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174770   (382526) от 16.10.2017
+
+History Channel: Библия - Секретные материалы / Bible Secrets Revealed (2013-2014) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библия считается самой старой, читаемой и изучаемой книгой в мире. Но до сих пор многие ее тайны до конца не раскрыты. Кто написал Библию? Когда именно и где она появилась? Как менялся текст Библии? Настолько библейские истории соответствуют реальным историческим событиям? От моральных законов Ветхого Завета до апокалипсических предсказаний в Откровении Иоанна Богослова. (   Читать дальше...   )Производство: США, Prometheus EntertainmentЖанр: Документальный, история, религияРежиссер: Роберт Р. Каргилл, Реза Аслан, Барт Д. ЭрманПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6x ~ 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCE7E91834E15E4FFC1ED447B5922B3CA4B809D
 ```
 
 https://mybot314.ru/tekegram_catalog/

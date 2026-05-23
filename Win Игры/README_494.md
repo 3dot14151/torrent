@@ -1,29 +1,3 @@
-###  Публикация: 1768006   (33303) от 23.12.2024
-
-Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРlay [Forges of Corruption Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Устройте кровавую бойню, разносите врагов на куски. Вас ждёт ураганная стрельба в стилистике классических шутеров 90-х годов во вселенной Warhammer 40 000. Играйте за отважного космического десантника Малума Каэдо, взявшего на себя смертельно опасную миссию. Вам предстоит отыскать осколок таинственного источника энергии на Грайе: этот мир-кузню вот-вот захватят культисты, (   Читать дальше...   )Тип издания: RepackРазработчик: Auroch DigitalЖанр: Экшены, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB10653A0146915FF6551C8915933E76ED6337D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767590   (33281) от 23.12.2024
 
 Hannah (2024) [En] (1.0.10) Repack Let'sРlay
@@ -32,7 +6,7 @@ Hannah (2024) [En] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33281.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33270.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Christmas Stories 13: Clara and the Guiding Star (2024) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33229.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33218.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ HROT (2021) [Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33216.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Iron Oath (2022) [En] (1.0.021) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33214.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33202.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack se
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33201.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33195.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Long Dark (2017) [Ru/Multi] (2.12.148383 S/2.39.149246 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33192.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33189.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Corr Database 2024 (2023) [En] (2024) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33165.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Opening Encyclopaedia 2024 (2023) [En] (2024) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33160.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33159.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Trans Neuronica (2023) [En] (1.0.13) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33154.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.3.311/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33153.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Bear and Breakfast (2022) [Multi] (1.8.29) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33117.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Legend of Heroes: Trails to Azure (2023) [Multi] (1.1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33111.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33107.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33100.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Christmas Wonderland 15 / Рождество. Страна Чудес 15 (2024) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33018.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hollowbody (2024) [En] (g2.2 patch 10 hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33012.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32991.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Low Magic Age (2017) [Multi] (0.91.75.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32985.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32977.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Hellbreach: Vegas - шутер с волнами врагов-демонов. И
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEDCED931526CB87B1A9176649F2EC8D100A0A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768739   (32975) от 26.12.2024
+
+Mouthwashing (2024) [Ru/Multi] (Build 15980018) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mouthwashing - хоррор от первого лица об умирающем экипаже грузового космического корабля, потерпевшего крушение. Кто мог предположить, что наш славный капитан Керли способен на такое? Видимо, он решил, что будет правильно, если его команда погибнет вместе с ним. Но некоторые не в состоянии даже нормально совершить самоубийство... Покалеченный, без рук и ног, не (   Читать дальше...   )Тип издания: RepackРазработчик: Wrong OrganЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088B2311F3461551DDA4D7DB2AA257D31A71E182
 ```
 
 https://mybot314.ru/tekegram_catalog/

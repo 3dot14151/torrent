@@ -6,7 +6,7 @@ Kaspersky Emergency CD/DVD 2010 ML Rus [английский+ русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969117.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Infix PDF Editor 5.28 Professional [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969092.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Privacy Eraser Free 4.8.7 Build 1770 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968771.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FlylinkDC++ r503 build 19393 Stable Portable (x64/x86) + Хаблист [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968770.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Free Studio 6.6.1.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968765.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Glary Utilities Pro 5.43.0.63 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968764.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VSO ConvertXtoDVD 6.0.0.18 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968763.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VSO ConvertXtoHD 2.0.0.18 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968759.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ WinSnap 5.2.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968757.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Auslogics Registry Cleaner Pro 8.4.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968740.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ GnuCash 2.6.11 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968717.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Glary Utilities Pro 5.43.0.63 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968716.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ K-Lite Codec Pack Update 11.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968702.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ BurnAware Professional 13.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968692.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Auslogics Disk Defrag Pro 9.4.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968687.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Unity Pro 2018.4.16f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968686.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ YTD Video Downloader PRO 5.9.15.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968685.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Glary Utilities Pro 5.43.0.63 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968657.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ GnuCash 2.6.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968646.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Auslogics BoostSpeed 11.4.0.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968634.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Opera 66.0 Build 3515.72 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968629.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Exact Audio Copy 1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968624.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Auslogics BoostSpeed Pro 11.4.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968622.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Unity Pro 2019 2.19f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968621.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ TweakBit Driver Updater 2.2.1.53406 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968618.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Re-Loader Activator 2.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968594.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1567754   (470196) от 04.08.2022
-
-Lesser AudioSwitch 2.7.2 Mod by KirIif' [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Lesser AudioSwitch - это практическое приложение, которое предлагает пользователям Android возможность изменять аудиовыход для переключения между наушниками, динамиками или любым другим выходом, включая USB и Bluetooth. В то же время вы также можете изменить микрофон или полностью отключить динамики на большинстве устройств. Еще одна особенность этого приложения (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.11.2021Разработчик: RoughyПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский, Немецкий, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90F36B3DBBDEF59B9401BDFF2084120FC925423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567787   (470077) от 04.08.2022
-
-9GAG: Funny GIF, Meme & Video 6.130.51 (26588) Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-9GAG: Funny Gifs, Pics, Memes & Videos for IGTV - крутой развлекательный проект, что предоставляет пользователям доступ к огромному миру наполненному разнообразнейшим увеселительным контентом. Гифки, мемы, картинки, видеоролики, рассказы и всё прочее, что с лёгкостью повышает настроение и может заставить рассмеяться. При этом вся механика больше напоминает соцсеть (   Читать дальше...   )Тип издания: Pro+Релиз состоялся: 17.07.2022Разработчик: 9gagПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985FA921102DAFCBC7496CF3558833BDDF8B12D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567808   (470076) от 04.08.2022
 
 Lesser AudioSwitch 2.7.2 Mod by KirIif' [Ru]
@@ -58,7 +6,7 @@ Lesser AudioSwitch 2.7.2 Mod by KirIif' [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470076.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Prof Reminder 3.3.5 (Premium) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470053.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ Garmin: Карта Башкирии 2014.50 (июль 2014) <Ru>
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468595.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ OziExplorer WinCE v2.41 [Multi\RU] - Навигация по растровым 
 >>Навигация для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468194.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ Omnia Music Player / Музыкальный плеер Omnia 1.5.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468009.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ Darker (Screen Filter) 4.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466006.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ Mantis Gamepad Pro 1.3.6b Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465913.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ WinZip – Zip UnZip Tool 6.4.0 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465898.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465236.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464959.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464134.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ Twilight Pro - Фильтр синего света 12.17 Mod by Balatan [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464076.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Advanced Download Manager v14.0.13  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463815.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ Free Ringtone Maker / Создатель Рингтона 1.01.41.0613 Mod by Mi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461812.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461811.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ Wombo: Make your selfies sing 3.1.1 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461804.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ Anews: все новости и блоги 4.3.15 Mod by SurvivalHorro [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461799.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ Cool Q Launcher 8.5.1 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461795.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ Magic Book: Match 3 Story v1.1.13 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460672.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ AirScreen - AirPlay & Cast & Miracast & DLNA v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459319.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ GymUp v10.17 Pro [Ru/En] - дневник тренировок
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458956.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ Eternal Calendar (Вечный календарь) 2018.09.10 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458839.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ Universal Diary / Универсальный дневник v2.29 Unlocked [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458825.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455556.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5EB01705207BD1CD61D5F0CFD9E1774DD3C52C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569209   (453347) от 12.08.2022
+
+Гадание на рунах v1.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руны - это древнейшая магическая система, представляющая основные силы природы. На протяжении многих столетий руны использовались для предсказаний и принятия важных решений. Как и гадание на игральных картах или гадание на Таро, руны всегда очень точно предсказывают будущее и помогают выбрать правильную линию поведения.Тип издания: FullРелиз состоялся: 6 апр. 2022 г.Разработчик: Xeen SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FCEA7DA73E4908CB74DB9777DB2E45C68BE89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569282   (453334) от 12.08.2022
+
+XMusic - Музыкальный плеер 2.8.1.90 Mod by @Mod_AppStore [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453334.jpg" />
+</div>
+
+
+###  Подробнее
+
+XMusic - это великолепно исполненный Музыкальный плеер для Android. Музыкальный плеер с отличным эквалайзером, поддержкой всех форматов и стильным пользовательским интерфейсом обеспечит вам наилучшие условия прослушивания музыки. Просматривайте все песни на устройстве Android.Тип издания: PremiumРелиз состоялся: 21.11.2021Разработчик: InShot Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA668D7765E0DA1469B98E5ACAD636D3FE3F45F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

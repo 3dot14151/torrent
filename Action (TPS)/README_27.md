@@ -6,7 +6,7 @@ Way of the Samurai 4 (2015) [En] (1.06.2/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451025.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Control (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450013.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449912.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cross of the Dutchman (2015) [Ru/Multi] (1.0.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446467.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445877.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Alan Wake (2012) [Ru] (1.0.7.33.72514) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444485.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Raven's Cry (2015) [Ru/En] (1.0.0.3/upd5/dlc) Repack =nemos= [Digital Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444053.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Zombie Army Trilogy (2015) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443482.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2/dlc) License PROPHET [Compete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443467.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Cataly
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442988.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Amazing Spider-Man / Новый Человек-паук + DLC [Ru/En/Multi6]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442822.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru] (RePack/1.0u1) 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442814.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Devil May Cry 3: Dantes Awakening. Special Edition [Ru/En] (RePack/1.3.0) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442808.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Way of the Samurai 4 (2015) [En] (1.06.2/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442179.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Shadow Man (1999) [En/Fr] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441207.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Resident Evil (1997) [Ru/En] (1.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441187.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Transformers: Devastation (2015) [En/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439390.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438694.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437774.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ State of Decay: Year One (2015) [Ru/Multi] (1.0/dlc) Repack R.G Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436396.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Murdered: Soul Suspect (2014) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436392.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Beyond Good & Evil (2003) [Ru/Multi] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436391.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ MDK 2 (2000) [Ru/En] (1.003) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436359.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ THYMESIA (2022) [Ru/Multi] (15.17249) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435333.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Doll of Resurrection (2018) [En/Ch] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434630.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434165.jpg" />
 </div>
 
 

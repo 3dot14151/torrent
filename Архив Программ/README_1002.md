@@ -6,7 +6,7 @@ SynWrite 6.39.2750 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540451.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paragon Hard Disk Manager 15 Business 10.1.25.772 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540389.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Novicorp Remove Windows 10 Spying 1.0.0000 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540385.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Internet Download Manager 6.26 Build 1 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540376.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BurnAware Professional 9.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540367.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FinePrint 9.31 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540349.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ KLS Backup 2017 Professional 9.0.1.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540338.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WebcamMax 7.6.5.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540313.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ TeamViewer 12.0.81460  RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540310.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540292.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540280.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ LiteManager 4.6.2 Free / Pro [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540273.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Destroy Windows 10 Spying 1.4.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540265.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ LibreOffice 5.2.1 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540224.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ EssentialPIM Pro 7.11 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540212.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Any DVD Converter Professional 4.4.2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540188.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Autodesk Inventor (Pro) 2018.1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540180.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Wise Care 365 Pro 1.81.136 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540177.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ AAct 3.3 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540152.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Smith Micro Moho Pro 12.2 Build 21774 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540150.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Bandicam 3.2.3.1113 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540112.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Kaspersky Rescue Disk 10.0.31.4 (05.08.2012) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540050.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ MediaCoder 0.8.13 Build 5267 [Multi|Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540047.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Actual Window Manager 8.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540009.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Hard Disk Sentinel Pro 4.10 Build 5816 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539944.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Windows Repair (All In One) 1.8.0 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539939.jpg" />
 </div>
 
 

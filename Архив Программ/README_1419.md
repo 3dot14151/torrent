@@ -6,7 +6,7 @@ LogViewPlus 2.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317477.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Topaz Gigapixel AI 5.2.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317413.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Topaz Gigapixel AI 5.2.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317409.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ InPixio Photo Maximizer Pro 5.11.7612 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317408.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Light Image Resizer 6.0.4.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317405.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MiniTool Power Data Recovery 9.1 Technician RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317403.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WinTools.net Premium 20.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317393.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ inPixio Photo Cutter 10.4.7612 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317389.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Kvisoft FlipBook Maker Pro v3.6.6 Final + Русификатор от Boomer [М
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_317322.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Icecream Slideshow Maker 1.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317317.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Icecream Image Resizer 1.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317315.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ inPixio Photo Focus 4.11.7612 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317297.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Telegram Desktop 2.4.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317295.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Total Uninstall 7.0.0 Professional Edition RePack (& Portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317191.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Mailbird Pro 2.9.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317181.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ SsdReady 1.10.0.79 (1 build 77) [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_317096.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Comodo Dragon 45.8.12.389 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317085.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ CoolUtils Total Image Converter 5.1.95 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317084.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ CCleaner 5.12.5431 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317082.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Adobe Shockwave Player 12.2.2.172 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317070.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ CocCoc 66.4.130 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317064.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Slimjet 16.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317048.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v1.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317032.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.30.5500 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317016.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Icecream Ebook Reader 2.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316970.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Icecream PDF Split and Merge PRO 2.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316963.jpg" />
 </div>
 
 

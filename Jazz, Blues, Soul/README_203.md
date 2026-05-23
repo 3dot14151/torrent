@@ -6,7 +6,7 @@ Harry Allen - Here's To Zoot (2001) Novus J [FLAC|Lossless|image + .cue] <Mainst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654021.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Harry Allen - Once Upon A Summertime (1999) Novus J [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654019.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ann Hampton Callaway - Slow (2004) Shanachie [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653993.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Harry Allen Quartet - For The King Of Swing (2009) Swing Bros. [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653984.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lou Donaldson - Blue Breakbeats (1963 - 1970) 1998, Blue Note [APE|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653931.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eric Assmar - Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653900.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Justin Quinn Band - Lazy By Nature (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653870.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ John Di Martino's Romantic Jazz Trio - Chopin Jazz (2010) Venus Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653862.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Me Outside Pt. 2 (2018) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653759.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Billy Craig - To Come To Us (2015) [MP3|320 кб/с]<Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653562.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Milt Jackson - Wizard Of The Vibes (1998) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653560.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Al Cohn, Bill Perkins, Richie Kamuca - The Brothers! (2011) [MP3|320 кб/с]<Ma
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653552.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Charles Wilson - Sweet & Sour Blues (2015) [MP3|320 кб/с]<Blues Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653551.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Screamin' Jay Hawkins - Portrait Of A Man (2015) [MP3|320 кб/с]<Blues Soul, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653550.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Al Cohn, Bill Perkins, Richie Kamuca - The Brothers! (2011) [FLAC|tracks+.cue]<M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653549.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Renato Sellani - Chopin (2010) [FLAC|Lossless]<Jazz, Cool, Piano Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653548.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Don Byas Quartet - The Complete (1946-1954) 3 CD Remastered /2011, Solid Jazz Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653546.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Vivian Vance Kelly - Hit Me Up (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653545.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Peter Struijk - Straight Blues (2015) [MP3|320 кб/с]<Acoustic Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653543.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Lucky Losers - A Winning Hand (2015) [MP3|320 кб/с]<Blues Soul, Modern El
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653542.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Barbara Blue - Memphis Blue: Sweet, Strong, & Tight (2015) [MP3|320 кб/с]<Mod
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653465.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Larry Coryell - Heavy Feel (2015) [FLAC|Lossless]<Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653461.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Milton Nascimento - Anima (1982) /1988, Philips/ [FLAC|tracks+.cue]<World Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653458.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sonny Landreth - Bound By The Blues (2015) [MP3|320 кб/с]<Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653450.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Kentucky Headhunters with Johnnie Johnson - Meet Me In Bluesland (2015) [MP3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653440.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Cherry Poppin' Daddies - Please Return The Evening (2014) [FLAC|image+.cue]<Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653380.jpg" />
 </div>
 
 

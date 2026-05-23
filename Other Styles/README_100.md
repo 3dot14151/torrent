@@ -6,7 +6,7 @@ Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525966.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbp
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525820.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Inst
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525466.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525281.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525218.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524848.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524847.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Latin Fitness:Summer Edition (2018) [MP3|320 Kbps] <Rumba, Salsa, Brazilian
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524462.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hildur Gudnadottir - Chernobyl / Чернобыль (Music from the HBO Miniseri
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524332.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524220.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rondo Classico - Carnevalo (1990) [FLAC|Lossless|image + .cue] <Instrumental, Cl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522964.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rondo Classico - Yellow River (2002) [FLAC|Lossless|image + .cue] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522925.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Sy
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522189.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Fausto Papetti - Magic Sax, Vol. 2 (1989) /Sony Music/ [FLAC|tracks+.cue]<Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521540.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, A
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521471.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521322.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521071.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Pakarina - 4 albums (2010-2012) [MP3|320 kbps]<New age, Instrumental, Native ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520774.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520309.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Nickos Chortis - Elements (2015) [MP3|320 кб/с]<Ambient, New Age, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519591.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Kevin Monaco - Endless Sky (2018) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519211.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519197.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Wayra Nan - Music Zum Traumen (2012) [MP3|320 кб/с]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518695.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Lisa Mitts - Heart Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pian
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518410.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - Absolute 60's (2018) [MP3|320 Kbps] <Blue-Eyed Soul, Rhythm and Blues, Schl
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518215.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518170.jpg" />
 </div>
 
 

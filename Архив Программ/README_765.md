@@ -6,7 +6,7 @@ Dr.Web Security Space 11.0.5.5180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660919.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 45.0.2552.888 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660912.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Internet Download Manager 6.28 Build 11 RePack by KpoJIuK (01.06.2017) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660908.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Malwarebytes Anti-Malware Premium 3.1.2.1733 DC 31.05.2017 RePack by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Actual Multiple Monitors 8.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660895.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hide Folders 5.2 Build 5.2.1.1115 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660890.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RonyaSoft Poster Printer 3.2.16 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660869.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ZBrush 2022.0.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660846.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MInstAll v.20.02.2022 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660841.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Advanced SystemCare Pro 10.4.0.760 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660804.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ DAEMON Tools Pro 8.2.0.0708 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660802.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Corel PaintShop Pro X7 17.3.0.30 SP3 RePack by alexagf [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660784.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AutoRuns 13.40 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660781.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sandboxie 4.18 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660730.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ YTD Video Downloader PRO 5.9.7 (20180503) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660720.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ DAZ Studio 4.8.0.55 Pro Edition + Extra Addons [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660690.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ WinRAR 5.60 Beta 4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660653.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Maxthon 3.1.1.600 beta [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660632.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Adobe Acrobat Reader DC 2018.011.20040 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660608.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Veeam Agent 2.1.0.423 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660607.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Windows 10 Pro 1803 x86/x64 by kuloymin v13.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660605.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Acrobat Pro DC 2018.011.20040 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660598.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Kaspersky World 1.3.5.99 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_660383.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Junkware Removal Tool 6.8.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660295.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Junkware Removal Tool 6.8.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660233.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Download Master 6.4.1.1465 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660229.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1645738   (195879) от 11.07.2023
-
-Time Loader (2021) [Ru/Multi] (1.6.7) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Time Loader - игра-головоломка, пропитанная ностальгией по 90-м годам. Погрузитесь В музыку прошлого и прикоснитесь к ретро-технологиям. Вам предстоит управлять маленьким роботом, который совершает путешествие в прошлое, а также попадает в параллельные миры. Ваша главная цель - предотвратить трагический инцидент.Тип издания: LicenseРазработчик: FlazmЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A844A26C5F2AF389AB57F7D0EE7872EB6BCCDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645608   (195831) от 10.07.2023
 
 Maximum Action (2018) [En] (0.92) License GOG [Early Access]
@@ -32,7 +6,7 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195831.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sky Haven Tycoon - Airport Simulator (2022) [Ru/Multi] (1.0.0.289) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195829.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195826.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Radio Commander (2019) [Ru/Multi] (1.155g/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195824.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (7.61/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195804.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195798.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Skydrift Infinity (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195702.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195684.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Atelier Marie Remake: The Alchemist of Salburg (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195658.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Bucket Knight (2019) [Ru/Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195631.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195622.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Dark Pictures Anthology: Man of Medan (2019) [Ru/Multi] (Build 10739751/dlc)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195589.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Total War: Shogun 2 (2011) [Ru/Multi] (1.1.0.6262.2931569/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195581.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195567.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195563.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195561.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ OXENFREE II: Lost Signals (2023) [Multi] (1.2.14) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195532.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Life is Strange Remastered Collection (2022) [Ru/Multi] (11330282/11258280) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195473.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Absolute Drift (2015) [En] (5f6049d) License GOG [Zen Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195437.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Rule of Land: Pioneers (2023) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195395.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Cave (2013) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195390.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195387.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195366.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195345.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ REMEDIUM: Sentinels (2023) [Ru/Multi] (11729250) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195307.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Remedium: Sentinels – это автошутер с элементами roguel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC9A508EF96B327FCA74A20FE8871EA76E139CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648183   (195301) от 22.07.2023
+
+Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит играть за молодую девушку по имени Сейда, у которой монстры похищают ребенка. Ситуация на планете ужасает: мир умирает из-за неизвестной чумы, люди в панике и полностью пали духом. Живёт только одно поселение на всей Земле. Название говорящее – Последний город (Last City). И в таком депрессивном окружении ещё и дочку утащили адские существа.Тип издания: SceneРазработчик: Duality GamesЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E804F2C4C1D98A78651DC991B314F51D2E060D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

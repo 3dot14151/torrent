@@ -1,55 +1,3 @@
-###  Публикация: 1574497   (385183) от 05.09.2022
-
-Стоп-кран / Attention au depart! (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Непутёвому папаше, который с трудом справляется со своим собственным сыном, доверяют отвезти в летний лагерь компанию неугомонных детей, которая так и норовит избавиться от опеки взрослых и устроить вокруг себя полный Армагеддон. Помогать ему в этом деле вызывается «дедушка лёгкого поведения», вместе с которым они умудряются посадить всех детей в вагон, но не успевают (   Читать дальше...   )Производство: Франция, Бельгия / Les Films du Castel, M6, M6 FilmsЖанр: КомедияРежиссер: Бенжамен ЭврарАктеры: Андре Дюссолье, Жером Коммандёр, Джонатан Ламбер, Нильс Отенен-Жерар, Шарли де Витте, Лео Дюссолье, Мари-Жюли Бо, Леклер Фердинанд, Мельхиор Герле, Селеста ЭвагораПеревод: Дублированный (Akimbo Production)Язык озвучки: русский, французскийСубтитры: ОтсутствуютПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176C437E2CE8450061167CFB2061197A8BC4BDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414469   (385169) от 08.10.2020
-
-В поисках Стива Маккуина / Ограбление президента / Finding Steve McQueen (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Голливудская внешность, неординарный ум, страсть к скорости и красивым женщинам... В этом весь он. Однако, он – не тот, за кого себя выдает. В 1972 году на поиски человека, называющего себя Стивом Маккуином, в Калифорнии были брошены силы десятков агентов ФБР. Вор не только присвоил себе имя знаменитого актера, но вдобавок дерзнул ограбить самого президента США, (   Читать дальше...   )Производство: США, AMBI Group, BondIt Media Capital, Identity FilmsЖанр: Мелодрама, криминалРежиссер: Марк Стивен ДжонсонАктеры: Трэвис Фиммел, Рэйчел Тейлор, Джейк Вири, Уильям Фихтнер, Форест Уитакер, Лили Рэйб, Риз Койро, Джон Финн, Луис Ломбарди, Молли МакКуинПеревод: Дублированный (iTunes), Многоголосый закадровый (HDrezka Studio)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4775E7305B1EFDA7CDFE88CE6E85368214AEDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253190   (385101) от 08.10.2018
 
 Страна призраков / Ghostland (2018) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385101.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385092.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385070.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385039.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385018.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385009.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384977.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384973.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384970.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384951.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384893.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384891.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384890.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384887.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384886.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384838.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384835.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384832.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384810.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384796.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384758.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384750.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384727.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384720.jpg" />
 </div>
 
 
@@ -671,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE726B6DC42633C1ACA1D6660ECFA90C1BE663E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174458   (384674) от 15.10.2017
+
+Розовая Пантера / The Pink Panther (2006) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ужасно некомпетентный и неуклюжий в своих суждениях инспектор из Франции Клузо, который остается при своей должности лишь благодаря своему невероятному везению, расследует дело об убийстве тренера национальной футбольной команды. Но это не все, чем он занимается, ведь по ходу своего расследования инспектор пытается докопаться до истины в деле о пропаже всемирно известного (   Читать дальше...   )Производство: СШАЖанр: Комедия, Криминал, Детектив, ПриключенияРежиссер: Шон Леви / Shawn LevyАктеры: Стив Мартин, Кевин Клайн, Жан Рено, Эмили Мортимер, Генри Черни, Кристин Ченоуэт, Бейонсе Ноулз, Уильям Абади, Роджер Рис, Филлип Гудвин, Анри Гарсен, Дэниэл Саули, Жан Делл, Анна Катарина, Ник Торен, Сэлли Люн Байер, Шарлотта Мэйер, Стефан Буше, Раду Спингель, Скотт Эдкинс, Ян-Сан Руссель, Борис МакГайвер, Стивен Роу, Элис Тальони, Грегори Салата, Стефан ЭлбаумПеревод: Дублированный, двухголосый закадровыйСубтитры: русские, английскиеПродолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF432048E0BBA8B9E9CAB62D21CD084BC7DCA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174420   (384672) от 15.10.2017
+
+Одинокие сердца / Lonely Hearts (2006) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная на реальных событиях история двух детективов, преследующих убийц Марту Бек и Раймона Мартинеза Фернандеза, известных под прозвищем «Одинокие сердца», орудовавших в США в конце 40-х годов.
+Они убивали одиноких вдов, которые отвечали на рекламу в газете, где Раймон описывал себя горячим латиноамериканским любовником. Парочка жестоко убила около 20 женщин, (   Читать дальше...   )Производство: Германия, СШАЖанр: Триллер, драма, мелодрама, криминалРежиссер: Тодд РобинсонАктеры: Джон Траволта, Джеймс Гандольфини, Джаред Лето, Сальма Хайек, Скотт Каан, Лора Дерн, Майкл Гэстон, Брюс МакВитти, Дэн Берд, Эндрю Вилер ...Перевод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2F26BFD1482F1412BDCDF14A0B3580D252B53D
 ```
 
 https://mybot314.ru/tekegram_catalog/

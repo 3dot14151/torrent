@@ -1,56 +1,3 @@
-###  Публикация: 382501   (1021250) от 13.04.2021
-
-А.Г. Арушанова, Р.А. Иванкова , Е.С Рычагова | Разные словечки. Игровые диалоги. Сюжетные и речевые игры (2006) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Это пособие для индивидуальной работы по развитию речи с детьми дошкольного возраста. В основе методики лежит любовь детей к «сочинительству». Создавая воображаемые ситуации и сочиняя необыкновенные сказки, ребенок не только пополнит словарный запас и разовьет связанную речь, но и научится не бояться творить. Пособие предназначено работникам детских дошкольных учреждений (   Читать дальше...   )Жанр: Развитие речиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6907B50D9AA8BF741ABCDC46F21AED7755FB2596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296578   (1021245) от 13.04.2021
-
-И.Ю. Матюгин, Е.И. Чакаберия, И.К. Рыбникова, Т.Б. Слоненко, Т.Н. Мазина | Как запоминать цифры (1997) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга открывает собой серию книг по эйдетике. Поразительная сила образов (или эйдосов, как их называли древние греки) была известна человечеству с древнейших времен.
- В настоящее время эйдетизм рассматривается как разновидность образной памяти, выраженная в сохранении ярких, наглядных образов предметов. Обладающий эйдетизмом человек не воспроизводит в памяти воспринимавшиеся (   Читать дальше...   )Жанр: Обучение, воспитание детейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F01EAEEEE115E94F286F40ED067D27C528E29F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 193656   (1021242) от 13.04.2021
 
 Андрей Усачев | Таблица умножения в стихах (2009) [DJVU]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021242.jpg" />
 </div>
 
 
@@ -88,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021114.jpg" />
 </div>
 
 
@@ -114,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021095.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021094.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021090.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021074.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021070.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ O.B. Александрова | Учим таблицу умножения (2012
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021067.jpg" />
 </div>
 
 
@@ -273,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020889.jpg" />
 </div>
 
 
@@ -300,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020812.jpg" />
 </div>
 
 
@@ -328,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020757.jpg" />
 </div>
 
 
@@ -355,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020740.jpg" />
 </div>
 
 
@@ -382,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020730.jpg" />
 </div>
 
 
@@ -410,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020728.jpg" />
 </div>
 
 
@@ -436,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020675.jpg" />
 </div>
 
 
@@ -463,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020604.jpg" />
 </div>
 
 
@@ -489,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020600.jpg" />
 </div>
 
 
@@ -515,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020596.jpg" />
 </div>
 
 
@@ -541,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020589.jpg" />
 </div>
 
 
@@ -567,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020568.jpg" />
 </div>
 
 
@@ -593,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020566.jpg" />
 </div>
 
 
@@ -619,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020553.jpg" />
 </div>
 
 
@@ -645,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020491.jpg" />
 </div>
 
 
@@ -671,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020472.jpg" />
 </div>
 
 
@@ -683,6 +630,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C99E211EBF2832746874485A7B717DEA8A748BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463495   (1020470) от 18.04.2021
+
+Н.Д. Горбачева (ред.) | Английский язык. Все правила для начальной школы (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга содержит все темы учебной программы по английскому языку для начальной школы. В конце пособия помещены полезные приложения, которые помогут в трудных случаях и при выполнении домашних заданий.
+Универсальный помощник в школе и дома! Книга предназначена для учеников 1-4 классов.Жанр: Иностранные языки/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F443926031CDEE243F097C8CAF17C8B21DCA4EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463473   (1020438) от 18.04.2021
+
+В. Эванс, Д. Дули, Е.Г. Маневич, А.А Полякова, В.А. Цыбанева | Options. 10 Сlass [3 книги + CD] (2019-2020) [PDF, MP3]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник является центральным элементом учебно-методического комплекта серии «Мой выбор – английский» (“Options”) для учащихся 10-11 классов общеобразовательных организацией, начинающих изучать английский язык в 5 классе в качестве второго иностранного языка. Отличительной особенностью УМК является модульное построение учебника, наличие аутентичного материала о России, (   Читать дальше...   )Жанр: Учебник/Книга для учителя/Рабочая тетрадьФормат: PDF, MP3Продолжительность: 03:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0E36955D8B1BD3720B307153CC711629E26A9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

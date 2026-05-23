@@ -6,7 +6,7 @@ NG: Когда сталкиваются континенты / When Continents C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620928.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: В пещере кристаллов / Into the Crystal Cave (2010) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619502.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG.Запреты: Экстремальное лечение / NG.Taboo: Freaky 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619126.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618968.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618964.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618345.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: 42 способа убить Гитлера / National Geographic 42 Ways to
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_618066.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617815.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616957.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616842.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG: Осушить океан: глубокое погружение. Сабот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616834.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: Акула против тунца / Shark vs Tuna (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616830.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616778.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NG: С точки зрения науки: Магнитное поле Земл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615934.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Самые опасные животные Африки: Ботсвана /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614928.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614916.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613841.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613064.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612432.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610436.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610433.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610028.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609930.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NG: Египет с высоты птичьего полета / Egypt from Abov
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608274.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607640.jpg" />
 </div>
 
 

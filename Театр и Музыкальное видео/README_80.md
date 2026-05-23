@@ -1,113 +1,3 @@
-###  Публикация: 699272   (489127) от 12.09.2013
-
-Madonna - MDNA World Tour (2013) HDTV [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Virgin Mary (Intro)
-02. Girl Gone Wild
-03. Revolver
-04. Gang Bang(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3196A078B7294699932F2421306B5BF8F1090C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381980   (489017) от 03.09.2011
-
-Sting. A Winter's Night... Live From Durham Cathedral (2009) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Стинг, культовый певец из Великобритании, научил поклонников своего творчества быть готовыми к сюрпризам, которые ждут их на его новых работах. Чего стоит один альбом Songs From The Labyrinth, где компанию певцу составила исключительно средневековая музыка, да и то сыгранная на одном только инструменте. Та пластинка получилась настолько сильной, настолько яркой, (   Читать дальше...   )01. Gabriel's Message
-02. Soul Cake
-03. There Is No Rose Of Such Virtue
-04. The Snow It Melts The Soonest(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6EA9BFFE672D05E852EACAC2FD0A9F2A28AAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544820   (487700) от 09.09.2012
-
-MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9D772DD47C3F25018C44E522CAB826AB56A1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544823   (487697) от 09.09.2012
-
-Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9416E27CA3676B3FE08A4A5371B224C264AAC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544847   (486785) от 09.09.2012
 
 Сборник клипов - VA - Various Music part. 33 (2012) WEBRip 720p, 1080p
@@ -116,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486785.jpg" />
 </div>
 
 
@@ -142,7 +32,7 @@ Animusic HD (2010) BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486504.jpg" />
 </div>
 
 
@@ -168,7 +58,7 @@ Tarja Turunen - Act 1 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486411.jpg" />
 </div>
 
 
@@ -203,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486075.jpg" />
 </div>
 
 
@@ -229,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485854.jpg" />
 </div>
 
 
@@ -256,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485749.jpg" />
 </div>
 
 
@@ -283,7 +173,7 @@ Legends of Jazz with Ramsey Lewis, Vol. 2, 3 (2006) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485105.jpg" />
 </div>
 
 
@@ -309,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484987.jpg" />
 </div>
 
 
@@ -336,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484718.jpg" />
 </div>
 
 
@@ -362,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484611.jpg" />
 </div>
 
 
@@ -388,7 +278,7 @@ VA - Осенний марафон № 190 / Видеоклипы (Осенни�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483720.jpg" />
 </div>
 
 
@@ -417,7 +307,7 @@ V. A. - Smoke On The Water (The Metropolis Sessions of Rock Aid Armenia)(1989) D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482997.jpg" />
 </div>
 
 
@@ -446,7 +336,7 @@ Rolling Stones - Let's Spend the Night Together (1983) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482911.jpg" />
 </div>
 
 
@@ -472,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482904.jpg" />
 </div>
 
 
@@ -498,7 +388,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482854.jpg" />
 </div>
 
 
@@ -524,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482690.jpg" />
 </div>
 
 
@@ -550,7 +440,7 @@ Pharrell Williams - iTunes Festival London (2014) WEB-DL [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481851.jpg" />
 </div>
 
 
@@ -579,7 +469,7 @@ Shar Airag Rock Band - Tribute to Pink Floyd (2013) WEBRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481626.jpg" />
 </div>
 
 
@@ -608,7 +498,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481617.jpg" />
 </div>
 
 
@@ -637,7 +527,7 @@ Queen - Live At The Rainbow '74 (2014) SD Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481543.jpg" />
 </div>
 
 
@@ -666,7 +556,7 @@ I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479770.jpg" />
 </div>
 
 
@@ -695,7 +585,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479750.jpg" />
 </div>
 
 
@@ -709,6 +599,116 @@ Europe почти четыре десятка лет играют мелодич
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42C887296BA0BC454ECA382DC80BB16456D14186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244594   (479729) от 02.09.2018
+
+Квартирник на НТВ у Маргулиса. Юрий Стоянов (09.01.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479729.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту субботу в атмосферную студию Евгения Маргулиса пришел российский актер театра и кино, народный артист России Юрий Стоянов. Он сыграл на гитаре, исполнил любимые композиции, а также поделился интересными воспоминаниями.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C68D712B2E1B858C8B73DD7A6BE749F827B316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938637   (479676) от 19.09.2015
+
+VA - Осенний марафон № 191 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (18.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A Great Big World  ft. Futuristiс - Hold Each Other (Official Video) (00:03:40)
+2. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
+3. Anda Adam - Save Me Tonight (Official Video) (00:03:06)
+4. Anja Nissen - Triumph (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, IndieПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F766EF1ADE20D825EBB23C9EF71C9F367230D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 140808   (479593) от 16.09.2009
+
+The Beatles - документальные ролики из ремастерированного бокс сета / The Beatles - The Mini Documentaries - Box Set Remastered (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка / RockСубтитры: English - French - German - Spanish - Italian - Brazilian Portuguese - DutchФормат: NTSCПродолжительность: ~00:50:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938654   (479453) от 19.09.2015
+
+Slayer - Repentless (Live At Wacken) (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертное выступление Slayer на Wacken Open Air в 2014 году. Входит бонус-диском в комплект к лимитированному изданию нового альбома "Repentless".1. Intro
+2. Hell Awaits
+3. The Antichrist
+4. Mandatory Suicide(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52910E7F00701A687DE75CC4950656FC37D4F27
 ```
 
 https://mybot314.ru/tekegram_catalog/

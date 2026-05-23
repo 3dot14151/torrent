@@ -6,7 +6,7 @@ Michael Goldfarb | Houdini 17 Rigging Series 2 (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015940.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Создание твёрдотельн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015199.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FlippedNormals, Mauricio García | 3D Art Characters In Zbrush - 16 Vols - Basic
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015194.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Udemy, Victor Deno | Создание PBR арта в Blender 2.90: Sci-fi ящ�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015064.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014908.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ FlippedNormals, Emiel Sleegers | Создание ассетов героя - У
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014751.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sergey Gricay | Dynamic wall SD Video tutorial Part 1 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014674.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Anthony Eftekhari | 3D Matte Painting Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014629.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ FlippedNormals, Konrad Hetko | Создание лицевого рига в Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014597.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ James Paick | Creative Environments for Games Part 1 of 4 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014479.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Eytan Zana | Color and Light (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014474.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Julien Gauthier | Octane for Concept Art - Beginner (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014459.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Maciej Kuciara | Environment for Video Games: Callouts (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014456.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Anthony Eftekhari | Concept Art for Production (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014432.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Kurt Papstein | Character Creation in ZBrush (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014424.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014406.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014402.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ James Paick | Environment Basics 2 Perspective & Layout (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014344.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ James Paick | Environment Basics 4 Lighting & Textures (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014341.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Eytan Zana | Graphic Composition For Environments (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014336.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Ben Adler | Intro to PBR in Unreal Engine 4 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014325.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Nate Hallinan | Painting Fur (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014324.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ James Paick | Environment Basics 1 Basic Composition & Values (2015) PCRec [En, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014321.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Mario Brajdich | Mastering 3D Modeling In Cinema 4D Part 1-3 (2017) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014257.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ CG Cookie, Kent Trammell | Создание реалистичного пром�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014110.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014073.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1815727   (4917) от 31.08.2025
-
-Олег Кинчин | S.T.A.L.K.E.R. Чертог Красного Бога (2025) [MP3, CHUGA]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Чернобыльская зона отчуждения стремительно меняется после второго взрыва, именуемого выбросом. Главный герой после неудачи в бизнесе принимает спонтанное предложение от давнего друга попробовать набирающий популярность в узких кругах способ получения прибыли - отправиться в зону отчуждения за диковинными порождениями. В обозначенном месте Никита находит пустую палатку. (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 09:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05007D569043EFF7B6355A0C21ABA51901FA8966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815652   (4916) от 31.08.2025
-
-Виталий Хонихоев | Сяо Тай (Книга 1). Сяо Тай, специалист по переговорам (2024) [MP3, Милисента]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мир Жемчужин Ци и Лепестков Лотоса, крадущихся тигров и затаившихся драконов, могущественных кланов и тайных сект, интриг и заговоров. Бедная девушка, да еще и бывшая преступница не защищена ничем и уязвима перед этим миром. Сможет ли она выжить? Выжить и преуспеть, вскарабкаться на сияющую вершину власти и силы?Жанр: Фэнтези, юморИздательство: Аудиокнига своими рукамиПродолжительность: 10:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA44476C7E0D7A915A510A7E6A257034F62EE9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815657   (4913) от 31.08.2025
-
-Виталий Хонихоев | Сяо Тай (Книга 3). Сяо Тай и клан Фениксов (2024) [MP3, Милисента]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательного цикла про молодую девушку Сяо Тай. Перед Сяо Тай открываются новые возможности, она знакомится с новыми людьми и продолжает жить, стремясь покорить новые вершины и наконец стать полноправной хозяйкой своей собственной судьбы.Жанр: Фэнтези, юморИздательство: Аудиокнига своими рукамиПродолжительность: 10:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D667E2971A80A7DCDAEE248715F2ED86FE82BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815655   (4912) от 31.08.2025
 
 Виталий Хонихоев | Сяо Тай (Книга 2). Сяо Тай и разбойники горы Тянь Ша (2024) [MP3, Милисента]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4912.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4878.jpg" />
 </div>
 
 
@@ -140,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4877.jpg" />
 </div>
 
 
@@ -168,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4825.jpg" />
 </div>
 
 
@@ -196,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4811.jpg" />
 </div>
 
 
@@ -222,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4809.jpg" />
 </div>
 
 
@@ -248,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4807.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4805.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4804.jpg" />
 </div>
 
 
@@ -327,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4801.jpg" />
 </div>
 
 
@@ -353,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4797.jpg" />
 </div>
 
 
@@ -381,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4794.jpg" />
 </div>
 
 
@@ -410,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4784.jpg" />
 </div>
 
 
@@ -438,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4780.jpg" />
 </div>
 
 
@@ -467,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4778.jpg" />
 </div>
 
 
@@ -494,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4775.jpg" />
 </div>
 
 
@@ -522,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4682.jpg" />
 </div>
 
 
@@ -548,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4662.jpg" />
 </div>
 
 
@@ -574,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4641.jpg" />
 </div>
 
 
@@ -600,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4639.jpg" />
 </div>
 
 
@@ -626,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4636.jpg" />
 </div>
 
 
@@ -654,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4547.jpg" />
 </div>
 
 
@@ -681,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4523.jpg" />
 </div>
 
 
@@ -693,6 +615,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:913A2170BAC39D0D770A060984CB27C9B7552D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816376   (4421) от 04.09.2025
+
+Дэвид Раффл | Шерлок Холмс и ужас Лайм-Реджиса (2022) [MP3, Юрий Тенман]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые расследования Шерлока Холмса.Жанр: ДетективИздательство: Аудиокнига своими руками / неофициальное издание профессионального актёраПродолжительность: 07:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACC370E954CB33ED6247167CC00FD53C9AFC89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816399   (4411) от 04.09.2025
+
+Уильям Тенн | Фауст (2021) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4411.jpg" />
+</div>
+
+
+###  Подробнее
+
+В офис к торговцу Берни ввалился какой-то оборванный и измазанный грязью бродяга, предложивший купить ему двадцать долларов за пять. Сперва Берни отнесся к предложению скептически, выгнал бродягу, но тот успел оставить ему визитную карточку, что очень странно для бездомного. Профессиональное любопытство заставило Берни найти своего «коллегу» по указанному адресу (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8C1067815C6AA8FB67F87F4DEEC751C3F8FE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816549   (4294) от 05.09.2025
+
+Генрик Сенкевич | Повести и рассказы (2021) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+Генрик Сенкевич (1846–1916) – польский писатель, автор исторических романов, лауреат Нобелевской премии по литературе 1905 года, принадлежал к плеяде выдающихся польских реалистов XIX века.
+В ранних повестях и рассказах, представленных в предлагаемом сборнике, виден интерес автора к темам угасания патриархального быта («Старый слуга», (   Читать дальше...   )Жанр: Зарубежная литература, классика, повесть, рассказПеревод: Вукол ЛавровИздательство: Студия «АРДИС»Продолжительность: 14:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B170482C3A69505154C76FC6E4CBBF628F5360
 ```
 
 https://mybot314.ru/tekegram_catalog/

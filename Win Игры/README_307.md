@@ -1,29 +1,3 @@
-###  Публикация: 1836581   (254361) от 11.11.2025
-
-Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В роли единственного выжившего из Убежища 111 вам предстоит отправиться в путешествие по миру, испепеленному ядерной войной. Опасности поджидают на каждом шагу, а каждое решение имеет свои последствия. Стройте, восстанавливайте и покоряйте Пустошь - так, как захотите. Добро пожаловать домой.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7067B3EA45237BADD95FF438A43380A3A8F086FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836699   (254199) от 12.11.2025
 
 Slayer: The Demon Haunted World (2025) [Ru/Multi] (Build 20761750) Repack Let'sРlay
@@ -32,7 +6,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (Build 20761750) Repack Let's�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254199.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Wartorn (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254095.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Wartorn (2025) [Ru/Multi] (Build 20757091) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254072.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Weather Lord  / Повелитель погоды (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253851.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Fabled Legends: The Dark Piper Collector's Edition / Небывалые леге
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253847.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sonic the Hedgehog 4: Episode 2 [Multi5/-] (RePack) 2012 | R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253580.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Warhammer 40 000: Dawn of War 2: Retribution + DLC [Ru/En] (Steam-Rip/3.19.1.612
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253545.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Dark Alleys: Penumbra Motel Collector's Edition / Темные аллеи. Мо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253527.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Sonic the Hedgehog 4: Episode 2 (P) [Multi5/-] 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253522.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ CRABS MUST DIE! (2025) [Ru/En] (20696190) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253110.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Paradise Killer (2020) [En] (1.3.0) License GOG [Perfect 25 Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253094.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Creepy Tale Collection (2020-2024) [Ru/Multi] (1.0.2d/1.0.1d/1.1/1.0.8) Repack N
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253079.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ The Treasures of Hotei (P) [En] 2012
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252989.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Diablo III/3 [Multi9] (L) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252787.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252777.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252572.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Majogami (2025) [Multi] (20659537) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252571.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ The Bench (2025) [Ru/Multi] (1.0.107) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252570.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252537.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252531.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252483.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (Build 20347223) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252482.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252481.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ ACRES (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252479.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252478.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCED184D787398C8BE3FB21C02513D941D2F52AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836149   (252477) от 09.11.2025
+
+Cat Town (2022) [Multi] (1.0) Scene DARKSiDERS
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения в Cat Town переносят геймеров на небольшое ранчо, куда приезжает главная героиня. Девушка сталкивается с несколькими бездомными котами и приручает их, постепенно облагораживая окружающую местность. Игра выполнена в виде песочницы, где пользователи будут заниматься разведением кошачьего потомства и улучшать собственный участок. Придется зарабатывать бонусные (   Читать дальше...   )Тип издания: SceneРазработчик: 수석 재단사Жанр: Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAD89597E5B2BBB568BC9DF8E2F619E3A5E4C4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

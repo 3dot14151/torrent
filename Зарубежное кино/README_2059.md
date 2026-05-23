@@ -1,55 +1,3 @@
-###  Публикация: 471576   (83765) от 22.03.2012
-
-Убойное Рождество Гарольда и Кумара / A Very Harold & Kumar 3D Christmas (2011) [1080p] Blu-ray 3D [3D/2D]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Прошло шесть лет после приключения в проливе Гуантанамо. На этот раз закадычные друзья Гарольд Ли и Кумар Пател сорвали праздник, случайно спалив дотла призовую рождественскую ель тестя Гарольда...Жанр: КомедияРежиссер: Тодд Штраус-ШульсонАктеры: Джон Чо, Кэл Пенн, Нил Патрик Харрис, Пэттон Освальт, Изабелла Жельняк, Остин Бикел, Инга Р. Уилсон, Бобби Ли, Томас Леннон, Амир Блюменфилд, Дэнни ТрехоПеревод: Профессиональный, закадровый многоголосый (студия "Кубик в кубе")Продолжительность: 01:29:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472010   (83762) от 22.03.2012
-
-Q: Загадка женщины / Q (2011) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Когда судьба приводит людей на грань отчаяния, единственным способом вновь ощутить вкус жизни может стать нежданный аттракцион грандиозных чувственных наслаждений, которые способна дарить каждому новому знакомому очаровательная Сесиль. Попадая к юной красотке в сладкий плен удовольствий, любой теряет голову; все прочее перестает иметь для него значение, кроме одного — секс, секс, секс…Жанр: Драма, эротикаРежиссер: Лоран БуникАктеры: Дебора Реви, Хелен Зиммер, Гоуэн Диди, Джонни Амаро, Жоан ЛибероПеревод: Профессиональный многоголосыйЯзык субтитров: ОтсутствуютПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6519B90658DF440D12E39035BFFDB9BB35330E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471915   (83755) от 22.03.2012
 
 Q: Загадка женщины / Q (2011) DVD9
@@ -58,7 +6,7 @@ Q: Загадка женщины / Q (2011) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83755.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83751.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83743.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83739.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83731.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Q: Загадка женщины / Q (2011) DVDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83727.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83720.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83666.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83587.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83580.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83569.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83568.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83567.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83565.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83560.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83553.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83541.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83539.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83533.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83532.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83530.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83517.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83513.jpg" />
 </div>
 
 
@@ -660,13 +608,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83487.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Инспектор секретной полиции Лю Жиан (Джет Ли) прилетает из Шанхая в Париж, чтобы помочь французскому детективу Жан-Пьеру Ришару (Тчеки Карио) расследовать деятельность китайского мафиози. Неожиданно Ришар убивает подозреваемого. Лю удается скрыться, унеся с собой видеозапись преступления, совершенного кровожадным полицейским. На него начинается охота. Спасаясь от (   Читать дальше...   )Жанр: БоевикРежиссер: Крис НаонАктеры: Джет Ли, Бриджит Фонда, Чеки Карио, Макс Райан, Рик Янг, Берт Квук, Лоуренс Эшли, Сирил Раффаэлли, Дидье АзулайПеревод: ДублированныйПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471426   (83484) от 21.03.2012
+
+Конец пути / End of the Line (2007) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаясь домой с работы, медсестра Карен садится в последний ночной поезд метро. Вскоре состав остановится прямо посреди туннеля, и то, с чем предстоит столкнуться его припозднившимся пассажирам, окажется страшнее самого жуткого кошмара.Жанр: Ужасы, ТриллерРежиссер: Морис ДевероАктеры: Илона Элкин, Николас Райт, Нил Напье, Эмили Шелтон, Тим Розон, Нина Филлис, Джоан МакБрайд, Дэнни Бланко, Робин Уилкок, Кент МакКвейд, Дэвид Шаап, Лори Грэхэм, Кристин Лан, Аарон Гранфелд, Дэвид Л. МакКаллум, Майкл Челленджер, Билл Крофт, Роберт Крукс, Денис ДеПасс, Доменик Ди Роза, Кори Фанти, Тод Феннел, Мэрайя Ингер, Андре Николас Малуф, Джонатан Роберт Рондо, Ник Сита, Джереми Тибодо, Дэниэл Тирадо, Бобо ВианПеревод: Профессиональный многоголосыйПродолжительность: 01:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561ABC2791A656A7495EC8CC622006F5F58B4AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471410   (83474) от 21.03.2012
+
+Игра / The Game (1997) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николас Ван Ортон — само воплощение успеха. Он преуспевает, он невозмутим и спокоен, привык держать любую ситуацию под контролем. На день рождения Николас получает необычный подарок — билет для участия в «Игре». Ему обещают, что игра вернет яркие чувства, позволит ощутить вкус и остроту жизни. Вступив в игру, Николас начинает осознавать, что это игра всерьез, игра не на жизнь, а на смерть.Жанр: Детектив, Приключения, ТриллерРежиссер: Дэвид ФинчерАктеры: Майкл Дуглас, Шон Пенн, Дебора Кара Ангер, Джеймс Ребхорн, Питер Донат, Кэррол Бейкер, Анна Катарина, Армин Мюллер-Шталь, Чарльз Мартине, Скотт Хантер МакГуайрПеревод: Дублированный, Многоголосый закадровыйЯзык субтитров: Русские, АнглийскиеПродолжительность: 02:03:16
 
 ## Скачать торент
 ```bash

@@ -1,55 +1,3 @@
-###  Публикация: 984382   (938008) от 09.02.2016
-
-Подарок / The Gift (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В жизнь Саймона врывается человек из далекого прошлого — его бывший одноклассник Гордо. Человек дружелюбный, немного неуклюжий, но с большими странностями. До встречи с одноклассником Саймон и его молодая супруга Робин считали свою жизнь идеальной, однако Гордо вносит в жизнь молодоженов свои коррективы.Производство: Австралия, США / Blue-Tongue Films, Blumhouse ProductionsЖанр: триллер, детективРежиссер: Джоэл ЭдгертонАктеры: Джейсон Бейтмен, Ребекка Холл, Джоэл Эдгертон, Эллисон Толман, Тим Гриффин, Бизи Филиппс, Адам Лазарр-Уайт, Бо Напп, Уенделл Пирс, Мирра Фолкс, Нэш Эдгертон, Дэвид Денман, Кэтрин Аселтон, Дэвид Джозеф Крэйг, Сьюзэн Мэй Прэтт, П.Дж. Бирн, Фелисити Прайс, Мелинда Аллен, Стэйси Бендер, Бет КруделеПеревод: Дублированный (НТВ+)Язык субтитров: Русский, АнглийскийПродолжительность: 01:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DDDDD40D4C3567CC90A7E5457C9BBD718F856F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753157   (937968) от 04.02.2014
-
-Телекинез / Carrie (2013) BDRemux [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Невзрачная старшеклассница по имени Кэрри с рождения обладает способностями телекинеза. Давление со стороны фанатично религиозной мамочки и постоянные издевки сверстников лишь способствует развитию ее сверхъестественных способностей. На выпускном одноклассники решают жестоко подшутить над ней, что приводит к фатальным последствиям.Производство: США | Metro-Goldwyn-Mayer (MGM), Screen Gems, Misher FilmsЖанр: Триллер, Ужасы, ДрамаРежиссер: Кимберли ПирсАктеры: Хлоя Грейс Морец, Джулианна Мур, Джуди Грир, Портия Даблдэй, Габриэлла Уайлд, Алекс Расселл, Зои Белкин, Энсел Эльгорт, Саманта Вайнштейн, Карисса Стрэйн ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (Full, Forced, Commentary), Украинский (Full, Forced), АнглийскийПродолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25870C661C4B1898618FC11ACA19EB5B5ABF120E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753145   (937915) от 04.02.2014
 
 Тульпа / Tulpa - Perdizioni mortali BDRip (2012) [720p] [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937915.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Q: Загадка женщины / Q (2011) BDRemux [1080i]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937884.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937874.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937832.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937707.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937650.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937562.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937554.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937544.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936926.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936816.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936783.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936778.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936747.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936728.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936721.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936713.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936699.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936610.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936605.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936592.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936590.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936573.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936526.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8015164B319697E075085E6B6286734F17BCEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984842   (936525) от 10.02.2016
+
+Жена путешественника во времени / The Time Traveler's Wife (2009) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они познакомились, когда ей было шесть, а ему — тридцать шесть. Они поженились, когда ей было двадцать три, а ему тридцать один. Потому что Генри страдает редким генетическим заболеванием — синдромом перемещения во времени; его исчезновения из жизни Клэр непредсказуемы, появления — комичны, травматичны и трагичны одновременно. Экранизация одноимённого романа - Одри (   Читать дальше...   )Производство: США, Industry Entertainment, New Line Cinema, Plan B EntertainmentЖанр: Фантастика, фэнтези, драма, мелодрама, экранизацияРежиссер: Роберт ШвенткеАктеры: Мишель Нолден, Алекс Феррис, Арлисс Ховард, Эрик Бана, Кэтерин Троуэлл, Барт Бедфорд, Эстер Джан, Мэтт Бирман, Крэйг Снойер, Рэйчел МакАдамс, Карли Стрит, Ромен Тангсубутра, Бруклин Пру, Джейн МакЛин, Рон Ливингстон, Брайан БиссонПеревод: Дублированный (Мосфильм-Мастер), профессиональный двухголосый, авторский одноголосый (Ю. Сербин)Продолжительность: 01:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D3B125A11ADE528F61A59284E7BD763719EC6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753148   (936441) от 05.02.2014
+
+Французский поцелуй / French Kiss (1995) BDRip [H.264/720p-LQ]  [Hi10P]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли уезжает в Париж на конференцию, а его невеста не летит с ним из-за страха перед самолетами. Через несколько дней он звонит ей и сообщает, что полюбил другую. Кейт сразу же прыгает в самолет, и страх ей помогает преодолеть грубоватый француз — Люк, оказавшийся вором и контрабандистом, положившим в ее сумочку дорогое ожерелье, чтобы избежать трудностей на таможне. (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Лоуренс КэзданАктеры: Мег Райан, Кевин Клайн, Тимоти Хаттон, Жан Рено, Франсуа Клюзе, Рени Хамфри, Майкл Райли, Элизабет Коммелин, Сюзен Анбе, Лорен Шпильфогель, Виктор Гарривье, Микель Браун, Луиз Дешам, Клаудио Тодесчини, Джерри Харт, Джоэнна Павлис, Барбара Шульц, Клеман Сибони, Адам Брукс, Филипп Гарнье, Жан Корсо, Майк Джонс, Мари-Кристин Адам, Фаусто Костантино, Доминик Ренье, Инге (   Читать дальше...   )Перевод: Профессиональный (многоголосый, закадровый), Профессиональный (двухголосый, закадровый), Авторский (одноголосый закадровый)x2Язык субтитров: АнглийскийПродолжительность: 01:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EF7E88CEC66CB42D915F185A8165734B04134C
 ```
 
 https://mybot314.ru/tekegram_catalog/

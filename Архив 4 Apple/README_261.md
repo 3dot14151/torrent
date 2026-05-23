@@ -6,7 +6,7 @@ Live Home 3D Pro 3.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716812.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ AirBuddy 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716678.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Navicat Premium 12 v12.1.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716677.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TaskPaper 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716662.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Serial Box 05-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716657.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Multitouch 1.26.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716643.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Tipard All Music Converter 3.8.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716524.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Drop - Color Picker 1.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716517.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Omni Recover 3 v3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716495.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Screaming Frog SEO Spider Tool 7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716433.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Fix My iPhone 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716395.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ SSDReporter 1.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716311.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Disk Drill Entreprise 3.1.817 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716306.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Notability 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716304.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Boom 2 v1.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716279.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Waltr 2 v2.6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716273.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ SQLPro Studio 1.0.419 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716266.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Tweetbot for Twitter 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716244.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Wondershare Filmora 8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716241.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Blocs 2.0.7 (116) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716211.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ hr - Task timer as simple as it's name 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716143.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Permute 2.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716137.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Boinx mimoLive 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716136.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ FontDoctor 10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716135.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ CloudMagic Email 7.12.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716027.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Be Focused Pro (aka Pomodoro Time Pro) 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715854.jpg" />
 </div>
 
 

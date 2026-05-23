@@ -7,7 +7,7 @@ Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070012.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Duke Ellington - Satin Doll (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069662.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Anita Nordheim Blues n’ Groove Company - Turn The Page (2026) [FLAC 24/48|Loss
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069147.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Bjorn Berge - Morphine (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069144.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ AK & The Red Kites - Hotter Than The Sun (2026) [FLAC 24/48|Lossless|WEB-DL|trac
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069143.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Drivin' N' Cryin' - Crushing Flowers (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069141.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Earl Guitar Williams - The Soul King of Bessemer, AL (2026) [FLAC 24/96|Lossless
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069138.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Emma Donovan - Take Me To The River (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069136.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Hillbilly Vegas - A LA MODE (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069134.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Karen Dahlstrom - Love These Days (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069132.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Mike Zito - Outside Or The Eastside (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069130.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Nick Dittmeier, The Sawdusters - Apparition (2026) [FLAC 24/48|Lossless|WEB-DL|t
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069129.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Harpface & The Heat - Always Play At Last (2026) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068433.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jodi Stapler - Hard Truths & Honey (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068431.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Losiano - Super Soulabrating (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068430.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Mars Slingshot - Under the Influence (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068429.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Palito Seco - It's All Just Because of the Blues (2025) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068427.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Quiet the Dog - Departure (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068425.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The B. Christopher Band - Four Buckets of Blues (2026) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068423.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The CD Woodbury Trio - Bulldog (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068412.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The Midnight Current - Swell Sounds (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068410.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Bluesbox Bayou Band - Bluesbox Bayou (2026) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068259.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Courtney Santana - Living Through It All (2026) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068185.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Boogie Beasts - Don't Be So Mean! (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068106.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Dan Penn - Smoke Filled Room (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068104.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Gurf Morlix - Cobwebs & Stardust (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Fo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068103.jpg" />
 </div>
 
 

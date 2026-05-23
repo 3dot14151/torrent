@@ -6,7 +6,7 @@ Watashi ni Tenshi ga Maiorita! Precious Friends | Ангел спустился 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242426.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hyakuren no Haou to Seiyaku no Valkyria | Повелитель Рагнарёк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242416.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242413.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242366.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kiss Dum: Engage Planet | Немой поцелуй: Обручённая пла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241934.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Oushitsu Kyoushi Haine | The Royal Tutor | Королевский репетит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241462.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Juusenshi Gulkeeva | Beast Warrior Galkeeva | Зверовоины Галкее�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241444.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Metal Fighter Miku | Металлический воин Мику [1994, TV, 13 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241431.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Himiko-Den | Legend of Himiko | Легенда о Химико [1999, TV, 12 э�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241361.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Salaryman's Club | Ryman's Club | Клуб белых воротничков [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241057.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Angelique | Анжелика OVA-4 [2004, OVA, 3 эп.] DVDRip 480p HEVC 10-bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241037.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Neo Angelique Abyss | Анжелика [ТВ-3] [2008, TV, 13 эп.] DVDRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241013.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Angelique: Shiroi Tsubasa no Memoire | Анжелика OVA-1 [2000, OVA, 2 эп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_240937.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240061.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240036.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ UFO Princess Valkyrie: Juunigatsu no Yasoukyoku | UFO Ultramaiden Valkyrie 2: De
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239512.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ UFO Princess Valkyrie: Seireisetsu no Hanayome | Валькирия, принц�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239500.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Haou Taikei Ryuu Knight | Lord of Lords Ryu Knight | Повелитель Рюк
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239474.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ UFO Princess Valkyrie | UFO Ultramaiden Valkyrie | Валькирия, прин�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239456.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Тому мне
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239387.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Romantic Killer | Романтический убийца [2022, Web, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239260.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Каждом
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239063.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ame-iro Cocoa Series: Ame-con!! | Какао цвета дождя: Аме-ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238917.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238382.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238375.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Shenmue the Animation | Шэнму [2022, TV, 13 из 13] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237923.jpg" />
 </div>
 
 

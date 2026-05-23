@@ -6,7 +6,7 @@ GifCam 5.1 Portable by DenSE85 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952534.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Abrosoft FantaMorph Deluxe 5.4.8 RePack (& Portable) by Trovel [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950066.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hornil StylePix Pro 2.0.1.0  [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945185.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GIF Movie Gear 4.3.0 RePack (& Portable) by Trovel (Upd. 08.01.2017) [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944085.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Movavi Photo Editor 6.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939182.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Photoshop 2020 21.1.0.106 Lite Portable by conservator [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931390.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ID Photos Pro 8.5.3.11 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930161.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ TSR Watermark Image Software Pro 3.5.7.4 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930138.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PhotoFiltre 7.2.1 RePack by вовава [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929030.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Topaz Labs Photoshop Plugins Bundle 2017 (19.01.2017) [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925435.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Knoll Light Factory for Photoshop 3.2.2 (x64) RePack by igordz [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918363.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Zeallsoft Fun Morph  3.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916630.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Cover Commander 6.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912185.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AirMagic Creative Edition 1.0.0.2763 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910341.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ JixiPix Software Bundle Premium Pack 1.0.7 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909835.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Photolemur Creative Edition 3 1.1.0.2443 (Repack & Portable) by elchupacabra [Mu
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908330.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Better JPEG 3.0.4.0 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901795.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Aurora 3D Text & Logo Maker 16.03011943 Portable by Sitego [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900402.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Lazy Nezumi Pro 15.7.3.1740 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900271.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Topaz Sharpen AI 3.2.2 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900148.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ PhotoInstrument 7.4 Build 830 Portable by CheshireCat [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897153.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Fotor 3.0.0.152 RuPack (& Portable) by 78Sergey & Dinis124 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896798.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ EximiousSoft Logo Designer 3.86 RePack (& Portable) by Dinis124 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895090.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Benvista PhotoZoom Pro 7.0.4 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892003.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ PhotoInstrument 7.4 Build 830 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890902.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Franzis Focus Projects Pro 5.34.03722 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888841.jpg" />
 </div>
 
 

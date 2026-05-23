@@ -1,22 +1,23 @@
-###  Публикация: 1851508   (1055148) от 02.02.2026
+###  Публикация: 1851189   (1055077) от 01.02.2026
 
-Проекты - VideoHive - Gradient Abstract Light Lines Backgrounds - 61586787 [AEP, MOGRT, MP4]
+Jens Gustedt | Modern C. Covers the C23 standard. 3rd Edition (2025) [PDF, EPUB] [EN]
 
->>Проекты
->>Элементы (проекты)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Gradient Abstract Light Lines Backgrounds — это гипнотически красивый и технически совершенный набор абстрактных фонов для After Effects. Плавные переливы света, мягкие градиентные волны и элегантные неоновые линии создают атмосферу будущего, спокойствия и цифровой гармонии.Формат: AEP, MOGRT, MP4
+Discover the full power of modern C programming, with an inside look at the new C23 standard.
+For programs that need to be small, fast, and reliable, C is the gold standard. Whether you’re writing embedded code, low-level system routines, or high-performance applications, C is up to the challenge. This unique book by Jens Gustedt, a member of the ISO C standards (   Читать дальше...   )Жанр: C Programming Language, Software Design & Engineering, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88D42BAEF873BA54C08B673B71C08ED7272DBFFC
+magnet:?xt=urn:btih:BEDE2518C6550E6D63613E7236821CA766229DBD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851353   (1055147) от 11.02.2026
+###  Публикация: 1851191   (1055076) от 01.02.2026
 
-Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Windows Umbrella (v9, 02.2026) [Ru/En]
+Зандер Брамбо | Программирование в Roblox. Сделать игру – проще простого. Создание игр с помощью Roblox Studio и языка программирования Lua от «А» до «Я» (2022) [PDF]
 
->>ОС Windows
->>Сборки Windows 10
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 10 с интерфейсом Windows 7 и  Windows Vista. ОС подходит для слабых ПК. Данная ОС подходит для пользователей которые не пользуются онлайн услугами Microsoft.Язык интерфейса: Русский, английский
+В этой книге описывается работа на развлекательной платформе Roblox – от программирования в Roblox Lua до создания игр в жанре обби и «Королевская битва». Подробно рассмотрены возможности Roblox Studio, приёмы изменения настроек игры, сценарии программирования. Читатель сможет выполнить практические упражнения, используя примеры кода, и узнает, как достичь максимальной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FD26F572957585301F1970E3E95421B242C7DED
+magnet:?xt=urn:btih:9F7861015407A0779607B8891DE2559000A3351F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851512   (1055146) от 02.02.2026
+###  Публикация: 1851195   (1055075) от 01.02.2026
 
-Тишина вокруг Кристине М. / De stilte rond Christine M. (1982) BDRip [H.264] [DUT / RU Sub]
+Brian Beuken | The Fundamentals of C/C++ Game Programming. 2nd Edition (2026) [PDF, EPUB] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие вращается вокруг убийства владельца бутика, которого до смерти забили три женщины, незнакомые ни с ним, ни друг с другом. Молодую женщину судебного психиатра приглашают подключиться к расследованию, чтобы определить психическое состояние обвиняемых. Если сначала мотив убийства казался абсолютно непостижимым, то со временем всё приобретает смысл, и она начинает (   Читать дальше...   )Производство: Нидерланды / Sigma Film ProductionsЖанр: драмаРежиссер: Марлен ГоррисАктеры: Эдда Барендс, Нелли Фрийда, Henriëtte Tol, Кокс Хаббема, Эдди Брюгман, Ганс Кройсет, Erik Plooyer, Анна ван Бирс, Eric Besseling, Ноа КоэнПеревод: субтитрамиЯзык озвучки: нидерландскийСубтитры: русские, английскиеПродолжительность: 01:36:25
+This book gives novice coders an understanding of the methods and techniques used in professional games development. Projects are designed to help develop and strengthen problem solving and basic C/C++ skills. This book also helps develop familiarity with Microsoft Visual Studio’s ability to target and use fixed/restricted hardware, which are key skills in console (   Читать дальше...   )Жанр: Rendering & Ray Tracing, Game Programming, Graphics & Multimedia ProgrammingЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B82C9E8D1FC7F0AF6D92C1C391A926CB3288178
+magnet:?xt=urn:btih:A41A1250071F3A466E3D131B9AFA663217087B24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,427 +77,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851513   (1055145) от 02.02.2026
+###  Публикация: 1851203   (1055074) от 01.02.2026
 
-Опасный дуэт / The Wrecking Crew (2026) WEB-DL [H.264/1080p]
+РедСофт, Николай Краев | Основы администрирования RedOS (2025) PCRec [RU]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>След.
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сводные братья не общались больше двадцати лет и не скрывали взаимной неприязни, но после таинственного убийства их отца на Гавайях героям приходится объединиться, чтобы докопаться до правды. Один - вспыльчивый и прямолинейный детектив, другой - сдержанный и методичный боец элитного подразделения. Вместе братья начинают опасное расследование, которое приводит их (   Читать дальше...   )Производство: Новая Зеландия, США / Amazon MGM Studios, Reunion Pacific EntertainmentЖанр: боевик, комедия, детектив, криминалРежиссер: Анхель Мануэль СотоАктеры: Дэйв Батиста, Джейсон Момоа, Темуэра Моррисон, Роимата Фокс, Фрэнки Адамс, Клас Банг, Джейкоб Баталон, Морена Баккарин, Майя Кеалоха, Стивен РутПеревод: Дублированный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (full, SDH)Продолжительность: 02:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F2339FF6C2096182AEE0A7D30F6562DA3876E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851521   (1055144) от 03.02.2026
-
-Опасный дуэт / The Wrecking Crew (2026) WEB-DLRip [H.264]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Военный Джеймс живёт на Гавайях, а полицейский Джонни — в Оклахоме. Они — сводные братья, которые много лет враждуют и давно не разговаривают друг с другом. Но парни вынуждены забыть о былых противоречиях и объединиться, чтобы выяснить, кто убил их отца.Производство: Новая Зеландия, США / Amazon MGM Studios, Reunion Pacific EntertainmentЖанр: боевик, комедия, детектив, криминалРежиссер: Анхель Мануэль СотоАктеры: Дэйв Батиста, Джейсон Момоа, Клас Банг, Темуэра Моррисон, Джейкоб Баталон, Фрэнки Адамс, Мияви, Стивен Рут, Морена Баккарин, Дэвид Хекили Кенуи БеллПеревод: Дублированный (WinMedia)Язык озвучки: русский, английскийСубтитры: русские (2 x full), английские (full, SDH), немецкие, французскиеПродолжительность: 02:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973A77C021BC1249D0C95E63B7EF80EC9A6EEBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851516   (1055143) от 02.02.2026
-
-Foundation (2019) [Ru/Multi] (1.11.0.11/dlc) Repack Other s [Supporter Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Foundation: Новая эра в средневековых строительных симуляторах. Foundation представляет собой симулятор строительства средневекового города, с инструментом умных кистей, и упором на экологически продуманное развитие, уникальные сооружения и управление ресурсами. В этой игре, симуляторе/стратегии строительства города и его экономики, игроки должны создать процветающее (   Читать дальше...   )Тип издания: RepackРазработчик: Polymorph GamesЖанр: Стратегия, Строительство, МенеджментЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78879BD10849CCD3C718905026414C6249CE7B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851509   (1055142) от 02.02.2026
-
-Agatha Christie - Death on the Nile (2025) [Multi] (1.3.0_20251017-215031) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В игре «Смерть на Ниле» мирный круиз по Нилу прерывается из-за ужасного преступления. К счастью, на борту находится знаменитый детектив Эркюль Пуаро. Тем временем другой детектив выслеживает убийцу, следы которого тянутся из Лондона на Майорку, затем в Нью-Йорк и, наконец, тоже ведут в Египет. Два расследования пересекаются в Абу-Симбеле, где непохожим друг на друга (   Читать дальше...   )Тип издания: LicenseРазработчик: Microids Studio LyonЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC036B3C94A9DEBE443D059FF84702D04FBD84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851506   (1055141) от 02.02.2026
-
-Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack FitGirl [Definitive Annoversary Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Anno 1800 – возглавьте промышленную революцию! Anno 1800 перенесет игроков в XIX век, в мир запутанных политических интриг и стремительно развивающихся технологий. Придется приложить максимум усилий, чтобы отточить способности к управлению и справиться с основной задачей - построить собственную империю, влияние которой распространится от туманных городов Европы до (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ByteЖанр: Стратегии, СимуляторыЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3232E0C68261045A207E8106CD7BC2433B2544E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851378   (1055140) от 02.02.2026
-
-DeadCore Redux (2026) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В этом футуристичном шутер-платформере от первого лица вам предстоит совершать точные прыжки, переключать механизмы с помощью свитч-пушки, искать спрятанные искры, открывать тайные ходы. Футуристичный мегакомплекс, отстроенный вокруг исполинской Башни, прожуёт и выплюнет любого, кто не готов к испытанию. Ступайте на непроторённые тропы, полные скрытых опасностей, (   Читать дальше...   )Тип издания: RepackРазработчик: 5 Bits GamesЖанр: Экшены, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFAE09EE2FF9E1C86465E0AC6BCCAE0E54CC0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851501   (1055139) от 02.02.2026
-
-Styx: Shards of Darkness (2017) [Ru/Multi] (1.05/dlc) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Styx: Shards of Darkness – это сиквел игры Styx: Master of Shadows, выпущенной в октябре 2014 года, который продолжит повествование о гоблине Стиксе. После множества положительных отзывов прессы и теплого приема среди игроков, независимое французское издательство Focus Home Interactive (Blood Bowl, Sherlock Holmes) и компания Cyanide Studios (Blood Bowl, Game of (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710DD998C45E400E56250442F70CEBC30DAB4CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851500   (1055138) от 02.02.2026
-
-Animal Shelter 2 (2025) [Ru/Multi] (1.1.0/dlc) Repack seleZen
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в трогательный мир Animal Shelter 2! Подарите всем нуждающимся четвероногим друзьям уютный дом и свою заботу - играйте с ними, гладьте их и одевайте! Познакомьтесь с ними и найдите им любящую семью. Играйте и управляйте своим приютом для животных в кооперативном режиме! Нашим четвероногим друзьям нужна ваша помощь! В Animal Shelter Simulator 2 появилось (   Читать дальше...   )Тип издания: RepackРазработчик: Games IncubatorЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2D4389919EE19F060C161D2BE21EAF74A8566D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851382   (1055137) от 02.02.2026
-
-Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack seleZen [Definitive Annoversary Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Anno 1800 – возглавьте промышленную революцию! Anno 1800 перенесет игроков в XIX век, в мир запутанных политических интриг и стремительно развивающихся технологий. Придется приложить максимум усилий, чтобы отточить способности к управлению и справиться с основной задачей - построить собственную империю, влияние которой распространится от туманных городов Европы до (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ByteЖанр: Стратегии, СимуляторыЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204FB80DF9C17637E5CABC2A4D29DB9EAA21C0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851356   (1055136) от 02.02.2026
-
-Ari Lennox - Vacancy (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo-Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Mobbin in DC [00:04:25]
-02. Vacancy [00:03:03]
-03. Pretzel [00:03:23]
-04. Under The Moon [00:03:26](   Читать дальше...   )Жанр: Neo-SoulПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ECFDEF357413E6B0B20A5CA8A70F0BBDC02D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851514   (1055135) от 02.02.2026
-
-Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Queens of the Stone Age - рок-группа, образованная в 1997 году в Палм-Дезерте, Калифорния, США.1998 - Queens of the Stone Age
-2000 - Rated R
-2002 - Songs for the Deaf
-2005  - Lullabies to ParalyzeЖанр: Hard Rock, Stoner RockПродолжительность: 08:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851520   (1055134) от 02.02.2026
-
-Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-A The Best Of Me
-B1 Move It
-B2 Lindsay Jane
-B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851538   (1055133) от 02.02.2026
-
-Тишина вокруг Кристине М. / De stilte rond Christine M. (1982) BDRip [H.264/720p] [DUT / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Действие вращается вокруг убийства владельца бутика, которого до смерти забили три женщины, незнакомые ни с ним, ни друг с другом. Молодую женщину судебного психиатра приглашают подключиться к расследованию, чтобы определить психическое состояние обвиняемых. Если сначала мотив убийства казался абсолютно непостижимым, то со временем всё приобретает смысл, и она начинает (   Читать дальше...   )Производство: Нидерланды / Sigma Film ProductionsЖанр: драмаРежиссер: Марлен ГоррисАктеры: Эдда Барендс, Нелли Фрийда, Henriëtte Tol, Кокс Хаббема, Эдди Брюгман, Ганс Кройсет, Erik Plooyer, Анна ван Бирс, Eric Besseling, Ноа КоэнПеревод: субтитрамиЯзык озвучки: нидерландскийСубтитры: русские, английскиеПродолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63AF49C79B1112C8030719A5F3A475854A8750C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851447   (1055132) от 02.02.2026
-
-Лоик Шеневас-Поль, Томас Волох | Себастьян Феттель. От Baby Shumi до легенды Формулы-1 (2025) [MP3, Тимофей Васильев]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Себастьян Феттель – один из самых известных пилотов современности. Его достижения стали символом таланта и трудолюбия для многих гонщиков.
-Дебютировав в 19 лет, Феттель сразу продемонстрировал свое мастерство и профессионализм. После первой официальной гонки его стали называть Baby Schumi, увидев в немце будущего Михаэля Шумахера, чемпионский путь которого мгновенно (   Читать дальше...   )Жанр: Биографии, мемуары, автоспортИздательство: БомбораПродолжительность: 09:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26ADEB4153A16655679BAF3AA86C2F7B761DA348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851448   (1055131) от 02.02.2026
-
-Лука Даль Монте, Умберто Дзапеллони | Жиль Вильнёв. Человек. Гонщик. Легенда (2025) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Лука Даль Монте и Умберто Дзапеллони детально воссоздают историю карьеры Жиля Вильнёва – от малоизвестного гонщика на снегоходах до любимого пилота Коммендаторе Энцо Феррари. Как канадец, который провел всего одну гонку в «Формуле-1», оказался в Ferrari? Как он преодолел невероятное давление всесильной итальянской прессы? Как его страстный гоночный стиль покорил (   Читать дальше...   )Жанр: Биографии, мемуары, автоспортИздательство: Аудиокнига (АСТ)Продолжительность: 08:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D081443EA7ED060AD5AC3061757206C848D444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851460   (1055130) от 02.02.2026
-
-Григорий Голосов | Власть в погонах. Военные режимы в современном мире (2025) [MP3, Андрей Троммельман]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В 2020–2023 годах в мире произошло столько же успешных военных переворотов, сколько за все предыдущее десятилетие. Надежды на глобальную демократизацию не оправдались. Ослабление международных институтов, внутриполитические кризисы, экономические трудности и недовольство населения создают почву для прихода к власти военных режимов.
+Курс основ администрирования RedOS, подойдет эникеям и начинающим сисадминам.
 
-В своей книге доктор политических (   Читать дальше...   )Жанр: Политология, ИсторияИздательство: АльпинаПродолжительность: 08:49:18
+1. Введение
+2. Установка RedOS(   Читать дальше...   )Производство: РедСофтЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:08:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6B94C8033C220E5AE61AEF3B2B2DC153CC53B84
+magnet:?xt=urn:btih:BB6E00E21224BEABED9485527502F667E8331C26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,25 +106,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851388   (1055129) от 02.02.2026
+###  Публикация: 1851202   (1055073) от 01.02.2026
 
-Антон Кун | Тайны рода. Род Корневых будет жить! (Том 1) (2025) [MP3, Александр Упиров]
+Annegret Junker | Mastering Domain-Driven Design. Collaborative modeling with domain storytelling, event storming, and context mapping (English Edition) (2025) [PDF] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я устроил им царскую охоту – этим сволочам, для которых жизнь человека ничто, для тех, кто насилует и убивает в своё удовольствие. Я устроил им царскую охоту, а потом смотрел, как разлетаются их мозги. Ирония судьбы. Я умер, и теперь в новом мире. В Российской империи, где есть магия. И охотятся теперь на меня. Потому что я, последний из рода Корневых, стал поперёк (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыИздательство: ЛитРесПродолжительность: 08:05:21
+Mastering Domain-Driven Design provides a comprehensive guide to understanding and implementing DDD, an approach to software development that helps you tackle complex projects by aligning your code with the core business concepts.
+
+The book explains the process for designing and modernizing software applications, applying Domain-Driven Design methods to all design (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Software Design, Testing & Engineering, Internet & TelecommunicationsЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D205E7B0AC6092DB847D197C0FEE01A0CD6D0315
+magnet:?xt=urn:btih:4A7ACB256B6A2BEB9BD07ADECA5ECA34E2BAA43B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,25 +134,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851389   (1055128) от 02.02.2026
+###  Публикация: 1851204   (1055072) от 01.02.2026
 
-Антон Кун | Тайны рода. Род Корневых будет жить! (Том 2) (2025) [MP3, Александр Упиров]
+Jerome Gotangco, Luca Berton | Red Hat Enterprise Linux 9 for SysAdmins. A technical guide for building secure production systems using RHEL 9 administration (English Edition) (2025) [PDF] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я устроил им царскую охоту – этим сволочам, для которых жизнь человека ничто, для тех, кто насилует и убивает в своё удовольствие. Я устроил им царскую охоту, а потом смотрел, как разлетаются их мозги. Ирония судьбы. Я умер, и теперь в новом мире. В Российской империи, где есть магия. И охотятся теперь на меня. Потому что я, последний из рода Корневых, стал поперёк (   Читать дальше...   )Жанр: фэнтези, ПопаданцыИздательство: ЛитРесПродолжительность: 07:32:18
+Red Hat Enterprise Linux (RHEL) is the de facto standard for Linux in the enterprise and the latest version (RHEL 9) offers the best of open-source software to date with the stability and security provided by the biggest name in open-source, Red Hat.
+
+The book begins with an introduction to RHEL 9's features, architecture, and its role in the open-source ecosystem, (   Читать дальше...   )Жанр: Linux Programming, Linux & UNIX Administration, Linux Networking & System AdministrationЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:276E982DDE3E30E3F5EF3F11759ADB423E52E3C2
+magnet:?xt=urn:btih:557995A1F61EA5177D892B97FCAA57942658EA49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,25 +162,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851397   (1055127) от 02.02.2026
+###  Публикация: 1851205   (1055071) от 01.02.2026
 
-Антон Кун | Тайны рода. Род Корневых будет жить! (Том 3) (2025) [MP3, Александр Упиров]
+Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating Dynamic Websites. 7th Edition (2025) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я устроил им царскую охоту – этим сволочам, для которых жизнь человека ничто, для тех, кто насилует и убивает в своё удовольствие. Я устроил им царскую охоту, а потом смотрел, как разлетаются их мозги. Ирония судьбы. Я умер, и теперь в новом мире. В Российской империи, где есть магия. И охотятся теперь на меня. Потому что я, последний из рода Корневых, стал поперёк (   Читать дальше...   )Жанр: фэнтези, ПопаданцыИздательство: ЛитРесПродолжительность: 07:20:39
+Build interactive, data-driven websites with the potent combination of open source technologies and web standards, even if you have only basic HTML knowledge. With the latest edition of this popular hands-on guide, you'll tackle dynamic web programming using the most recent versions of today's core technologies: PHP, MySQL, JavaScript, CSS, HTML5, jQuery, Node.js, (   Читать дальше...   )Жанр: PHP Programming, MySQL Guides, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1D6C4904192AA7F3E068B8B8FBAF22A111C4DBF
+magnet:?xt=urn:btih:ED285EE72CAB1A7B32194BD359F50EAAF4145B03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,25 +188,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851401   (1055126) от 02.02.2026
+###  Публикация: 1851206   (1055070) от 01.02.2026
 
-Антон Кун | Демоны Ледяных гор. Ел я ваших демонов на завтрак! (Том 3) (2024) [MP3, Михаил Обухов]
+Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting Techniques with Machine Learning and Cloud Tools. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы возвращались с боевого задания. Это была мясорубка! Штабным крысам хари набить за такую подготовку операции! Но главное, парни остались живы, я вывел всех. И тут удар, белое марево, вращающаяся кабина Ми-8, перекошенные лица парней и желтоглазый демон… Демон? Что за чёрт? Какие нафиг демоны? В нашем мире демонов нет!Жанр: Попаданцы, Фантастика, ФэнтезиИздательство: ЛитРесПродолжительность: 08:05:24
+Advanced Forecasting with Python, Second Edition, is a comprehensive and practical guide to mastering modern forecasting techniques using Python. Designed for data scientists, analysts, and machine learning practitioners, this updated edition bridges the gap between classical forecasting models and cutting-edge, AI-powered techniques that are reshaping the field.Жанр: Artificial Intelligence, Statistics, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DC631C1E84E27CAEFF75F922BE4861E85E709BF
+magnet:?xt=urn:btih:AD96263C0513578142DB7B6EEB58E66A64F4EF8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,25 +214,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851404   (1055125) от 02.02.2026
+###  Публикация: 1851207   (1055069) от 01.02.2026
 
-Антон Кун | Демоны Ледяных гор. Ел я ваших демонов на завтрак! (Том 4) (2024) [MP3, Михаил Обухов]
+Marco Peixeiro | Time Series Forecasting Using Foundation Models (2026) [PDF] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы возвращались с боевого задания. Это была грёбанная мясорубка! Штабным крысам хари набить за такую подготовку операции! Но главное, парни остались живы, я вывел всех. И тут удар, белое марево, вращающаяся кабина Ми-8, перекошенные лица парней и желтоглазый демон… Демон? Что за нахер? Какие в жопу демоны? В нашем мире демонов нет!Жанр: Попаданцы, фантастика, ФэнтезиИздательство: ЛитРесПродолжительность: 07:34:27
+Make accurate time series predictions with powerful pretrained foundation models!
+
+You don’t need to spend weeks—or even months—coding and training your own models for time series forecasting. Time Series Forecasting Using Foundation Models shows you how to make accurate predictions using flexible pretrained models.
+(   Читать дальше...   )Жанр: Data Processing, Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F42208A90A8D3C161D0951FB02BACB2312E41C13
+magnet:?xt=urn:btih:988E3A6B1D1A71788F730DEEE2DA52A31204C667
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +243,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851411   (1055124) от 02.02.2026
+###  Публикация: 1851209   (1055068) от 01.02.2026
 
-Антон Кун | Школа боевой магии (Том 1-3) (2024-2025) [MP3, Макс Радман, Михаил Обухов]
+Joseph Schmuller | Statistical Analysis with Python For Dummies. 1st Edition (2026) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бойтесь своих желаний? Именно! Мечтал попасть в Школу боевой магии? Попал, но есть нюанс. Школа-то подпольная! Мало того, я попал в поле зрения спецслужб. Оказалось, что им нужен мой магический талант. И если б для чего хорошего… Идиоты… Не на того напали! Клянусь Перуном и предками, штабисты пожалеют об этом! Сильно пожалеют! Я им устрою революцию! Такую, что тошно (   Читать дальше...   )Жанр: ФэнтезиИздательство: Аудиокнига (АСТ), ЛитРесПродолжительность: 24:54:43
+Wrangle stats as you learn how to graph, analyze, and interpret data with Python
+
+Statistical Analysis with Python For Dummies introduces you to the tool of choice for digging deep into data to inform business decisions. Even if you're new to coding, this book unlocks the magic of Python and shows you how to apply it to statistical analysis tasks. You'll learn to (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Statistics, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:302545F8A559C4C2DC7E317FC22DB70383B291D0
+magnet:?xt=urn:btih:42E34C3883E5017C8F32EC4A52712BC69ED5612E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +271,434 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851415   (1055123) от 02.02.2026
+###  Публикация: 1851212   (1055067) от 01.02.2026
 
-Антон Кун | Страж. Последний Страж (Том 1-5) (2024-2025) [MP3, Алексей Файзуллин, Марат Дуняшев]
+Nicole Koenigstein | Transformers in Action (2026) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я был Первым Стражем и защищал людей от монстров. Меня все любили… так я думал. Удар в спину был неожиданным и подлым. И вот я здесь. Враги считают, что я умер, но как же они ошибаются. Не смогли уничтожить меня окончательно – теперь держитесь! Я найду каждого и призову к ответу! Да и монстры ещё не закончились… Хм, тут что, охота на них только по разрешению местных (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыИздательство: ЛитРесПродолжительность: 40:26:30
+Understand the architecture that underpins today’s most powerful AI models.
+
+Transformers are the superpower behind large language models (LLMs) like ChatGPT, Gemini, and Claude. Transformers in Action gives you the insights, practical techniques, and extensive code samples you need to adapt pretrained transformer models to new and exciting tasks.
+(   Читать дальше...   )Жанр: Data Processing, Natural Language Processing, Computer ScienceЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ABF6A1DEE7CAD8843B211B7953BE91AC1E8B270
+magnet:?xt=urn:btih:B6DFFA9E47B05B701FCA5B79E35C57EF62707100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851214   (1055066) от 01.02.2026
+
+Дэвид Кларк, Поль Кларк | SDR на практике. Основы разработки программно-определяемого радио (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет читателям освоить основы разработки и применения программно-определяемой радиосвязи (software-defined radio, SDR). Благодаря
+сочетанию обучающих материалов с примерами продвинутых приложений вы получите надежную основу для углубленного изучения современных беспроводных систем.
+Издание будет полезно инженерам, разрабатывающим прототипы радиоустройств, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Books.kzФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F21E72C33C6A859075E9566DFD2134C2E69164D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851215   (1055065) от 01.02.2026
+
+Н. Крокер | Разработка с ИИ. Как эффективно использовать ChatGPT и Copilot (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Использование ИИ-инструментов вроде Copilot и ChatGPT похоже на наем суперумного и быстрого джуниор-разработчика, который готов взяться за любую задачу — от исследования до рефакторинга. Работа с ИИ помогает писать код быстрее, улучшать качество приложений и даже реализовывать идеи, которые могли быть недоступными вашей команде. Эта книга покажет, как использовать (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AD1146DD57787EFFDD407D55D24CE80AC490A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851216   (1055064) от 01.02.2026
+
+Майк МакГрат | Программирование для начинающих. Основные принципы. 2-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открывать новое бывает непросто, но с «Программированием для начинающих» вы легко погрузитесь в мир ИТ даже при отсутствии опыта. Следуйте понятным инструкциям, выполняйте интересные практические задания. Внутри есть вся необходимая информация, рассмотрены ключевые концепции разработки и подобраны наглядные цветные примеры. Вы научитесь: писать программный код на (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: Эксмо, БомбораФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5346FE337BA186B500C57F844A4B0347990C558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851217   (1055063) от 01.02.2026
+
+Анна Цыбина | Нейросеть. Помощник в изучении английского языка. И не только (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузимся в практику, переосмыслив развитие языковых навыков — от грамматики и чтения до создания своих учебных материалов — всё через ИИ.
+Основные темы книги:
+5 стратегий промптинга для эффективного взаимодействия с ИИ.
+Пошаговые методики развития всех языковых навыков: от аудирования до письма.(   Читать дальше...   )Жанр: Английский язык, Искусственный интеллектИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917E85D18C79C65BFE65FDB784F388D17EB3884B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851218   (1055062) от 01.02.2026
+
+А.Н. Сыщикова | Японский язык для начинающих (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александра Сыщикова - дипломированный специалист по японскому языку и литературе, автор учебных и справочных пособий.
+Перед вами практическое пособие для тех, кто начинает изучение японского языка с нуля. Здесь представлена базовая грамматика, а также основные сведения о японской письменности, чтении и произношении.
+Пособие подходит для самостоятельных занятий и (   Читать дальше...   )Жанр: Языки, обучениеИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C002261A1B28D9EDB546F987756211CE198D38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851219   (1055061) от 01.02.2026
+
+Н. Крнета, Н. Румак | Японский язык. Полная грамматика в схемах и таблицах (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наталия Крнета - преподаватель японского языка в ИСАА МГУ со стажем работы более 20 лет, кандидат филологических наук, автор многочисленных исследований в области языкознания, справочных и учебных пособий. Наталья Григорьевна Румак - преподаватель японского языка в ИСАА МГУ, кандидат филологических наук, переводчик художественной литературы и автор множества учебных (   Читать дальше...   )Жанр: Языки, пособиеИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607B3FA075456D8AEBFDF28C72AB82C2521A3BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851220   (1055060) от 01.02.2026
+
+Чун Ин Сун, А.В. Погадаева | Корейский язык. Полная грамматика в схемах и таблицах (2020) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие разработано признанными специалистами в области корееведения в России Чун Ин Сун и Анастасией Викторовной Погадаевой и включает подробное описание самой важной грамматики корейского языка.
+В пособии представлены подробные таблицы и схемы, емко и наглядно иллюстрирующие даже самые сложные и непонятные грамматические правила корейского языка. (   Читать дальше...   )Жанр: Языки, справочникИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1CA3304D86861DD2223E75611DC374D6DBF11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851221   (1055059) от 01.02.2026
+
+Alan Simpson | Python Automation For Dummies (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Streamline Your Workflow and Boost Productivity with Python Automation
+
+In today's workplaces, there's a high demand for know-how on the Python programming language, especially for writing time-saving scripts that can simplify routine work tasks. Python Automation For Dummies delivers, with simple explanations of how you can use Python to automatically wrangle data (   Читать дальше...   )Жанр: Software Design Tools, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F17B156995B8FCD4F7578520A0F665F6B0EC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851222   (1055058) от 01.02.2026
+
+Chenyang Shi | Mastering Algorithms with Python. A Practical Approach to Problem Solving and Python Implementation (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gain a solid understanding of algorithms and improve your problem-solving abilities using Python code. With practical examples and clear explanations, this book bridges the gap between dense academic texts and overly simple industry guides.
+
+Focusing on the logic behind essential algorithms such as Breadth First Search (BFS), Depth First Search (DFS), Divide-and-Conquer, (   Читать дальше...   )Жанр: Computer Algorithms, Programming Algorithms, Python ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77948D65247D41E5EF1E9F463A48C9927E50D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851223   (1055057) от 01.02.2026
+
+Abi Aryan | LLMOps. Managing Large Language Models in Production (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Here's the thing about large language models: they don't play by the old rules. Traditional MLOps completely falls apart when you're dealing with GenAI. The model hallucinates, security assumptions crumble, monitoring breaks, and agents can't operate. Suddenly you're in uncharted territory. That's exactly why LLMOps has emerged as its own discipline.
+
+LLMOps: Managing (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964C916C9564305D57DCE6439F2CFFF69C3A4CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851226   (1055056) от 01.02.2026
+
+Mayo Oshin, Nuno Campos | Learning LangChain. Building AI and LLM Applications with LangChain and LangGraph (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055056.jpg" />
+</div>
+
+
+###  Подробнее
+
+If you're looking to build production-ready AI applications that can reason and retrieve external data for context-awareness, you'll need to master--;a popular development framework and platform for building, running, and managing agentic applications. LangChain is used by several leading companies, including Zapier, Replit, Databricks, and many more. This guide (   Читать дальше...   )Жанр: Natural Language Processing, Customer Relations, Computer ScienceЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1C6639DB1D0F55C541D1051EE9CD01398079E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851228   (1055055) от 01.02.2026
+
+Liz Rice | Container Security. Fundamental Technology Concepts That Protect Cloud Native Applications. 2nd Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055055.jpg" />
+</div>
+
+
+###  Подробнее
+
+As containerized and cloud native applications become foundational to modern software infrastructure, the need for a deep, conceptual understanding of their security implications has never been more urgent. Container Security, second edition, offers a rigorous yet practical examination of the technologies that underpin container platforms—equipping developers, operations (   Читать дальше...   )Жанр: Computer Networking, Cloud Computing, Computer Network SecurityЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0060DB96E6722AFA9242537B84BC6C1D635C47F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851231   (1055054) от 01.02.2026
+
+Bill Lubanovic | Introducing Python. Modern Computing in Simple Packages. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stuck in a coding conundrum? Whether you're an advanced beginner, an intermediate developer, or a curious newcomer, the complexities of coding can often feel like a labyrinth with no exit. With Python, however, you can start writing real code quickly—but where should you start?
+In this updated third edition, Bill Lubanovic acts as your personal guide to Python, offering (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B891304A751A976EDD338A1768E0E4F36BF994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851232   (1055053) от 01.02.2026
+
+Ю.Е. Воскобойников | Статистический анализ экспериментальных данных в пакетах MathCAD и Excel (2022) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит изложение методов и алгоритмов математической статистики, решения задач фильтрации, аппроксимации, спектрального и гармонического анализа, возникающих при обработке и анализе экспериментальных данных.
+Приводятся необходимые теоретические положения и соответствующие расчетные соотношения. Отдельное внимание уделяется реализации этих соотношений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BAE9D1AD3F7EB3267ED7FB824A4AA769929E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851234   (1055052) от 01.02.2026
+
+С.П. Фиников | Курс дифференциальной геометрии (1952) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый курс дифференциальной геометрии написан по программе физико-математических и механико-математических факультетов, но отличается некоторыми особенностями: плоские кривые рассматриваются как часть пространственных, широко используется кинематические соображения при рассмотрении перемещений трехгранника, связанного с точкой кривой или поверхности.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934B1472B82BC96C250341A3F07CCE81942A0A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

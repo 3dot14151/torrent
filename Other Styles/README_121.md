@@ -6,7 +6,7 @@ Gianni Marchetti - Le Notti Porno Nel Mondo N. 2 (Original Motion Picture Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380281.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ennio Morricone - The Very Best Of (2000) [WavPack|Lossless|image + .cue] <Score
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380072.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Santiano - 3 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue | image +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380009.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Constance Demby - Sanctum Sanctuorum (2003) [FLAC|Lossless|tracks + .cue] <NewAg
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379614.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Constance Demby - Faces of the Christ (2000) [FLAC|Lossless|tracks + .cue] <NewA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379613.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Constance Demby - Spirit Trance (2004) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379526.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379525.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Constance Demby - Ambrosial Waves – Healing Waters (2011) [FLAC|Lossless|image
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379442.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selectio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377887.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377656.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ David Arkenstone - David Arkenstone: The Collection (2020) [FLAC|Lossless|WEB-DL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376535.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376456.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376345.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376341.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tra
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376176.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376166.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376026.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44/24|t
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376011.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375962.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ V.A. - Bappi Lahiri - Disco Dancer, Kasam Paida Karne Wale Ki, Tarzan (2000) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375539.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Howard Drossin & RZA - Человек с железными кулаками (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375454.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Music of the Shamans (Музыка шаманов)
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375013.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374945.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374863.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Astral Dreams. Insomnia Help Sleeping Music (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374343.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373682.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Symantec Encryption Desktop Professional 10.3.2 MP11 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351155.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Baidu Browser 43.21.1000.275 Repack by xxx-man-by [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351151.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vivaldi 1.12.955.48 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351131.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Wise Care 365 Pro 4.7.4.457 Portable by Baltagy  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351115.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ KeePassXC 2.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351100.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Soft Organizer Pro 8.16 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351090.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Windows Doctor 2.8.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351022.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Punto Switcher 4.4.0 Build 151 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350966.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ CrystalDiskInfo 7.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350957.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Punto Switcher 4.4.0 Build 151 RePack (& portable) by KpoJIuK  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350940.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Nikon Capture NX-D 1.6.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350923.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sumatra PDF 3.1.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350875.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Daum PotPlayer 1.6.56815 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350863.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ priPrinter Professional 6.3.0.2387 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350855.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Punto Switcher 4.4.0 Build 151 RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350818.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Substance Painter 2020.2.2 (6.2.2) Build 661 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350781.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Auto PowerOFF 6.1 [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350714.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ TeraCopy Pro 2.3 Final + Portable DC 21.10.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350713.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Avast! Free Antivirus 2016 11.1.2241 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350689.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WPS Office 2015 Premium 9.1.0.5217 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350683.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Incomedia WebSite X5 Professional 14.0.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350677.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ XRecode III 1.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350642.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Win7codecs 3.8.9 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_350583.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Toolwiz Time Freeze 2016 3.2.0.2000 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350554.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Windows Doctor 2.8.0.0 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350553.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Windows 7 Ultimate SP1 x86 By Vladios13 v.30.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350520.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647147.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ Adele - 21 (Limited Edition) (2011) [MP3 |320 кб/с]<POP>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646738.jpg" />
 </div>
 
 
@@ -75,7 +75,7 @@ Chromatics - Just Like You (2016) Vinyl, EP [MP3|320 Kbps] <Electronic, Alternat
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646510.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Chromatics - Cherry (2016) [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646326.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Izia - La Vague (2015) [OGG|497-517 кб/с]<Alternative, French Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645655.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ James Blunt - All The Lost Souls (2007) [MP3|320 кб/с]<Pop, Soft Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645530.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Sister Crayon - Devoted (2015) [MP3|320 кб/с]<Trip-Hop, Dream Pop, Indie>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645527.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645286.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Radio Italia Spring (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645191.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - NRJ Extravadance (2019) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645189.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Bravo Hits Wiosna (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645186.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Anggun - Toujours Un Ailleurs (2015) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644862.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Ulitimate Funky House (2017) [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Groo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644722.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Tove Styrke - Kiddo (2015) [OGG|489-534 кб/с]<Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643570.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Loretta - The Stars My Destination (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643384.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Girls Club, Vol.2 (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643375.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - VA - Girls Club, Vol.1 (2018) Explicit [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643372.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643290.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Cristina - Contremano (1982) [MP3|320 Kbps] <Electronic, Pop, Italo-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642109.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Shura - Nothing's Real (2016) [MP3|320 Kbps] <80's Synthpop, Indietronica, Femal
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641915.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ QED - Animal Magic (1984) [OGG|475-526 кб/с]<Electronic, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641699.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ John Metcalfe - Wrapped (2016) [EP] [MP3|320 Kbps] <Alternative, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641066.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Coco Morier - Dreamer (2016) [MP3|320 Kbps] <Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640200.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ MAGIC! - Primary Colors (2016) [MP3|320 Kbps] <Pop, reggae>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640195.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ VA - FitHits (2016) [MP3|256 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639882.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ MIKA - No Place in Heaven (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639729.jpg" />
 </div>
 
 

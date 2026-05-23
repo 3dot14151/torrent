@@ -6,7 +6,7 @@ GFI Kerio Control 9.4.3 build 8388 [x64] 2xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119197.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HWiNFO 7.72 Build 5355 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119194.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Download Master 7.1.2.1729 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119193.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 Manager 3.9.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119187.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RAM Saver Professional 24.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119185.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Floorp Browser 11.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119184.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Clipboard Master 5.7.1.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119180.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Universal USB Installer 2.0.2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119179.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sumatra PDF 3.6.15949 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119169.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Reg Organizer 9.40 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119161.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Glarysoft Malware Hunter PRO 1.179.0.799 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119159.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Zoner Photo Studio X 19.2309.2.517 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119150.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ OneCommander Pro 3.68.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119146.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Attribute Changer 11.30a + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119145.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Chromium-Gost 121.0.6167.139 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119141.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ K-Lite Codec Pack Update 18.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119137.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Lacey Free Music & Video Downloader 2.93 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119135.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ JetBrains DataSpell for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119128.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Music Collection 3.6.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119127.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Chromium 121.0.6167.140 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119124.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Glary Disk Cleaner 6.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119117.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Fort Firewall 3.11.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119112.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Text Editor Pro 28.4.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119104.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Glary Tracks Eraser 6.0.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119095.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ n-Track Studio Suite 10.0.0 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119088.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Scrutiny 12.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119087.jpg" />
 </div>
 
 

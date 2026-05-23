@@ -6,7 +6,7 @@ Living Legends 13: Haunting Melody / Живые легенды 13: Завора�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046929.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crime Simulator (2025) [Ru/Multi] (1.19b) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046928.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MARVEL Cosmic Invasion (2025) [Ru/Multi] (1.0.0.12208) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046926.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Montgomery Fox and the Case Of The Diamond Necklace / Монтгомери Фо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046924.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Crime Simulator (2025) [Ru/Multi] (1.21 HF) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046922.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Onimusha 2: Samurai's Destiny (2025) [Ru/Multi] (Build 16840726/dlc) Repack FitG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046920.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Possessor(s) (2025) [Ru/Multi] (1.1.0-136288/1.4.0-136805) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046919.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sacred 2 Remaster (2025) [Multi] (CL16183) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046899.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Verho: Curse of Faces (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046894.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Call to Arms: Panzer Elite (2025) [En] (0.04.02/dlc) Repack Let'sРlay [Supporte
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046885.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Death Must Die (2023) [Ru/En] (0.8.5) Repack Necros [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046873.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Floodland (2022) [Ru/Multi] (1.3.22354 HotFix) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046864.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Please Be Happy (2022) [En ] (2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046863.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ghost Town (2025) [Multi] (19226835) Scene Rune [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046860.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ First Racer (2023) [Ru/Multi] (1.1.9) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046859.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sapo 3D (2025) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046858.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hunter's Moon: A Sovereign Syndicate Adventure (2025) [Ru/Multi] (1.0.44) Licens
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046848.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Dominova (2025) [Ru/Multi] (1.1.2) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046836.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Shin Megami Tensei III Nocturne HD Remaster (2021) [Multi] (20657000/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046834.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.11.2/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046826.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Eschalon: Book (2007-2014) [Ru] (1.06/1.05/1.021/dlc) Repack Nelex [Трилог
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046817.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Salt 2: Shores of Gold (2025) [Ru/Multi] (2025.5.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046772.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ A.I.L.A (2025) [Ru/Multi] (1.0.0.6001) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046755.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Monsters are Coming! Rock & Road (2025) [Ru/Multi] (1.0.8.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046742.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Company of Heroes 3 (2023) [Ru/Multi] (2.2.0.40455/dlc) Scene Rune [Ultimate]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046736.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Lost Paws (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046727.jpg" />
 </div>
 
 

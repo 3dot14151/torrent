@@ -6,7 +6,7 @@ Earl Coleman featuring Billy Taylor - Love Songs (1967) /2013, Warner/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488374.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Norio Maeda - Saxophone Unity (1967) 1987, Denon [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488367.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mike Goudreau Band - T.G.I.F. (2014) [MP3|320 кб/с]<Blues, Rockabilly>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488329.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Laurindo Almeida & Bud Shank Quartet - Brazilliance Vol. 1 & 2 (1953) 2CD /1991,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488319.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Thomas (Tim) Hardin Trio - You Just Have A Listen To Jazz (1992) /Victor/[FLAC|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488318.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kyoto Jazz Sextet - Mission (2015) Universal [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488292.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mary Lou Williams - My Mama Pinned A Rose On Me (1977) 2005, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488291.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hugh Masekela - Jabulani (2012) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488289.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Markey Blue - Hey Hey (2014) [MP3|320 кб/с]<Blues, R&B>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488231.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Steve Odum - Steve Odum Plays His Blues (2018) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488197.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Joe Zawinul - Concerto Retitled (1976) 2007, Wounded Bird Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488136.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Dave Brubeck Quartet - For Iola (1985) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488132.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ April Mae & The June Bugs (with Mike Mettalia) - Grease It Up & Go! (2015) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488103.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Adriana Evans - El Camino (2007) Expansion Records [FLAC|Lossless|tracks + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488011.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Patrik Jansson Band - So Far to Go (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488005.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Stevie Ray Vaughan & Double Trouble - Rude Mood (2015) Live [MP3|320 Kbps] <Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487999.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Billy The Kid & The Regulators - I Can't Change (2015) [FLAC|image+.cue]<Electri
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487942.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Jeff Golub Band - The Three Kings (2011) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487513.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bob Brookmeyer & Netherlands Metropole Orchestra - Out of This World (1998) Koch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487396.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ruby Braff And His Quartet - Live At The Regattabar (1993) 1994, Arbors Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487395.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ruby Braff And The Flying Pizzarellis - C'est Magnifique! (2002) 2007, Arbors Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487393.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ahmed Abdullah Quartet - Liquid Magic (1988) Silkheart [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486525.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Tom Harrell Quintet - Open Air (1987) SteepleChase [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486184.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Contrevent - Terre De Feu (1993) /CTV/[APE|image+.cue]<Jazz Fusion, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486165.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Charlie Mariano - Innuendo (1993) /Lipstick Records/[FLAC|tracks+.cue]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486160.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Lou Donaldson Quartet - Forgotten Man (1981) /2015, Solid Records/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486157.jpg" />
 </div>
 
 

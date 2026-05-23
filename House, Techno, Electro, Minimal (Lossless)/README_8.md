@@ -6,7 +6,7 @@ Blank & Jones - #WhatWeDoAtNight 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002170.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001981.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001952.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001684.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Me
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001359.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001086.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000890.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Brooklyn Bounce - 9 Альбомов (1997 - 2004) [FLAC|Lossless]<Hard Trance, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000715.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Dance Decades - A Compete History Of Dance 1989-2004 (2004) [FLAC|Lossless]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999964.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Zirkus Zirkus: Elektronische Tanzmusik Vol.1 (2013) [FLAC|Lossless]<Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999668.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997503.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Will.I.Am & Britney Spears - Scream & Shout (CD Single) (2013) [FLAC|Lossless]<H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997154.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995891.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995662.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995263.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994931.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Midnight - The Midnight Remixed 02 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992681.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Gioli & Assia - Night Experience (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991814.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991274.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mario Basanov - Journey (2012) [FLAC|Lossless]<House, Deep House, Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991146.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990498.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990447.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990378.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Martin Roth - Beautiful Life / Make Love To Me Baby (2012) [FLAC|Lossless]<Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990323.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Boris Brejcha - Space Diver (2020) Ultra Records [FLAC|Lossless|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985967.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Dirty Vegas - Days Go By (2002) [FLAC|Lossless|tracks + .cue] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984651.jpg" />
 </div>
 
 

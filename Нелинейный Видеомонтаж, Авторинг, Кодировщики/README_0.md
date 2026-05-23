@@ -1,29 +1,3 @@
-###  Публикация: 1869515   (1068188) от 06.05.2026
-
-Adobe Media Encoder 2026 26.2.2.3 Light Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Приложение Media Encoder позволяет экспортировать видео в форматы для любых устройств и создавать прокси-файлы. Вы можете автоматизировать свои рабочие процессы с помощью пресетов, папок для просмотра и функций для публикации материалов. С помощью функции Time Tuner можно отрегулировать продолжительность видеоролика, применить таблицы LUT и коррекцию громкости без (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4610455CDEDCDA802D808263B9D01F627A717CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869516   (1068187) от 06.05.2026
 
 Adobe Media Encoder 2026 26.2.2.3 Full Portable by 7997 [Multi/Ru]
@@ -32,7 +6,7 @@ Adobe Media Encoder 2026 26.2.2.3 Full Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068187.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Blackmagic Design DaVinci Resolve Studio 21.0 Build 28 beta 2 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068171.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Boris FX VEGAS Pro 2026.0 Build 66 Portable by 7997 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067892.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Shotcut 26.4.30 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067883.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Shutter Encoder 20.1 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067780.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Shotcut 26.4.30 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067685.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Kdenlive 26.04.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067658.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Blackmagic Design DaVinci Resolve Studio 21.0 Build 28 beta 2 Portable by 7997 [
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067632.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Kdenlive 26.04.0 + Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067334.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Fast Video Cutter Joiner 7.0.8 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067325.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Wondershare UniConverter 17.3.5.562 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067303.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ X HEVC Encoder 1.2 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067038.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ tsMuxer 2.7.0 Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066849.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Adobe After Effects 2026 26.2.1.02 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066610.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Fast Video Cutter Joiner 7.0.7 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066487.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ StaxRip 2.52.3.1 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066477.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Adobe Premiere Pro 2026 26.2.0.65 Light Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066318.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ Adobe Premiere Pro 2026 26.2.0.65 Full Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066317.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Adobe Media Encoder 2026 26.2.0.52 Light Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066298.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Adobe Media Encoder 2026 26.2.0.52 Full Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066297.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ VidCoder 12.19 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066225.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Adobe Premiere Pro 2026 026 26.2.0.65 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066112.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ X HEVC Encoder 1.1 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066072.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Adobe Media Encoder 2026 26.2.0.52 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066026.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ Adobe After Effects 2026 26.2.0.49 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065921.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ After Effects — это ведущая в отрасли программа д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91743E1BCD3C8CAD7582DBC2FF2BBD130697D434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866070   (1065917) от 
+
+AviDemux 2.8.2 Nightly (260417) + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avidemux - небольшой, простой редактор для работы с видео, который может использоваться как для обработки и редактирования видео, так и для конвертирования видеофайлов из одного формата в другой. Возможна работа со всеми наиболее популярными видеоформатами, включая AVI, совместимые с DVD MPEG файлы, MP4 и ASF. С помощью Avidemux можно производить базовые операции (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B80390042CEFF31D37ADCDD9FB56FFA068C40C
 ```
 
 https://mybot314.ru/tekegram_catalog/

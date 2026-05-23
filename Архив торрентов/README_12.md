@@ -6,7 +6,7 @@ BELOFF [dp] 2023
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044350.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ O&O DiskImage Professional 18.2 Build 203 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044306.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PhotoLine 23.51 + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044284.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ StrokesPlus.net 0.5.7.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044281.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ ESET NOD32 Internet Security 16.0.26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044262.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ BBC Живой мир. Яйцо: самое совершенное творен�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044234.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Uninstall Tool 3.7.1 Build 5700 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044233.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ O&O DiskImage Professional 18.2 Build 204 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044227.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Greenfish Icon Editor Pro 4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044214.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Human Vault - 2 Albums (2021-2023) [MP3|320 Kbps] <EBM, Dark Electro, Industrial
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044212.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ EssentialPIM Pro Business Edition 11.2.3 RePack (& portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044210.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ MediaHuman YouTube Downloader 3.9.9.79 (2101) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044203.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Hallo northern sky 4.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044200.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Uninstall Tool 3.7.1 Build 5700 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044199.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ WinRAR 6.20 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044195.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Navicat Premium 16.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044194.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v4 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044192.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ WinRAR 6.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044190.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ XnView Classic 2.51.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044189.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ BELOFF 2023 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044177.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Perfectly Clear WorkBench 4.2.0.2406 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044163.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ GeoGebra 6.0.755.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044159.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ File & Image Uploader 8.2.8 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044157.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Opera GX 94.0.4606.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044152.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ CherryTree 0.99.53 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044145.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Chasys Draw IES 5.23.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044142.jpg" />
 </div>
 
 

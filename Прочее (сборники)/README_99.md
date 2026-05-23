@@ -6,7 +6,7 @@ VA- Vanovlad часть №16 Русские новинки (2011) [MP3|128-320 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_542959.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - New Format Of Italo Disco (2015) [MP3|320 кб/с]<Disco, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542916.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Sexy Dance 50/50 (2CD) (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542854.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Boney M. - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542810.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - Русская Новинка Пляжного Сезона (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542747.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - Ibiza Chillout (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542743.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Песня года 2012. Летний спецвыпуск (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542586.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Relax FM (04.08.2012) [MP3|320 кб/с]<Relax, ballads>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542458.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Сборник песен о Санкт-Петербурге (Ленинг�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542035.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - ЕвроХит Топ 40 Europa Plus 28.06.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541792.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Smokie - Balladen (2015) [MP3|320 кб/с]<Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541120.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Arabesque - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541104.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Star House Vocal (19.07.2012) [MP3|320 кб/с]<House Vocal, Dance, Club, E
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540752.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - TOP 100 Зайцев.нет от 20 июля 2011 (2011) [MP3|128-320 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540714.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540609.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - The Best World Ballads-12 (2012) [MP3|96-320 кб/с]<Pop, Rock, Blues, Rap
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539938.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - 100 хитов в дорогу (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539490.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Summer on the Beach (Downtempo Lounge and Chilled House) (2015) [MP3|320 к
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539300.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - NeРусский Шторм - 55 (2012) [MP3|128-320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538796.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Солнечный Попсовый Микс (2012) [MP3|256 кб/с]<Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538784.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Музыкальный подиум (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538764.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Модное Танцевальное Лето. Зарубежный (2012)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538763.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - 100 Hits From The International Dance Charts (2015) [MP3|320 кб/с]<Progr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537188.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ VA - не Громкие новинки недели 23 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536304.jpg" />
 </div>
 
 
@@ -783,7 +783,7 @@ VA - Новинки с разных популярных MP3 сайтов. Ver.8
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535670.jpg" />
 </div>
 
 
@@ -812,7 +812,7 @@ VA - Самые горячие русские танцевальные трек�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535667.jpg" />
 </div>
 
 

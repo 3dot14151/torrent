@@ -6,7 +6,7 @@ Any Video Converter Ultimate 4.5.2 + PortableAppZ [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491399.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ PowerArchiver 2012 + Portable 13.01.03 [multilanguage/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491386.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ PDF-XChange 2012 Pro 5.5.315.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491360.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Ocenaudio 3.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491305.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Firefox Browser 80.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491304.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Microsoft Office 2016 Standard 16.0.4549.1000 RePack by KpoJIuK (2017.08) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491265.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VSO Blu-ray Converter Ultimate 2.1.1.4 Final [Multi-Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491239.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Auto Hide IP 5.2.8.2 [Английский + Русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491235.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ IObit Advanced Systemcare 9.0.1.753 beta 2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491233.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cowboy WPI StartSoft September 61-2015 61-2015 [Lite] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491229.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ GeoGebra 6.0.600.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491188.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Mozilla Thunderbird 78.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491182.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Opera 70.0.3728.133 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491180.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ SRWare Iron 84.0.4300.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491176.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VSO Blu-ray Converter Ultimate 2.1.1.4 Portable by SamDel [Мульти + Рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491145.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PGWARE PCBoost 4.9.3.2012  RePack by Boomer [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491139.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Foxit PhantomPDF Business 5.4.0.0902 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491132.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ WebcamMax Final Portable By SamDel v7.6.6.6 [Русский / Мультиязы
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491130.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Visual Studio Code 1.48.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491100.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Google Chrome 85.0.4183.83 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491094.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ WSCC (Windows System Control Center) 4.0.5.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491091.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Uninstall Tool 3.2.1.5277 Final + Portable  by author [Multi-Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491069.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Google Chrome 85.0.4183.83 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491026.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ GPU-Z 0.5.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491002.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ GoodSync Enterprise 10.10.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490982.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VueScan Pro 9.1.15 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490959.jpg" />
 </div>
 
 

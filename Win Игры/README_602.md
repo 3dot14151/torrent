@@ -1,29 +1,3 @@
-###  Публикация: 1765799   (2722) от 15.09.2025
-
-The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Complete Pack]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вы играете за капитана Эшли Новак – вы рифтбрейкер, элитный ученый/коммандо внутри мощного меха-костюма. Пройдите сквозь односторонний портал на Галатею-37, отдаленную планету на окраине Млечного Пути, чтобы построить базу, которая позволит возвращаться на Землю, а также начать колонизацию. Меха-костюм Эшли, которому она дала прозвище «Мистер Ригз», может выдерживать (   Читать дальше...   )Тип издания: RepackРазработчик: EXOR StudiosЖанр: Стратегия, Строительство, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFCD1F99F1161025B54B71A56BBF0A263BF42E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708306   (2721) от 15.09.2025
 
 KeeperRL (2024) [En] (1.2.6) License GOG
@@ -32,7 +6,7 @@ KeeperRL (2024) [En] (1.2.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2721.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.43050s/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2719.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2717.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250908/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2704.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2695.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ RoadCraft (2025) [Ru/Multi] (4.1.PATCH.529928/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2687.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tokyo Underground Killer (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2676.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.5.4/dlc) Repack Let'sРlay [Digital Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2674.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Myth Finders / Искатели мифов (2025) [Ru] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2639.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Missing Hearts: Crimson Cruise (2025) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2614.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.231/dlc) Repack Wanterlu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2590.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ PATAPON 1+2 REPLAY (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2587.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2585.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) Repack Wanterlude [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2583.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2579.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2578.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2577.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Beyond Sunset (2023) [En] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2569.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0.1/dlc) Repack Wanterlude [Royal
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2565.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack Wanterlude [4-Year Anniversary Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2555.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Kitaria Fables (2021) [Ru/Multi] (1.10/dlc) License GOG [Digital Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2553.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2552.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2539.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.741703/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2536.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Star Fire Eternal Cycle (2025) [Ru/Multi] (1.26.325) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2522.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Star Fire Eternal Cycle (2025) [Ru/Multi] (1.26.325) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAFF2F4EEA4B1266FE4841EF8244444F9D0CF9D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815405   (2510) от 16.09.2025
+
+Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nordic Ashes: Survivors of Ragnarok – динамическое приключение с элементами экшена и упрощенного рогалика. Сюжет вдохновлен скандинавскими легендами и мотивами. Главный герой оказывается в опасной среде, в которой он столкнется с полчищами вражеских и смертоносных существ. Ему необходимо остаться в живых среди сотен противников и ловушек, постепенно прокачивая свои (   Читать дальше...   )Тип издания: LicenseРазработчик: Noxfall StudiosЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCABB1075CDAF917FC06FDCED61B280F8D9BF05
 ```
 
 https://mybot314.ru/tekegram_catalog/

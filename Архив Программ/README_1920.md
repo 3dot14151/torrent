@@ -6,7 +6,7 @@ Arnold 4.6.6.2 (C4DtoA) for Cinema 4D 2024
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156440.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ TeamViewer 8.0.16447 Final RePack (& Portable) by elchupacabra [MULTi / Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_156439.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ uTorrent Pro 3.6.0 Build 46922 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156429.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ The Bat! Professional 5.3.4 Final RePack by elchupacabra [Русский / Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_156417.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v16.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156402.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ CoolUtils Total HTML Converter 4.1.80 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156376.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Adobe Acrobat Pro DC 2019.021.20061 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156368.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ oCam Screen Recorder 173.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156364.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Adobe Acrobat Reader DC 2019.021.20061 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156332.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ WhatsApp 2.2049.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156329.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.33130.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156302.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ qBittorrent v4.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156268.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ R-Studio 8.9 Build 173593 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156266.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The KMPlayer 4.2.2.35 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156258.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Viber 14.4.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156255.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Cyberfox 43.0.2 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156253.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156239.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ PrivaZer 2.42.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156237.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Windows 7 SP1 x86 x64 AIO Release by StartSoft 73-2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156235.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Ashampoo WinOptimizer 12.00.40 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156229.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ WinBin2Iso 2.92 build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156228.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Windows 10 Enterprise 1909 x64 Rus by OneSmiLe [18363.535] (19.12.2019)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156225.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ CyberLink PowerDirector Ultimate 18.0.2405.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156209.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ AnyDesk 5.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156203.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Microsoft  Visual C++ Runtimes AIO v0.77.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156182.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ HeavenTools Resource Tuner Console 2.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156169.jpg" />
 </div>
 
 

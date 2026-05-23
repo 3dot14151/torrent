@@ -1,194 +1,3 @@
-###  Публикация: 1416042   (371333) от 14.10.2020
-
-antiX Linux 19.2 Hannie Schaft [full] [i386, x86-64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-antiX - легковесный LiveCD-дистрибутив Linux, созданный на основе Debian Stable и ориентированный на устаревшее оборудование с процессорами Intel-AMD x86. Он сравнительно лёгок и подходит для старых компьютеров, а также предоставляет передовые ядра и приложения, обновления и дополнения через систему пакетов apt-get и репозитории, совместимые с Debian.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09051CD747A7207D190EC624A046EEB40AF4FF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327768   (367527) от 28.09.2019
-
-MANJARO KDE JUHRAYA 18.1.0 [i386, x86-64] 1xDVD (2019-09-12)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Manjaro Linux - быстрая, дружественная операционная система с графической средой рабочего стола, основанная на Arch Linux.Manjaro - дистрибутив Linux, основанный на Arch Linux. Одна из главных особенностей - дружественность по отношению к неопытным пользователям при сохранении всей мощи Arch.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9EBB4C70DC6260AA9FA05CE79A64E9E6ABFB9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416256   (366933) от 16.10.2020
-
-Ubuntu ServerPack 20.04 (сентябрь 2020) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ubuntu ServerPack - полный комплект серверного ПО, который позволит создать полноценный сервер Enterprise-уровня как в открытой, так и в закрытой(без возможности доступа к Интернет) корпоративной среде предприятий / фирм / государственных учреждений.
-Он легко внедряется в существующую ИТ-инфраструктуру и корпоративные сети. Возможно взаимодействие с рабочими станциями (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B24B85DE750ADEB1ADC0E4BF6A75494E0EF5BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327772   (365234) от 29.09.2019
-
-MANJARO GNOME JUHRAYA 18.1.0 [i386, x86-64] 1xDVD (2019-09-12)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Manjaro Linux - быстрая, дружественная операционная система с графической средой рабочего стола, основанная на Arch Linux.Manjaro - дистрибутив Linux, основанный на Arch Linux. Одна из главных особенностей - дружественность по отношению к неопытным пользователям при сохранении всей мощи Arch.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AA5ABE58EC6C7750484FAE283FDCBA70C5C1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327762   (365099) от 29.09.2019
-
-MANJARO XFCE JUHRAYA 18.1.0 (2019-09-12) 18.1.0 [i386, x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Manjaro Linux - быстрая, дружественная операционная система с графической средой рабочего стола, основанная на Arch Linux.Manjaro - дистрибутив Linux, основанный на Arch Linux. Одна из главных особенностей - дружественность по отношению к неопытным пользователям при сохранении всей мощи Arch.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFCD0AAB0517A95AE551756386F78D30DB609AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416967   (362064) от 18.10.2020
-
-Parted Magic 2020.10.12 [x64]
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DDC83B367FD93AB37B8BB62CDCB9DA5D634845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722891   (360112) от 16.11.2013
-
-Mageia 4 Beta I [i586, x86-64] 6xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Четвертый по популярности дистрибутив на сегодня по версии DistroWatch.
-
-Вчера вышел Beta I релиз следующего поколения Mageia.
-
-Проект Mageia (МАГ) стартовал в сентябре 2010 как форк Mandriva Linux. Он поддерживается not-for-profit организациями. Поддерживаются архитектуры i586 и x86-64. Доступны образы с Mageia, использующей в качестве графической среды KDE, GNOME и LXDE.
-
-В релизе сделано много обновлений, в частности, добавлены ядро Linux версии 3.12.x; KDE 4.11.2, FireFox 24.1.0,  и LibreOffice 4.1.3.2ю
-
-Также продолжена работа над Live DVD, который вошел в релиз Mageia 3 и будет поддерживаться в следующих релизах.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A5D2D692AB42F71C034DB7AADF91569F952BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952277   (357710) от 31.10.2015
 
 Sabayon 15.11 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и server) [amd64] 5xDVD
@@ -197,7 +6,7 @@ Sabayon 15.11 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357710.jpg" />
 </div>
 
 
@@ -223,7 +32,7 @@ SUSE Linux Enterprise 12 SP2 (Server and Desktop) [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356228.jpg" />
 </div>
 
 
@@ -249,7 +58,7 @@ Aget 0.4.1 [i386, amd64] (deb + src)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355372.jpg" />
 </div>
 
 
@@ -276,7 +85,7 @@ Runtu 18.04 Xfce [x86_x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351572.jpg" />
 </div>
 
 
@@ -302,7 +111,7 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [i686] 6x
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351423.jpg" />
 </div>
 
 
@@ -330,7 +139,7 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [x86-64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351167.jpg" />
 </div>
 
 
@@ -358,7 +167,7 @@ Tor Browser 2.3.25-15 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350238.jpg" />
 </div>
 
 
@@ -384,7 +193,7 @@ Skype for Linux 8.9.0.1 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348628.jpg" />
 </div>
 
 
@@ -412,7 +221,7 @@ Tor Browser 5.0.4 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348560.jpg" />
 </div>
 
 
@@ -438,7 +247,7 @@ Oracle Linux 7 Update 3 Server [x86-64] 1xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346884.jpg" />
 </div>
 
 
@@ -464,7 +273,7 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346484.jpg" />
 </div>
 
 
@@ -492,7 +301,7 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346483.jpg" />
 </div>
 
 
@@ -520,7 +329,7 @@ Linuxfx 10.7.105 KDE Plasma. Дистрибутив Linux, с рабочим с�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346130.jpg" />
 </div>
 
 
@@ -548,7 +357,7 @@ RFRemix (Russian Fedora Remix) 23 Wayland (Server DVD + Netinstall) [i386, x86-6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344056.jpg" />
 </div>
 
 
@@ -576,7 +385,7 @@ Fedora 23 Server DVD + Netinstall [i386, x86-64] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343924.jpg" />
 </div>
 
 
@@ -604,7 +413,7 @@ Adobe Dreamweaver CS6 [MULTi / Русский] [x86, amd64] (wine)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342274.jpg" />
 </div>
 
 
@@ -630,7 +439,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340655.jpg" />
 </div>
 
 
@@ -658,7 +467,7 @@ Debian Edu - Skolelinux 11.5.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340653.jpg" />
 </div>
 
 
@@ -684,7 +493,7 @@ Sabayon 16.11 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340087.jpg" />
 </div>
 
 
@@ -695,6 +504,204 @@ Sabayon 16.11 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10FCD67B1B672D62855F5F71FF44170003AE2BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074014   (339807) от 18.11.2016
+
+Q4OS 1.8.1 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64] 4xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
+
+Система базируется на Debian 8.6 и использует в качестве графической (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EBC6BF12B6F0509AB0A19AA7E86E7C1B460D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954685   (339117) от 08.11.2015
+
+Arch Linux 2015.11.01 [i686, x86-64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arch — «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
+
+В Arch (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA62704BC6F0D23581CA3ED6ECA611431B7A4C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581488   (337294) от 27.11.2012
+
+Linux UsefulPack 12.11 (L) [Русский] (2012)[x86 + amd64]
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337294.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске представлены:
+- интересные программы, отсутствующих в стандартных репозиториях Linux-дистрибутивов;
+- уроки, руководства по работе в Linux, а также электронные версии популярных бесплатных журналов и книг посвященных тематике СПО и Linux.
+
+Программы снабжены штатным установщиком или поставляются в виде бинарных сборок в архивах.Название программы: Linux UsefulPackЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419798   (334937) от 30.10.2020
+
+Ubuntu EducationPack 16.04 (2020.10) [i386 + amd64] (2хDVD)
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предназначен помочь в организации учебного процесса и образовании.
+
+Дистрибутив из коробки предоставляет полностью настроенное решение для образовательного учреждения любой категории (младшие, средние и старшие классы школ, лицеи, колледжи, а также высшие учебные заведения такие как институты, университеты и другие).
+(   Читать дальше...   )Разработчик: UALinuxЯзык интерфейса: мультиязычный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CF47B3E394DEBB5AE85AAD64E1A9FF0FCA40F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330482   (322368) от 16.10.2019
+
+Linux Mint 19 Win10 theme by oleg251975 19 [64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322368.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче обычный Linux Mint 19 Cinnamon с темой Windows 10.
+Максимально приближенный визуально к Windows 10.
+Установлены стандартные программы Linux Mint Cinnamon
+P.S. После установки в Домашней Папке снять галочку Скрытые файлы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC0362B8210D2F4636ED4C731A9DE71E152946C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958590   (321105) от 22.11.2015
+
+Red Hat Enterprise Linux (Server) 7.2 [x86-64] 1xDVD + 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321105.jpg" />
+</div>
+
+
+###  Подробнее
+
+После восьми месяцев разработки компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 7.2. Ветка RHEL 7.x будет поддерживаться до июня 2024 года. Установочные образы RHEL 7.2 доступны для загрузки только зарегистрированным пользователям Red Hat Network (RHN), исходные тексты пакетов можно загрузить из Git-репозитория проекта CentOS. Одновременно опубликован (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D597607F28F3E9BD3D16F657EE572CA5EDA84025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181924   (321043) от 08.11.2017
+
+Skype for Linux Beta 5.5.0.1 [x86_x64] (deb, rpm)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype (произносится «скайп») — бесплатное проприетарное программное обеспечение с закрытым кодом, обеспечивающее шифрованную голосовую связь через Интернет между компьютерами (VoIP), а также платные услуги для звонков на мобильные и стационарные телефоны.
+
+Программа также позволяет совершать конференц-звонки (до 25 голосовых абонентов, включая инициатора), видеозвонки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FC49D54707DCE440DCEB47093310BA0D9DBC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

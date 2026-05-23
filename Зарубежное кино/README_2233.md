@@ -1,55 +1,3 @@
-###  Публикация: 1782849   (25923) от 02.03.2025
-
-Фантастическое путешествие / Книжный червь / Bookworm (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь отличницы Милдред переворачивается с ног на голову, когда появляется её папа-фокусник, которого она не видела много лет. Поскольку девочка интересуется не фокусами, а природой, отец предлагает ей вместе отправиться в путешествие. Их ждет фантастическое приключение в поисках исчезающего вида пантеры, в ходе которого им не только придется узнать друг друга получше, (   Читать дальше...   )Производство: Новая Зеландия / Firefly Films, New Zealand Film Commission, NowhereЖанр: драма, комедия, приключенияРежиссер: Ант ТимпсонАктеры: Нелл Фишер, Элайджа Вуд, Моргана О’Рейли, Миллен Бейрд, Никки Сиулепа, Тео Шэйкс, Майкл Смайли, Ванесса СтэйсиПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английский (Full, SDH)Продолжительность: 01:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E8179F89ACB7D6EF481472C06E0A2FD1430656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782614   (25921) от 03.03.2025
-
-Взаперти / Enfermes dehors / Locked Out (2006) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Бомж по имени Ролан случайно становится свидетелем самоубийства полицейского и решает отнести вещи убитого в комиссариат. Охранник, однако, не принимает его всерьез, и тогда Ролан решает сам нарядиться полицейским, чтобы воспользоваться заманчивой льготой - столовкой! В участке он встречает Мари, родители мужа которой украли у нее дочь, и решает помочь несчастной (   Читать дальше...   )Производство: Франция / Canal+, France 2 Cinéma, CinéCinéma, Union Générale Cinématographique (UGC), EskwadЖанр: комедияРежиссер: Альбер ДюпонтельАктеры: Альбер Дюпонтель, Клод Перрон, Николя Марье, Элен Венсан, Ролан Бертен, Иоланда Моро, Були Ланнерс, Брюно Лоше, Филипп Дюкен, Лола АрноПеревод: Многоголосый профессиональныйЯзык озвучки: русский, французскийСубтитры: английские, французскиеПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7704F4238941909C384351B46E8579518D42CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783019   (25913) от 03.03.2025
 
 Два к одному / Zwei zu eins / Two to One (2024) BDRip [H.264] [ DE / RU Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25913.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25911.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25851.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25833.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25823.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25802.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25791.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ P.S. Я люблю тебя / P.S. I Love You (2007) BDRip [H.265/1080p] [10-bit
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25764.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25757.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25690.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25671.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25644.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25575.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25536.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25527.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25510.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25463.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25456.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25446.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25410.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25407.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25384.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25382.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25379.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D148DFB0D1299F60BAA081E3409CCB2FDB9D9133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247808   (25377) от 08.03.2025
+
+8 подруг Оушена / Ocean's Eight (2018) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять лет, восемь месяцев, 12 дней… и далее. Именно столько Дебби Оушен разрабатывала план величайшего ограбления своей жизни.
+Она точно знает, что для него потребуется, — команда лучших в своем деле, начиная с ее давней сообщницы Лу Миллер. Вместе они собирают команду уникальных специалистов. Их цель — неотразимые 150 миллионов долларов в бриллиантах — в бриллиантах (   Читать дальше...   )Производство: США / Warner Bros., Village Roadshow Pictures, Rahway Road Productions, Smokehouse PicturesЖанр: Боевик, Триллер, Комедия, КриминалРежиссер: Гэри РоссАктеры: Сандра Баллок, Кейт Бланшетт, Гриффин Данн, Дирдри Гудвин, Энн Хэтэуэй, Минди Кейлинг, Рианна, Даниэлла Раббани, Брайан Дж. Картер, Сара Полсон, АквафинаПеревод: Дублированный (Blu-ray EUR)Субтитры: Русские (Forced), Русские (Full), Украинские (Forced), Английские (Full), Английские (SDH)Продолжительность: 01:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F28FDCB1189DFF238C33E4F589EF8EF93CB76D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996421   (25374) от 08.03.2025
+
+Суфражистка / Suffragette (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен движению суфражисток (борьба за предоставление женщинам избирательных прав), зародившемуся в Великобритании в конце 19 века.Производство: Великобритания / British Film Institute (BFI), Canal+ France, Redgill ProductionsЖанр: драма, биография, историяРежиссер: Сара ГавронАктеры: Кэри Маллиган, Хелена Бонем Картер, Брендан Глисон, Энн-Мэри Дафф, Мэрил Стрип, Грэйс Стоттор, Джофф Белл, Аманда Лоуренс, Шелли Лонгуорт, Адам Майкл ДоддПеревод: Дублированный (Лицензия BD CEE)Качество: BDRip 720pПродолжительность: 01:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378132253A777603B3D82263D2ECD8516AFFC266
 ```
 
 https://mybot314.ru/tekegram_catalog/

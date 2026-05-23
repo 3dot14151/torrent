@@ -1,29 +1,3 @@
-###  Публикация: 1154351   (63541) от 09.03.2024
-
-BBC. Horizon. Как перестать тревожиться и стать счастливым? / Don’t Worry, Be Happy (The Truth About Personality) (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас в детстве был жизнерадостным ребенком. И в возрасте мы стараемся казаться беззаботными, но на самом деле - это лишь видимость. Мы почти всегда думаем о плохом: о том, как всё ужасно, мы боимся потерять работу, заразится кошмарной болезнью или остаться без денег. Мы подвержены стрессу и страху перед будущим. Но есть ли у нас шанс измениться, перестать (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, психология, личностьРежиссер: Хелен НиксонУчастники: Майкл МослиПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC267C0C3E8ED04071F6DDAFBEB653F78B458B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100409   (63534) от 09.03.2024
 
 24 часа на Земле / 24 Hours on Earth (2013) SATRip (серии 1-2 из 2)
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63534.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC. Вена - столица империи / Vienna: Empire, Dynasty and Drea
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63470.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC. Экспедиция в Бирму / Expedition Burma (2011) BDRemux [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63452.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC. Эттенборо и морской дракон / Attenborough and the Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63449.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC: 80 Лучших садов мира / Around the World in 80 Gardens (2008)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63436.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC: 80 Чудес света (Вокруг света за 80 сокровищ�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63364.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ BBC. Шедевры мировой архитектуры / Adventures in Archit
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63337.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ BBC: Великий рифт. Дикое сердце Африки / Great Rift:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63225.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63137.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ BBC: Атлантида была здесь (Свидетельства Атла
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63105.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ BBC: Вивисекция. Как устроены насекомые / Insect D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63051.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ BBC: Horizon. В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62995.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ BBC. Секс и чувственность: искусство модерн / S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62941.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62933.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ BBC: Всемирная история живописи / Sister Wendy's Story o
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62922.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ NG. Последствия: Нулевое население / Aftermath: Popul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62919.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62891.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62816.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62809.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ BBC: Гении древнего мира / Genius Ancient World (2015) WEB-DL [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62789.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) HDTVRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62788.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ BBC. Порядок и хаос. Силы, которые управляют В�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62713.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ BBC: Какого пола твой мозг? / Is Your Brain Male Or Female? (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62692.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ BBC: История мира с Эндрю Марром / Andrew Marr's History 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62680.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62582.jpg" />
 </div>
 
 
@@ -670,6 +644,33 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0253F576839539C06557698A3F9C5BAD1F1AC1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113520   (62497) от 19.03.2024
+
+BBC: Дуб - искусство выживания / Oak Tree: Nature's Greatest Survivor (2016) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм - наполовину научный, наполовину исторический - повествует о богатой событиями и драмами жизни дуба. Он покажет зрителям, насколько дуб - это идеальный представитель своего вида, и расскажет, как проходит жизнь этого почтенного дерева.
+Какие удивительные изменения происходят в дереве, чтобы оно благополучно переживало смену времен года? Вы увидите, как (   Читать дальше...   )Телекомпания: Великобритания, Furnace Limited for BBCЖанр: Документальный, научно-популярный, флораРежиссер: Ник СтэйсиПеревод: Дублированный, интервью - слышна оригинальная речьПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3828209017C5E0142EDD6D957731D962079B8224
 ```
 
 https://mybot314.ru/tekegram_catalog/

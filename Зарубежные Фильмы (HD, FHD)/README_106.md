@@ -1,55 +1,3 @@
-###  Публикация: 1476276   (1008822) от 29.06.2021
-
-Неожиданный свидетель  / A Witness Out Of The Blue / Faan zeoi jin coeng / 犯罪現場  (2019) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Найдены жестоко убитыми члены банды, недавно провернувшей ограбление ювелирного магазина, при котором пострадало несколько человек. В убийстве подельников подозревается главарь банды Ван, но никаких улик против него не найдено. На месте преступления полиция обнаружила необычного свидетеля — попугая ару, которого забирает к себе большой любитель животных следователь (   Читать дальше...   )Производство: Гонконг / Media Asia Films, One Cool Film Production, Sun Entertainment CultureЖанр: Триллер, криминал, детективРежиссер: Эндрю ФунАктеры: Луис Ку, Джессика Хестер Сюань, Луис Чхён, Патрик Там, Филип Кюн, Сэм Ли, Энди Он, Энни Лю, Фиона Сит, Лин Мань-ЛунПеревод: Авторский (одноголосый закадровый) (Ю. Немахов)Субтитры: Английские (Full)Продолжительность: 01:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7ACDD6BF85EC12C470F8BC39293B139BBD7CBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480665   (1008815) от 29.06.2021
-
-Уйти не прощаясь / French Exit (2020) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-План 60-летней светской львицы Фрэнсис Прайс умереть, пока не кончились деньги, не сработал. Муж скончался 20 лет назад, и некогда огромное наследство почти полностью истрачено. На последние деньги она перебирается в Париж, чтобы провести остаток жизни в скромной квартирке вдали от внимания. Компанию ей составляют сын Малкольм и воплощение покойного супруга — кот (   Читать дальше...   )Производство: Канада, Ирландия, Великобритания, США / Blinder Films, Elevation PicturesЖанр: Драма, комедияРежиссер: Азазель ДжейкобсАктеры: Мишель Пфайффер, Лукас Хеджес, Трэйси Леттс, Валери Махаффей, Сьюзэн Койн, Имоджен Путс, Даниэль Макдональд, Исаак Де Банколе, Дэниэл ДиТомассо, Eddie HollandПеревод: Профессиональный (многоголосый закадровый) (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced, Full),  Английские (Forced, SDH)Продолжительность: 01:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F04E2B035EE55C527C87C3200050730000C2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480643   (1008808) от 29.06.2021
 
 Без ума от неё / Loco por ella (2021) WEBRip [H.264/720p-LQ] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008808.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008796.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008789.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008786.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008785.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008784.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008783.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008776.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008767.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008686.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008682.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008678.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008545.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008534.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008526.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008525.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008518.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008515.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008235.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008234.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008229.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008219.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008211.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008209.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72FB6D2D9D6BFA8BEE033DD2531BE125EE8FF7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451496   (1008195) от 03.07.2021
+
+В кольце времени / Time Loop (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой ученый из Лондона Рики принимает приглашение отца принять участие в научном эксперименте, который проводится в тихой итальянской деревушке. В процессе оказывается, что отец изобрел машину времени, вызывающую интерес и у других сил. Рики вынужден столкнуться с последствиями выбора, который он еще не сделал.Производство: Италия / EPFlicks, Pragma Production, RecDistriktЖанр: Фантастика, приключенияРежиссер: Сиро СоррентиноАктеры: Сэм Гиттинс, Мино Сферра, Элли Пуссо, Элиана Манвати, Антонио Агруста, Микеланджело Джентиле, Лука Пишедда ...Перевод: Дублированный (IVI)Субтитры: АнглийскиеПродолжительность: 01:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF626A1CB80862801E4728B54F22829C78759E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475842   (1008169) от 04.07.2021
+
+Жестокий / A Violent Man (2017) WEB-DL [H.264/720p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том Мэтьюс зарабатывает на жизнь участием в жестоких боях без правил. Он весьма преуспел в своем деле, но после страстной ночи с милой девушкой его жизнь катится под откос. Все дело в том, что несчастную обнаружили мертвой, и главным подозреваемым для детективов стал Том. Он последний видел жертву, так что полицейские сразу же решают повесить на него ответственность (   Читать дальше...   )Производство: США / IME Films, JLE Cinema Group, Nero-FilmsЖанр: Триллер, драма, криминалРежиссер: Мэттью БерковитцАктеры: Томас К. Джонс, Исаак Де Банколе, Чак Лиделл, Брюс Дэвисон, Халила ДюБос, Дениз Ричардс, Фелиша Террелл, Херб Дин, Джон Скларофф, Джон ЛьюисПеревод: Двухголосый любительский (HiWayGrope)Субтитры: АнглийскиеПродолжительность: 01:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E37817A7CCE80416014DBC0AD4926CEBCB82FE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

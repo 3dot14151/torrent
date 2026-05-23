@@ -6,7 +6,7 @@ Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724757.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru] (1.0.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724039.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723431.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ys: Memories of Celceta (2018) [Ru/Multi] (1.0.0.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722101.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719457.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Stranger of Sword City (2016) [En/Ja] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719306.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) License CPY [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718984.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Masters of Anima (2018) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718980.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Anima Gate of Memories (2016) [En/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717238.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) Repack xatab [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716908.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713427.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Pharaonic (2016) [Ru/Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711114.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Ca
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711112.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710461.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710211.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ BloodLust Shadowhunter (2015) [En] (1.028) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709190.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Kenshi (2018) [Ru/Multi] (1.0.17) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708714.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Monark (2022) [Multi] (1.00/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704644.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.3.5/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704095.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ All Walls Must Fall - A Tech-Noir Tactics Game (2018) [En/Pt] (1.1.0649) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703876.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ My Time At Portia (2018) [Ru/Multi] (2.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702852.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ys VI: The Ark of Napishtim (2015) [En] (13.04.2018) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702204.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ For The King (2017) [Ru/Multi] (1.0.7724) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702203.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ For The King (2018) [Ru/Multi] (1.0.7724) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702202.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702111.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Fallout Tactics: Brotherhood of Steel [Ru] (L) 2001
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_701519.jpg" />
 </div>
 
 

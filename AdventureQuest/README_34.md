@@ -1,29 +1,3 @@
-###  Публикация: 1000761   (602799) от 08.07.2017
-
-Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Might and Delight приглашает вас переступить порог сказочного мира Shelter. Представляем Paws! Тьма сгущается упруго, лес сбивает вас с пути, но гораздо легче с другом.. к дому вместе добрести... Paws – это история о том, как двое симпатичных и необычных героев пробиваются к дому через всевозможные трудности и опасности, которые таит в себе дикая природа. Игра сочетает (   Читать дальше...   )Тип издания: LicenseРазработчик: Might and DelightЖанр: AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11968B67DC16BE407EDC09C54FD6823A7134F2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213622   (602695) от 22.06.2018
 
 Tunnels of Despair (2018) [Ru/Multi] (1.06) License PLAZA
@@ -32,7 +6,7 @@ Tunnels of Despair (2018) [Ru/Multi] (1.06) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602695.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Stanley Parable (2022) [Ru/Multi] (1.04) Repack Other s [Ultra Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602267.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ SIMULACRA (2017) [En] (1.0.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602103.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601557.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601555.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ VALKYRIE DRIVE -BHIKKHUNI- (2017) [En/Jp] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600893.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Reflecting Fate (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599560.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Eyes of Ara (2016) [En] (1.0.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595596.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Eyes of Ara (2016) [En] (1.0.01) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595591.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Captain Morgane And The Golden Turtle [Multi5/+] (RePack) 2012 l Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595321.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Rising Islands (2016) [Ru/Multi] (1.010) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594201.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Slap Village (2016) [En/Multi] (1.0) License POSTMORTEM [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594155.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Slap Village (2016) [En/Multi] (1.0) Repack Other s [Chapter 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594115.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Close to the Sun (2019) [Ru/Multi] (108) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593442.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.4.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592830.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Layers of Fear: Inheritance (2016) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588093.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Subject (2018) [En] (2.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587899.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Lorelai (2019) [En] (1.0.4/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587838.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Pneuma: Breath of Life (2015) [Ru] (1.0.0.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587613.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Half Dead (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587118.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Near Death (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587067.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ AR-K: The Great Escape (2015) [En/Sp] License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585592.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585519.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Long Dark (2017) [Ru/Multi] (1.49) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585027.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catal
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584910.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B284224A06DA0C74875A538BF531A0D37754BED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145418   (584895) от 11.05.2019
+
+The Long Dark Redux (2017) [Ru/Multi] (1.49) SteamRip R.G. Origins [Episode 1-2]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584895.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма.Тип издания: SteamRipРазработчик: Hinterland StudioЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: Не озвученаЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4263091478E5906CDF6F62A33CDD20C0AC6DDABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

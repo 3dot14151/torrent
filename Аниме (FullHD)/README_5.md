@@ -6,7 +6,7 @@ Soukou Musume Senki | LBX Girls | Девушки в доспехах [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012705.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012600.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Maburaho | Мабурахо [2003, TV, 24 из 24] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012547.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Amanchu! Advance | Аманчу! [ТВ-2] [2018, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012445.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Eiga Sayonara Watashi no Cramer: First Touch | Farewell, My Dear Cramer: First T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011700.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011497.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой! [2018, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011411.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Aldnoah.Zero | Альдной.Зеро [2014, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011370.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan | Armored Trooper Votoms: Brilliantly Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011341.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailse
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011337.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Vo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011335.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011333.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011331.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Брон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011328.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Брон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011325.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные вои
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011315.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011140.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010674.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010333.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Wandering; 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010286.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Devilman: Crybaby | Devilman Crybaby | Человек-дьявол: Плач [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010165.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Yowamushi Pedal: Glory Line | Трусливый велосипедист [ТВ-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009574.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Yowamushi Pedal: New Generation | Трусливый велосипедист [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009449.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ On-Gaku: Our Sound | Ongaku | Музыка [2020, Movie] BDRip 1080p HEVC 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009438.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Godzilla: Singular Point | Годзилла: Точка сингулярност
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009409.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 24 эп.] BDRip 1080p HEVC 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009263.jpg" />
 </div>
 
 

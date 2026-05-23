@@ -1,81 +1,3 @@
-###  Публикация: 1639669   (234536) от 14.06.2023
-
-Елизавета Дворецкая | Свенельд (Книга 3). Хазарский меч (2023) [MP3, Наталья Беляева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-914 год. Битва на Итиле разрушила мир между хазарами и русами, взбаламутила народы и земли. Свенельд и его брат Годред собираются в поход на западный край хазарских владений: дочь Олава конунга, Ульвхильд, выйдет за Годреда, если он отомстит за ее погибшего от рук хазар мужа. Ярдар, молодой воевода хазарского сторожевого городка на Упе, жаждет обрести славу и могущество; (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 21:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7DCE690B9B664565952097EF4173ED4C607263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642703   (234532) от 28.06.2023
-
-Сельма Лагерлёф | Лёвеншёльды (Книги 1-3). Перстень Лёвеншельдов. Шарлотта Лёвеншельд. Анна Сверд (2010) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Трилогия известной шведской писательницы, лауреата Нобелевской премии Сельмы Лагерлёф (1858-1940) рисует широкую картину шведской действительности на протяжении XVIII-XIX веков. В повествовании о Лёвеншёльдах, основанном на фольклорном и документальном материале, дано реалистическое изображение народной жизни, а также социальных изменений, вызванных развитием капиталистических (   Читать дальше...   )Жанр: Классическая зарубежная литература, Исторический романПеревод: Людмила Брауде, Фаина Золотаревская, Н. Ширяева (?)Продолжительность: 30:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91D304393BA478F3B5D1F9323B5E24C8AAEA732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642674   (234527) от 28.06.2023
-
-Влада Ольховская | Северная корона (Книга 5). Адран в огне (2022) [MP3, Елена Легошина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Когда стало известно о падении «Близкого горизонта», никто не удивился: корабль был дешевым и старым. Удивление пришло позже, когда выяснилось, что за выжившими пассажирами планируют отправить не обычную спасательную миссию. Лететь на заброшенную планету, принявшую обломки корабля, предстоит одному из лучших боевых экипажей космического флота. Уже это странно, а (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 09:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FB11872AE5EAAA3A575AC290ABB3F7B2CC8C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642670   (234520) от 28.06.2023
 
 Влада Ольховская | Северная корона (Книга 3). Золотое сияние Холинсу (2021) [MP3, Елена Легошина]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234520.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234508.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234499.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234496.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234492.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234491.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234480.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234478.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234472.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234436.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234435.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234420.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234415.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234413.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234407.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234398.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234390.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234373.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234357.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234350.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234340.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234333.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234332.jpg" />
 </div>
 
 
@@ -677,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46C1DEC8AD3051EE81F2C139DDBDDDB58F73F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544707   (234313) от 16.04.2022
+
+Грэм Симсион | Проект «Рози» (2015) [MP3, Дмитрий Креминский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234313.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отношениях с женщинами Дон Тиллман – молодой успешный учёный-генетик – ни разу не продвинулся дальше первого свидания. Сочтя этот метод поиска своей «половинки» неэффективным, Дон решает применить научный подход. Его проект «Жена» начинается с подробнейшего 30-страничного вопросника, призванного отсеять всех неподходящих и выявить одну – идеальную. Она совершенно (   Читать дальше...   )Жанр: Зарубежные любовные романы, Современные любовные романыПеревод: Ирина ЛитвиноваПродолжительность: 07:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2276FEE20E3BA338CE1755CAFD4466AE84038E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633376   (234308) от 15.05.2023
+
+Кейт (Кит) Лаумер | Чума (2023) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234308.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Бывший ученый Нолан со своей женой и сыном, несколько лет обживали свой земельный участок на планете Кейка-9. Но некая влиятельная организация, занимающаяся делами переселенцев, решила разместить на обжитой земле Нолана лагерь беженцев, воспользовавшись всем готовым. Они еще не знают, что надвигается ежегодная Чума, и только Нолан может с ней справиться." (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDAC85B1F6E6C60FE73086B769355292AB6151B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622412   (234302) от 28.03.2023
+
+Александра Неярова | Поцелуй, плавящий лёд (2022) [MP3, Дарья Крахмалева, Егор Исаков-Кулик]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, от судьбы не убежишь. Я не верила, пока не убедилась в этом сама. Пыталась и ещё как сбежать от Лорда Зимы, избравшего меня в жёны, но его Зверь нагнал меня и унёс в свой ледяной замок. Нас с ним связало проклятие и узы истиной пары. От одного взгляда Лорда дыхание обмирает на губах, а сердце покрывается инеем. Он украл мой покой, лишил сна, завладел мыслями (   Читать дальше...   )Жанр: Любовное ФэнтезиПродолжительность: 04:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70ADD008705A238DD97AEFAE42DC19133AADBA0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

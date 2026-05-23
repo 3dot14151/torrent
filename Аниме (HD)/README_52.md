@@ -6,7 +6,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42599.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Isekai Shikkaku / No Longer Allowed in Another World / Потеря челове
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42586.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42583.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Koi wa Futago de Warikirenai / Love Is Indivisible by Twins / Любовь бл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42440.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tensei Shitara Slime Datta Ken 3 | О моём перерождении в сл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42273.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NieR:Automata Ver1.1a | Ниер: Автoмaтa Ver 1.1a [2023, TV, 24 эп.] We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42272.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Senpai wa Otokonoko / Senpai is an Otokonoko / Моя сэмпай — паре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42254.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Naze Boku no Sekai o Dare mo Oboeteinai no ka? / Why Does Nobody Remember Me in 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42160.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Kono Sekai wa Fukanzen Sugiru | Quality Assurance in Another World | Этот м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42156.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42138.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42131.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Nige Jouzu no Wakagimi | The Elusive Samurai | Беглый самурай [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42129.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Make Heroine ga Oosugiru! / Too Many Losing Heroines! / Слишком мног�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42124.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kami no Tou: Ouji no Kikan | Tower of God 2nd Season | Башня Бога: Во
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42038.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41948.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The Fable | Фэйбл [2024, TV, 25 из 25] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41857.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Tsue to Tsurugi no Wistoria / Wistoria: Wand and Sword / Меч и жезл Ви
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41762.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Atri: My Dear Moments | Атри: Мои бесценные мгновенья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41394.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Oshi no Ko 2 | Звёздное дитя [ТВ-2] [2024, TV, 13 из 13] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41114.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Yozakura-san Chi no Daisakusen | Mission: Yozakura Family | Операция: С
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40735.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Boku no Hero Academia Season 7 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40627.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Monogatari Series: Off & Monster Season | Легенды: Межсезонье �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39915.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39672.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Yuru Camp Season 3 | Лагерь на свежем воздухе [ТВ-3] [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39416.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Uzumaki | Спираль [2024, TV, 4 эп.] WebRip 720p raw+eng
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39413.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Dead Mount Death Play (2023) | Смертельная игра мёртвой г
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39275.jpg" />
 </div>
 
 

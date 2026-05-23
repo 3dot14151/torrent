@@ -6,7 +6,7 @@ Queen - Greatest Hits In Japan (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993120.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Yes - Topographic Drama: Live Across America (2017) Live [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992695.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jack Green - The Party At The End Of The World (2020) [MP3|320 Kbps] <Blues Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991969.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - 70s Forever: The Ultimate Rock & Pop Classics (2019) 3CD [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991743.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bonnie Tyler - All The Best (3CD) (1996) [MP3|320 кб/с]<pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991148.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Buddy Holly - The Ultimate Best Of Buddy (2011) [MP3|320 кб/с]<Rock-n-Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989398.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988617.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ramona Falls - Intuit (2009) [MP3|320 kbps]<Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988500.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Elvis Presley - Elvis Best Hits (2010) [MP3|128 kbps]<Rock-n-Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988423.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Mono Inc. - The Book of Fire (2020) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987014.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ataraxia - Adolescence Of An Ancient (1986) [MP3|320 кб/с]<Rok>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984424.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ David Knopfler - Heartlands (2019) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983451.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ David Knopfler - Last Train Leaving (2020) [MP3|320 Kbps] <Classic Rock, Blues R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983448.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Shivaree - Дискография (8 CDs) (1999-2007) [FLAC|Lossless]<Indie, Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982660.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982261.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Hinds - Leave Me Alone (2016) [MP3|256 кб/с] <Alternative Rock, Indie Rock, G
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980700.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ David Bowie - Blackstar (2016) [MP3|320 кб/с] <Art Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980044.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Rainbow - Since You Been Gone - The Best Of Rainbow (2014) [MP3|320 кб/с]<Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978083.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Malone Sibun - Come Together (2020) [MP3|320 Kbps] <Blues, Rock, R'n'B>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977836.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Beefeaters - Beefeaters (1967) Remastered, 2004, Second Life [MP3|320 кб/с] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972191.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Original Hits - Rock 'N' Roll (2009) [MP3|320 кб/с] <Rock & Roll, Doo Wo
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970748.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - 100 Greatest Alt Rock Anthems (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969638.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ My Left Boot - Summer Songs (2012) [MP3|320 кб/с]<Stoner Psychedelic Fuzz Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967818.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ The Victors - Victorious 1964-1966 (2006) Compilation [MP3|320 кб/с|CBR] <Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965739.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Nonplusultra: Rock (2007) 5CD Box-Set [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965681.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ VA - Nonplusultra: Melodic Rock (2008) 5CD Box-Set [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965608.jpg" />
 </div>
 
 

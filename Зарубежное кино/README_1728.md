@@ -1,56 +1,3 @@
-###  Публикация: 1625719   (199760) от 16.04.2023
-
-Катаклизм 2000 / Hostile Environment (1999) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Токсичные отходы загрязнили мировую систему подачи питьевой воды. Специально отобранная команда из нескольких человек, способная очистить эту систему, управляет миром.
-Минна отдает приказы этой команде из гигантского военного корабля, принуждая отчаявшихся обитателей Земли обменивать все самое ценное, что у них есть, на мизерные порции воды. Земные обитатели ищут (   Читать дальше...   )Производство: США / Company contact informationЖанр: фантастика, боевикРежиссер: Дэвид А. ПрайорАктеры: Бриджит Нильсен, Маттиас Хьюз, Даррен Шалави, Рошелль Суонсон, Инго Гис, Войо Горич, Арт Джеймс, Кристофер Криса, Грант Джеймся, Кристи ХендриксПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6918CB23BD424FCA395F7B3DD57AD4A443522A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626372   (199759) от 14.04.2023
-
-Последнее королевство: Семь королей должны умереть / The Last Kingdom: Seven Kings Must Die (2023) WEB-DL [H.264/1080p] [EN / RU, EN, UKR Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В фильме «Последнее королевство: Семь королей должны умереть» рассказывается история о периоде в истории Англии, когда страна была раздроблена на несколько мелких королевств. Наследники короля Эдуарда пытаются поделить корону и занять место на троне. Главный герой, Утред Беббанбургский, понимает, что единство Англии - это единственный способ выжить и защитить свою (   Читать дальше...   )Производство: Великобритания, Carnival Film & TelevisionЖанр: боевик, драма, историяРежиссер: Эдвард БазалгеттАктеры: Александр Дреймон, Марк Роули, Элейн Кэссиди, Арнас Федаравичус, Ингрид Гарсия Йонсон, Гарри Джилби, Род Халлетт, Джеймс Норткот, Лори Дэвидсон, Том КристианПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (Full, SDH), украинскиеПродолжительность: 01:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25CAB8117AEC8FF6F2B963C86356B554E88DF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829201   (199758) от 25.10.2025
 
 Одержимый местью / Ударное спасение / Jing tian da ying jiu / Striking Rescue (2024) BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199758.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199747.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199737.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199736.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199735.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199733.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199732.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199730.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199728.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199727.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199723.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199720.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199718.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199713.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199704.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199703.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199700.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199689.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199686.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199685.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199682.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199674.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199673.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199667.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA1A94937C27A672FF828F7E3462F56C32724C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627294   (199662) от 18.04.2023
+
+Проклятие Спящей красавицы / The Curse of Sleeping Beauty (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас Кайзер наследует родовое поместье, принадлежащее его семье многие поколения. Но он и не подозревает, что вместе с домом унаследовал и древнее проклятие, что лежит на нём со времён крестовых походов. Томас вынужден примерить на себя роль «хранителя» - того, кто не допустит, чтобы силы зла высвободились из поместья. Разгадать тайну дома ему помогут местный риелтор (   Читать дальше...   )Производство: США / 2B Films, Briar Rose Productions, Nexus Motion Picture CompanyЖанр: ужасы, фэнтези, триллер, детективРежиссер: Пирри Реджинальд ТеоАктеры: Итан Пек, Индиа Айсли, Натали Холл, Брюс Дэвисон, Джеймс Лим, Скотт Алан Смит, Зак Уорд, Сид Стриттмэттер, Мим Дрю, Даллас ХартПеревод: Дубляж (официальный звук), Одноголосый любительский (Дмитрий Грачёв aka "Хихикающий Доктор")Язык озвучки: Русский, АнглийскийСубтитры: Русский (Forced, Full), Украинский (SDH), Английский (Full, SDH) и др.Продолжительность: 01:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA0B47DC8EAE19194CA946C3F93E9C08C24416C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624943   (199660) от 16.04.2023
+
+Кокаиновый медведь / Cocaine Bear (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199660.jpg" />
+</div>
+
+
+###  Подробнее
+
+1985 год. Из пролетающего на лесами штата Джорджия самолёта наркокурьер выбрасывает несколько пакетов кокаина, часть из них находит барибал и съедает содержимое. Животное приходит в неистовство, и теперь всем туристам, рейнджерам и случайно попавшимся ему на пути бедолагам сильно не поздоровится.Производство: США / Universal Pictures, Brownstone Productions (II), Lord MillerЖанр: триллер, комедияРежиссер: Элизабет БэнксАктеры: Кери Рассел, Олден Эренрайк, О’Ши Джексон мл., Рэй Лиотта, Исайя Уитлок мл., Бруклин Принс, Кристиан Конвери, Марго Мартиндейл, Джесси Тайлер Фергюсон, Ханна Хукстра, Айула СмартПеревод: дублированный (неофициальный), профессиональный многоголосый, авторскийСубтитры: русские (full), английские (full, SDH)Продолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BDB0660718200246769C617E8FC5B83B3975B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

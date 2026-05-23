@@ -1,55 +1,3 @@
-###  Публикация: 1489258   (926682) от 15.08.2021
-
-Заклятие 3: По воле дьявола / The Conjuring: The Devil Made Me Do It (2021) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-18 июля 1981 года Эд и Лоррейн Уоррены присутствовали при проведении экзорцизма над маленьким Дэвидом Глатцелом. Священник и семья мальчика безуспешно пытались изгнать злобную сущность, Эд заработал сердечный приступ, и тогда Арни — парень старшей сестры Дэвида — предложил демону свою душу. Некоторое время спустя Арни убивает своего домовладельца и после говорит, (   Читать дальше...   )Производство: США, Великобритания | Atomic Monster, New Line Cinema,  Safran CompanyЖанр: Ужасы, детективРежиссер: Майкл ЧавесАктеры: Патрик Уилсон, Вера Фармига, Руаири О’Коннор, Сара Кэтрин Хук, Джулиан Хиллиард, Джон Ноубл, Эжени Бондюран, Шэннон Кук-Чун, Ронни Джин Блевинс, Кит А. БолденПеревод: Дублированный (Пифагор), многоголосый (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11C17918BDF7FBE6FA7911A5F2EEA7621B3408A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489302   (926667) от 15.08.2021
-
-Беккет / Beckett (2021) WEB-DLRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Находясь на отдыхе в Греции вместе со своей девушкой, американский турист Беккет попадает в автокатастрофу, после чего оказывается в бегах от пытающейся его убить полиции, замешанной в непонятном политическом заговоре. Всё, что ему нужно — добраться до посольства и понять, что случилось с его девушкой, пропавшей после аварии.Производство: Италия, Бразилия, Греция / Faliro House Productions, Frenesy Film Company, MeMo Films, Rai Cinema, RT FeaturesЖанр: Боевик, триллер, драма, криминалРежиссер: Фердинандо Чито ФиломариноАктеры: Джон Дэвид Вашингтон, Мария Вотти, Вики Крипс, Алисия Викандер, Бойд Холбрук, Панос Коронис, Йоргос Пирпассопулос, Филлипос Иоаннидес, Лена Кицопулу, Изабелла МаргараПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH), украинскиеПродолжительность: 01:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79808AEBFA90620DF8999F81F2DF67ADB2084A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 863004   (926650) от 25.01.2015
 
 Чужие против Хищника: Реквием / Aliens vs. Predator - Requiem (2007) BDRip [1080p] [Theatrical Cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926650.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926644.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926625.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926623.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926622.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926619.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926617.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926616.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ CODA: Ребёнок глухих родителей / CODA (2021) WEB-DL [H.265
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926543.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926440.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926395.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926374.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926337.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926329.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926325.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926245.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926187.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926121.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925997.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925996.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925992.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925989.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925960.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925952.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE3FBF3C76B87E9A9FD6278F3328074857AFDD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755531   (925932) от 11.02.2014
+
+Лихорадка: Пациент Зеро / Cabin Fever: Patient Zero (2014) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая компания отправляется на Карибские острова, чтобы оттянуться перед свадьбой одного из друзей. Но на берегу лазурного океана, посреди вечного лета и райского блаженства ребята обнаруживают очаг смертоносной болезни… Вскоре начинается отсчет жертв… Удастся ли кому-нибудь выжить?Производство: СШАЖанр: УжасыРежиссер: Кааре ЭндрюсАктеры: Шон Эстин, Карри Грэм, Райан Доноху, Брандо Итон, Джиллиан Мюррэй, Митч Райан, Солли Дюран, Лидия Хёрст, Клодетт ЛалиПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: den904 и DeadSnoСубтитры: ОтсутствуютПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40CB9F84FE0B3D34546B252B39A2F1304CCBCA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094933   (925860) от 20.01.2017
+
+Аддеролловые дневники / The Adderall Diaries (2015) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странное судебное разбирательство по делу об убийстве самое малое, что случилось с загнанным в угол прошлым успехом, застоем, злоупотреблением алкоголем, проблемами во взаимоотношениях и комплексом отца писателем Стивеном Эллиотом. Не далее как в 2007 году на судебном разбирательстве по делу программиста Ханса Райзера, обвиняемого в убийстве своей жены, товарищ ответчика (   Читать дальше...   )Производство: США | RabbitBandini ProductionsЖанр: Триллер, Драма, КриминалРежиссер: Памела РомановскиАктеры: Эмбер Хёрд, Джеймс Франко, Кристиан Слэйтер, Уилмер Вальдеррама, Эд Харрис, Синтия Никсон, Джим Пэррак, Тимоти Чаламет, Тоня Гланц, Дэн ФлаэртиПеревод: Дублированный (iTunes)Продолжительность: 01:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE199E5598D2D13E706A13144C062B1163DA4B2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

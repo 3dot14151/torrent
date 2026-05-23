@@ -6,7 +6,7 @@ RiDoc 4.0.1.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506587.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Norton Identity Safe 2012 6.3.28 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506585.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ VMware Workstation 9.0.0 Build 812388 Lite + VMware-tools 9.2.0 by alexagf [Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506520.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Dxtory 2.0.118 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506514.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ ImTOO Video Converter Ultimate 7.5.0 build-20120822 [multi + RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506459.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ RadioSure Pro 2.2.1036 Final [Multilanguage/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506405.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Norton Bootable Recovery Tool 5.1.0.26 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506401.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VMware Workstation 9.0.0 Build 812388 Lite by alexagf [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506335.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Theme Windows7 creativx 2012 [английский + русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506333.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Advanced SystemCare 6.0.5.134 Beta 2.0 [English + Русский (русифик
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506331.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Opera 89.0.4447.38 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506216.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Waterfox Current G4.1.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506213.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ GeoGebra 6.0.720.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506209.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ HitPaw Screen Recorder 2.2.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506207.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Skip Metro Suite 2.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506179.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ CCleaner Professional 3.22.1800 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506177.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Skype 7.9.32.103 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506173.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Skype 7.9.0.103 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506161.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VMware Workstation 9.0.0 Build 812388 Lite + VMware-tools 9.2.0 by qazwsxe [Eng 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506160.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ FileCenter Professional 8.0.0.47 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506154.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mozilla Firefox 41.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506149.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sandboxie plus 1.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506125.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Sandboxie 5.57.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506124.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Firefox Browser ESR 102.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506123.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ HitPaw Video Editor 1.3.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506118.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ GPU-Z 2.47.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506117.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Total Commander Podarok Edition Extreme Pack 27 2012 Portable [Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382165.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft Video Converter Ultimate 9.0.28 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stellar Phoenix Windows Data Recovery Professional 6.0.0.1 от 21.10.2016 RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381955.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Advanced IP Scanner 2.4.3021 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381943.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DameWare Remote Support 12.0.3.4010 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381800.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Air Explorer Pro 2.4.0 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381697.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Opera 56.0.3051.43 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381695.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Complete Internet Repair 5.2.3.3990 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381685.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Air Explorer Pro 2.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381618.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Blue Cat's All Plug-Ins Pack (v.10.2018) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381615.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Air Explorer Pro 2.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381613.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Opera 56.0.3051.43 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381606.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Air Explorer Pro 2.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381500.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Acon Digital - Equalize 2 2.0.3 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381496.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Avast Clear 18.7.4041.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381490.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Slimjet 36.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381466.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WinSCP 5.21.3 Build 12800 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381460.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MediaHuman YouTube Downloader 3.9.9.46 (0710) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381452.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ GPU-Z 2.48.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381445.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Icecream Video Editor Pro 2.31 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381409.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ PrivaZer 4.0.12 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381405.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adobe Flash Player 31.0.0.122 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381377.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Native Instruments - Kontakt 6.0.2 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381372.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Foxit Reader 9.3.0.10826 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381371.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ WSCC (Windows System Control Center) 7.0.3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381358.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ WinScan2PDF 8.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381330.jpg" />
 </div>
 
 

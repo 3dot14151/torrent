@@ -1,55 +1,3 @@
-###  Публикация: 363146   (565104) от 16.07.2011
-
-Неизвестный / Unknown (2011) [1080p] Blu-Ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Кто ты на самом деле? Что делает тебя тем, кем ты есть? Можно ли написать, переписать человеческую жизнь, просто-напросто стереть человека из глобальной «базы данных», так что и памяти о нем не останется? Извечный вопрос — можно ли отправить в небытие прошлое и жить настоящим? И даже загадки человеческой памяти — на все эти вопросы, имеющие для него жизненное (в буквальном смысле слова) значение ищет ответы герой Лиама Нисона, воплотившего на экране незаурядный, своеобразный персонаж, несмотря на то, что и «до», и «после» таких киногероев появилось и еще будет появляться много Порой достаточно какого-то случайного стечения обстоятельств — и ты, по сути, вычеркнут из жизни. Тебя не узнают близкие, от памяти остались лишь эпизоды, и теперь тебе снова надо искать, в прямом смысле слова, себя и свое место в жизни, что и пытается делать Мартин Харрис. Но за одними загадками последуют другие…Жанр: Триллер, Драма, БоевикРежиссер: Жауме СерраАктеры: Лиам Нисон, Дайан Крюгер, Дженьюэри Джонс, Эйдан Куинн, Бруно Ганц, Фрэнк Ланджелла, Себастьян Кох, Оливье Шнайдер, Стипе Эрчег, Райнер БокПеревод: ДублированныйПродолжительность: 01:53:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043829   (564913) от 20.08.2016
-
-Последние девушки / The Final Girls (2015) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В центре событий — девушка, тяжело переживающая смерть матери, которая в 80-е была звёздой слэшеров. В годовщину её смерти по странному стечению обстоятельств Макс с друзьями оказывается в одном из этих фильмов. Теперь они вместе должны противостоять преследующему их маньяку.Производство: США / Studio Solutions, Groundswell Productions, Stage 6 FilmsЖанр: ужасы, комедияРежиссер: Тодд Штраус-ШульсонАктеры: Таисса Фармига, Малин Акерман, Александр Людвиг, Нина Добрев, Алиа Шокат, Томас Миддлдитч, Адам Дивайн, Анджела Тримбур, Хлоя Бриджес, Тори ТомпсонПеревод: Многоголосый закадровый (Лицензия BD CEE)Продолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF2096AD8FA1DB7C493387884E897D8EA3920C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044642   (564896) от 20.08.2016
 
 Эдди «Орел» / Eddie The Eagle (2015) Blu-ray [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564896.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564893.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564852.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564752.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564741.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564727.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2015) 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564726.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564708.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564679.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564678.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564666.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564662.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564660.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564639.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564637.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564573.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564460.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564446.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564382.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564380.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564379.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564160.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563924.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563894.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235087   (563643) от 09.07.2018
+
+3 дня на убийство / 3 Days to Kill (2014) BDRip [H.265/1080p-LQ] [10-bit] [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итан Реннер один из лучших агентов. Чтоб не потерять свою семью, в течение 10 лет ему пришлось скрывать от них, чем он занимается. Но из-за этих тайн у него портится отношения с супругой. Вскоре он узнает, что смертельно болен. У него рак мозга последней стадии и жить ему остался не больше 6 месяцев. Он собирается уйти в отставку, чтобы провести последние дни со (   Читать дальше...   )Производство: Франция, СШАЖанр: Боевик, Криминал, Триллер, ДрамаРежиссер: МакДжиАктеры: Кевин Костнер, Эмбер Хёрд, Хейли Стайнфелд, Конни Нильсен, Томас Лемаркус, Рихард Заммель, Марк Андреони, Бруно Риччи, Йонас Блоке, Эрик ЭбониПеревод: ДублированныйСубтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306FBBD2B66414C1E07994763274A355337C4DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690188   (563611) от 18.08.2013
+
+Добро пожаловать в капкан / Welcome to the Punch (2013) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший преступник Джейкоб Стернбуд вынужден вернуться в Лондон из своего убежища, когда его сын вовлечен в ограбление пошедшее не так. У детектива Макса Левински появляется шанс поймать человека, которому всегда удавалось уйти. Соперники снова меряются силами, но они сталкиваются с более глубоким преступным заговором, с которым вынуждены бороться, чтобы выжить.Производство: Великобритания, США - Automatik Entertainment, Between The Eyes, Scott Free Productions, Worldview EntertainmentЖанр: Боевик, Триллер, КриминалРежиссер: Эрен Криви / Eran CreevyАктеры: Джеймс МакЭвой, Марк Стронг, Андреа Райзборо, Дэвид Моррисси, Джейсон Флеминг, Питер Муллан, Элайес Габел, Дэниэл Мейс, Джонни Харрис, Дэниэл Калуя, Ли Николас Харрис, Стив Орам, Наташа Литтл, Элли Дарси-Олден, Рут Шин, Роберт Порталь, Джейсон Мацца, Даниэль Брент, Кэти Мерфи, Чонради Култап, Аластер Камминг, Рэй Де-Хаан, Стивен Борри, Джинни Ди, Лорен Гарнхэм, Майк (   Читать дальше...   )Перевод: Любительский одноголосый, Авторский одноголосыйОзвучка / Автор перевода: lord666, ДольскийСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, испанскийПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B96A2964D2CD136C6C9D920B3712AA569A2F4D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

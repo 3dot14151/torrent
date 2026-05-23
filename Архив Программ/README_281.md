@@ -6,7 +6,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7237.5000 (2020.03) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918237.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918230.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Trojan Remover 6.8.2 Build 2598[Release30.01.2011]Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918181.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Enable Viacam 1.4.2 [ML/English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918073.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ KiberInfinity's Screen Shooter (KISS) 0.8.5 [Rus] Portable + Portable by Cheshir
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917944.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917655.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mozilla Firefox 52.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917549.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rapidshare Plus 4.0  Eng  Portable + RapidShare Downloader 5.8.1 Multi + Univers
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917508.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Futuremark PCMark Vantage Pro 1.0.1.0 build 1901 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917499.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Hiren's BootCD 10.2 Rus (lexapass) +FullAcronis + загрузочная фле�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917439.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Opera GX 67.0.3575.78 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917413.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Allavsoft Video Downloader Converter 3.23.7.7899 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917398.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Display Driver Uninstaller 17.0.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917390.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bulk Crap Uninstaller 3.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917378.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917360.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Mozilla Firefox 45.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917342.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ XYplorer 20.80.0500 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917319.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Soft4Boost Document Converter 6.2.3.423 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917304.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Opera 67.0.3575.79 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917303.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Aiseesoft Data Recovery 1.2.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917300.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Uninstall Tool 3.5.2 Build 5554 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917297.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ GoldWave 6.24 Portable by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917291.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917241.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ BestReminder v2020.03.14.20 IMPROVED [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917240.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Wonderfox HD Video Converter Factory Pro 18.7 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917236.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ OCCT 5.5.5.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917233.jpg" />
 </div>
 
 

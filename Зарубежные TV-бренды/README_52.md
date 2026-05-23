@@ -1,29 +1,3 @@
-###  Публикация: 757871   (653089) от 04.06.2015
-
-NG. Монстр млечного пути / Cosmic Monsters (2007) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Со вспышки массивной сверхновой возникает один из самых загадочных феноменов Галактики - черная дыра... Черные дыры были еще недавно детищем писателей-фантастов, которые в своих произведениях описывали страшные особенности этих космических монстров - поглощение вещества и энергии. Даже свет не мог вырваться из их цепких объятий! Сегодня ученые всего мира решают весьма (   Читать дальше...   )Жанр: Документальный, научно-познавательный, исследование, космосПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021FF2D5B264F0601ED82FF5865BE49A1ABA6B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904731   (653088) от 04.06.2015
 
 BBC. В краю муссонов: В ожидании дождя / Wonders of the Monsoon: Waiting for the Rains (2014) BDRip [H.264/720p] [VO]
@@ -32,7 +6,7 @@ BBC. В краю муссонов: В ожидании дождя / Wonders of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653088.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery. Загадки планеты Земля / What on Earth? (2015) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653054.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ BBC: Horizon. Самая экстремальная погода во Вселе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651958.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ BBC Прогулки с морскими чудовищами / Sea Monsters: A 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650846.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ BBC. Horizon. Наблюдая звёзды / Horizon. Seeing Stars (2011) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649419.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ NG. Убийственная скорость / Speed Kills (2012) HDTVRip [3 с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649413.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Discovery. Кодекс Мафии: Взгляд Изнутри / Inside the Gan
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649218.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ BBC. Horizon. Можно ли верить своим глазам? / Horizon. I
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649206.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ History Channel. Древнеегипетская Книга Мертвых / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649201.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ NG. Великая Китайская стена / China's Great Wall (2007) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649197.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ NG: Суперсооружения: Мегазаводы. Мак-Трак / Mega
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648990.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ NGW: Дикая природа Аргентины. Водное царство /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648473.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ History Channel: Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648469.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ History Channel: Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648361.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647270.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ BBC: Магия грибов (Тайная жизнь грибов) / The Magic 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647014.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646874.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ DV: Невероятное вокруг нас. Спутник указывае�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646872.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ DV: Невероятное вокруг нас. Вторжение вирусо�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646862.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ BBC. Заснеженный птенец или История одного пи
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646631.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ NG. Следствие по делам хищников / Predator CSI (2007) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646437.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_645566.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645536.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645526.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Animal Planet: Cинее царство (Лазурная страна). Лам�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645376.jpg" />
 </div>
 
 
@@ -670,6 +644,33 @@ Animal Planet: Cинее царство (Лазурная страна). Лам�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BB419C7949FC7EAB388A7F5D8C0A6BD091D3951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141250   (644709) от 13.06.2017
+
+BBC: Viasat History. Бразды правления. Балет на лошади / Lucy Worsley's Reins of Power: The Art of Horse Dancing (2015) HDTV [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Люси Уорсли разбирается в истории выездки, от первых шагов при дворах 17 века до современных школ верховой езды.
+Теперь, если это звучит безумно но лошадиный балет или манеж когда-то были самыми благородными занятиями, которые практиковали все аристократы от придворных до короля в первой половине 17-го века дабы лишний раз продемонстрировать свое величие. (   Читать дальше...   )Производство: Великобритания, Million Media Linited for BBCЖанр: Документальный, историяРежиссер: Ник Гиллам-СмитПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EEBF1642C2990F6BAB6902C56E7044A6EA4C67
 ```
 
 https://mybot314.ru/tekegram_catalog/

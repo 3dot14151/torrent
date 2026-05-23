@@ -1,29 +1,3 @@
-###  Публикация: 1753681   (41291) от 06.10.2024
-
-Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в увлекательные приключенческие головоломки игры Machinika: Atlas. Вы выступите в роли музейного исследователя, главного героя игры Machinika: Museum, оказавшегося внутри инопланетного корабля, разбившегося на спутнике Сатурна, Атласе. С помощью спасательной капсулы вы оказываетесь в самом центре корабля. Machinika: Atlas - это продолжение игры Machinika: (   Читать дальше...   )Тип издания: RepackРазработчик: Littlefield StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A806BA0BE2E2DDE3FAE0234981122B483A8E7553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753673   (41274) от 06.10.2024
 
 Hell of an Office (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41274.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Times & Galaxy / Times and Galaxy (2024) [En] (1.13.5060.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41270.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41241.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Repack FitGirl [Complete
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41239.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BioShock Remastered Dilogy (2016) [Ru/Multi] (1.0/1.0.122864) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41233.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41220.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41218.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dark Sky (2024) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41213.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41208.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dwarven Realms (2022) [En] (1.0.100) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41204.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Stretcher Men (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41190.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41135.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Elmarion: the Lost Temple (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41121.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Exophobia (2024) [En] (1.1.0.1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41100.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41091.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Espresso Tycoon (2023) [Ru/Multi] (Update 14) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41088.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41045.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41040.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (Build 9575745/dlc) Repack Other s [20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_41021.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42b/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_41015.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11458/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_41012.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_41003.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ HUNTDOWN (2020) [Ru/Multi] (1.278) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40945.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40934.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Zoochosis (2024) [Ru/Multi] (1.2.8) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40925.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Zoochosis (2024) [Ru/Multi] (1.2.8) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B34E45C50647E6B7E3A6B4C390A020F53C30200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754212   (40918) от 09.10.2024
+
+Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцуйте со смертью в Бездне и открывайте всё более захватывающие элементы игрового процесса, невидимые на поверхности. Используйте слабости врага, устраивайте жестокие расправы, умело распоряжайтесь ресурсами и вовремя выплёскивайте свой гнев, чтобы переломить ход игры. Каждая новая битва - свидетельство вашего мастерства.Тип издания: RepackРазработчик: PlaySideЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A62E74D3021F1DD5B607E00985C3CB4BF65EA43
 ```
 
 https://mybot314.ru/tekegram_catalog/

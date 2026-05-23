@@ -6,7 +6,7 @@ Kannagi | Kannagi: Crazy Shrine Maidens | Каннаги [2008, TV, 13 + SP] BDR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316657.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316626.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316624.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316618.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316607.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Project PAPO | Проект ПАПО [2006, OVA, 2 эп.] BDrip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316600.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Rain Town | Город дождя [2011, ONA, 1 эп.] BDrip 818p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316597.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hi no Tori: Houou Hen | Phoenix: Karma Chapter | Жар-птица: Глава �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316482.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hi no Tori: Yamato Hen | Phoenix: Chapter of Yamato | Жар-птица: Гла�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316474.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316469.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последне�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316404.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316399.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316308.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Hi no Tori: Uchuu Hen | Phoenix: Space Chapter | Жар-птица: Глава �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316277.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Hi no Tori 2772: Ai no CosmoZone | Phoenix 2772: Cosmos Zone of Love | Жар-п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316269.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316022.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mini Pato / Mobile Police Patlabor Minimum / Миниатюрная Полици
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315978.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Kidou Keisatsu Patlabor Reboot / Mobile Police Patlabor: Reboot / Полиция
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315662.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Choujikuu Seiki Orguss | Super Dimension Century Orguss | Оргусс [1983, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315294.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Choujikuu Seiki Orguss 02 | Super Dimension Century Orguss Two: Orguss 02 | Ор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315228.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Rinne no Lagrange: Kamogawa Days / Сердца твоего цветы [OVA][20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_315166.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Tales of Vesperia: The First Strike / Сказания Весперии: Пер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315060.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Miss Monochrome The Animation / Мисс Монохром [2013, TV, 13] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314925.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Scryed / Скрайд [2001, TV,  26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314918.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ RahXephon TV / Ра-Зефон [ТВ] [2002, TV 26 эп. ] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314916.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Phantom ~Requiem for the Phantom~ / Фантом: Реквием по Призр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314802.jpg" />
 </div>
 
 

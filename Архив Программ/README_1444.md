@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303237.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cent Browser 3.0.4.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303233.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise AD Cleaner 1.1.2.42 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303227.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AdwCleaner 5.023 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303212.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Meridian 3.0.367.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_303190.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Internet Download Manager 6.35 Build 8 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303155.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Air Explorer Pro 2.5.0 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303120.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Loaris Trojan Remover 3.0.68.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303109.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ OpenedFilesView 1.86 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303096.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ummy Video Downloader 1.5.0.3 Portable by killer000 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303088.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Kaspersky TDSSKiller 3.1.0.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303082.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ MyLanViewer 4.19.6 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303079.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CurrPorts 2.20 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303075.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cumulative Update KB4048953 for Windows 10 1607 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303074.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WebcamMax 7.6.8.6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_303055.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Internet Download Manager 6.35 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302994.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adobe Prelude CC 2020 9.0.0.415 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302991.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Topaz Sharpen AI 1.4.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302988.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Topaz DeNoise AI 1.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302980.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Topaz Mask AI 1.0.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302965.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BlueStacks App Player 4.31.70.3401 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302943.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Loaris Trojan Remover 3.0.68.203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302934.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BlueStacks Tweaker 5.8.3 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302932.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Tanida Demo Builder 11.0.3.0 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302921.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Opera 33.0.1990.137 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302920.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Mozilla Firefox ESR 52.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302913.jpg" />
 </div>
 
 

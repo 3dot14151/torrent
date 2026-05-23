@@ -6,7 +6,7 @@ Will Rock / Will Rock: Гибель богов (2003) [Ru/En] (1.2) RePack R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998184.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Brothers in Arms: Anthology [En/Ru] (Rip) 2005 - 2008| R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997085.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Painkiller. Hell & Damnation [Ru] (RePack/1.0.27204/3 DLC) 2012 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996582.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ No One Lives Forever Антология / No One Lives Forever Anthology + OST [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996580.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Sniper: Ghost Warrior / Снайпер: Воин-призрак [Ru] (RePack/1.3
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996560.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Call of Juarez: Bound in Blood / Call of Juarez: Узы крови [Ru] (RePack/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994952.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Death To Spies Moment of Truth / Смерть шпионам: Момент ис�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994353.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Call Of Juarez: The Cartel: Limited Edition [Ru] (Rip/1.1.12) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993828.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Aliens: Colonial Marines (2013) [Ru] (1.0.210.751923/upd1.4.0/dlc) Repack Other 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992988.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Dusk-12 / Территория тьмы [Ru] (L/1.2) 2007
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991458.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Chivalry: Medieval Warfare [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988783.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Die Hard: Nakatomi Plaza (2002) [Ru/Multi] (1.04) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988165.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Command & Conquer: Renegade (2002) [Ru/En] (1.037) Lossless Repack R.G. Revenant
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988159.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Deadfall Adventures (2013) [Ru/En] (1.0/upd2/dlc) Repack Other s [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987612.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Submersed (2020) [Multi] (1.0.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985667.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Quake - Collection (1996-2014) [En] (20140513/dlc) Repack X-NET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985240.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Far Cry 3: Deluxe Edition [Ru/En/Multi11] (Steam-Rip/1.04/7 DLC) 2012 | R.G. Gam
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983541.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Find Me: Horror Game (2020) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983239.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ The Kreed [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980791.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Onimusha: Warlords / Onimusha: Путь самурая [Ru/En/Jp] (Repack/1.2) 2
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978266.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Terra Incognita (2020) [En] (1.0) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977397.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sanctum [Ru/En/Milti12] (L/1.5.22889/5 DLC) 2011 | PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977226.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Sanctum [Ru/En] (RePack/1.5.22889) 2011 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975779.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Another Dawn (2020) [Ru/Multi] (1.02) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975043.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sniper: Ghost Warrior 2 / Снайпер: Воин-призрак 2 (2013) [Ru/E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969908.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Half-Life + Half-Life: Opposing Force [Ru/En] (P) 1999
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965867.jpg" />
 </div>
 
 

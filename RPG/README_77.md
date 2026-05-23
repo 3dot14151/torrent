@@ -6,7 +6,7 @@ Fable Anniversary (2014) [Ru/En] (1.0.8767.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17051.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17041.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dragon Quest III (3) HD-2D Remake (2024) [Multi] (1.2.0.0 Build 18186891/dlc) Sc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17020.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fabled Lands (2022) [En] (2.1.4/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16928.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.1.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16926.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16917.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16891.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16802.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0C) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16791.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.11a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16774.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16693.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16599.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fuga: Melodies of Steel 3 (2025) [Multi] (Build 29182614) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16575.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16397.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Artifact Seeker Resurrection (2024) [Ru/Multi] (1.4.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16343.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16316.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16286.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16275.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene T
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16209.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16014.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wayfinder (2023) [Ru/Multi] (211130/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15951.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15886.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15865.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31971/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15690.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15604.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Archons (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15508.jpg" />
 </div>
 
 

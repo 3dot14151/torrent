@@ -1,57 +1,3 @@
-###  Публикация: 1775841   (29520) от 28.01.2025
-
-Антирадар HUD Speed v69.0 Mod by 0x7d [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
-HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 27.01.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE73237B4ED1D4F91AD4417F527B899DE5B5E212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775818   (29500) от 28.01.2025
-
-VideoShow - AI Видео Редактор v10.2.5.2 Mod by AppZombie [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-ВидеоШоу - Редактор видео и создатель фильмов с ИИ.
-С помощью этого создателя фильмов легко и весело создавать видео с музыкой, стикерами, фильтрами и звуковыми эффектами. Персонализируйте свои работы с помощью текста прокрутки, FX, GIF, переходов или живого дубляжа, чтобы создать уникальные влоги, мемы или развлекательные видео. Легко запечатлейте ценные моменты, (   Читать дальше...   )Тип издания: VIPРазработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2609DACD8E6798B35DDCAC2773486F5CC641D9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776499   (29029) от 01.02.2025
 
 DtcFix v3.51 Mod by vedserega [Ru/Multi]
@@ -60,7 +6,7 @@ DtcFix v3.51 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29029.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29018.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ DRM-Play v1.56.2 Lite Mod by ajrys (обновление)  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28512.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28486.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28447.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ MIUI Hidden Settings Activity v1.6.6 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28280.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ BZ Напоминания и Дни Рождения PRO v3.6.3 Mod by vadj [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28263.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ Flud v1.11.6.5 Mod by derrin [Ru/En/Ua]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28245.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27750.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ Mr. Pillster / Напоминания о приеме таблеток v3.1.2 Mo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27730.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ MiHome v10.2.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27644.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ ChatOn: Чат-бот с ИИ v1.64.512-586 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27574.jpg" />
 </div>
 
 
@@ -376,7 +322,7 @@ Onvier - Монитор IP-камеры v19.55 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27561.jpg" />
 </div>
 
 
@@ -402,7 +348,7 @@ ES File Explorer File Manager v4.4.2.19 Mod Lite by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27533.jpg" />
 </div>
 
 
@@ -428,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27510.jpg" />
 </div>
 
 
@@ -454,7 +400,7 @@ VN - Video Editor / VN - Видеоредактор v2.4.2 Mod by MustHave [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27400.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27056.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ CamScanner v6.82.0.2502180000 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26825.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.2.55213 Extra Mod by Balatan [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26682.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ Medativo Meditation Timer / Таймер Медитации v1.3.7 Mod by Alex.S
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26670.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ All Recovery / Восстановление удаленных файлов v1.3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26601.jpg" />
 </div>
 
 
@@ -614,7 +560,7 @@ MiHome v10.2.702 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26579.jpg" />
 </div>
 
 
@@ -643,7 +589,7 @@ Bria Mobile: VoIP Softphone v6.19.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26576.jpg" />
 </div>
 
 
@@ -669,7 +615,7 @@ Thenx v6.0.4 [En] Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26553.jpg" />
 </div>
 
 
@@ -680,6 +626,58 @@ Thenx v6.0.4 [En] Mod by youarefinished
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70025B4ED027BC4D50C0BCC54495843FC052EACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782281   (26310) от 27.02.2025
+
+AyuGram - неофициальный клиент Telegram 11.5.3 Mod by NURIK [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26310.jpg" />
+</div>
+
+
+###  Подробнее
+
+AyuGram - это клиент телеграмма, основанный на exteraGram с переработанными патчами Telegraher. Не содержит рекламу и имеет открытый исходный код.Тип издания: ModРелиз состоялся: 01.01.2025Разработчик: AlexeyZavarПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9723F1C4C38A98F98B33EFCFDE59E08574EDA60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780741   (26065) от 01.03.2025
+
+Таблица Калорийности v3.13.16 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Функциональный дневник питания Таблица Калорийности - это счетчик калорий, где легко делать подсчет кбжу. Похудение теперь не проблема. Удобный калькулятор калорий позволит правильно худеть и произведет расчет ккал и бжу. Приложение Таблица Калорийности - это трекер питания и незаменимый помощник для любителей здорового образа жизни (ЗОЖ), кто предпочитает делать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.02.2025Разработчик: Dine4Fit, a.s.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57A9BB2A9A69701D5640514C40A5BCF6E774359
 ```
 
 https://mybot314.ru/tekegram_catalog/

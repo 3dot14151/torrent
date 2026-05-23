@@ -6,7 +6,7 @@ Free Download Manager 3.9.5 build 1530 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806791.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806787.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.90.4200 Final + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806735.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avast Free Antivirus 17.3.2290 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806734.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Auslogics Driver Updater 1.5.0.0 DC 02.04.2015 RePack (& Portable) by D!akov [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806687.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Kaspersky Rescue Disk 10.0.20.6 Build 07.05.2010 + USB Tools [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806660.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Futuremark 3DMark 2.3.3663 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806653.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WinNTSetup 3.8.7.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806644.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Vit Registry Fix Pro 12.6.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806606.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FileZilla 3.56.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806429.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Acoustica Premium Edition 7.3.17 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806392.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ HitPaw Screen Recorder 1.2.3.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806385.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.19 (0901) RePack (& Portable) by ZVSRu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806371.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PeaZip 7.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806341.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Autorun Organizer 5.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806318.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Sigil 1.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806311.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806302.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ WinCatalog 2017 17.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806277.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Opera GX 68.0.3618.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806272.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Glary Utilities Pro 5.142.0.168 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806266.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ PC Cleaner Pro 8.1.0.16 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806253.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NirLauncher Package 1.23.53 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806247.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806237.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MediaHuman YouTube Downloader 3.9.8.19 (0901) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806186.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ KLS Backup 2017 Professional 9.0.2.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806184.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ WinScan2PDF 5.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806157.jpg" />
 </div>
 
 

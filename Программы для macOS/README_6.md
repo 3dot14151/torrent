@@ -6,7 +6,7 @@ Default Folder X 5.7.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031676.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paste Queue (Multi Clipboard) 1.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031644.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Image Uploader 1.3.2 Build 4717 [Multi/Ru] [Winebottler]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031571.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Postbox 7.0.59 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031444.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ultra Audio Converter for Mac 3.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031439.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ GraphicConverter 11.8.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031223.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Flyer Design – Flyer Template for Indeisgn 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031206.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mirror for Chromecast TV 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031177.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Numi 3.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031176.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Flyer Design – Flyer Templates for Pages 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031173.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Flyer Creator - Poster Design 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031169.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Flyer Design – Flyer Templates for Word 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031159.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Flyer Design – Flyer Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031152.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Brochure Design - Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031148.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CV Resume Templates for Pages 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031124.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Readiris Corporate 17.1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031120.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Adobe Dreamweaver 2020 v20.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031043.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Adobe Photoshop 2020 v21.2.5
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031006.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Movist 2.10.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030965.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Kodak Preps 9 v9.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030880.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ TwistedWave 25.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030717.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mirror for Android TV 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030708.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ IM+ All-in-One Messenger 1.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030697.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Task Office 8.11 ARM [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030038.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ NCH Prism Plus 10.09 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030036.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Master of Typing - Tutor 1.9.15 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029798.jpg" />
 </div>
 
 

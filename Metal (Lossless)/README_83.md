@@ -6,7 +6,7 @@ Abigail Williams - Walk Beyond the Dark (2019) [FLAC|Lossless|image + .cue] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793794.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SIG:AR:TYR - Sailing The Seas Of Fate (2005) [WavPack|Lossless|image + .cue] <Ep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793711.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cephalic Carnage - Misled by Certainty (2010) [FLAC|Lossless|image + .cue] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793710.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Crest - Vain City Chronicles (2005) [WavPack|Lossless|image + .cue] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793709.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ SIG:AR:TYR - Godsaga (2010) [FLAC|Lossless|image + .cue] <Epic Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793708.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ SIG:AR:TYR - Beyond The North Winds (2008) [APE|Lossless|image + .cue] <Epic Vik
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793707.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Metallica - Load (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793702.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Earthside - A Dream in Static (2015) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793629.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Crest - Letters From Fire (2002) [FLAC|Lossless|image + .cue] <Gothic Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793623.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blaze Bayley - Endure And Survive (Infinite Entanglement Part II) (2017) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793620.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SIG:AR:TYR - The Stranger (2003) [FLAC|Lossless|WEB-DL|tracks] <Epic Viking Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793619.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Devilment - II - The Mephisto Waltzes (2016) [FLAC|Lossless|image + .cue] <Extre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793378.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dead by April - 3 альбома (2009-2014) Дискография [FLAC|image+
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793104.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Xilphide - Secretos del Viento (2013) [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793057.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Ocean - Phanerozoic I: Palaeozoic (2018) Limited Edition 2CD [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793052.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Disbeliever - Archetype (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792977.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Armored Dawn - Power of Warrior (2016) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792975.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Xiphea - Witchcraft (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Femal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792968.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Archspire - 4 Studio Albums (2011-2021) 4xCD [WavPack|Lossless|image + .cue] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792902.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Black Label Society - Grimmest Hits (2018) [FLAC|Lossless|image + .cue] <Souther
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792869.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Motorhead - Under Cover (2017) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792771.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Otargos - Ten-Eyed Nemesis (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792680.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Katatonia - City Burials (2020) Limited Edition [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792587.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Lione/Conti - Lione/Conti (2018) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792226.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Paradoxx - Plan Of Attak - The Complete Worxx (1985) Compilation, Limited Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792154.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Livimørket - Dark Totality (2009) EP [FLAC|Lossless|tracks + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791720.jpg" />
 </div>
 
 

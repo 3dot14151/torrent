@@ -6,7 +6,7 @@ VA - Big Party: EDM Anthems (2018) [MP3|320 Kbps] <House, Melbourne Bounce, Club
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788217.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Winter Sessions 2019 (Mixed by Milk and Sugar) (2019) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788192.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Valentines Day Collection, King Street Sounds, 25 Years Essentials (2018) [
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787913.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - EDM Dance For Valentines Day (2018) [MP3|320 Kbps] <House, Nu Disco, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787729.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Late Night Disco House, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787715.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Best Workout Dance Tracks (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787576.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787259.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787258.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Af
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787103.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787030.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787029.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787027.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Dance Mix Vol.10 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787023.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Solaris Time Sexy Summer (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786756.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Future Core Vol.1 (2017) [MP3|320 Kbps] <House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785986.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785982.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785979.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785978.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785977.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785972.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Armada Miami 2017 (The Club Edition) (2017) [MP3|320 Kbps] <House, Electro 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785971.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Spring Break 2017: Dance Hits Selection (2017) [MP3|320 Kbps] <House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785969.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Melodic Deep House Essentials Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785958.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Aerobic Dance Hits 2017 (30 Best Songs For Workout) (2017) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785949.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Deep House Hits 2017 - Armada Music  [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785948.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - When The Sun Goes Down Vol.6 (Deep House Essentials) (2017) [MP3|320 Kbps] 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785830.jpg" />
 </div>
 
 

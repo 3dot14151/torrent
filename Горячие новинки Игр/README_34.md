@@ -6,7 +6,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Let'sРlay [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_739.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_737.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TurretGirls (2025) [Multi] (1.0.2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_696.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_631.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_626.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Arctic Awakening (2025) [Ru/Multi] (Build 20032483) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_612.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Arctic Awakening (2025) [Ru/Multi] (Build 20032483) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_599.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Arctic Awakening (2025) [Ru/Multi] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_562.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Katanaut (2025) [Ru/Multi] (1.014) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_452.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Greedland (2025) [Ru/Multi] (1.0.36c) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_419.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Hades II (2024) [Ru/Multi] (1.131346) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_411.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Circus of Pain (2025) [Ru/Multi] (1.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_393.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.1.7) Repack Let'sPlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_377.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Decepti
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_358.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_353.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_298.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.2.1.1) License GOG [Definitiv
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_203.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Other s [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_197.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Arctic Awakening (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_180.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28714) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mage and Monsters II (2025) [Ru/Multi] (1.07b) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (1.0.0) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The House of Tesla (2025) [Ru/Multi] (Build 20154873) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Deep Rock Galactic: Survivor (2024) [Ru/Multi] (1.0.40P/dlc) Repack Other s [Gol
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98.jpg" />
 </div>
 
 

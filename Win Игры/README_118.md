@@ -1,29 +1,3 @@
-###  Публикация: 1009927   (805223) от 23.04.2016
-
-CTU: Counter Terrorism Unit (2016) [En] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вам предлагается примерить на себя роль члена CTU – Counter Terrorism Unit. Ваша участь незавидна постоянно под огнем и прессингом ответственности, в попытке сдержать террористическую угрозу. Стрелять может каждый, но только единицы могут настолько запугать противника, что он сложит оружие и сдастся. Вот и попробуйте ответить себе... Кто ВЫ?Тип издания: LicenseРазработчик: Odin Game StudioЖанр: Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373B797A760CF7FD44D2402B434269AD2070FA51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010159   (805114) от 23.04.2016
 
 Last Hope – Tower Defense (2016) [En] (1.6) Repack Elektra
@@ -32,7 +6,7 @@ Last Hope – Tower Defense (2016) [En] (1.6) Repack Elektra
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805114.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Enter The Gungeon (2016) [Ru/Multi] (1.1.3h2) SteamRip Let'sPlay [Collector's Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804913.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Has-Been Heroes (2017) [Multi] (1.00.9762) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804893.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Operation Abyss: New Tokyo Legacy (2017) [En/Ja] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804791.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Redemption Cemetery 6: The Island of the Lost / Кладбище обречен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804766.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sumoman (2017) [Ru/Multi] (1.0.2.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804721.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Narcosis (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804654.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804653.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Peace, Death (2017) [Ru/En] (1.0.9.0) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804582.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Infinite Tanks (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804580.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ TheNightfall (2018) [Multi] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804223.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804008.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ TheNightfall (2018) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803990.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Smurfs - Mission Vileaf (2021) [Ru/Multi] (0.17.8) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803989.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Outbreak: The New Nightmare (2018) [En] (1.0) Repack MAXSEM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803984.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Get Even (2017) [Ru/Multi] (1.0/12.01.18) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803972.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Skullgirls 2nd Encore (2016) [En/Multi] (1.0) License PROPER - PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803302.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) Repack R.G. Мех�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803234.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Grim Tales 11: Crimson Hollow / Страшные сказки 11: Багрова
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803018.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Rain World (2017) [Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803011.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Metal War Online: Retribution (2013) [Ru] (1.1.6.1.0.2146) License
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802850.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802842.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Grim Tales 21: Echo of the Past (2021) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802625.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Danse Macabre 9: A Lovers Pledge / Танец смерти 9: Клятва вл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802604.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ The Forgotten Faitytales. The Spectra World / Забытые сказки: Ми�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802423.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ The Forgotten Faitytales. The Spectra World / Забытые сказки: Ми�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E4CDBC7A0BA37D23A36762FA5E704468C088844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384486   (802413) от 20.05.2020
+
+Haunted Manor 6: Remembrance / Призрачная усадьба 6: Воспоминания (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Джоан была ещё маленькой девочкой, её семья решила переехать в новый дом. Но через некоторое время родители девочки снова начали спешно упаковывать вещи, а её мать перед самым отъездом подожгла дом вместе с собой. Спустя много лет Джоан решает вернуться в место, где прошли её детские годы, чтобы узнать причину странного поступка женщины и найти коды к её дневнику. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236128887E7495CB1AAC1565B3116910691BCBFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

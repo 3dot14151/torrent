@@ -1,29 +1,3 @@
-###  Публикация: 1725125   (51542) от 30.06.2024
-
-Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Senua's Saga: Hellblade 2 - продолжение ролевого экшена про кельтскую воительницу Сенуа. События сиквела переносят в Исландию, а история напрямую продолжает предыдущую часть. Основная идея игры состоит в том, чтобы показать свое видение шаманизма нордических земель. Игра опирается на кельтскую и скандинавкую мифологии. В центре истории героиня предыдущей части - (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E84744027E470C9890BDFEE81B4CD6C268517E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733789   (51541) от 30.06.2024
 
 My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Scene Tenoke
@@ -32,7 +6,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51541.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dead War: Rise of Zombies / Dead War: Rise of Combat (2024) [En] (1.0) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51532.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.24.3) Repack FitGirl [Soundtrack Bundle
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51530.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51526.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51518.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51517.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Chocolate Factory (2024) [Ru/Multi] (1.006) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51506.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dystopika (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51505.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Fae Farm (2023) [Multi] (20240620/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51504.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Messy Up (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51483.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.5/dlc) Repack Decepticon [Trucking He
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51464.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Undeadly (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51456.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ New Yankee 14: Through the History Mirror / Янки 14: Сквозь зерка
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51455.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Nightshade Mysteries: Eternal Moon (2024) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51401.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51357.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ludus Mortis (2024) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51355.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Repac
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51345.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ GASPING.2 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51342.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.27c) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51337.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Astrox Imperium (2019) [En] (b0.0144) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51335.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51327.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Train Life A Railway Simulator (2021) [Ru/Multi] (28790/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51326.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51324.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ New Yankee 13: Mary's Dark Side / Янки 13: Темная сторона Мэ�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51309.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51215.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02E3F13C0CF4E48D2D870B81853AE4731588BC63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734462   (51212) от 03.07.2024
+
+STUFFED (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51212.jpg" />
+</div>
+
+
+###  Подробнее
+
+STUFFED - это процедурно-генерируемый шутер от первого лица, действие которого происходит во сне маленькой девочки. Играя за плюшевого медвежонка, вы будете сражаться с кошмарами, защищая свою хозяйку. Играйте в одиночку или с друзьями в режиме совместной игры до 4 участников.Тип издания: RepackРазработчик: Waving Bear StudioЖанр: Экшены, Казуальные игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7B78AB22DEE0C0FEEAB8C75A44D12ACD88F8F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

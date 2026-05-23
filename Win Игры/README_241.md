@@ -1,29 +1,3 @@
-###  Публикация: 1057850   (472371) от 29.09.2016
-
-Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Edge of Twilight - Return to Glory" - приключенческая игра от 3 лица в постапокалитическом стимпанковом фэнтэзи сеттинге, которая поведает о мире, разделённом на два измерения: дневное и ночное. Игрокам предстоит взять на себя роль Лекса, отщепенца и охотника за головами, который оказывается втянут в противостояние двух враждующих цивилизаций, индустриальных (   Читать дальше...   )Тип издания: LicenseРазработчик: FuzzyEyes StudioЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40265534E77AABFBA95D0AEFAC6139ED91296B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057711   (472368) от 29.09.2016
 
 Herolike (2016) [En] (1.0) License HI2U
@@ -32,7 +6,7 @@ Herolike (2016) [En] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472368.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Room Dilogy (2014-2016) [Ru/En] (1.0.1/1.0.4) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472354.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dreams from the Past [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472290.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Judge Dee: The City God Case [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472032.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Vermillion Watch 3: Order Zero / Алый дозор 3: Орден Зеро (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471761.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ HdO Adventure: The Three Musketeers: D'Artagnan and the 12 Jewels / Три му�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471705.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Overhead (2018) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471578.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Inner Friend (2018) [Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471572.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Dreamatorium of Dr. Magnus 2 (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471478.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Rescue Team 7 / Отважные спасатели 7 (2017) [Ru] (1.0) Unoffici
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471458.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471412.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.1.1) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471408.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Dark Fall Трилогия [Ru/En] (Repack) 2002-2009 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471290.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Dark Matter (2013) [Ru/En/Ge] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471270.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.953.7721/dlc) Repack Other s [Gold Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471125.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Max Payne 3 (2012) [Ru/En] (1.0.0.196) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471124.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Hero Siege (2014) [En] (2.0.0.3/dlc) Unofficial VseTop [Digital Collector's Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471118.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Dark Romance 13: Vampire Origins (2020) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470680.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Warlock: The Curse of the Shaman / Чернокнижник: Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470588.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Cannon Brawl (2014) [En] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470532.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Tour de France 2020 (2020) [Multi] (1.35.0.0) Steam-Rip CHRONOS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470141.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ City of Gangsters (2021) [Ru/Multi] (1.4.4/dlc) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469769.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Tormented Souls (2021) [Ru/Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469751.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Elven Legend 6: The Treacherous Trick / Эльфийская Легенда 6: �
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469481.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Dreams from the Past / Сны из прошлого [Ru] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469275.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Dreams from the Past / Сны из прошлого [Ru] (P) 2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5D472D9A6606E002D6BF8FA0885A4EB1A093FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320609   (469097) от 19.08.2019
+
+Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15: Шрамы Ламии (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не успели остыть страсти и бурные баталии в городке Калвер, в котором свирепствовала Черная чума, вызванная очередными кознями незабвенного графа Сен-Жермена, как уже в другом городе по соседству над всеми жителями навис панический страх, вызванный чередой загадочный смертей молодых девушек, на теле которых были обнаружены идентичные шрамы в виде мистических символов, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Amax InteractiveЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CA4AC4A6D0E36BF928AE2BC66104B056EA87AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

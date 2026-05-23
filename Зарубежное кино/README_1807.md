@@ -1,56 +1,3 @@
-###  Публикация: 1660665   (186904) от 20.09.2023
-
-Луна / Deo mun / The Moon (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-2029 год. Южная Корея отправляет на Луну трех космонавтов, но из-за вспышки на солнце космический корабль терпит крушение. В живых остаётся лишь один член экипажа, которому удается высадиться на обратной стороне Луны. Все силы NASA и лучших специалистов Земли направлены на спасение его жизни. Теперь весь мир, затаив дыхание, следит за попытками спасти молодого космонавта, (   Читать дальше...   )Производство: Корея Южная / BLAAD StudiosЖанр: фантастика, драмаРежиссер: Ким Ён-хваАктеры: Соль Гён-гу, То Гён-су, Ким Хи-э, Хон Сын-хи, Пак Пён-ын, Чо Хан-чхоль, Чхве Бён-мо, Щим Ён-ынПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, корейскийСубтитры: Английские, корейские (hardsub на английскую речь)Продолжительность: 02:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8B149119B82E8697919FD47F18B1EC0435BFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591643   (186861) от 19.11.2022
-
-Любовь в падшем городе / Qing cheng zhi lian / Love in a Fallen City (1984) BDRip [H.265/1080p] [10-bit] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Циничный плейбой пытается растопить сердце женщины, жизнь которой после развода складывается неудачно.
-По одноименной повести Эйлин Чан.Производство: Гонконг / Shaw Brothers (Hong Kong) Ltd.Жанр: драма, мелодрама, военный, историяРежиссер: Энн ХуэйАктеры: Чоу Юнь-Фат, Кора Мяо, Gerry Barnett, Чяо Чяо, Чэнь Чжигун, Чуан Чин, Вэй Йи Чин, Чун Кин-Фай, Jovy Coudrey, Gongbi DengПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: русскиеПродолжительность: 01:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A390FCDC1860667D7740DEB5A5F93F291E6DDFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591638   (186858) от 19.11.2022
 
 Демон лютни / Liu zhi qin mo / Demon of the Lute (1983) BDRip [H.265/1080p] [10-bit] [VO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186858.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186850.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186835.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186826.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186823.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186810.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186806.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186796.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186790.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186777.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186776.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186739.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186728.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186723.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186717.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186715.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186713.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186710.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186709.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186701.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186699.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186698.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186694.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186692.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5221E3F3EE8DCCD39C6D8966FB005232A0CA23D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591726   (186688) от 19.11.2022
+
+Брайан и Чарльз / Brian and Charles (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брайан живет в одиночестве в валлийской деревушке. Он изобретает невероятные приспособления, которые редко работают. Но однажды Брайан находит голову манекена и создает Чарльза. Робот, собранный из запчастей от разных устройств, учит английский по словарю, чтобы быть достойным собеседником для Брайана. Вскоре Чарльз эволюционирует и начинает интересоваться внешним (   Читать дальше...   )Производство: Великобритания /Жанр: КомедияРежиссер: Джим АрчерАктеры: Дэвид Эрл, Chris Hayward, Луиза Брили, Джэми Мичи, Нина Сосанья, Линн Хантер, Лори Иззард, Кара Чейз, Sunil Patel, Риши НэйрПеревод: Дублированный (iTunes), Многоголосый профессиональный (Jaskier, TVShows)Субтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 01:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D9282B62313F273C3B7970D6C0203D26612C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663308   (186684) от 21.09.2023
+
+Последний вагон / El Ultimo Vagon / Where the Tracks End (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186684.jpg" />
+</div>
+
+
+###  Подробнее
+
+История мальчика Икаля, который путешествует по Мексике с родителями. Его отец работает на строительстве железнодорожных путей и его семья вынуждена постоянно перемещаться, из-за чего Икалю трудно заводить друзей. Но по прибытии на новое место и зачислении в школу Малиналли Тепенепатль, которая расположена в старом вагоне поезда, его жизнь меняется. Там он встречает (   Читать дальше...   )Производство: Мексика / Netflix, Woo FilmsЖанр: драма, комедия, семейныйРежиссер: Эрнесто КонтрерасАктеры: Адриана Барраса, Дебора Поллак, Фатима Молина, Гильермо Вильегас, Бланка Герра, Леонардо Алонсо, Джеронимо Медина, Gabriela Cartol, Норма Пабло, Адриан ВаскесПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, испанский, английскийСубтитры: английские (forced, SDH, full), украинские, немецкие, французскиеПродолжительность: 01:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB45A4DFE003771F73BE8CD9CA458EAA224F2FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

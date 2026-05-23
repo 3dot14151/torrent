@@ -6,7 +6,7 @@ Stone Sour - House of Gold and Bones Part 1 (2012) scene [FLAC|Lossless]<Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405819.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Dokken - Broken Bones (2012) [FLAC|Lossless]<Heavy Metal / Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405251.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Machinae Supremacy - Rise Of A Digital Nation (2012) [FLAC|Lossless]<SID-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405234.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Vektor - Terminal Redux (2016) [FLAC|Lossless|image + .cue] <Thrash, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405040.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Daylight Dies - A Frail Becoming (2012) [FLAC|Lossless]<Melodic Death/Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_404946.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Angelus Apatrida - The Call (Limited Edition) (2012) [FLAC|Lossless]<Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_404944.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jack Starr's Burning Starr - Stand Your Ground (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404106.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Eisbrecher - Sturmfahrt (2017) [FLAC|Lossless|tracks + .cue] <NDH, Nu Metal, Dar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403932.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ozzy Osbourne - 10 Studio albums + 4 Live-albums + 3 Compilations + 1 Limited Ed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_403382.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Bat Head Soup - A Tribute To Ozzy (2000) [WavPack|Lossless]<Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402861.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ My Dying Bride - A Map Of All Our Failures (Limited Edition) (2012) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402210.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Leaves' Eyes - Melusine (EP) (2011) [FLAC|Lossless]<Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401143.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Bloodshot Dawn - Bloodshot Dawn (2012) [FLAC|Lossless]<Thrash Metal / Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399135.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Lamb Of God - Resolution (2012) [FLAC|Lossless]<Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398963.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Stone Sour - House of Gold & Bones Part 1 (Japanese Edition) (2012) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398917.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Lurking Fear - Out of the Voiceless Grave (2017) Japan [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398744.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Broken Hope - Mutilated And Assimilated (2017) [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397765.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Evil Invaders - Feed Me Violence (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397700.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mercenary - Recollections - The Century Media Years (Compilation) (2012) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396019.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Brendon Small - Brendon Small’s Galaktikon (2012) [web] [FLAC|Lossless]<Space 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_394918.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) 2CD, Japanese Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394789.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Nefarium - Ad Discipulum (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393273.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Orcrist - Black Blood Raised (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393272.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Carrion Wraith - Carrion Wraith (2008) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393251.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Orcrist - Fallen (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393250.jpg" />
 </div>
 
 
@@ -784,7 +784,7 @@ Helker - Legado Secreto (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393248.jpg" />
 </div>
 
 

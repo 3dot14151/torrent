@@ -6,7 +6,7 @@ DirEqual 3.8.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831910.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Disk Drill Entreprise 2.4.441 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830281.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sharks 3D 2.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829887.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ FireStream 1.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827962.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ USB Network Gate 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826532.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Roadblock - Content Blocker 1.8.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825266.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ oneSafe 2.1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824650.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Stellar Phoenix Mac Data Recovery 7.1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824624.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Memory Cleaner 5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824225.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ App Uninstaller 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823129.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Mirror for Panasonic TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822898.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Bartender 3 v3.1.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822649.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ iCollections 7 v7.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821516.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ PhoneRescue 2.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819647.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Typinator 8 v8.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819599.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Accenssible 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819254.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ SMART Utility 3.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818989.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Clear Day - (Formerly Weather HD) 3.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818928.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Pimp Your Screen / Экран На Прокачку 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815495.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Hardware Monitor 5.54 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815418.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Awaken 6.4.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814197.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Acronis True Image 2016 (2.0.6077) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812957.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Paragon NTFS for Mac OS X 8.0 [Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812488.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ EtreCheckPro 6.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812361.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Memory Cleaner - Freeup space 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812280.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ NetWorker - Advanced Network Information App 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810129.jpg" />
 </div>
 
 

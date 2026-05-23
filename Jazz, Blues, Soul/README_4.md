@@ -6,7 +6,7 @@ Trudy Lynn - Turning the Same Ole Corners (2026) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061357.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marc Broussard - S.O.S. V: Songs of the '50s (2026) [FLAC 24/48|Lossless|WEB-DL|
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061323.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mikel Bluni - Just Now! (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061314.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mudslide Blues Band - Mudslide Blues Band (2026) [FLAC 24/48|Lossless|WEB-DL|tra
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061312.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nacho Valenciaga - Fifteen Years (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smo
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061300.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Noel Evans - Out Of The North (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061293.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Omar Coleman & Igor Prado - Old, New, Funky & Blue (2026) [FLAC 24/48|Lossless|W
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061290.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Patrick Tayol - Patrick Tayol , Music and Friends (2026) [FLAC 24/44.1|Lossless|
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061289.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ruby Blu - BLU FLAME (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061287.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Laurence Jones - On My Own (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061199.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Leon Bibb - Those Bittersweet Songs From My Land (2026) [FLAC 24/48|Lossless|WEB
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061196.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Malted Milk - Time Out (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061194.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dzem - Sobie potrzebni (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061027.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Collettivo Manichini - I want it all (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061024.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Eoin Shannon - Every Drunk's Gotta Story (2026) [FLAC 24/48|Lossless|WEB-DL|trac
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061018.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eric Bibb - One Mississippi (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061014.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Handsome Jack - Barnburners! (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061010.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jonathon Boogie Long - Courage in the Chaos (2026) [FLAC 24/48|Lossless|WEB-DL|t
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061003.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jimi Barbiani Band - Still In Love (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060387.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Jazz Bar Nights - Classic & Modern Lounge Jazz (2026) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060341.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Women of Jazz '26 (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059909.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Altered Five Blues Band - Hammer & Chisel (2026) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059825.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Andrew Michael Blues Band - Andrew Michael Blues Band (2026) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059817.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Benjamin Simon - Out of the Bowl (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Fo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059816.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Charlie Barath - Issaquena Getaway (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059808.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Crossroad Union Band - Robert Johnson Re-imagined (2026) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059796.jpg" />
 </div>
 
 

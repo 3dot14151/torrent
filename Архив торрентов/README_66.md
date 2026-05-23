@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.80 (2802) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036102.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CPUID HWMonitor 1.50.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036100.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OpenedFilesView 1.87 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036097.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wireshark 4.0.4 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036091.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ iSubtitle 3 v3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036070.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ IconJar 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036069.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Multitouch 1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036068.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Affinity Publisher Beta 1.9.0.911 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036067.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Affinity Designer Beta 1.9.0.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036066.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Permute 3 v3.5.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036065.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Word Count Popup 2.50 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036064.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Feeder 4 v4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036063.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ NCH Doxillion Plus 5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036062.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Posterino 3 v3.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036061.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Piezo 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036059.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Display Maid 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036058.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Affinity Photo Beta 1.9.0.216 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036057.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ RSS Menu 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036056.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ ProFind 1.8.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036054.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ FonePaw Data Recovery 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036053.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Export for iTunes 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036052.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Downie 4 v4.1.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036051.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ UctoX 2 v2.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036050.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AirFoil+Airfoil Satellite 5.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036049.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Loopback 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036047.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Cocktail Big Sur Edition 14.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036045.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Viber 19.9.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254954.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Text Edit Plus 12.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254952.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Photoshop Lightroom Classic 12.3.0.15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254933.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Zoner Photo Studio X 19.2303.2.447 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254923.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Pulsar Modular - P11 Abyss 1.2.2 VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254885.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Zoner Photo Studio X 19.2303.2.447 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254879.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BurnAware Professional 16.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254878.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PeaZip 9.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254876.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Sandboxie plus 1.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254854.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Skype 8.97.0.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254849.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Skype 8.97.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254846.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FastFlix 5.5.0 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254842.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ nakst - Apricot Hybrid Synth 1.1.0 (FL Studio Native) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254841.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ RegCool 1.334 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254840.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 22.04.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254834.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Opera GX 97.0.4719.89 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254816.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ GeoGebra 6.0.774.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254815.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Perfectly Clear WorkBench 4.4.0.2501 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254811.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ IObit Driver Booster Pro 10.4.0.127 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254810.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Sandboxie plus 1.9.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254809.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Sandboxie 5.64.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254807.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VMware Workstation 17 Pro 17.0.2 Build 21581411 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254788.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CorelDRAW Graphics Suite 2022 24.3.1.576 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254765.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ IObit Uninstaller Free 12.4.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254749.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Pulsar Modular - P440 Sweet Spot 0.9.4 VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254745.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ pdfFactory Pro 8.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254743.jpg" />
 </div>
 
 

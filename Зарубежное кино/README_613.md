@@ -1,55 +1,3 @@
-###  Публикация: 1511800   (788360) от 22.11.2021
-
-Дурацкий август / Mieleton elokuu (2013) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эльза Ахо – владелица шляпного салона и, к тому же, известная ясновидящая. К её услугам то и дело прибегает отдел по розыску без вести пропавших. Но этот дар нельзя использовать себе во благо, поэтому Эльза не знает, что в серой социалистической Праге, за «железным занавесом», прозябает тот, кого она так пылко любила в юности, и из-за кого так и не вышла замуж. Она (   Читать дальше...   )Производство: Финляндия, Чехия, KinostoЖанр: драма, мелодрама, комедияРежиссер: Тару МякеляАктеры: Лаура Бирн, Мадс Сьёгард Петтерсен, Веера В. Вило, Кати Оутинен, Томми Корпела, Анси Линдстрём, Криштоф Гадек, Мария Сид, Аку Хирвиниеми, Пиркка-Пекка ПетелиусПеревод: любительский одноголосый (Kass)Субтитры: нетПродолжительность: 01:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FF133B24AD89DC3CC9C413D7073C15DD28B5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511736   (788355) от 22.11.2021
-
-Чудо / Gijeok / Miracle: Letters to the President (2021) WEB-DL [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в 80-х годах прошлого века. Математический гений Джун Кён (Пак Чон Мин) учится в школе в отдалённой сельской местности провинции Кёнсан. Его мечта - построить железнодорожную станцию в деревне, и он использует разные способы, в том числе пишет десятки писем президенту.Производство: Южная Корея, Blossom Pictures.Lotte EntertainmentЖанр: Комедия, мелодрамаРежиссер: Ли Джан-хунАктеры: Пак Чон-мин, Лим Юн-а, Ли Сон-мин, Ли Су-гён, Ю Хэ-джин, Ю Сын-мок, Пак Сон-а, Ким Дон-хён, Ли Дон-ён, Ким Джа-ёнПеревод: Двуголосый любительский (DeadSno & den904)Субтитры: АнглийскиеПродолжительность: 01:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1F4730A064A6DF09022BCC2AD408539A6FA975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511734   (788331) от 22.11.2021
 
 Дневник Бриджит Джонс / Bridget Jones's Diary (2001) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788331.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788327.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788320.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788317.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788314.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788306.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788300.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788296.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788295.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788290.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788286.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788284.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788274.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788272.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788271.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788267.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788265.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788262.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788257.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788254.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788252.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788124.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788079.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788045.jpg" />
 </div>
 
 
@@ -667,6 +615,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31CC64E6E87C0D8ECC4B643807678FC0C1167A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276546   (788030) от 16.01.2019
+
+Враг общества №1 / Public Enemies (1996) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788030.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма легла реальная история банды Кейт Баркер и ее сыновей, наводивших ужас на банки во времена Великой депрессии. Кейт, мать четверых сыновей, и ее муж не в состоянии справиться с глубокой бедностью.
+Первое убийство, совершенное в порыве ярости, спровоцированное обманом, положило начало череде жестоких и дерзких преступлений. Банда, не знающая ни страха, (   Читать дальше...   )Производство: США / American World PicturesЖанр: Триллер, Драма, КриминалРежиссер: Марк Л. ЛестерАктеры: Тереза Расселл, Дэн Кортезе, Гэвин Харрисон, Джозеф Линдси, Джеймс Марсден, Фрэнк Сталлоне, Алисса Милано, Грант Крамер, Эрик Робертс, Джо Дэйн, Леа Бест, Чип Хеллер, Том Уорд, Ричард ИденПеревод: Профессиональный (многоголосый закадровый), авторскийСубтитры: ОтсутствуютПродолжительность: 01:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC47ABF7DF50E5FE37235413CD49171D7FF1573C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202930   (788006) от 02.02.2018
+
+Доктор Голливуд / Doc Hollywood (1991) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба подложила ему свинью. Бенджи Стоун был подающим надежды пластическим хирургом, ехал в Голливуд, и вдруг — авария на главной улице какого-то захолустного городка. Кто виноват? Конечно, Бенджи. Полиция определяет нарушителю наказание: 32 часа принудительных работ терапевтом в местной больнице. Нормально? Доктор Голливуд приступает к работе. И самое дикое — она (   Читать дальше...   )Производство: США / Warner Bros.Жанр: Комедия, МелодрамаРежиссер: Майкл Кейтон-ДжонсАктеры: Майкл Дж. Фокс, Бриджит Фонда, Вуди Харрельсон, Дэвид Огден Стайерз, Джордж Хэмилтон, Джули Уорнер, Барнард Хьюз, Фрэнсис Стернхаген, Мел Уинклер, Робертс БлоссомПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Английские
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F290C21172C06566E771EEC79D033D813D4FA43F
 ```
 
 https://mybot314.ru/tekegram_catalog/

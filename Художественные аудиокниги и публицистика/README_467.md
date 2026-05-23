@@ -1,83 +1,3 @@
-###  Публикация: 1234631   (567595) от 07.07.2018
-
-Алексей Осадчук | Сумеречный Обелиск (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений в мире он-лайн игры «Зазеркалье».
-Олег с горсткой неписей направляется на поиски Запретного города. В пути его ждет много испытаний. Отправляясь в путешествие, он еще не знает, что из долины Серебряных гор, к ним идет орда ноктов. Армия Темных кланов пересекла Черный поток. Светлые уже на границе Ледяного леса. Олег понимает, что спасти жизни (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 09:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3387FA4CC812EE1A397C7956E1B0CAA06FD07C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152034   (567498) от 22.07.2017
-
-Мегги О`Фаррелл | Рука, что впервые держала мою (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда перед юной Лекси словно из ниоткуда возникает загадочный и легкомысленный Кент Иннес, она осознает, что больше не выдержит унылого существования в английской глуши. Для Лекси начинается новая жизнь в лондонском Сохо. На дворе 1950-е — годы перемен. Лекси мечтает о бурной, полной великих дел жизни, но поначалу ее ждет ужасная комнатенка и работа лифтерши в шикарном (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705E7E700B2EEDBCB5BCD8EA88301E8F0A712A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152227   (567492) от 22.07.2017
-
-Дмитрий Орехов | Будда из Бенареса (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Как возникло учение о переселении душ? Как выходцам из воинской касты, ощутившим тягу к аскезе и медитации, удалось потеснить сословие брахманов?
-Увлекательное, живое и красочное повествование Дмитрия Орехова погружает читателя в волшебный мир древнеиндийской духовности.Жанр: Современная прозаПродолжительность: 06:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560DF690CC3B8E6F4AF68C33837224389691938E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152026   (567482) от 22.07.2017
 
 Александр Нилин | Зимняя дача (2017) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567482.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567458.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567352.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567301.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567298.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567297.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567289.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567285.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567284.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567275.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567156.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567107.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567084.jpg" />
 </div>
 
 
@@ -427,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567078.jpg" />
 </div>
 
 
@@ -453,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567028.jpg" />
 </div>
 
 
@@ -479,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566997.jpg" />
 </div>
 
 
@@ -505,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566951.jpg" />
 </div>
 
 
@@ -532,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566934.jpg" />
 </div>
 
 
@@ -558,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566891.jpg" />
 </div>
 
 
@@ -584,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566864.jpg" />
 </div>
 
 
@@ -610,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566823.jpg" />
 </div>
 
 
@@ -636,7 +556,7 @@ Gav Thorpe | Angels of Caliban / Ангелы Калибана (2016) [MP3] [En]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566806.jpg" />
 </div>
 
 
@@ -662,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566755.jpg" />
 </div>
 
 
@@ -673,6 +593,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A860218227ADCCEB64E69051FC1F319899206930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690101   (566138) от 17.08.2013
+
+Александр Пушкин | Повести Белкина (Радиоспектакль) [1973] [MP3, Виктор Монюков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагаются инсценированные повести А. С. Пушкина: «Барышня-крестьянка», «Выстрел», «Гробовщик».
+
+Инсценировка Виктора Монюкова и Владимира Михайловского.Жанр: ИнсценировкаИздательство: Мелодия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF3D082C6D71989C7E7AC4A51E59EB07A9D5C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690087   (566115) от 17.08.2013
+
+Александр Островский | Лес [1949] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиокомпозиция спектакля Ленинградского государственного академического театра драмы им. А. С. Пушкина.
+
+Два бедных актера, Несчастливцев и Счастливцев, - нет денег, нет работы, табаку и того нет, нацепив бутафорские ордена, вооружившись пистолетом и гитарой, решают навестить богатую тетушку Несчастливцева - помещицу Гурмыжскую. А там, в поместье, своя жизнь.Жанр: Радиоспектакль
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BC15284A57A81087059847F57A8035E87DE7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555960   (565516) от 06.06.2022
+
+Сергей Вересков | В краю молочных рек (2022) [MP3, Станислав Воронецкий]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565516.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пришествие» – сильная община, о которой все пишут и которую все обсуждают. Ее возглавляет молодой харизматичный Лидер – про него говорят, что он способен творить настоящие чудеса. Те, кого отвергла семья и отвергло общество, всегда могут рассчитывать на его помощь. Дима и Лиза едут в общину по разным причинам. Ему недавно исполнилось восемнадцать, и для него «Пришествие» (   Читать дальше...   )Жанр: Истории из жизни, Современная русская литератураПродолжительность: 05:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8BC97F92EAC0DCF33823440A6BFA92ECE351F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

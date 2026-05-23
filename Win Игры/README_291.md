@@ -1,29 +1,3 @@
-###  Публикация: 1116513   (279755) от 28.11.2017
-
-Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Styx: Master of Shadows — это игра в лазутчика с элементами RPG, разработанная Cyanide Studio, чьи события происходят в мире темного фэнтези. Стикс — Гоблин, которому двести лет... Самый первый из Гоблинов. В забытой Башне Акенаша, где Люди и Эльфы защищают Мировое Древо, скрыта тайна его происхождения и создания расы Гоблинов. Пока магия Янтаря проистекает из Мирового (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3ABD3F661BF5B1DD5C1FAEA994EE507D4281F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336605   (279061) от 07.11.2019
 
 Whispered Secrets 10: Dreadful Beauty (2019) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Whispered Secrets 10: Dreadful Beauty (2019) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279061.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Halloween Stories 3: Horror Movie / Хеллоуинские истории 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278947.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Haunted Hotel 17: Beyond the Page / Проклятый отель 17: За пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278944.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The 9th Gate (2018) [En/Ch] (1.1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278909.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Surface 10: Virtual Detective  / Внешние пределы 10: Виртуа�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278403.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Control (2019) [Ru/En] (1.04.02/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278347.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Visage (2018) [Ru/Multi] (2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278333.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Sniper Elite III (2014) [Ru/Multi] (1.15a/dlc) License PLAZA [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278169.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ UFO: Afterlight / UFO: Прозрение (2007) [Ru/En] (1.7) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278164.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278111.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278108.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Filthy Lucre (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278071.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ SINNER: Sacrifice for Redemption (2018) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277508.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Krater (2012) [Ru/Multi] (1.10.1/dlc) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277396.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Rite Of Passage 6: Deck Of Fates / Обряд посвящения 6: Карты
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277119.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Surface: Return to Another World / За гранью. Возвращение в 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277027.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dark Tales: Edgar Allan Poes Metzengerstein / Темные истории. Эд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276932.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Nioh (2017) [Ru/Multi] (1.21.03/u3) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276859.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Gnomes Garden 4: New Home / Сад Гномов 4: Новый Дом (2016) [Ru]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276831.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Grim Tales 10: The Heir / Мрачные истории 10. Наследник (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276829.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276748.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Off-Road Paradise: Trial 4x4 (2016) [En/Es] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276742.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ TIS-100 (2015) [En] (11.27.2017) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276706.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Killing Room (2016) [Ru/Multi] (1.37.7) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276687.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Sniper Elite III (2014) [Ru] (1.15a/dlc) Rip Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276640.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Sniper Elite III (2014) [Ru] (1.15a/dlc) Rip Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6BD406A4B464BCA56E307C222B60E2D376B1BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078933   (276627) от 13.12.2016
+
+Maize (2016) [En] (1.0.1310) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maize – приключение с видом от первого лица, рассказывающее о событиях, причиной которых стало неправильное понимание заметки от правительства США двумя учеными. В результате был выведен сорт разумной кукурузы, и эта самая кукуруза – не самое нелепое, что есть в игре. Игрокам предстоит исследовать заброшенную ферму и не столь уж и заброшенную подземную исследовательскую (   Читать дальше...   )Тип издания: LicenseРазработчик: Finish Line GamesЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A1A2FD5B14A4AEC30F9CEF70ED45E9F3412DB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

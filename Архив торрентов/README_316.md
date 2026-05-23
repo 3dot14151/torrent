@@ -6,7 +6,7 @@ Call of Duty: Strike Team v1.0.40 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992390.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wallpapers - Selection of wallpapers vol.5 (27.01.13) [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992371.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Laura Eceiza | Современные модельеры. Атлас [2011] [PDF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992369.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992366.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA-Muz-Mix Полный вперед! (2013) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992364.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VA - Best Of 2012: Progressiv & Trance (2013) [MP3|320 кб/с]<Uplifting Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992361.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Various Artists - Blue Note Plays Rodgers & Hart (2006) [FLAC|Lossless]<Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992360.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992359.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wallpapers - Girls Wallpapers vol.1 (27.01.13) [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992356.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wallpapers - Large collection of wallpapers vol.6 (25.01.13) [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992355.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA-Энергичный Музыкальный Заряд (2013) [MP3|256 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992354.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992333.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Foxit Reader 9.7.1 Build 29511 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992325.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Nitrous Oxide - 3 Singles (2006, 2007, 2012) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992308.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Wallpapers - Car wallpapers (27.01.13) [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992303.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Wallpapers - Girls Wallpapers vol.2 (27.01.13) [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992301.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Wallpapers - Nature Wallpapers vol.1 (27.01.13) [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992300.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Wallpapers - Selection of wallpapers vol.6 (27.01.13) [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992295.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992253.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992251.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wallpapers - Aviation Wallpapers (27.01.13) [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992227.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ SeaMonkey 2.15.1 Final Portable by PortableApps [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992217.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wallpapers - Wallpapers Fantasy №31(Pavel)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992216.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Wallpapers - Небес прекрасные видения [JPG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992213.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA-New Age Style - To Chill Out 14 (2013) [MP3|320 кб/с]<Chillout, Relax, Dow
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992209.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Wallpapers - Wallpapers Fantasy №33(Pavel)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992186.jpg" />
 </div>
 
 

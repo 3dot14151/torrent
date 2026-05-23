@@ -6,7 +6,7 @@ Code Break, Inc, Кит Коуд / Keith Code | Поворот запястья 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065586.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Best Motoring, Кэйити Цутия / Keiichi Tsuchiya | Библия дри�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065585.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ClassGuru, Денис Драгунский | Писательское масте
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065562.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TutorPlace, Илья Курицын | Живопись (2026) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065539.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065511.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065336.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ OTUS, Антон Витвицкий, Дмитрий Колесников, Бор
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065335.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ OTUS, Сергей Терешин, Максим Чащин, Артем Бард�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064696.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064673.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064605.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Logic and Chaos, Константин Шпунт, Алекс Ланге | Лог
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064581.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Rebrain, Василий Озеров, Ольга Яновская, Fevlake | Net
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064170.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064149.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Balun.Courses, Владимир Балун | System Design (2026) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064146.jpg" />
 </div>
 
 
@@ -377,35 +377,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862205   (1064138) от 30.03.2026
-
-OTUS, Алексей Железной, Константин Трофимов | ClickHouse для инженеров и архитекторов БД (2025) PCRec [AD][RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Всё о работе с ClickHouse: от установки и настройки – до решений для продакшена.
-Чему вы научитесь:
-. Вы  узнаете, как устанавливать ClickHouse на различных системах, поймёте, какие у данной БД неоспоримые преимущества, изучите сценарии использования.
-Начнёте с базовых понятий, а закончите – продакшен-решением. Выполните много практических заданий, подготовите итоговый (   Читать дальше...   )Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 45:18:09Реклама: наложение на видео (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79D53FF76896BB5A41FB6897A2B42FAA228E436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863081   (1063694) от 02.04.2026
 
 1С Учебный центр №1, Алексей Прокуровский | Разработка на технологии 1С:Предприятие.Элемент [базовый и профильный блоки] (2024) PCRec [RU]
@@ -414,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063694.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ OTUS, Евгений Волосатов | Алгоритмы и структур
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063692.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Rebrain | PostgreSQL онлайн-практикум [Rebrain] (2023) [RU] (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063571.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ TutorPlace, Александр Монетов | Моушн-дизайнер (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063541.jpg" />
 </div>
 
 
@@ -522,7 +493,7 @@ Level One, Виктор Горбатов | Логика через голово�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063322.jpg" />
 </div>
 
 
@@ -550,7 +521,7 @@ TutorPlace, Елизавета Карымова | Спидкубинг (2026) WE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063317.jpg" />
 </div>
 
 
@@ -576,7 +547,7 @@ TutorPlace, Наталья Баранова | Архетипы Юнга (2026) W
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063307.jpg" />
 </div>
 
 
@@ -602,7 +573,7 @@ TutorPlace, Галина Шикина | Техники концентрации 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063080.jpg" />
 </div>
 
 
@@ -628,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063070.jpg" />
 </div>
 
 
@@ -657,7 +628,7 @@ OTUS, Евгений Рудаков | PHP-разработчик. Продвин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063008.jpg" />
 </div>
 
 
@@ -686,7 +657,7 @@ OTUS, Илья Нуруллин | Framework Laravel (2025) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063007.jpg" />
 </div>
 
 
@@ -700,6 +671,35 @@ OTUS, Илья Нуруллин | Framework Laravel (2025) PCRec [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:351FCBE2276A35C9A178B661E4732EC4A7384604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864038   (1063006) от 08.04.2026
+
+OTUS, Михаил Каморин | Symfony Framework (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для кого этот курс?
+
+Для PHP-разработчиков, которые стремятся поднять свой уровень до middle+ и senior+
+Курс рассчитан на PHP-разработчиков со средним опытом работы от двух лет.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 57:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB6A39055322A416FADDD6CCFC3B3A8B20AED36
 ```
 
 https://mybot314.ru/tekegram_catalog/

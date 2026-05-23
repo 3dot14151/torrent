@@ -6,7 +6,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Deceptico
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20851.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (1.0.0 patch 1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20834.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Block Fortress 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20746.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Haydee III (3) (2025) [Ru/Multi] (1.0.21.1529/dlc) Repack Other s [18+]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20654.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20632.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.11025947/dlc) Repack Wanterlude [Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20619.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20527.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20523.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20493.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20440.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20389.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack seleZen [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20324.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack FitGirl [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20198.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.42.46611) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20039.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20021.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Assassin's Creed Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19914.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ KIBORG (2025) [Ru/Multi] (202.50.4 30:1:50) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19749.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.4_30: 1:50) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19537.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19505.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19484.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19285.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19089.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Project Werewulf (2025) [Ru/Multi] (HotFix 2) Repack Other s [18+]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18910.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18678.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18540.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17329.jpg" />
 </div>
 
 

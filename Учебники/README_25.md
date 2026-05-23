@@ -1,139 +1,3 @@
-###  Публикация: 1121174   (800487) от 02.04.2017
-
-А.А. Иноземцев и др. | Основы конструирования авиационных двигателей и энергетических установок [5 томов] (2008) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены общие вопросы и принципы разработки газотурбинных двигателей, их узлов и основных элементов.
-Материалы изложены по следующей схеме:
-Требования, предъявляемые к узлам авиационных двигателей и ГТУ.
-Проблемы, которые приходится решать при выборе конструктивных решений.(   Читать дальше...   )Жанр: МашиностроениеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1D2426D7915D029D83CA3D45296ABA5F2733CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121122   (800460) от 02.04.2017
-
-Г.В. Мишенков и др. | Метод конечных элементов в курсе сопротивления материалов (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Содержание учебного пособия соответствует программе подготовки специалистов по направлению «Прикладная механика». Излагаются следующие главы курса «Сопротивление материалов»: растяжение-сжатие, кручение, изгиб, растяжение-сжатие с кручением, косой изгиб, косой изгиб в сочетании с растяжением-сжатием, с растяжением-сжатием и кручением, теория напряженного и деформированного (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF64BB7AB47E145EDAF6D15453904C8790B4E6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121256   (800434) от 02.04.2017
-
-Г.А. Фадеева, В.Т. Федин | Проектирование распределительных электрических сетей (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются характеристики потребителей электроэнергии, методы определения их расчетных нагрузок, методы расчета распределительных электрических сетей, принципы выбора основных проектных решений, основы принятия решений, направленных на повышение эффективности функционирования распределительных электрических сетей.
-Для студентов технических вузов энергетических (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9435EB2FA40B1D24CDEC677E59F6141D90465B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199728   (800304) от 17.01.2018
-
-А.А. Долгова,  Е.Я. Ладыгина | Практикум по фармакогнозии (1966) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Практическое руководство по фармакогнозии как одной из ведущих дисциплин фармацевтического образования составлено в соответствии с учебной программой и с учетом материалов Государственной фармакопеи СССР IX издания.
- К сожалению экземпляр книги старый и плохо сохранился! Не удалось полностью отреставрировать при сканировании и сохранении в файл PDF отсканированные (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB84BDC6257EFAB6DDBE429166D5D28F98B4E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199373   (800300) от 17.01.2018
-
-Г.Н. Арсеньев, С.Н. Замуруев | Радиоавтоматика (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В учебнике излагается теория и инженерные методы расчета систем радиоавтоматики. Даны общие сведения и рассмотрены основы теории систем автоматического управления. Описываются принципы управления и математические модели, методика составления структурных схем, передаточных функций и уравнений динамики и состояний систем радиоавтоматики.
-Рассмотрены вопросы устойчивости, (   Читать дальше...   )Жанр: Автоматика. Радиоэлектроника. СвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9196FBAD129E2571E9BE1E1DC70AFBF64804A444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199666   (800229) от 17.01.2018
 
 С.М. Власов и др. | Бесконтактные средства локальной ориентации роботов (2017) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800229.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800216.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800070.jpg" />
 </div>
 
 
@@ -221,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799771.jpg" />
 </div>
 
 
@@ -247,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799375.jpg" />
 </div>
 
 
@@ -273,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799369.jpg" />
 </div>
 
 
@@ -299,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797436.jpg" />
 </div>
 
 
@@ -325,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796988.jpg" />
 </div>
 
 
@@ -352,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796322.jpg" />
 </div>
 
 
@@ -378,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796311.jpg" />
 </div>
 
 
@@ -404,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796266.jpg" />
 </div>
 
 
@@ -431,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796254.jpg" />
 </div>
 
 
@@ -458,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796192.jpg" />
 </div>
 
 
@@ -484,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796190.jpg" />
 </div>
 
 
@@ -511,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794988.jpg" />
 </div>
 
 
@@ -537,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794932.jpg" />
 </div>
 
 
@@ -563,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794811.jpg" />
 </div>
 
 
@@ -590,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794752.jpg" />
 </div>
 
 
@@ -617,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794578.jpg" />
 </div>
 
 
@@ -643,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794254.jpg" />
 </div>
 
 
@@ -670,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794124.jpg" />
 </div>
 
 
@@ -682,6 +546,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDB692B74C3CC7BAC752FC64D9E311AA3AA9A380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274264   (794099) от 06.01.2019
+
+В.А. Овчинкин (ред.) | Сборник задач по общему курсу физики [3 книги] (1998-2009) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трёхтомный сборник задач по физике под редакцией В.А. Овчинкина.Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7644F5BD60A47F1784A91E3CD7B19448F5974A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274350   (794050) от 06.01.2019
+
+В.Х. Гаспарян, Л.С. Денисов | Электродуговая и газовая сварка (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В краткой форме дан основной материал об истории развития сварки, профессии электрогазосварщика; приведены общие сведения о сварке, сварных соединениях и швах, современных способах механизированной и автоматизированной сварки, робототехнических комплексах, оборудовании сварочного поста для ручной дуговой сварки. Рассматриваются дефекты сварных соединений и элементы (   Читать дальше...   )Жанр: Сварочные работыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88575E73066B03161BFA1930708093F9D79305B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274260   (794047) от 06.01.2019
+
+Р.А. Браже | Вопросы и упражнения на понимание физики (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит вопросы и упражнения, способствующие лучшему пониманию дисциплины «Физика». Соответствует федеральным государственным образовательным стандартам высшего образования для естественнонаучных и технических направлений подготовки бакалавров. Предназначено для студентов высших учебных заведений. Может быть использовано также преподавателями физики, школьниками (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E08EC23FEFAC0A7FC1E52E4C952844C140D684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274251   (793941) от 06.01.2019
+
+Дмитрий Кудрец | Практикум по HTML (2018) [PDF, RTF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие «Практикум по HTML» содержит разноуровневые задания для организации самостоятельной работы при изучении соответствующей темы на уроках информатики. Адресуется учителям и учащимся школ, гимназий, учреждений профессионального образованияЖанр: ИнформатикаФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD325B0089074662E5F33CA81DEF5A8EA1B24D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122825   (793420) от 06.04.2017
+
+И.И. Вульфсон | Краткий курс теории механических колебаний (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793420.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом учебном пособии традиционный курс теории колебаний дополнен основными сведениями о принципах построения динамических моделей механизмов и приводов машин, их математическом описании и методах расчета типовых колебательных режимов. В лаконичной форме изложены способы виброзащиты и методы рационального динамического синтеза механизмов и приводов машин с учетом (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F66490D00E01B5BB0592D8D52D465C123720E09
 ```
 
 https://mybot314.ru/tekegram_catalog/

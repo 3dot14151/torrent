@@ -6,7 +6,7 @@ Opera 63.0.3368.88 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418834.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ reaConverter Pro 7.522 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418832.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Tone Empire - Black Q v1.0.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418830.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Wise Hotkey Pro 1.2.5.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418824.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kerish Doctor 2022 4.90 (Update 28.08.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418796.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PDF24 Creator 11.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418790.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Tixati 3.11 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418762.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Punto Switcher 4.3.0 Build 1638 beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418757.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Wise Video Downloader 2.43.93 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418747.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Soft4Boost Document Converter 4.6.4.427 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418745.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Autodesk AutoCAD Architecture 2018.1.1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418703.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wise Force Deleter 1.49.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418676.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ YouTube By Click Premium 2.2.115 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418674.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ iZotope - Insight 2 2.10.269 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418671.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Wise Memory Optimizer 3.6.6.110 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418670.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Auslogics BoostSpeed 11.1.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418668.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Almeza MultiSet Professional 8.4.4 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_418656.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CPUID HWMonitor Pro 1.39 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418479.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sandboxie 5.31.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418474.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ WinTools.net Premium 16.9.1 Portable by FCPortables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418457.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Acronis Backup Advanced Universal 11.7.50054 + BootCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418452.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ O&O Defrag Professional 20.0 Build 449 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418450.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Adobe Premiere Pro 2022 22.6.0.68 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418344.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Movavi Video Editor Plus 22.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418343.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Adobe After Effects 2022 22.6.0.64 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418333.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Cakewalk SONAR Platinum 22.10.0 Build 19 (2016.10)[Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418327.jpg" />
 </div>
 
 

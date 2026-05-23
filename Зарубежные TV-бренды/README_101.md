@@ -1,29 +1,3 @@
-###  Публикация: 1190751   (266673) от 10.12.2017
-
-Мамонты. Гиганты ледникового периода / Mammoths: Giants of the Ice Age (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-О гигантских млекопитающих ледникового периода. О других существах, населявших планету наряду с мамонтами, - шерстистом носороге, саблезубой кошке, пещерном льве и большерогом олене. О том, как меняющиеся погодные условия и вмешательство людей постепенно привели к исчезновению этих удивительных животных.Производство: Германия, Bilderfest GmbH Factual Entertainment for ZDFЖанр: Документальный, научно-познавательный, историяРежиссер: Флориан БрейерПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179F8759B740BF63378D43C3305BD792B3CE65D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 192835   (266480) от 06.12.2018
 
 BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (1998) SATRip (сезон 2, серии 1-10 из 10)
@@ -32,7 +6,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266480.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266357.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266023.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265725.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ NG: Последняя львица / The Last Lioness (2009) HDTVRip 720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265631.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ NG: История о нас с Морганом Фрименом / The Story of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265583.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265582.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265580.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ NG: Охотники за вирусами / Virus Hunters (2008) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265578.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265574.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265572.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Discovery. Планета мутантов / Mutant Planet (2010) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265568.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ BBC: Империя чужих. Насекомые / Alien Empire (2001) [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265529.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ NG: Известная Вселенная. У Пределов Познания 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265525.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ National Geographic: Острова. Галапагосы / Islands. Galapagos (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265524.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265498.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264933.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264798.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263551.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Discovery. Хранители болот Эверглейдс / Guardians of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263505.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263354.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263224.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ NG: ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263060.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ RD: Удивительные подземные секреты (Природны
 >>Readers Digest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263012.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262863.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F86521FC6D61C75F629D8CC81350698812BDB9F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192908   (262439) от 19.12.2017
+
+NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колумбия занимает третье место в мире по наличию проживающих видов животных и второе место по количеству видов птиц. Там проживает множество видом амфибий и пресмыкающихся. Но этому Раю угрожает опасность.Производство: Великобритания, Off the FenceЖанр: Документальный, научно-популрный, фауна, флораРежиссер: Эндрю МурвудПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D72787F8A24097F6D800B50C51B768EE8550C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

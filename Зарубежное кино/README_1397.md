@@ -1,56 +1,3 @@
-###  Публикация: 1582438   (320240) от 10.10.2022
-
-Экзорцизм моей лучшей подруги / My Best Friend's Exorcism (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Год 1988-й. Эбби и Гретхен — лучшие подруги с четвертого класса, но после того, как один вечер закончился катастрофой, Гретхен начинает вести себя по-другому. Она угрюма. Она раздражительна. И странные происшествия случаются всякий раз, когда она находится рядом. Расследование Эбби приводит ее к поразительным открытиям — и к тому времени, когда их история достигнет (   Читать дальше...   )Производство: США / Endeavor Content, Gotham GroupЖанр: ужасы, комедия, драмаРежиссер: Дэймон ТомасАктеры: Элси Фишер, Амайя Миллер, Рэйчел Кану, Кэти Ан, Клэйтон Ройал Джонсон, Крис Лоуэлл, Нэйтан Андерсон, Синтия Эванс, Рэйчел Леа Коэн, Джон СтоунбернерПеревод: любительский многоголосый (MUZOBOZ)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C3E7F86D4E93D4B3EA481AC4665FB0FFE6CD14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896235   (320238) от 10.10.2022
-
-Письма с Иводзимы / Letters from Iwo Jima (2006) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Другой взгляд на трагическую битву при Иводзиме, ставшую не только историческим событием, переломным моментом в ходе Тихоокеанской кампании США против Японии, но и столкновением культур и мировоззрений.
-Февраль 1945-го. Война в Европе подходила к концу, а на тихоокеанском направлении она была в самом разгаре. Островок Иводзима стал для США последним плацдармом на (   Читать дальше...   )Производство: USA / DreamWorks SKG, Warner Bros., Malpaso ProductionsЖанр: драма, военный, историяРежиссер: Клинт ИствудАктеры: Кен Ватанабе, Кадзунари Ниномия, Рё Касэ, Цуёси Ихара, Сидо Накамура, Хироши Ватанабэ, Такуми Бандо, Юки Мацудзаки, Такаши Ямагути, Эйдзиро ОзакиПеревод: профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, украинский, английскийПродолжительность: 02:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9AA55D1A8AA61183C707005E2DEACAA78751FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582553   (320237) от 10.10.2022
 
 МК-Ультра / MK Ultra (2022) WEB-DLRip [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320237.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320233.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320232.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320216.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320212.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320210.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320203.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320201.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320159.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_320154.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320128.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320092.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320076.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320063.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320060.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320056.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320049.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320045.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319944.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319942.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319934.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319884.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319801.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319781.jpg" />
 </div>
 
 
@@ -670,6 +617,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9C94DD7973421313302D153F9C431E02B72CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421376   (319695) от 04.11.2020
+
+15 августа / 15 aout / August 15th (2001) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319695.jpg" />
+</div>
+
+
+###  Подробнее
+
+99% женщин «кидают» своих мужей во время отпуска! Когда Макс, Рауль и Венсан в дождливый летний день приезжают на курорт в Боль, они не находят там своих жен!
+Злые и мокрые, друзья вваливаются в снятый на три семьи коттедж и обнаруживают, что жены сбежали, оставив кучу нестиранного белья и чумазых, голодных детей. Устав от домашних забот, они решили, что тоже достойны (   Читать дальше...   )Производство: Франция / ARP Sélection, EuropaCorp, Leeloo ProductionsЖанр: КомедияРежиссер: Патрик АлессандринАктеры: Ришар Берри, Шарль Берлен, Жан-Пьер Дарруссен, Мелани Тьерри, Сельма Эль Муисси, Манон Горен, Квентин Поммье, Тома Гулар, Людмила Микаэль, Бландин БариПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C2324749D9C690E9A7C8C6976B1D594CD6FF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582316   (319675) от 29.11.2012
+
+Слоеный торт / Layer Cake (2004) [1080p] Blu-ray
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торговать кокаином — не цветочки разводить. Бизнес нервный, чреватый ранней смертностью. Поэтому наркодилер по кличке Четыре Икса, заработав достаточно неправедных денег, решает более не искушать судьбу и уйти на покой. Однако перед этим ему, как водится, придется оказать своему боссу последнюю услугу: разыскать пропавшую дочку его старого приятеля.
+
+Кажется, плевое дело для знатока лондонского дна?! Если бы бедняга знал, каким безумным беспределом и чередой опасных недоразумений обернется это задание, в котором «случайно» оказалась замешана партия экстази на два миллиона, то вышел бы в отставку месяцем раньше! А лучше — двумя!..Жанр: Триллер, Драма, КриминалРежиссер: Мэттью ВонАктеры: Дэниэл Крэйг, Сиенна Миллер, Колм Мини, Кеннет Крэнэм, Майкл Гэмбон, Джейсон Флеминг, Том Харди, Бен Уишоу, Декстер Флетчер, Джордж ХаррисПеревод: Многоголосый закадровыйЯзык субтитров: Английский, Испанский, Португальский, Китайский, Болгарский, Хорватский, Эстонский, Исландский, Латвийский, Литовский, Румынский, Сербский, Русский (форсированный)Продолжительность: 01:45:23
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

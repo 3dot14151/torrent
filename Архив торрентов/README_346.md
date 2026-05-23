@@ -6,7 +6,7 @@ F.Chopin - B. Davidovich - Concerto No. 2 For Piano And Orchestra, Op. 21, In F-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986063.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Koan - Ariadne's Thread (EP) (WEB, #BTRDR138) [FLAC|Lossless]<PsyChill, Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986059.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ MediaHuman YouTube Downloader 3.9.9.32 (2401) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986048.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Opera 66.0.3515.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986042.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ BluffTitler Ultimate 14.7.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986040.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Poordream - Poordream Remixes 2008 - 2015 (2015) [FLAC|Lossless|WEB-DL] <IDM, Am
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986021.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ VA - Black Hole Recordings Best Of 2015 (2015) [MP3|320 кб/с] <Trance, Uplift
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986018.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ UninstallPKG 1.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986017.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986016.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Uplifting Trance Essentials Vol.7 (2015) [MP3|320 кб/с] <Trance, Uplifti
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986010.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Product Key Explorer 3.2.7.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986005.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Serial Box 01-2014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985982.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Adobe XD 25.3.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985962.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Comedy Баттл. Новый сезон (24.01.2020) WEB-DL [H.264/1080p-LQ] (�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985957.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Wondershare UniConverter 11.7.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985955.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Honeyview 5.32 Build 5292 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985950.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ GPU-Z 2.29.0 + ASUS_ROG RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985949.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985948.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Seba, Paradox & Robert Manos - Because / Lie to Me (2015) [MP3|320 кб/с] <Dru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985947.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ StatsBar 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985943.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Lars Leonhard - Orange Dawn (2016) [FLAC|Lossless|WEB-DL] <Ambient, Deep, Dub, T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985939.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985938.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Disk Map 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985935.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ ReadKit 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985934.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Battery Health 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985931.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985929.jpg" />
 </div>
 
 

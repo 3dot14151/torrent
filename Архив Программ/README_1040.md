@@ -6,7 +6,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.32.31332.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518569.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream Slideshow Maker 1.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518499.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Icecream Image Resizer 1.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518498.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Icecream Media Converter 1.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518489.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ IObit Uninstaller 5.0.3.169 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518483.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Privacy Eraser Free 4.2.6 build 1541 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518482.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IObit Smart Defrag 4.2.0.816 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518463.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Telegram Desktop 0.8.52 Stable + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518462.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Icecream Screen Recorder 2.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518460.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Icecream PDF Converter PRO 1.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518454.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ashampoo Photo Optimizer 6.0.12.117 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518453.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Icecream PDF Split and Merge PRO 2.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518407.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Save.Me 2.2.2 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518405.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Icecream Ebook Reader 1.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518401.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AdwCleaner 5.003 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518390.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Twinkstar 4.5.1000.1808 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518368.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ u-he - Presswerk 1.1.2.7669 VST, VST3, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518367.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Comodo IceDragon 61.0.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518364.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Soft Organizer 4.13 Final RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518330.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Startup Delayer 3.0 Build 364 Standard [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518274.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Icecream Video Editor 1.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518266.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ FreeFileSync 10.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518262.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Allavsoft Video Downloader Converter 3.17.6.7130 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518259.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Q-Dir 7.67 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518253.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ EZ CD Audio Converter 7.1.8.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518223.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Network Password Recovery 1.34 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518207.jpg" />
 </div>
 
 

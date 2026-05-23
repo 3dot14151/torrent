@@ -1,116 +1,3 @@
-###  Публикация: 1338911   (268119) от 17.11.2019
-
-Квартирник НТВ у Маргулиса. 85 лет Юрию Визбору (16.11.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Выпуск самой атмосферной программы НТВ «Квартирник НТВ у Маргулиса» посвящен юбилею советского поэта, композитора, актера и драматурга Юрия Визбора. В 2019 году одному из главных представителей жанра авторской песни, ставшему символом поколения 60-х, исполнилось бы 85 лет. В честь юбилея знаменитого барда в студии «Квартирника» собрались артисты, чтобы исполнить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53BDE188E6A935A816FBFCA8CE1DC5C66232901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965537   (267786) от 17.11.2019
-
-Квартирник у Маргулиса - Чиж (2015) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - Сергей "Чиж" Чиграков. Дата эфира: 05.12.2015.01. Урал байкер блюз
-02. Глазами и душой
-03. Глупенькая песня (Ассоль)
-04. Два тракториста(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D096B1B9CC3004435628A0994109E35FAC9077AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276317   (267629) от 29.12.2010
-
-Эпидемия - Эльфийская Рукопись: Сага о двух мирах (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рип официального сборника "Эльфийская Рукопись: Сага о двух мирах" на трёх DVD с дополнительными материалами.01. Золотые драконы
-02. Час испытания
-03. Рождённый для битвы
-04. Пройди свой путь(   Читать дальше...   )Жанр: Концерт, Power MetalПродолжительность: 03:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E09224DB7262B1BDE62A0A7C6589FBB5784D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 427798   (267605) от 28.12.2011
-
-Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Keep Your Eyes Open
-02. Throughout
-03. Ron Carter
-04. Boubacar(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212625   (267537) от 05.12.2018
 
 Бабочка... Бабочка... / Матылек... Матылек... (2018) DVD5 (Театр им. Я.Коласа) [BEL]
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267537.jpg" />
 </div>
 
 
@@ -145,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267422.jpg" />
 </div>
 
 
@@ -173,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267324.jpg" />
 </div>
 
 
@@ -202,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266980.jpg" />
 </div>
 
 
@@ -228,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266810.jpg" />
 </div>
 
 
@@ -254,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266562.jpg" />
 </div>
 
 
@@ -284,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265733.jpg" />
 </div>
 
 
@@ -310,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265641.jpg" />
 </div>
 
 
@@ -336,7 +223,7 @@ Gary Moore - The Definitive Montreux Collection (2007) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264100.jpg" />
 </div>
 
 
@@ -365,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264071.jpg" />
 </div>
 
 
@@ -394,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264066.jpg" />
 </div>
 
 
@@ -424,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263944.jpg" />
 </div>
 
 
@@ -453,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263589.jpg" />
 </div>
 
 
@@ -479,7 +366,7 @@ The Doors: Live At The Bowl '68 (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263466.jpg" />
 </div>
 
 
@@ -508,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263136.jpg" />
 </div>
 
 
@@ -535,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263066.jpg" />
 </div>
 
 
@@ -561,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263053.jpg" />
 </div>
 
 
@@ -587,7 +474,7 @@ The Beatles: Вечер трудного дня - клипы / A Hard Day's Nigh
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262818.jpg" />
 </div>
 
 
@@ -614,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262786.jpg" />
 </div>
 
 
@@ -640,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262780.jpg" />
 </div>
 
 
@@ -667,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262517.jpg" />
 </div>
 
 
@@ -693,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262514.jpg" />
 </div>
 
 
@@ -704,6 +591,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:409AC1824A6E81B5F84B77C598679597E7245A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209114   (262512) от 27.11.2019
+
+Пиковая дама (1960) DVD9
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация оперы П.И.Чайковского по одноименной повести А.С.Пушкина.
+
+«Тройка, семерка, туз — не выходили из его головы и шевелились на его губах. …Тройка, семерка, туз — преследовали его во сне, принимая все возможные виды… Все мысли его слились в одну, — воспользоваться тайной, которая дорого ему стоила.»Жанр: Фильм-операРежиссер: Роман ТихомировПродолжительность: 01:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093095257EB44C9737D6521B4327F777034EEF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 57675   (262506) от 27.11.2019
+
+Золушка (2002) DVDRip [Мюзикл]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм не похож ни на классическую "Золушку" советского кино, ни на голливудскую "Синдереллу". Веселая история о прекрасной Золушке, которой так нелегко приходится в жизни из-за самолюбивой мачехи и глупых сестер. Встреча с Принцем на королевском балу - самый волнующий момент фильма, после чего жизнь Золушки становится похожей на сказку.А (   Читать дальше...   )Жанр: Мюзикл / музыкальныйРежиссер: Семен ГоровАктеры: В ролях: Юлия Маврина (...Золушка), Николай Басков (...Принц), Валерий Леонтьев (...Король), Андрей Данилко (...Брунгильда), Валерий Меладзе (...Часовщик), Лолита Милявская (...Мачеха), Лариса Долина (...Крестная-Фея), Олег Скрипка (...Лютнист), Георгий Дрозд, Владимир Горянский, Виталий Линецкий, Ольга Сумская (...Княгиня), Надежда Грановская (...принцесса), Алена (   Читать дальше...   )Перевод: Оригинальный, русскийПродолжительность: 2:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6306587D6FB41B83EA5ED2168821C4FB4874C199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189269   (262025) от 21.12.2017
+
+Голос. Дети-3. Финалистка Ярослава Дегтярева. Лучшее (2017) HDTVRip [VP9/720p-LQ, VP8]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ярослава Дегтярева – маленькая участница 3-го сезона вокального шоу «Голос. Дети» – покорила зрителей и жюри недетским исполнением сложной композиции. Девочка удивила и подкупила не техникой исполнения, а проникновением в образ, искренностью. Яся - не просто певица, она артистка с блестящей перспективой. За умение найти тропинку к сердцу поклонники называют Ярославу (   Читать дальше...   )1-Ярослава Дегтярёва.  Кукушка  - Слепые прослушивания - Голос Дети - Сезон 3.mkv
+2-Ярослава Дегтярёва - Кукушка (Голос Дети)   Реакция.mkv
+3-Ярослава Дегтярёва Кукушка Поединки Голос Дети Сезон 3.mkv
+4-И.Работова, А.Болдарева, Я.Дегтярёва.  Все пути ангелов  - Поединки - Голос Дети - Сезон 3.mkv(   Читать дальше...   )Жанр: РорПродолжительность: 03:60:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F97AF8280CD7CEA1DF489A83000CE04273F6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193809   (261932) от 22.12.2017
+
+Арам Хачатурян - Валенсианская вдова (1988) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озорной, задорный спектакль, поставленный Борисом Барановским по мотивам пьесы Лопе де Вега «Валенсианская вдова» не может оставить зрителя равнодушным. Рассказ о молодой вдове Леонарде и её воздыхателях подан в лёгкой фееричной форме, наполнен юмором, энергией и жизнерадостностью.Производство: СССР, ВТПО «Союзтеатр» СТД СССРЖанр: Балет, комедия, экранизацияРежиссер: Борис БарановскийАктеры: Елена Афанасьева, Николай Дорохов, Татьяна Транквелицкая, Александр Куломзин, Александр БанниковСубтитры: отсутствуютПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374AF5FECB033314335C17C324B208ADEF29FCEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Paragon Backup & Recovery 10.9169 Professional (32/64 bit) / Rus / 2010
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890645.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890598.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Skype 7.32.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890593.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Skype 7.32.32.104 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890573.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Registry First Aid Platinum 11.0.1 Build 2433 RePack by D!akov (09.02.2017) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890570.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AMD Radeon Software Crimson ReLive Edition 17.1.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890557.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Uninstall Tool 3.5.2 Build 5556 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890553.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wondershare UniConverter 13.0.3.58 (х64) Repack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890542.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Wise Memory Optimizer 4.1.4.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890529.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Microsoft Windows and Office ISO Download Tool 4.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890465.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cyberfox 51.0.2 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890459.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ditto 3.21.134.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890458.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PDF-XChange Editor Plus 6.0.320.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890443.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ IObit Driver Booster Pro 8.7.0.529 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890422.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ IObit Driver Booster Pro 8.7.0.529 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890404.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Registry Workshop 5.0.1 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890350.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ WinNTSetup 3.8.7.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890324.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ OCCT 4.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890321.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Skype 7.32.32.104 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890319.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ uTorrent 2.2.24683 [Multi/Rus] Stable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890297.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ PotPlayer 210729 (1.7.21526) [06.09.2021] RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890284.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dr.Web Security Space 11.0.5.2030 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890254.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ SamDrivers 17.2 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890242.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ XYplorer 20.90.0000 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890192.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ XYplorer 20.90 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890170.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Allavsoft Video Downloader Converter 3.22.4.7394 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890164.jpg" />
 </div>
 
 

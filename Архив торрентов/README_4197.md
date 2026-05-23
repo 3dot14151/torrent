@@ -6,7 +6,7 @@ Google Chrome 119.0.6045.124 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160410.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160409.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HDCleaner 2.061 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160408.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160399.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.43
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160397.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NetLimiter 5.3.5.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160396.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Shazam 14.1.0-231103 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160395.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ DxO FilmPack 7.1.0 Build 481 Elite x64 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160385.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Google Chrome 119.0.6045.124 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160384.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Paste 4 v.4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160383.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Antivirus Removal Tool 2023.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160381.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Android Studio Giraffe | 2022.3.1 Patch 3 Build #AI-223.8836.35.2231.11005911 + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160380.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Alt SwitchER 21.6 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160378.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ GIMP 2.10.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160370.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BlueStacks App Player 5.13.210.1007 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160356.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 06.11.2023) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160326.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Vellum 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160322.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Native Instruments Komplete Kontrol 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160320.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ PowerPhotos 2.5.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160318.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Xliff Editor 2.9.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160315.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160309.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Disk Xray 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160304.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ DJ Mix Pads 2 - Remix Version 6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160286.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Capture One 23 Enterprise 16.3.1.23 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160275.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ n-Track Studio Suite 10.0.0.8196 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160271.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Perfectly Clear WorkBench 4.6.0.2613 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160260.jpg" />
 </div>
 
 

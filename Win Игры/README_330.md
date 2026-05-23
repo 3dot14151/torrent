@@ -1,29 +1,3 @@
-###  Публикация: 1653684   (206014) от 17.08.2023
-
-It Happened Here 2: Beacon of Truth / Это случилось здесь 2: Свет правды (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение детективной серии игр It Happened Here. Лауреат премии в области правдивых преступлений Эмили Смит собирается ввязаться в дело века! К ней обращается ее близкая подруга Кэтрин с просьбой расследовать смерть ее мужа десятилетней давности. Эмили берется за дело и вскоре погружается в историю маленького городка и загадочного маяка, о котором ходят недобрые (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7266720CE967C8E2E11256F349CBDF5EE2CDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830774   (205708) от 27.10.2025
 
 Halloween Stories 9: The Death Card / Хеллоуинские истории 9: Карта смерти (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Halloween Stories 9: The Death Card / Хеллоуинские истории 9:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205708.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Nicktoons and The Dice of Destiny (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205707.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205689.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205685.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Scene Tenoke [Premium Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205680.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205679.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124627/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205678.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205658.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205631.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack Necros [Ultima
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205629.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Sins of a Solar Empire: Trinity (2010) [En] (1.38) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205604.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Last Call BBS (2022) [En] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205516.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ TV189 (2018) [En] (1.0) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205469.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.0 Build 9076338) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205416.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Stellaris (2016) [Ru/Multi] (3.5.1/dlc) License FAiRLIGHT [Digital Anniversary E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205307.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205205.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205116.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205010.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205009.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Indoorlands (2022) [Multi] (1.0.0f3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204918.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.0.0) License FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204771.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.45) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204761.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ B.I.O.T.A. (2022) [Ru/Multi] (59744/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204662.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Din's Legacy (2019) [En] (1.013) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204425.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Skater XL - The Ultimate Skateboarding Game (2020) [En] (1.2.2.5) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204412.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Skater XL - The Ultimate Skateboarding Game – симулятор скейтб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8D0E2FF29588FEC07AB1BE4EA40D7C934D77C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602572   (204407) от 06.01.2023
+
+The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204407.jpg" />
+</div>
+
+
+###  Подробнее
+
+The friends of Ringo Ishikawa – это сплав из RPG, beat 'em up и симулятора жизни. В игре двухмерная пиксельная графика. Камера сбоку расположена. Инди-проект может похвастаться большой свободой действий, системой социального взаимодействия, живущим по расписанию открытым миром и сменой времени суток. Тайтл изобилует большим количеством механик и не ведет пользователя (   Читать дальше...   )Тип издания: LicenseРазработчик: yeoЖанр: Экшны, Ролевая игра, ФайтингЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7608F9318BCD895F77339461882A2DC85A0B041E
 ```
 
 https://mybot314.ru/tekegram_catalog/

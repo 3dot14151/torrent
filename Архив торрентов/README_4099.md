@@ -6,7 +6,7 @@ KeePass Password Safe 2.55 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173329.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIDA64 Extreme Edition 6.92.6614 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173328.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft FoneLab for Android 5.0.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173323.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Photo AI 2.0.6 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173319.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Rufus 4.3 (Build 2089) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173313.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tor Browser Bundle 13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173309.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Rhinoceros 3D 7.34.23267.11001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173307.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Storyist 4 v.4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173262.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Notebooks – Write and Organize 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173259.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ YT Saver Video Downloader & Converter for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173245.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ TechSmith Camtasia 2022 Studio 2022.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173244.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Proxyman for Mac 4.12.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173238.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ USBclean 3.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173214.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173207.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2941 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173201.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Topaz Photo AI 2.0.5 (x64) Portable by conservator [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173198.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Photo Supreme 2023.2.0.5052 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173183.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SnapEdit - AI photo editor 4.9.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173181.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Process Lasso Pro 12.4.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173179.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sumatra PDF 3.5.15711 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173176.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Luminar Neo 1.14.0.12151 (x64) Portable by conservator [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173172.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DxO PhotoLab 7 ELITE Edition 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173170.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Epic Pen Pro 3.12.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173161.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mullvad Browser 13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173160.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Microsoft Edge WebView2 Runtime 1.3.177.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173150.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ eM Client Pro 9.2.2157.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173147.jpg" />
 </div>
 
 

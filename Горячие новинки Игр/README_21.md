@@ -6,7 +6,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.04) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261712.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ A.I.L.A (2025) [Ru/Multi] (1.0.0.6001) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261693.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Winter Survival (2024) [Ru/Multi] (49966) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261633.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.0.3) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261632.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Total Chaos (2025) [En] (1.035) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261577.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Speed Demons 2 (2025) [Ru/Multi] (1.0.0.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261554.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.0.3) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261523.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack FitGirl [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261522.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) License GOG [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261521.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261518.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Constance (2025) [Ru/Multi] (1.0.1.40150) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261516.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bigfoot Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261512.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Project Motor Racing (2025) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay [Year 1 B
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261461.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.03) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261350.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20876369) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260864.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Demeo x Dungeons and Dragons: Battlemarked (2025) [Multi] (1.5.0) Scene SKIDROW 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260842.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Syberia - Remastered (2025) [Ru/Multi] (20251104) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260656.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Goblin Dungeon (2025) [Ru/Multi] (Build 20909598/dlc) Repack Let'sРlay [Eternal
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260546.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Outlaws + Handful of Missions: Remaster (2025) [Multi] (1.1.1748) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260028.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2) Repack Other s [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259779.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Reentry: A Space Flight Simulator (2018) [Ru/Multi] (1.00.00) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259778.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Reentry: A Space Flight Simulator (2018) [Ru/Multi] (1.00.00) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259777.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257997.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Kriophobia (2025) [Multi] (1.0.1) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257995.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Tales of Old: Dominus (2025) [Ru/Multi] (1.0.261025) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257933.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Licens
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257870.jpg" />
 </div>
 
 

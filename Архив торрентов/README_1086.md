@@ -6,7 +6,7 @@ VA - Submission Recordings Presents Miami 2017 (Mixed by INDI & Atragun) (2017) 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799242.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ PhotoStack (was Instastack) 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799241.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Downie 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799240.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 6 - Martinsville. Гонка (20
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799235.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ ScreenFloat - More Useful Screenshots 1.5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799233.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Sadle - Organo-Genesis (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799224.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ CloudTV 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799221.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799213.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Steel Panther - Lower The Bar (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799210.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799200.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Jonn Serrie - The Sentinel (2017) [FLAC|Lossless|tracks+.cue] <Ambient, New Age,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799194.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Pet Shop Boys - Undertow (2017) EP [MP3|320 Kbps] <Electronic, Synthpop, Tech Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799190.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Dabin - Two Hearts (2017) [MP3|320 Kbps] <Future Bass, Midtempo, Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799189.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tic Tac Toe - The Best Of (2006) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799185.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ RonyaSoft CD DVD Label Maker 3.2.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799184.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Novicorp WinToFlash Professional 1.6.0001 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799174.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ MacX DVD Ripper Pro 6.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799168.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Jeremy Olander - Diplo's Revolution Radio (GuestRoomMix) (2021-10-16) [MP3|~245 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799165.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ PullTube 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799162.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Scanitto Pro 3.16 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799161.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Contexts 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799153.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799144.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Worksheet Crafter Premium Edition 2021.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799140.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VideoDuke 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799139.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Two Friends - Big Bootie Mix Volume 020 (2021-10-25) [MP3|320 Kbps] <Dance, Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799134.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Wipr – Ad and Tracker Blocker 1.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799133.jpg" />
 </div>
 
 

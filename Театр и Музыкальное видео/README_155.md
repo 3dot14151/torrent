@@ -1,114 +1,3 @@
-###  Публикация: 327292   (42075) от 29.09.2024
-
-Пиквикский клуб (1986) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Джентльмен средних лет, но при том - сама наивность, суммирует свой жизненный опыт, накопленный за годы путешествий по старой доброй Англии. Комические и нелепые ситуации, в которых непрерывно оказываются он и его друзья, превращают спектакль в редкий и по-настоящему неувядающий бестселлер, развлекающий миллионы зрителей.Жанр: Фильм-спектакль, комедияРежиссер: Георгий ТовстоноговВ ролях: Николай Трофимов, Олег Басилашвили, Изиль Заблудовский, Юрий Демич, Ольга Волкова, Наталья Данилова, Татьяна Тарасова, Всеволод Кузнецов, Геннадий Богачёв, Владимир Козлов, Валентина Ковель, Георгий Штиль, Вадим Медведев, Михаил Морозов, Мария Призван-Соколова, Андрей Толубеев, Михаил Данилов, Валерий Караваев, Анатолий Пустохин, Татьяна Бедова, Юрий Томошевский, (   Читать дальше...   )Формат: AVIПродолжительность: 01:20:26 + 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A4F407C784343763DC902B07FFF522191D0694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458227   (42047) от 29.09.2024
-
-Носороги / Театр "У Никитских ворот" (2011) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пьеса «Носороги» Эжена Ионеско относится к так называемому театру абсурда, когда за внешним нагромождением ирреальных сцен скрывается подчас сложное философское отношение к миру и к жизни, где все так же перемешано и порой абсурдно.
-
-Краткое содержание пьесы сводится к тому, как люди становятся носорогами. Действие происходит в европейском маленьком провинциальном (   Читать дальше...   )Жанр: драма, спектакль
-По определению создателей: фантасмагорияРежиссер: Марк РозовскийПродолжительность: 01:12:05 + 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F2C4F9F77FCFC09E662368FAE4EADA8615DA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046811   (42031) от 29.09.2024
-
-Король и хитрец (1994) VHSRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль по мотивам английской сказки.
-В одном королевстве жил Король. И было у него три министра. И вот Первому министру приснился сон, что король ушел в отпуск и оставил Первого министра замешать Короля, а Второго министра замещать Первого министра, а Третьего министра замещать Второго министра. Сон был вещим, поскольку приснился с четверга на пятницу. Чтобы (   Читать дальше...   )Производство: Россия, Ленинградское телевидениеЖанр: Телеспектакль, сказка, семейныйРежиссер: Сергей СидоренкоАктеры: Яков Малкин, Валерий Кухарешин, Олег Леваков, Владимир Лелетко, Александр Новиков (III)Продолжительность: 00:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81230B1A8C99591F6AE555E61E98C39796B6BEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752220   (41987) от 29.09.2024
-
-Квартирник у Маргулиса. Олег Чубыкин (28.09.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Камерный концерт музыканта и автора песен Олега Чубыкина. Его увлечение рок-музыкой возникло еще в далеком детстве, когда он слушал песни The Beatles, после артист впервые начинал пробовать себя в творчестве и создал школьную группу, затем играл в группе «Тандем» с Александром Ивановым и Павлом Руминовым, а сейчас развивает сольную карьеру.00:00:06  Аллилуйя
-00:05:49  Лето навсегда
-00:12:32  Давным-давно
-00:18:30  Куда уплыли корабли?(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: рокСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AD4DE4152C6B0A1B53522DD65B11FE40C89D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 326026   (41956) от 30.09.2024
 
 Миллионерша (1974) DVDRip (Театр им. Е.Вахтангова)
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41956.jpg" />
 </div>
 
 
@@ -144,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41947.jpg" />
 </div>
 
 
@@ -170,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41937.jpg" />
 </div>
 
 
@@ -198,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41936.jpg" />
 </div>
 
 
@@ -224,7 +113,7 @@ Linkin Park: From Zero (Live Stream) (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41479.jpg" />
 </div>
 
 
@@ -250,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41400.jpg" />
 </div>
 
 
@@ -276,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41399.jpg" />
 </div>
 
 
@@ -303,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41260.jpg" />
 </div>
 
 
@@ -333,7 +222,7 @@ Sting - Radio 2 in the Park (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41243.jpg" />
 </div>
 
 
@@ -359,7 +248,7 @@ The Offspring - Hurricane Festival (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41066.jpg" />
 </div>
 
 
@@ -385,7 +274,7 @@ Rammstein: Paris (2017) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40898.jpg" />
 </div>
 
 
@@ -413,7 +302,7 @@ The Weeknd - São Paulo Livestream (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40793.jpg" />
 </div>
 
 
@@ -439,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40708.jpg" />
 </div>
 
 
@@ -467,7 +356,7 @@ Deep Purple & Orchestra: Live At Montreux (2011) Blu-ray 1080i
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40653.jpg" />
 </div>
 
 
@@ -496,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40604.jpg" />
 </div>
 
 
@@ -522,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40463.jpg" />
 </div>
 
 
@@ -551,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40129.jpg" />
 </div>
 
 
@@ -577,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40117.jpg" />
 </div>
 
 
@@ -603,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40099.jpg" />
 </div>
 
 
@@ -629,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40047.jpg" />
 </div>
 
 
@@ -656,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40038.jpg" />
 </div>
 
 
@@ -682,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40013.jpg" />
 </div>
 
 
@@ -694,6 +583,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF3EEE03C9DF61113AAF05C845B07E2D0E635E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664583   (39840) от 20.10.2024
+
+Таблетку под язык (1978) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39840.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе А. Макаенка в постановке Московского академического театра сатиры.
+Один день из жизни председателя колхоза Каравая. Кто только не приходит к нему со своими заботами и проблемами. Всякого может выслушать и помочь Каравай (к концу дня не обойтись без таблетки валидола). Рядом с ним - деревенский мудрец дед Цибулька, всегда готовый дать добрый совет (   Читать дальше...   )Жанр: Драма, телеспектакльРежиссер: Валентин Плучек, Борис КонуховАктеры: Георгий Менглет, Анатолий Папанов, Александр Ширвиндт, Вера Васильева, Спартак Мишулин, Александр Воеводин, Александр Диденко, Надежда Каратаева, Валентина Шарыкина, Борис Кумаритов, Екатерина Градова, Юлиан КозловскийПродолжительность: 01:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02202692C2DE264C937BF9FDBC32F8AE5EF996C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905500   (39730) от 21.10.2024
+
+Смерть Тарелкина (2002) VHSRip [Театр им. Ленсовета]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сразу трех петербургских актеров, которых прославили отечественные криминальные сериалы, можно увидеть в спектакле Юрия Бутусова «Смерть Тарелкина». В сатирической комедии Сухово-Кобылина чиновник Тарелкин (Андрей Краско), прячась от кредиторов, притворяется умершим. Его уловку быстро распознают его же коллеги-бюрократы и организуют показной процесс над обманщиком. (   Читать дальше...   )Производство: Россия, Театр им. ЛенсоветаЖанр: Спектакль, ДрамаРежиссер: Юрий БутусовАктеры: Константин Хабенский, Андрей Краско, Андрей Зибров, Михаил Пореченков, Артур Ваха, Олег АндреевПродолжительность: 01:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7B4E37A6E1EDAC2F3D6D3126CDA03FCF03192B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498311   (39150) от 27.10.2024
+
+Юнона и Авось. Новая версия (2004) DVDRemux
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два парусных корабля «Юнона» и «Авось» под российским флагом прибывают в Калифорнию, где капитан брига «Авось» полюбил местную красавицу с гасиенды, чем вызвал ревность и ненависть влюбленного в нее соперника.Производство: СССР / Гостелерадио СССРЖанр: Мюзикл, Драма, Мелодрама, МузыкаРежиссер: Марк ЗахаровАктеры: Николай Караченцов, Елена Шанина, Александр Абдулов, Павел Смеян, Владимир Белоусов, Александр Садо, Радий Овчинников, Владимир Кузнецов, Сергей Греков, Ирина АлфёроваПродолжительность: 01:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37905061A7B78FFD83BBBD9ED828F800369E74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758570   (38369) от 03.11.2024
+
+Квартирник у Маргулиса. Uma2rman — 20 лет! (19.10.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38369.jpg" />
+</div>
+
+
+###  Подробнее
+
+История группы началась в Нижнем Новгороде, когда братья Владимир и Сергей Кристовские решили объединиться и создать общий проект. Их дебютная пластинка «В городе N» стала платиновой и возглавила все топы российских чартов. Всего на счету Uma2rman семь альбомов, несколько десятков клипов, саундтреки к российским фильмам и сериалам, множество музыкальных премий и (   Читать дальше...   )00:00:05  В городе лето
+00:05:39  Ты вернешься
+00:11:05  Налей мне
+00:20:47  Не позвонишь(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Поп-рок, альтернативный рок, реггиСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B584B7A2A8FB43BFAB724CDDDA84065918AADAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

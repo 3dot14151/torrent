@@ -6,7 +6,7 @@ Movavi Video Converter 16.0.2 RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775890.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics Disk Defrag Free 8.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775774.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Amazing Carousel Enterprise 4.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775772.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ R-Studio 8.0 Build 164486 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775756.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WinUtilities Professional Edition 15.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775751.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wise Care 365 Pro 4.8.2.464 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775742.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FxSound Enhancer 13.020 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775735.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wise Program Uninstaller 1.93.101 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775714.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ R-Studio 8.0 Build 164486 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775713.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ R-Drive Image Technician 6.2 Build 6200 Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775709.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WinRAR 5.60 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775693.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775692.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Panda Free Antivirus 2016 16.1.2 DC 08.05.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775679.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Pepakura Designer 4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775676.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Gilisoft Audio Recorder Pro 7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775673.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775671.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ TurbulenceFD v1.0 build 1435 Repack by soyv4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775669.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ FxSound Enhancer 13.020 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775668.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ MOBILedit Forensic Express 5.1.1.12189 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775665.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ IcoFX 3.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775644.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Slimjet 9.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775610.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Gilisoft Video Converter 9.5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775605.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AdwCleaner 5.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775602.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Gilisoft Audio Editor 1.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775597.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Gilisoft Video Editor 7.4.0 DC 03.05.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775595.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Rufus 2.9 (Build 900) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775593.jpg" />
 </div>
 
 

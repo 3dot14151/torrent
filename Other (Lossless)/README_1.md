@@ -6,7 +6,7 @@ Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830743.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Yanni - Inspirato (2014) [FLAC|Lossless]<New Age, Classical crossover>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806913.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795451.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ SunSquabi - Odyssey (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic Hydro Fu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794570.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791441.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788122.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mixed Choir под управлением М. Попсавова - Страст�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785927.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785332.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780242.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Univers
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777772.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mariza - Mundo (2015) [FLAC|Lossless|tracks  + .cue] <Folk, World, Country, Fado
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776376.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-p
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769371.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classic
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768467.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767036.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732824.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Seven Lounge (2009) 2CD Digipack Edition [APE|Lossless|image + .cue] <Loung
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722852.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720826.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Vittorio Del Monaco - Histoires D'amour (1991) (2CD) [FLAC|Lossless|image + .cue
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718753.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718734.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718731.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717091.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, R
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714825.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708949.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, So
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707843.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707521.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706993.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1605221   (203944) от 17.01.2023
-
-Покерфейс / Poker Face (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Покер — опасная игра. И часто от нее зависят человеческие жизни. На одну, казалось бы, дружескую партию Джейк собрал в своем особняке друзей детства, чтобы наконец воздать каждому по заслугам. Но ставки мгновенно возрастают, когда на дом эксцентричного миллиардера нападают неизвестные. Теперь на кону не только богатства, но и собственные жизни. Но кто сможет сохранить (   Читать дальше...   )Производство: США / Alceon Entertainment Partners, Arclight Films, Catchlight StudiosЖанр: боевик, триллер, криминалРежиссер: Рассел КроуАктеры: Рассел Кроу, Лиам Хемсворт, RZA, Аден Янг, Стив Бастони, Дэниэл МакФерсон, Брук Сатчуэлл, Пол Тассоне, Мэтью Нэйбл, Бенедикт ХардиПеревод: Дублированный (Велес)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26617A5509760487A54A25CF81BB7E8FD7D5B990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655947   (203931) от 28.08.2023
-
-Свинка / Cerdita / Piggy (2022) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Девочка-подросток Сара страдает от буллинга со стороны ровесников и взрослых, которые травят ее из-за лишнего веса. Однажды свидетелем издевательств становится таинственный незнакомец на фургоне. Он похищает девушек, устроивших травлю Сары, и увозит в неизвестном направлении. Когда полиция опрашивает героиню о подробностях случившегося, Сара решает промолчать, ведь (   Читать дальше...   )Производство: Испания / Backup Films, Cerdita, Comunidad de MadridЖанр: триллер, драмаРежиссер: Карлота ПередаАктеры: Лаура Галан, Ричард Холмс, Кармен Мачи, Клаудия Салас, Ирене Феррейро, Камилль Агиляр, Хосе Пастор, Пилар Кастро, Хулиан Валькарсель-Карбонель, Фернандо Дельгадо-ХиеррооПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, ИспанскийСубтитры: Русские, АнглийскиеПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDB6A9ABBD85AF543D9FC380E55263540CB7FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655964   (203919) от 28.08.2023
 
 Знакомство родителей / Maybe I Do (2023) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203919.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203917.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203908.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203890.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203845.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203839.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203831.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203824.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203823.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203820.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203807.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203776.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203764.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203749.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203726.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203718.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203710.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203688.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203660.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203648.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203646.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203638.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203632.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203630.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DE145F93ADED368447FEFF5DE16B75BDF219B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606878   (203625) от 24.01.2023
+
+Треугольник печали / Triangle of Sadness (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пара моделей Карл и Яя отправляются в роскошный круиз на яхте в компании богатых пассажиров, где можно встретить и русского бизнесмена, и британских производителей оружия, и гения IT. Капитан судна — марксист, находящийся в перманентном запое. Пока всё идёт своим чередом: гости отдыхают, персонал трудится, жена русского бизнесмена чудит. Но вскоре произойдёт неожиданное (   Читать дальше...   )Производство: Швеция, Франция, Великобритания, Германия, Турция, Греция, США, Дания, Швейцария, Мексика / Imperative Entertainment, Film i Väst, BBC FilmsЖанр: Драма, комедияРежиссер: Рубен ЭстлундАктеры: Харрис Дикинсон, Шарлби Дин, Златко Бурич, Долли де Леон, Хенрик Дорсин, Вики Берлин, Вуди Харрельсон, Тобиас Торвид, Jiannis Moustos, Timoleon GketsosПеревод: Дублированный, Профессиональный многоголосый, АвторскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 02:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B06DBAACEB88D80949BCEABC02E3C948FC3C865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607050   (203618) от 24.01.2023
+
+В лесу не сношаться! 2 / Don't Fuck in the Woods 2 (2022) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вожатые летнего лагеря Пайн-Хиллз готовят территорию к сезону. Пока они всё обустраивают, в лагерь проникает странная окровавленная девушка. И что-то зловещее неотступно следует за ней...Производство: США, Concept Media, Cyfuno Ventures, Studio 605Жанр: ужасыРежиссер: Шон БаркеттАктеры: Брэнди Мэйсон, Джули Энн Прескотт, Кензи Филлипс, Кайли Уильямс, Марк Джастис, Бриттани Блэнтон, Несса Мур, Кайла Элизабет, Чейен Гордон, Cara McConnellПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, английскийСубтитры: Английские (PGS), китайские (PGS)Продолжительность: 01:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E39FEC83A5D9DD32DDFD14B93FFC6A992205CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

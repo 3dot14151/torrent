@@ -1,30 +1,3 @@
-###  Публикация: 526773   (572024) от 28.07.2012
-
-Prototype 2  [Ru] (v.1.0) 2012 | Новый Диск
-
->>Win Игры
->>Языковые пакеты для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Русификатор для игры Prototype 2
-Приятной  игры.  :wink: (   Читать дальше...   )Тип издания: официальный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBC85222A5448033952849E1D1793FA6F3F211A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151513   (571920) от 19.07.2017
 
 Children of Zodiarcs (2017) [En] (1.0.0.4) License RELOADED
@@ -33,7 +6,7 @@ Children of Zodiarcs (2017) [En] (1.0.0.4) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571920.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Grow Up (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571901.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Sephonie (2022) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571838.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Beyond: Light Advent (2015) [En] Unofficial [Collector's Edition / Коллек�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571592.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Subliminal Realms: The Masterpiece / Подсознательные миры: Ш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571517.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ The Cursed Crusade / The Cursed Crusade: Искупление (2011) [Ru/En] (Up
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571109.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Pirates of New Horizons: Planet Buster (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570885.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ Foreign Legion: Buckets Of Blood [Ru] (P) 2009
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570774.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ Whispered Secrets 5: Everburning Candle / Нашептанные секреты 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570515.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Dawn of Hope: Skyline Adventure / Рассвет надежды: Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570503.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ INVITATION (2019) [En/Ko] (1.0/upd3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570498.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Shadowplay: Darkness Incarnate / Игра теней: Восставшая Те�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570365.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Observation (2019) [Multi] (1.04) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570202.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ Eternal Journey: New Atlantis. Collector's Edition / Путь в бесконе�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570159.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ Mind Dead (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570116.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ Painkiller: NecroGenesys (2004/2016) [Ru/En] (17.08.2016/1.3.2) Repack/Mod Diavo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570113.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ RollerCoaster Tycoon World (2016) [Ru/Multi] (1.0/upd4/dlc) Repack Other s [Delu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570094.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ Ultimate General: Civil War (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570090.jpg" />
 </div>
 
 
@@ -501,7 +474,7 @@ Children of Zodiarcs (2017) [Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570087.jpg" />
 </div>
 
 
@@ -527,7 +500,7 @@ Kung Fu Strike: The Warrior's Rise [En/Multi4] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569992.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ Satellite Reign (2015) [Ru/Multi] (1.13.06) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569965.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569919.jpg" />
 </div>
 
 
@@ -605,7 +578,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569914.jpg" />
 </div>
 
 
@@ -631,7 +604,7 @@ Shadow Wolf Mysteries 5: Tracks of Terror / Призрачная тень вол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569786.jpg" />
 </div>
 
 
@@ -657,7 +630,7 @@ ICY (2015) [En] License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569530.jpg" />
 </div>
 
 
@@ -668,6 +641,32 @@ Icy - сюжетная survival-RPG, где Вы возьмете на себя 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAFF723C25E58F11DBF3278450786B4A9B8F191D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303859   (568848) от 23.05.2019
+
+Fatal Evidence: Cursed Island (2019) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый наставник вашей сестры был убит, и вас вызвали на его отдаленный остров, чтобы расследовать! Вы с сестрой приехали как раз к оглашению завещания. Но этот обычный ужин быстро принимает опасный оборот...Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8CE05687D7523A0761A0EFF2D2D4681904C85F
 ```
 
 https://mybot314.ru/tekegram_catalog/

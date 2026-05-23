@@ -6,7 +6,7 @@ Grisaia no Meikyuu / Лабиринт Грисайи [2015, TV-спешл] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714795.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика зака�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714217.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Ichigatsu ni wa Christmas | Рождество в январе [1991, OVA, 1 э�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713206.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Girls' Frontline | Shaonu Qianxian: Renxing Xiao Juchang | Девушки на �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713189.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ UFO Nitsukamatta Kodomo-tachi | Дети в плену инопланетян [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713167.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mouretsu Pirates / Moretsu Uchuu Kaizoku / Bodacious Space Pirates / Лихие 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713073.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mahou Shoujo Madoka Magica / Magical Girl Madoka Magica / Девочка-вол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712890.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712877.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Beatless | Без пульса | Слабый удар [2018, TV, 24 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712858.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712786.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 + 4sp] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712463.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Tales of Zestiria: The X / Tales of Zestiria: The Cross / Сказания Зе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712097.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Aku no Hana / Flowers of Evil / Цветы зла [2013, TV, 13] BDrip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712027.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Rakudai Kishi no Cavalry | Rakudai Kishi no Eiyuutan | Chivalry of a Failed Knig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711341.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Eromanga-sensei (2019) | Эроманга-сэнсэй OVA [2019, OVA, 2 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711005.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710994.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Caligula | Калигула [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710973.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Sword Art Online Alternative: Gun Gale Online | Мастера меча онла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710746.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Mirai no Mirai | Мирай из будущего [2018, Movie] BDrip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710438.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Imawa no Kuni no Alice | Alice in Borderland | Элис в Пограничье 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709713.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Code Geass Hangyaku no Lelouch | Code Geass - Lelouch of the Rebellion | Код 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709316.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Demi-chan wa Kataritai | Interviews with Monster Girls | Деми хотят п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709285.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Non Non Biyori Movie: Vacation | Деревенская глубинка: Кан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708965.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kakyuusei (1999) | Какюсэй [ТВ] [1999, TV, 14 из 14] DVDRip 480p 10-b
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708869.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Teekyuu 3 | Теннис 3 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707590.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Teekyuu 5 | Теннис 5 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707589.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1033091   (639368) от 10.07.2016
-
-Защитник / Concussion (2015) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Америка потрясена чередой неожиданных и необъяснимых смертей знаменитых спортсменов. Разгадать загадку предстоит талантливому молодому нейрохирургу, но, как оказалось, не все готовы услышать жестокую правду…Производство: Великобритания, Австралия, США / Cantillon Company, The, LStar Capital, Scott Free ProductionsЖанр: драма, биография, спортРежиссер: Питер ЛандесманАктеры: Уилл Смит, Алек Болдуин, Альберт Брукс, Гугу Эмбата-Ро, Дэвид Морс, Арлисс Ховард, Майк О’Мэлли, Эдди Марсан, Хилл Харпер, Адевале Акиннуойе-Агбадже, Стивен Мойер, Ричард Т. Джонс, Пол Райзер, Люк Уилсон, Сара Линдсей, Мэттью Уиллиг, Битси Таллок, Кевин Джиггеттс, Гэри Граббс, Рэнди КовицПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, английский, арабский, болгарский, хорватский, чешский, эстонский, греческий, хинди, венгерский, исландский, латвийский, литовский, польский, португальский, румынский, сербский, словакский, словенский, турецкий, украинскийПродолжительность: 02:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2125F061A6CB3DAEDE2EECD02EA49BEA6DCD41F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033214   (639365) от 10.07.2016
-
-Высотка / High-Rise (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Элитная высотка — идеальная модель мира будущего. Здесь есть все для комфортной и роскошной жизни. Но зависть, соперничество, жажда острых ощущений постепенно разжигают открытую вражду между жителями высотки, заставляя забыть о законах морали даже лучших из них.Производство: Великобритания, Ирландия, БельгияЖанр: ДрамаРежиссер: Бен УитлиАктеры: Том Хиддлстон, Джереми Айронс, Сиенна Миллер, Люк Эванс, Элизабет Мосс, Джеймс Пьюрфой, Кили Хоуз, Питер Фердинандо, Сиенна Гиллори, Рис ШерсмитПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9AC640F991E9E6E360A0514F2240F2A9AEE5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033203   (639359) от 10.07.2016
 
 Видимость / Drishyam (2015) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639359.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639319.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639307.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639268.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639185.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639183.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639180.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639176.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639170.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639132.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639131.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Oats: Volume 1 (2018) WEB-DL [H.264/1080p-LQ] [EN]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639075.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639021.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639007.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638990.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638983.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638945.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638917.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638914.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638903.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638895.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638880.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638875.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638829.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1B22AA623979111EF0074BC260D995BE97FEBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293248   (638825) от 02.04.2019
+
+Святая Агата / St. Agatha (2018) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638825.jpg" />
+</div>
+
+
+###  Подробнее
+
+1957 год, маленький городок штата Джорджия. Молодая авантюристка Мэри сбежала от жестокого отца и хочет завязать с мошенничеством. А когда девушка узнаёт, что беременна, у неё не остаётся выбора, кроме как укрыться в женском монастыре. Монахини с порога заявляют ей, что учреждение лишилось поддержки церкви, и здесь царят свои строгие порядки, но Мэри может уйти, (   Читать дальше...   )Производство: США / Dragon Blood Holdings, St. Agatha, The Outside WritersЖанр: Ужасы, триллер, драмаРежиссер: Даррен Линн БоусманАктеры: Сабрина Керн, Кэролин Хеннеси, Кортни Хэлверсон, Сет Майклс, Трин Миллер, Линдсэй Сейм, Шоун Флетчер, Джэйсон Уорнер Смит, Максимус Мёрра, Марша Фи БергерПеревод: Дублированный (iTunes)Субтитры: ФранцузскиеПродолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407C70BF16B2CB77FF545C1B6C3307DE5DCB9D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293235   (638814) от 02.04.2019
+
+Счастливый Лазарь / Lazzaro felice (2018) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638814.jpg" />
+</div>
+
+
+###  Подробнее
+
+В крошечной итальянской деревеньке Инвиолата время остановилось в буквальном смысле слова. Местные жители принадлежат сказочной маркизе де Луна, которая нещадно использует их труд. Всё меняется в один из визитов семьи патронов в Инвиолату. Молодой аристократичный Танкреди заводит дружбу с Лазарем — прекрасным и простодушным деревенским юношей. Фантастические коллизии (   Читать дальше...   )Производство: Италия, Швейцария, Франция, ГерманияЖанр: ДрамаРежиссер: Аличе РорвахерАктеры: Адриано Тардиоло, Агнесса Грациани, Лука Чиковани, Альба Рорвахер, Серхи Лопес, Наталино Балассо, Томмазо Раньо, Николетта Браски, Маддалена БайоккоПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуют.Продолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2092574E928ECD464B9F6510D18EED01E9E014C
 ```
 
 https://mybot314.ru/tekegram_catalog/

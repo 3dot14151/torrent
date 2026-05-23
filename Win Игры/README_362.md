@@ -1,29 +1,3 @@
-###  Публикация: 1517409   (161804) от 16.12.2021
-
-Firegirl: Hack 'n Splash Rescue (2021) [Ru/Multi] (1.017) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня – новенькая в бригаде пожарных. Она готова броситься на помощь тем, кто в ней отчаянно нуждается, вооружившись верным топором и пожарным шлангом (на котором, к слову, можно полетать). Сумеет ли она спасти мирных жителей, оказавшихся в огненной ловушке? Ей предстоит раскрыть причину загадочных пожаров, внезапно охвативших город. Кто стоит за всем этим?Тип издания: LicenseРазработчик: DejimaЖанр: Экшн, Приключение, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883A164ABD163C77F20AB0A618B5F1308152847E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826465   (161801) от 19.10.2025
 
 Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack Other s
@@ -32,7 +6,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161801.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161795.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dark Deity II (2) (2025) [En] (1.14) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161792.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161776.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Legacy: Witch Island 3 / Наследие: Остров ведьмы 3 (2020) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161719.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ YesterMorrow (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161705.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Folk Hero (2023) [Ru/Multi] (1.0.9) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161622.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161617.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ MXGP 2020 - The Official Motocross Videogame (2020) [Multi] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161584.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Lovecraft's Untold Stories (2019) [Ru/Multi] (1.35) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161571.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Skabma - Snowfall (2022) [Ru/Multi] (1.1.110) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161552.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161546.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Halloween Stories 5: The Neglected Dead / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161460.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Legacy: Witch Island 4 Last Bastion / Наследие: Остров Ведьм�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161089.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ A Quest That Became Legend (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160970.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) License G
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160937.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160919.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160914.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160784.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Little Goody Two Shoes (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160776.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Everyone Must Die: A Western Standoff (2023) [En] (1.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160754.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160748.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160738.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160737.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160729.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B52C579A23DB565FD583A0A3611DFCA8DF4758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674751   (160727) от 06.11.2023
+
+Parking Tycoon: Business Simulator (2023) [Ru/Multi] (2021.3.16.5719) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parking Tycoon: Business Simulator - стратегия, погружающая в мир управления автомобильными парковками. С самого начала вы получаете в свое распоряжение огромный участок земли, на котором создаете шумную парковочную империю. Вы начинаете свой путь со стратегического планирования, строительства и постоянной модернизации, чтобы ваши парковки не только привлекали клиентов, (   Читать дальше...   )Тип издания: SceneРазработчик: GeekonЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836540FCE4123DF51CC1568AD77D25D72C570801
 ```
 
 https://mybot314.ru/tekegram_catalog/

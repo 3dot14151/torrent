@@ -6,7 +6,7 @@ Bus Driving Sim 22 (2023) [Multi] (1.0) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043199.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.1.30444.2023.2.2/dlc) License GOG [Deluxe Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041510.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Factorio (2020) [Ru/Multi] (1.1.35) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041229.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Garbage Truck Simulator (2023) [Ru/En] (1.0) License Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040970.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warehouse Simulator: Forklift Driver (2023) [En] (1.0) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040676.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Farming Simulator 19 (2018) [Ru/En] (1.7.1.0/dlc) Repack xatab [Platinum Expansi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035304.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ House Flipper (2018) [Ru/Multi] (1.2366/dlc) License GOG (обновляемая
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034250.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Contraband Police (2023) [Ru/Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033817.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Contraband Police (2023) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033581.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Barotrauma (2023) [Ru/Multi] (1.0.70/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033326.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Crossroads Inn (2019) [Ru/Multi] (2.38-3.0.5/dlc) Repack xatab [Anniversary Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033103.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030829.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ House Flipper (2018) [Ru/Multi] (1.2136/dlc) Repack xatab (обновляема�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029829.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PC Building Simulator (2018) [Ru/En] (1.10.5/dlc) Repack xatab [Overclocked Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029248.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Police Simulator: Patrol Duty (2019) [Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025166.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Train Station Renovation (2020) [Ru/Multi] (2.2.0.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025148.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack SpaceX [Deluxe Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024692.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack Other s [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024668.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024296.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack SpaceX [Bear 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023963.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023920.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022676.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Crisis in the Kremlin / Кризис в Кремле (2017) [Ru/En] (1.0/dlc) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021679.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Secret Government (2021) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020532.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019192.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.11/dlc) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018484.jpg" />
 </div>
 
 

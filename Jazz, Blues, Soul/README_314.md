@@ -6,7 +6,7 @@ Earl Hines - Tour De Force (1972) 1989, Black Lion Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416907.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mighty Sam McClain - Time and Change (2016) [FLAC|Lossless|image + .cue] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416860.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Betty Carter - The Music Never Stops (1992) 2019, Blue Engine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416739.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duke Ellington - Complete Prestige Carnegie Hall Concerts (1946, 1947) 2001, 3CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416192.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Duke Ellington - The Carnegie Hall Concerts, December (1944) 1992, 2CD, Prestige
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416186.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Freddie Redd - The Complete Blue Note Recordings Of Freddie Redd (1960/1961) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416140.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nina Simone - The Blues (1997) /CD Media Records/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415999.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Djabe - Live in Edmonton (2020) 2xCD [MP3|320 Kbps] <Progressive Rock, Jazz Rock
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415881.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jonathan Zwartz - The Sea (2009) Self-Released [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415616.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mark Murphy - Stolen...And Other Moments (1972 - 1991) 2CD, 1997, 32 Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415614.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mike Fahn - Close Your Eyes and Listen (2002) Sparky [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415260.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Don Ewell - Music To Listen To Don Ewell By (1956) 1995, Good Time Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415259.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Dick Morrissey Quartet - It's Morrissey, Man! (1961) 1998, PolyGram [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415258.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Dick Morrissey Quartet - Storm Warning! (1965) 1994, HomeGrown Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415257.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jimmy McGriff - Fly Dude (1972) 2006, Groove Merchant [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415255.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Art Van Damme - Accordion a la Mode & A Perfect Match (1960, 1962) 2000, Collect
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415253.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tony Bennett & Count Basie - The Jazz Collector Edition (1958) 1990, LaserLight 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415194.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Dick Morrissey Quartet - Here And Now And Sounding Good! (1966) 1995, Norma 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415094.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Carmen McRae - Something to Swing About (1959) 1989, Warner[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414948.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ June Christy - Gone For The Day And Fair And Warmer (1957) 1998, Capitol[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414944.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Roy Eldridge - Swingin' On The Town (1960) 1999, Verve [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414918.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Jones Brothers - Keepin' Up With The Joneses (1958) 1999, Verve [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414917.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sadao Watanabe - Open Road (1973) 2CD, 2000, SME Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414916.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Nat King Cole - Unforgettable (1954) 2007, Collectors' Choice Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414771.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Marvin Gaye - I Want You The John Morales M+M Mixes (2022) [FLAC 2.0|48/24|WEB-D
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414767.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Mick Abrahams - Long Long Gone (2016) [MP3|320 Kbps] <Blues, Instrumental>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414748.jpg" />
 </div>
 
 

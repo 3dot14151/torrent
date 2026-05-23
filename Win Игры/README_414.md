@@ -1,29 +1,3 @@
-###  Публикация: 1715434   (59986) от 12.04.2024
-
-Broken Roads (2024) [Ru/Multi] (1.40.7035) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Broken Roads создана командой настоящих энтузиастов классических компьютерных ролевых игр, так что далеко не последнее место в путешествии игроков по австралийским пустошам будет занимать глубокий и захватывающий сюжет. Традиционные элементы здесь сочетаются с инновационными решениями — например, здесь нет классов, что позволяет экспериментировать со способностями (   Читать дальше...   )Тип издания: RepackРазработчик: Drop Bear BytesЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6190E636963F6BF84B2FCED3EA0DCE9D22A9BF4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715400   (59984) от 12.04.2024
 
 The Inquisitor (2024) [Ru/Multi] (1.1/dlc) Scene Rune [Deluxe Edition]
@@ -32,7 +6,7 @@ The Inquisitor (2024) [Ru/Multi] (1.1/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59984.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59983.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59981.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Cursed Legacy (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59967.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59958.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59957.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59955.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59948.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59938.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Harmony Chronicles: Chaos Realms (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59917.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59882.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Fractals of Destiny (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59879.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Scene Rune [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59863.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Lost Village (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59856.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59847.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ NightFeed (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59844.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Inkbound (2024) [Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59840.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ MythForce (2023) [Ru/Multi] (1.0.5.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59838.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Turbo Kid (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59837.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59835.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59834.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ CD 2: Trap Master (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59827.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59819.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Voice Love on Air (2024) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59811.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59806.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Children of the Sun бросает вас с головой в жестокую 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772DF4DF07B479F775498BD8B65F33FC1025C4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716027   (59803) от 13.04.2024
+
+A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59803.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Divine Guide To Puzzle Solving бросает вас в мир богов в качестве обычного человека. Тобла, таинственное божество головоломок, выбирает вас. Не совсем по своей воле вы становитесь божественным испытателем головоломок, которому поручено разобраться с последними творениями Тоблы. Ключом к разгадке станет Swap Beam. Эта уникальная способность позволяет вам менять (   Читать дальше...   )Тип издания: RepackРазработчик: Nementic GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F19DE4753E925F44B0B93FF5826A10EC586DF42
 ```
 
 https://mybot314.ru/tekegram_catalog/

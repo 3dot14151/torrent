@@ -1,108 +1,3 @@
-###  Публикация: 1054204   (491785) от 20.09.2016
-
-Injustice: Gods Among Us - Ultimate Edition (2013) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru]
-
->>Консольные Игры
->>PS Vita
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Injustice: Gods Among Us — новое слово в мире файтингов. Игра, за разработку которой отвечает компания NetherRealm Studios — создатели легендарной серии Mortal Kombat, — стирает границы между добром и злом. В роли культовых персонажей вселенных DC Comics — Бэтмена, Флэша, Харли Куинн, Соломона Гранди, Супермена и Чудо-женщины — вам предстоит вступить в битву невиданного (   Читать дальше...   )Тип издания: LicenseРазработчик: Armature StudioЖанр: Action, Fighting, 2DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652FFD5DEEC6300C5395E6B0B458B31929ECEC80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054000   (491632) от 20.09.2016
-
-Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru/En]
-
->>Консольные Игры
->>PS Vita
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-4 августа 1951 года. Химеры только что начали атаку на Северную Америку. Остановите жестокого врага, играя за Тома Райли – храброго нью-йоркского пожарного, который пытается спасти жену и ребенка. Ему предстоит сражаться против инопланетного вторжения при помощи нового оружия под названием Chimera, а также топора пожарного. В Resistance: Burning Skies представлена (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihilistic SoftwareЖанр: Action, Shooter, First-Person, ArcadeЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D831406D8E8A5BE1799C8A61495D2C00406EE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053349   (491613) от 20.09.2016
-
-The Legend of Zelda: Ocarina of Time [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Ru]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ocarina of Time — пятая по счёту игра серии, однако по хронологии описываемых событий она является приквелом к четырём играм, вышедшим ранее.
-Действие игры разворачивается в королевстве Хайрул. Главный герой игры Линк отправляется в путешествие, чтобы остановить Гэнондорфа (Ganondorf) (главного врага принцессы и основного антогониста игр серии, в первых играх он (   Читать дальше...   )Тип издания: eShopРазработчик: NintendoЖанр: ActionЯзык озвучки: СказочныйЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930FC2415A9FEB64AF277CE8B6A69999863399F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936872   (491355) от 13.09.2015
-
-JASF: Jane's Advanced Strike Fighters (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Игра Jane's Advanced Strike Fighters (J.A.S.F.) – это превосходный авиационный симулятор в стиле flight combat от компании Trickstar Games. Сюжет переносит игрока на Ближний Восток, в вымышленную страну Азбаристан. Здесь уже более десяти лет идёт кровопролитная гражданская война. Большая часть страны занята Северной Народной Республикой. Лишь одну из провинций по-прежнему (   Читать дальше...   )Тип издания: LicenseРазработчик: Trickstar GamesЖанр: Simulator (Flight Combat) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E986A52CE79BF478E58D65A7E6770749A7FDA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936860   (491338) от 13.09.2015
 
 Turning Point: Fall of Liberty (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -111,7 +6,7 @@ Turning Point: Fall of Liberty (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491338.jpg" />
 </div>
 
 
@@ -137,7 +32,7 @@ SoulCalibur V [PS3] [RUS] [PAL] [3.55 Kmeaw] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490609.jpg" />
 </div>
 
 
@@ -163,7 +58,7 @@ The Golden Compass (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490504.jpg" />
 </div>
 
 
@@ -189,7 +84,7 @@ Cars Race-O-Rama (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490501.jpg" />
 </div>
 
 
@@ -215,7 +110,7 @@ Tom Clancy’s H.A.W.X. 2 (2010) [PS3] [USA] 3.41 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490498.jpg" />
 </div>
 
 
@@ -241,7 +136,7 @@ Geometry Wars 3: Dimensions Evolved (2015) [PSVita] [EUR] 3.60 [HENkaku] [Licens
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489740.jpg" />
 </div>
 
 
@@ -267,7 +162,7 @@ Sekiro: Shadows Die Twice (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Mul
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488981.jpg" />
 </div>
 
 
@@ -293,7 +188,7 @@ Supremacy MMA [PS3] [ENG] [NTSC] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488503.jpg" />
 </div>
 
 
@@ -321,7 +216,7 @@ Pro Evolution Soccer 2016 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487200.jpg" />
 </div>
 
 
@@ -347,7 +242,7 @@ Fast & Furious: Showdown / Форсаж: Схватка (2013) [PS3] [EUR] 4.40 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486782.jpg" />
 </div>
 
 
@@ -373,7 +268,7 @@ Until Dawn. Extended Edition / Дожить до рассвета. Расшир�
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486778.jpg" />
 </div>
 
 
@@ -399,7 +294,7 @@ Tomb Raider: Underworld (2008) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485294.jpg" />
 </div>
 
 
@@ -425,7 +320,7 @@ Terminator: Resistance (2019) [PS4] [EUR] 5.05 [HEN] [License] [Ru]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484814.jpg" />
 </div>
 
 
@@ -451,7 +346,7 @@ Detroit: Become Human / Detroit: Стать человеком (2018) [PS4] [EUR
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482722.jpg" />
 </div>
 
 
@@ -477,7 +372,7 @@ Pro Evolution Soccer 2016 / PES 2016 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481288.jpg" />
 </div>
 
 
@@ -503,7 +398,7 @@ FIFA 16 (2015) [Xbox360] [NTSC] [FreeBoot] [License] [Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481287.jpg" />
 </div>
 
 
@@ -531,7 +426,7 @@ Dragon Age: Origins Awakening / Dragon Age: Начало Пробуждение 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481147.jpg" />
 </div>
 
 
@@ -559,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480759.jpg" />
 </div>
 
 
@@ -585,7 +480,7 @@ DOOM (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480637.jpg" />
 </div>
 
 
@@ -611,7 +506,7 @@ Terminator Salvation: The Videogame / Терминатор: Да придет с
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479254.jpg" />
 </div>
 
 
@@ -637,7 +532,7 @@ Paper Mario: Color Splash (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] [En
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478774.jpg" />
 </div>
 
 
@@ -665,7 +560,7 @@ Titan Quest (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478661.jpg" />
 </div>
 
 
@@ -677,6 +572,110 @@ Titan Quest — ролевой экшен в стиле Diablo, разработ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B981134B6045E6F24CCB8DA8B138F7502D4C01A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939075   (477119) от 20.09.2015
+
+Transformers: Rise of the Dark Spark / Трансформеры: Битва за Тёмную Искру (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transformers: Rise Of The Dark Spark связывает вселенные Cybertron и фильмы серии Трансформеры Майкла Бэя (Michael Bay). В проекте будет 40 играбельных персонажей. Вам предстоит охотиться за мощным артефактом Dark Spark. Во время прохождения одиночной кампании за автоботов или десептиконов можно будет переключаться между героями. Transformers: Rise Of The Dark Spark (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Edge of Reality и WayForward TechnologiesЖанр: Action (Shooter) / Strategy (Real-time) / RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4731E5744CDC6A8DFFBBBCDEB9E802FCD650318A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319654   (476859) от 15.08.2019
+
+Stuntman: Ignition (2007) [PS3] [USA] 1.82 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь каскадера опасна и трудна: переломы, ушибы, ссадины — постоянные спутники любого трюкача. Но результатом его работы восхищаются миллионы зрителей. Что чувствует безрассудный храбрец, находясь на тонкой грани между жизнью и смертью? Что заставляет его рисковать ради чужого восхищения? Stuntman: Ignition дает исчерпывающие ответы на эти вопросы. Вам отводится (   Читать дальше...   )Тип издания: LicenseРазработчик: Paradigm EntertainmentЖанр: Arcade, RacingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E07CA8E0673D94623121CBC1AD57A6C224170ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319832   (476804) от 15.08.2019
+
+Ninja Gaiden Sigma 2 (2009) [PS3] [USA] 2.80 [CFW] [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта игра является сиквелом к популярному экшену от Tecmo - Ninja Gaiden Sigma. Вам снова предстоит вжиться в роль ниндзя по имени Ryu Hayabusa на его миссии отмщения и предотвращения уничтожения человеческой расы. Вооружившись огромным ассортиментов оружия настоящих ниндзя, помогите герою пройти через мир, наполненный опасностями и испытаниями. Бои теперь выглядят (   Читать дальше...   )Тип издания: RepackРазработчик: Team NINJAЖанр: Action, Hack and slashЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838F48794E986E7550F16A4E46EC8228279F147C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320150   (472882) от 17.08.2019
+
+Ben 10 Ultimate Alien: Cosmic Destruction (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен теперь является международным мега-звездным супергероем, после того как его секретная личность была раскрыта. Оснащенный новой Ultimatrix, Бен должен путешествовать по всему миру, чтобы собрать древние артефакты Galvan, с помощью которых удастся спасти Землю от таинственного космического шторма. Возьмите под свой контроль Бена и 17 новых инопланетных форм из (   Читать дальше...   )Тип издания: LicenseРазработчик: Papaya StudioЖанр: Action, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71CF6E23E633A55DC1A0AADDF2736042C43214FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

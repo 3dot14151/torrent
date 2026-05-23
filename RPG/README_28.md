@@ -6,7 +6,7 @@ Tower of Time (2018) [Ru/Multi] (1.2.4.2473) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477644.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ bit Dungeon II (2014) [En] (2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474754.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Herolike (2016) [En] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472368.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hero Siege (2014) [En] (2.0.0.3/dlc) Unofficial VseTop [Digital Collector's Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471118.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Masquerada: Songs and Shadows (2016) [En] (0.95) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467874.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hard West 2 (2022) [Ru/Multi] (1.0.0.0.4021/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467703.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Midnight Protocol (2021) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467698.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Paradise Killer (2020) [En] (1.0.8.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465849.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Vanaris Tactics (2022) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465742.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464338.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dead State: Reanimated (2014) [Ru] (2.0.2.0002) Repack leve1ord
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463775.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462693.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (cs:6544/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461602.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Space Rogue (2016) [Ru] (1.1.7917) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461260.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460777.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460501.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wizards and Warriors (2000) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458741.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458644.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Torchlight (2009) [Ru/En] (1.15(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456406.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Regalia: Of Men and Monarchs (2017) [En/Ge/Pl] (1.0.7.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456243.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454214.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License PROPHET [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450127.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447437.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445897.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Steam-Rip CHRONOS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444807.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444489.jpg" />
 </div>
 
 

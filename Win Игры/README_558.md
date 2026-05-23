@@ -1,29 +1,3 @@
-###  Публикация: 1800369   (15886) от 02.06.2025
-
-Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В Elden Ring Nightreign, игроки переносятся в параллельную версию мира, известную как Лимвельд, где история Elden Ring пошла другим путем после Раскола - войны, которая разрушила баланс сил в этом мрачном фэнтезийном мире. Игра не связана напрямую с основной сюжетной линией Elden Ring, но сохраняет тот же уровень глубины и сложности, который сделал серию так популярной.Тип издания: RepackРазработчик: FromSoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4965F17604BCF06FEBD925DE5880F200D193A858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800390   (15884) от 02.06.2025
 
 The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
@@ -32,7 +6,7 @@ The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15884.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15882.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15875.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Farm Together 2 (2024) [Ru/Multi] (Build 18675684/dlc) Repack FitGirl [Soundtrac
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15870.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Spectator 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15869.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15865.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ A Year Of Springs (2021) [Multi] (1.07) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15826.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ AirportSim (2023) [Multi] (1.4.3/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15795.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15786.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Interstellar Space: Genesis (2019) [En] (1.6.3/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15717.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Tank Squad (2025) [Ru/Multi] (1.0.12.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15716.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Revival: Recolonization (2023) [Ru/Multi] (1.2.452) License GOG [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15714.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Sims 4 (2014) [Ru/Multi] (1.115.216.1030/dlc) Repack Other s [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15713.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Caves of Qud (2015) [En] (2.0.210.20/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15712.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Terra Invicta (2022) [Multi] (0.4.90) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15710.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Space Haven (2020) [Ru/Multi] (0.20.0.29) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15708.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Contraption Maker (2014) [En] (1.4.11/dlc) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15703.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15700.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.000.004) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15695.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15694.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31971/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15690.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.9/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15688.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15656.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ ContractVille (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15619.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413/dlc) Repack Let'sРlay [Digital D
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15617.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413/dlc) Repack Let'sРlay [Digital D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:128E1615247F19E867A08023B1BB3A24326843F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797586   (15612) от 05.06.2025
+
+Last Vanguard (2025) [Multi] (1.0.3) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Last Vanguard - шутер-платформер в жанре метроидвания с элементами ролевой игры и нарисованной от руки покадровой анимацией. Исследуйте потрясающий мир, созданный вручную, опустошенный войной и управляемый злым тираном. Сражайтесь с самыми разными врагами , настраивая свою стратегию , меняя оружие и открывая активные и пассивные способности. Создавайте неожиданные (   Читать дальше...   )Тип издания: RepackРазработчик: Cool Tapir StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

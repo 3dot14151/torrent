@@ -6,7 +6,7 @@ Lacey Free Music & Video Downloader 2.48 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174436.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adguard 7.15.0 (7.15.4385.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174429.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174427.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Anti-Malware Pro 1.23.0.0 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174426.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Process Lasso Pro 12.0.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174422.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Revo Uninstaller Free 2.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174418.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Emurasoft EmEditor Professional 22.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174411.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MemTest86 10.6 Build 3000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174402.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Auslogics Driver Updater 1.26.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174399.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Telegram Desktop 4.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174394.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ HWiNFO 7.34 Build 4930 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174389.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Audacity 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174386.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ EF Commander 2022.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174385.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Auslogics Disk Defrag Pro 11.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174374.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VueScan Pro 9.7.96 (05.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174373.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Rhinoceros 7 v7.1.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174371.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ashampoo UnInstaller 12.00.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174370.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174365.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Opera 73.0.3856.257 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174358.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.3570]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174330.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Geekbench 5.4.6 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174327.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Blender 3.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174322.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Microsoft PowerToys 0.65.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174317.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ HWiNFO 6.40 Build 4330 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174312.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Psiphon 3 build 176 (DC 06.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174306.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Revo Uninstaller Pro 5.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174305.jpg" />
 </div>
 
 

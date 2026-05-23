@@ -6,7 +6,7 @@ WebVideoHunter v5.8.1 (240) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767191.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kolor Autopano Giga 2.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767177.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sweet Home 3D 5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767165.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PicturesToExe Deluxe 9.0.8 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767141.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767126.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767125.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Velvet Condom - Vanity And Revolt (2013) Compilation [FLAC|Lossless|tracks + .cu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767108.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SQLEditor v3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767088.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ USDownloader 1.3.5.9 Portable (15.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767085.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Allavsoft Video Downloader Converter 3.14.3.6315 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767084.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767079.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Moto GP. Сезон 2017. Losail International Circuit. Этап 1. Гонка (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767073.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Street Racer Europe / Street Racer Europe: От Москвы до Барсело
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767060.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mac Blu-ray Player Pro 3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767043.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Image Exif Editor 4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767031.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Memrise Learn Languages Free Premium 2.9_3923 [Ru] - Интерактивное 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767028.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Downcast 2.9.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767000.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Receipts 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766992.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Permute 3 3.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766989.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Servovalve - Necromasse (2016) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Indu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766986.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Magic Bus Tracks (2002) Warp Records [FLAC|Lossless|tracks+.cue] <Breaks, I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766985.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Gonçalo Penas (Goncalo Penas) - Ego De Espinhos (2019) Subtext [FLAC|Lossless|W
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766984.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ CopyClip 2.9.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766980.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Downie 3 v3.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766979.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ ExactScan Pro 19.1.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766977.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ ZD Soft Screen Recorder 10.4.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766971.jpg" />
 </div>
 
 

@@ -1,85 +1,3 @@
-###  Публикация: 1578744   (343383) от 24.09.2022
-
-Чарльз Чаплин | Моя удивительная жизнь. Автобиография Чарли Чаплина (2020) [MP3, Александр Слуцкий]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Я родился в восемь часов вечера 16 апреля 1889 года в Лондоне, в районе Уолворт, на Ист-лейн».
-
-Вряд ли сегодня кто-то не знает, где и когда родился мальчик по имени Чарли, которому было суждено стать великим. Но в 1964 году, когда его автобиография впервые появилась на свет, эта информация стала настоящим открытием – до этого никто точно не знал, где и когда родилась (   Читать дальше...   )Жанр: биографии и мемуары, зарубежная публицистикаПеревод: А. ФальконПродолжительность: 20:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11A878B097D08DE1E1DC70A878D31C69BEE730A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330206   (343276) от 09.10.2019
-
-Денис Бурмистров | Равновесие Парето (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Обычному клерку армейский товарищ оставляет квартиру в далёком шахтёрском городке Славинск. Движимый меркантильным интересом, главный герой приезжает ознакомиться с подарком и, сам того не желая, становится участником поистине странных и пугающих событий. По улицам бродят жуткие существа, сами улицы вдруг меняют свои направления, а люди вокруг по необъяснимой причине (   Читать дальше...   )Жанр: МистикаПродолжительность: 11:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F67E9AF074A75D40A8EA99B5F742CE2F766F44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578690   (343236) от 24.09.2022
-
-Андрей Ткачев, Findroid | Проклятый ранкер (Книга 2). Проклятый ранкер (2022) [MP3, Вадим Пугачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Проклятый ранкер» – фантастический роман Андрея Ткачева и Findroid, вторая книга одноименного цикла, жанр боевое фэнтези, РеалРПГ.
-
-Мне казалось, что у меня появилась надежда на избавление от проклятия, которое рано или поздно убьет меня. Но вместо этого я оказался втянут во внутренние планы гильдии «Буревестников». Теперь мне предстоит разобраться с новыми проблемами (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 08:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2FC5460BDD498599A25ED0B7C2500FA6440C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578691   (343231) от 24.09.2022
 
 Андрей Ткачев, Findroid | Я покорю Лабиринт с помощью техник массажа (Книга 3) (2022) [MP3, Максим Полтавский]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343231.jpg" />
 </div>
 
 
@@ -115,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343219.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343044.jpg" />
 </div>
 
 
@@ -170,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343040.jpg" />
 </div>
 
 
@@ -196,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342827.jpg" />
 </div>
 
 
@@ -222,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342765.jpg" />
 </div>
 
 
@@ -248,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342672.jpg" />
 </div>
 
 
@@ -274,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342636.jpg" />
 </div>
 
 
@@ -300,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342582.jpg" />
 </div>
 
 
@@ -326,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342547.jpg" />
 </div>
 
 
@@ -352,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342517.jpg" />
 </div>
 
 
@@ -378,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342424.jpg" />
 </div>
 
 
@@ -404,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342408.jpg" />
 </div>
 
 
@@ -430,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342361.jpg" />
 </div>
 
 
@@ -456,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342358.jpg" />
 </div>
 
 
@@ -482,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342355.jpg" />
 </div>
 
 
@@ -508,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342349.jpg" />
 </div>
 
 
@@ -534,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342347.jpg" />
 </div>
 
 
@@ -560,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342346.jpg" />
 </div>
 
 
@@ -586,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342320.jpg" />
 </div>
 
 
@@ -613,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342304.jpg" />
 </div>
 
 
@@ -641,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342295.jpg" />
 </div>
 
 
@@ -669,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342294.jpg" />
 </div>
 
 
@@ -680,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3E305DAC5503C616F8AE375E5CD39D907EA11E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072182   (342277) от 17.11.2016
+
+Борис Акунин | Приключения Эраста Фандорина (Книга 14). Чёрный город (2016) [MP3, Егор Бероев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие  романа об Эрасте Фандорине происходит накануне Первой мировой войны в Баку, великолепном и страшном городе нефти, нуворишей, пламенных террористов и восточных разбойников. На этот раз великому сыщику достался противник, победить которого, кажется, невозможно…Жанр: ДетективПродолжительность: 12:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42414F9A371A9F541A09FB772DF14BBF16BC5BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180272   (342249) от 03.11.2017
+
+Марина Кистяева | Рожденная в пламени ночи (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он помнил предсказание. Несколько столетий назад цыганка предрекла, что князья Сандровские встретят в одно время так называемых спутниц и подруг… Игорь не собирался верить нелепому гаданию. Но оба его младших брата, Велест, а после и Борис, встречают девушек, с которыми соедняют свои жизни и Судьбы. Игорь не собирается становится семьянином. Мир, объятый ужасом беспщадной (   Читать дальше...   )Жанр: Романтическое фэнтези, ЭротикаПродолжительность: 08:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFEA3CFED958E3F9EFB2CCF1C9656A07A533D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580399   (342179) от 25.11.2012
+
+Сергей Алексеев | Волчья хватка [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой остросюжетного романа «Волчья хватка» Вячеслав Ражный – президент охотничьего клуба, бывший боец спецназа погранвойск. Но это всего лишь малая, видимая простым смертным часть его бытия. Ражный – вотчинный аракс, воин Засадного Полка, созданного еще в XIV веке Сергием Радонежским. В тяжелые для России годы Сергиевы ратники, владеющие особым боевым искусством, которое передается веками от отца к сыну, приходят на помощь родине. В мирное время они решают вопросы жизни и смерти между собой. Ражный, выстоявший в своем первом поединке, готовится к новой схватке с братом-араксом. Но куда опаснее будет столкновение с обычными людьми в современном мире, где в волке больше человеческого, чем в самом человеке…Жанр: Фэнтези, остросюжетный романФормат: MP3Продолжительность: 18:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BB931A9C9CDC1BDCF646CAF974F5929E8EAC99
 ```
 
 https://mybot314.ru/tekegram_catalog/

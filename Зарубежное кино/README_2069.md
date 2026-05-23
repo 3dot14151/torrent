@@ -1,58 +1,3 @@
-###  Публикация: 455653   (77370) от 20.02.2012
-
-Одна ночь с королем / One Night with the King (2006) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в персидском городе Сузы. Король Ксеркс созывает всех на пир. Хадасса, красивая еврейская сирота, решает поехать с караваном в Иерусалим, чтобы увидеть Святую землю, вместе с другом Джесси Бен-Джозефом. Они приходят на пир короля, который тот устраивает накануне войны, ведомой, чтобы отомстить за смерть своего отца, Дария. Хадасса и Джесси видят, как королева Вашти отказывается приходить на праздник короля, так как она против войны, и созывает свой пир, говоря королю, что не станет унижаться и не придет на его пир.
-
-Король решает в таком случае лишить Вашти титула королевы и выбрать себе новую жену среди девушек Суз. Хадасса по рекомендации ее дяди Мордекая меняет свое имя на Эсфирь (в честь вавилонской богини Иштар). Во дворце за кандидатками следит королевский евнух Хигай. Девушкам предоставлены одежды, косметика, украшения - все, что понравится королю в свою единственную ночь. Эсфирь нравится Хигаю, благодаря своей находчивости и целостности, и он предлагает ей читать королю в ее (   Читать дальше...   )Жанр: ДрамаРежиссер: Майкл О. СажбелАктеры: Тиффани Дюпон, Люк Госс, Джон Ноубл, Омар Шариф, Джон Рис-Дэвис, Томми Листер, Джеймс Кэллис, Питер О’Тул, Джавен Кэмпбелл...Перевод: Двуголосый закадровыйПродолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E44394F2BDD9398543497F9A5479F8DC12F2BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454943   (77251) от 19.02.2012
-
-2016: Конец ночи / Hell (2011) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Перед тем как окончательно погаснуть, Солнце увеличилось до невероятных размеров и выжгло всю Землю, превратив ее в непригодную для жизни пустыню.
-Среди немногих выживших — группа молодых людей, которые отправились в горы в поисках воды и пищи. Но эта мысль посетила не только их, и очень скоро ребята оказываются втянуты в безжалостную борьбу за выживание.Производство: Германия, Швейцария | Caligari Film- und FernsehproduktionsЖанр: Ужасы, Фантастика, ТриллерРежиссер: Тим ФельбаумАктеры: Ханна Херцшпрунг, Стипе Эрчег, Михаэль Кранц, Ангела Винклер, Ларс Айдингер, Лило Баур, Энн Сара Хартунг, Лиза Викари, Нино Бёло, Кристоф ГоглерПеревод: Профессиональный (дублированный)Субтитры: Вшитые, отключаемыеЯзык субтитров: РусскийПродолжительность: 01:25:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454844   (77229) от 19.02.2012
 
 Клуб Shortbus / Shortbus (2006) DVDRip
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77229.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77197.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77048.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77042.jpg" />
 </div>
 
 
@@ -166,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77025.jpg" />
 </div>
 
 
@@ -192,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77015.jpg" />
 </div>
 
 
@@ -218,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76975.jpg" />
 </div>
 
 
@@ -245,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76958.jpg" />
 </div>
 
 
@@ -271,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76906.jpg" />
 </div>
 
 
@@ -297,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76885.jpg" />
 </div>
 
 
@@ -324,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76819.jpg" />
 </div>
 
 
@@ -352,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76810.jpg" />
 </div>
 
 
@@ -378,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76429.jpg" />
 </div>
 
 
@@ -406,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76386.jpg" />
 </div>
 
 
@@ -432,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76341.jpg" />
 </div>
 
 
@@ -458,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76201.jpg" />
 </div>
 
 
@@ -484,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76182.jpg" />
 </div>
 
 
@@ -510,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76180.jpg" />
 </div>
 
 
@@ -536,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76156.jpg" />
 </div>
 
 
@@ -562,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76150.jpg" />
 </div>
 
 
@@ -589,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76020.jpg" />
 </div>
 
 
@@ -615,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75973.jpg" />
 </div>
 
 
@@ -641,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75972.jpg" />
 </div>
 
 
@@ -669,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75970.jpg" />
 </div>
 
 
@@ -677,6 +622,61 @@ https://mybot314.ru/tekegram_catalog/
 
 Каньон Глен, Аризона, наши дни. Готовясь к экзамену в школе пожарных, Уэйн проводит ночь в пустыне и становится свидетелем падения метеорита. На следующий день учитель биологии доктор Айра Кейн и учитель геологии Гарри Блок пробираются в пещеру, к месту падения. Они берут пробу странной голубой жидкости, вытекшей из метеорита.
 Позднее, изучая жидкость под микроскопом, (   Читать дальше...   )Производство: СШАЖанр: Комедия, ФантастикаРежиссер: Айвен РайтманАктеры: Дэвид Духовны, Джулианна Мур, Орландо Джонс, Шонн Уильям Скотт, Тед Ливайн, Этан СаплиПеревод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:41:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451396   (75765) от 12.02.2012
+
+Телохранитель / The Bodyguard (1992) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в США приблизительно в 1990-1991 году.
+Известная певица Рейчел Мэррон нанимает телохранителя Фрэнка Фармера. Певица, пользующаюся большой популярностью подозревает, что её преследует маньяк. Фрэнк, настоящий профессионал в своём деле, сталкивается с обычной дилеммой он должен быть близок к охраняемому объекту, но при этом не вмешиваться в личную (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, мелодрама, музыкаРежиссер: Мик ДжексонАктеры: Уитни Хьюстон, Кевин Костнер, Гэри Кемп , Билл Коббс , Ралф Уэйт , Де Вон НиксонПеревод: Профессиональный (дублированный - VARUS-Video )Субтитры: ОтсутствуютФормат: AVIПродолжительность: 02:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A3D5A5E558DE4561025B62DE828965B2F82D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450660   (75676) от 12.02.2012
+
+Мешки для трупов / Body Bags (1993) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм мастеров жанра (Джона Карпентера и Тоуба Хупера) состоит их трех историй ("Заправка", "Волосы" и "Глаз"), которых объединяет одно - СМЕРТЬ.
+
+ВЖанр: Ужасы, ТриллерРежиссер: Джон Карпентер / John Carpenter, Тоуб Хупер / Tobe HooperАктеры: Джон Карпентер, Уэс Крейвон, Том Арнольд, Тоуб ХуперПеревод: Многоголосый синхронный + Три авторских(Горчаков, Дохалов, Пронин)Продолжительность: 01:28:53
 
 ## Скачать торент
 ```bash

@@ -1,133 +1,3 @@
-###  Публикация: 1794132   (19946) от 28.04.2025
-
-М.Н. Мамедов, И.В. Друк, В.В. Кашталап и др. | Предиабет: диагностика, лечение и профилактика (2024) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-В монографии представлены международные и российские данные о выявлении и лечении ранних нарушений углеводного обмена в системе первичного здравоохранения. Приводится определение, эпидемиология, патогенез, связь с различными соматическими заболеваниями, критерии диагностики, лечебные и профилактические мероприятия для предотвращения сердечно-сосудистых заболеваний (   Читать дальше...   )Жанр: Медицинская литература. Монография.Издательство: КардиопрогрессФормат: PDFКачество: Изначально электронное (ebook), Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74255E7342B43FE543B46AEFB1AC840FBDB46DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794663   (19808) от 30.04.2025
-
-Р. Геретшлегер, А.С. Позаментье | Жемчужины геометрии. Треугольники (2025) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Планарная геометрия полна чудес, о которых нам почти не рассказывают на уроках в школе. Даже обычный треугольник – один из основных инструментов геометрии – способен удивить нас неожиданными фактами и закономерностями и дать богатую пищу для размышлений. В этой книге собрана одна из самых больших коллекций любопытных фактов и курьезов, связанных с треугольниками. (   Читать дальше...   )Жанр: МатематикаИздательство: ДМК ПрессФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219EB8E212B40679309AB0DAC65B6A01DF94C1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794721   (19790) от 30.04.2025
-
-A.S. Posamentier, R. Geretschlager | Geometric Gems: An Appreciation For Geometric Curiosities [3 книги] (2024 - 2025) [PDF] [En]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Серия из трёх книг об интересных фактах из геометрии треугольников, четырёхугольников и окружностей.Жанр: МатематикаЯзык: АнглийскийИздательство: World ScientficФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F81E1FFDB8FE1EC975F37EB5696E05AC411B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794906   (19674) от 01.05.2025
-
-А.Н. Поляков | Киевская Русь как цивилизация|Образование Киевской Руси [2 книги] (2016, 2020) [PDF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1. Монография является с одной стороны обоснованием новой теории цивилизации, с другой ‒ применением данной теории и методологии в конкретно-историческом исследовании. Настоящий труд посвящён истории Киевской Руси от её возникновения до монгольского нашествия. На основе выработанного метода исследования цивилизации определяются типологические черты древнерусского (   Читать дальше...   )Жанр: История. МонографияИздательство: Оренбургский государственный университетФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3114255A181C3F31CC290F815D6D048E1CDC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794717   (19667) от 01.05.2025
-
-F.J. Rivas | Process Control with MatLAB/Simulink: A Guide for Beginners (2025) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-This book aims to serve as an academic manual designed to aid in understanding and applying key concepts in process control using MatLAB and its associated tools. Each chapter features a brief theoretical introduction to help students contextualize the step-by-step solved problems, which are coded in MatLAB. In some instances, the book also covers the use of Simulink (   Читать дальше...   )Жанр: математика, прикладные компьютерные платформы, учебное пособиеЯзык: АнглийскийИздательство: Cambridge Scholars PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC01B5A2F0AF5A4AF15301E9B9E39B18687F443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794975   (19609) от 02.05.2025
 
 А.Т. Огулов, В.И. Соколов | Висцеральный самомассаж - метод А. Огулова (2015) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19609.jpg" />
 </div>
 
 
@@ -164,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19543.jpg" />
 </div>
 
 
@@ -192,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19475.jpg" />
 </div>
 
 
@@ -218,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19366.jpg" />
 </div>
 
 
@@ -245,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19277.jpg" />
 </div>
 
 
@@ -271,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19255.jpg" />
 </div>
 
 
@@ -297,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19044.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18968.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18964.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18546.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18533.jpg" />
 </div>
 
 
@@ -430,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18523.jpg" />
 </div>
 
 
@@ -456,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18518.jpg" />
 </div>
 
 
@@ -482,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18489.jpg" />
 </div>
 
 
@@ -511,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18434.jpg" />
 </div>
 
 
@@ -537,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18342.jpg" />
 </div>
 
 
@@ -563,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18329.jpg" />
 </div>
 
 
@@ -590,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18327.jpg" />
 </div>
 
 
@@ -616,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18233.jpg" />
 </div>
 
 
@@ -642,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18137.jpg" />
 </div>
 
 
@@ -668,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18124.jpg" />
 </div>
 
 
@@ -681,6 +551,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C79A3E367B4AF29DBD6400B138087BFD67BBFE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797828   (17903) от 18.05.2025
+
+С.В. Балыко, А.А. Кужелев, Е.Н. Рак и др. | Военно-техническая подготовка [2 книги] (2024) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит материал учебных модулей «Военно-техническая подготовка» и «Общевоенная подготовка» по темам огневой подготовки и технической подготовки.
+
+Предназначено для обучающихся в военных учебных центрах по программам военной подготовки сержантов и солдат запаса. Может быть использовано преподавателями при подготовке к занятиям, а также для информации иных пользователей, (   Читать дальше...   )Жанр: учебное пособиеИздательство: Балтийский федеральный университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A09D8D0187BA6B941850520A60BACA1B41E97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797809   (17871) от 18.05.2025
+
+В.А. Невежин (ред.) | Застольные речи Сталина. Документы и материалы (2003) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17871.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике впервые собраны воедино источники, зафиксировавшие застольные речи И. В. Сталина 1930-х — начала 1950-х гг. Помимо уже публиковавшихся материалов в него вошли выявленные составителем ранее неизвестные архивные документы. В их числе — уникальные по содержанию стенографические записи с собственноручной правкой, внесённой вождем. Всего в сборник включено (   Читать дальше...   )Жанр: история СССР, государственные и партийные деятели, документальная литератураИздательство: АИРО-XX; Дмитрий Буланин. Институт русской литературы РАНФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C3218DDD116E4F3F8A5BF8DA7FD3CF0619E1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797951   (17814) от 19.05.2025
+
+С.Н. Мехед, В.Н. Коваленко, П.Р. Дутчак  и др. | Подготовка военнослужащих к боевым действиям средствами преодоления препятствий и рукопашного боя (2024) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебно-методическое пособие «Подготовка военнослужащих к боевым действиям средствами преодоления препятствий и рукопашного боя» предназначено для преподавателей, курсантов и слушателей военно-учебных заведений, командиров подразделений и инструкторов по физической подготовке, проводящих занятия по темам «Преодоление препятствий» и «Рукопашный бой».
+В учебно-методическом (   Читать дальше...   )Жанр: учебно-методическое пособиеИздательство: ВИФКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A1AEA8FFB517C8EAAF39CC354BD8033EF160B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797840   (17800) от 19.05.2025
+
+А.Д. Добровольский, Б.С. Залогин | Моря СССР (1982) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книга представляет собой учебник, в основу которого положены курс лекций и тематика семинарских занятий, в течение многих лет читаемых и проводимых авторами на кафедре океанологии географического факультета МГУ. Пособие с научных и единых методических позиций знакомит с самыми существенными чертами природы морей, омывавших берега, к сожалению, уже несуществующего (   Читать дальше...   )Жанр: учебное пособие, гидрологияИздательство: МГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BE90B12675A0992194F15886E1AFF78EEF544F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798005   (17760) от 19.05.2025
+
+В.И. Соловьёв, П.Н. Квасов, С.А. Абрамов | Содержание автомобильной техники в парках воинских частей Вооружённых Сил РФ (2024) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17760.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены основные положения по устройству парка воинской части, основных его элементов, предназначенных для содержания и технического обслуживания автомобильной техники. Раскрыт порядок организации внутренней службы в парке и использования военной автомобильной техники.
+Учебное пособие предназначено для студентов военных учебных центров, обучающихся (   Читать дальше...   )Жанр: учебное пособиеИздательство: МАДИФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B411A1800CE0EB0595B219C5C864909C811CB52
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Windows Doctor 3.0.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831265.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Stardock Start10 1.53 RePack by Tyran [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831264.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CherryTree 0.38.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831262.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CCleaner 5.28.6005 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831254.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CrystalDiskInfo 8.5.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831237.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LosslessCut 3.22.0 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831233.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Firefox Browser 76.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831217.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NirLauncher Package 1.23.20 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831215.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ File & Image Uploader 7.9.7.1342 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831211.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ HandBrake 1.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831207.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Skype 7.33.32.105 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831146.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Total Commander 9.0a VIM 20 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831140.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Bandicam 3.3.3.1209 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831139.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AusLogics BoostSpeed 9.1.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831135.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Bandicam 3.3.3.1209 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831128.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Mozilla Firefox Quantum ESR 68.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831123.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Avast Free Antivirus 20.3.2405 (build 20.3.5200.561) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831095.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Microsoft Windows 10 Pro + Enterprise Technical Preview 10.0.10041 (x86, x64) (e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831042.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Punto Switcher 4.3.6 Build 1853 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830997.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Avast Premium Security 20.3.2405 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830947.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ WinUtilities Professional Edition 12.43 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830742.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Avast Clear 11.2.2732.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830734.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Punto Switcher 4.2.3 Build 1106 Beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830711.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NirLauncher Package 1.19.80 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830484.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Windows Firewall Control 4.7.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830471.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Adobe Prelude CC 2015 (v4.3.0) RUS/ENG Update 3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830352.jpg" />
 </div>
 
 

@@ -1,82 +1,3 @@
-###  Публикация: 1823905   (126098) от 13.10.2025
-
-Роберт Мараско | Сожженные приношения (2025) [MP3, Варвара Сапова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Летом Нью-Йорк просто невыносим! Жара, пыль, шум… Мэриан мечтает провести лето за городом вместе с мужем и сыном. На глаза попадается объявление в газете: «Уникальный дом… Спокойный, уединенный. Идеален для большой семьи. Бассейн, частный пляж, причал… Очень разумная цена для правильных людей…» Невероятная удача! Такой дом может стать настоящим спасением. И не важно, (   Читать дальше...   )Жанр: Мистика, ужасыИздательство: Азбука-АттикусПродолжительность: 09:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B715A8A46D4EB4CE2F3B55AF0032EA5CC062054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823902   (126097) от 13.10.2025
-
-Ян Бадевский | Преддверье (Книга 3). Предельные Чертоги (2024) [MP3, Юрий Гаханов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Стимбург – город пара и магии, последний оплот цивилизации в Предельных Чертогах. Николас Фламель, могущественный волшебник, представитель Ордена Серебряного Заката и страж Двери, обнаружен мертвым в собственном доме. Кто за этим стоит? Неужели Посторонние, давние враги человечества, сумели проникнуть на Землю?Разобраться в зловещих предзнаменованиях поручено Ольгерду, (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: ЛитРесПродолжительность: 08:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5674069058ED2A10B81526D850A799E5014301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823941   (126071) от 13.10.2025
-
-Виктор Гросов | Инженер Петра Великого (Книга 2) (2025) [MP3, Андрей Морозов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Инженер из XXI века попадает в тело подмастерья эпохи Петра I. Вокруг – грязь, тяжелый труд и война со шведами. А он просто хочет выжить и подняться.
-Ах, да, еще прогрессорство... очень много прогрессорства!Жанр: Попаданцы во времени, Альтернативная историяИздательство: ЛитРес: Аудио от автора, АвторПродолжительность: 09:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F0B42C3B60C42C35DA26D3CE76F79E0EBBB5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823940   (126070) от 13.10.2025
 
 Виктор Гросов | Инженер Петра Великого (Книга 1) (2025) [MP3, Андрей Морозов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126070.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126069.jpg" />
 </div>
 
 
@@ -140,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126068.jpg" />
 </div>
 
 
@@ -167,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126065.jpg" />
 </div>
 
 
@@ -194,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126064.jpg" />
 </div>
 
 
@@ -220,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126043.jpg" />
 </div>
 
 
@@ -246,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126042.jpg" />
 </div>
 
 
@@ -272,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126041.jpg" />
 </div>
 
 
@@ -298,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126040.jpg" />
 </div>
 
 
@@ -326,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125989.jpg" />
 </div>
 
 
@@ -353,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125976.jpg" />
 </div>
 
 
@@ -380,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125969.jpg" />
 </div>
 
 
@@ -406,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125924.jpg" />
 </div>
 
 
@@ -434,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125896.jpg" />
 </div>
 
 
@@ -461,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125893.jpg" />
 </div>
 
 
@@ -488,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125892.jpg" />
 </div>
 
 
@@ -514,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125891.jpg" />
 </div>
 
 
@@ -540,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125880.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125879.jpg" />
 </div>
 
 
@@ -595,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125877.jpg" />
 </div>
 
 
@@ -621,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125828.jpg" />
 </div>
 
 
@@ -647,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125807.jpg" />
 </div>
 
 
@@ -673,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125805.jpg" />
 </div>
 
 
@@ -684,6 +605,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE53B860B1C27DFAF5D7C02F132A207AD10A20DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823280   (125802) от 11.10.2025
+
+Владимир Мясоедов | Превосходство разума (Книга 1). Превосходство разума (2025) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я почти ничего о себе не помню, Меня хотели избавить от всех внутренних органов, а остатки завернуть в зачарованные бинты из моей же кожи. Большая часть уровней потеряна. А еще есть проблема с душой, которая ныне принадлежит своему законному владельцу только частично. Поводов для злости и отчаяния более чем достаточно, но архимаги бывшими не бывают, а значит я обязательно (   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтези, ФэнтезиИздательство: ИДДКПродолжительность: 13:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00603308779C791590509AA6706B290AF755541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823281   (125801) от 11.10.2025
+
+Владимир Мясоедов | Превосходство разума (Книга 2). Достоинства здравого смысла (2025) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В моих воспоминаниях по-прежнему зияют серьезные пробелы, а окружающий мир полон магии, загадок, обладателей высоких уровней и ужасающих чудес, но самое главное я себе уяснил. Нужно как можно быстрее восстановить былую мощь, ведь слишком много вокруг желающих слабого ограбить, поработить ну или просто сожрать. Однако для получения наилучших результатов к делу накопления (   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтези, ФэнтезиИздательство: ИДДКПродолжительность: 13:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D542036DE015288F3ABDA9D9D599B33C4932701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823262   (125800) от 11.10.2025
+
+Виктор Молотов, Олег Сапфир | Кодекс Императора (Книга I) (2025) [MP3, Андрей Морозов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я — не просто наследник Романовых.
+Я — тот самый, с кого всё началось. Первый Император. Легенда, ставшая плотью.
+Шесть веков спустя я вернулся…
+Переродился в своём же роду, чтобы увидеть, во что превратилось моё наследие.(   Читать дальше...   )Жанр: Фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 10:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D646F2D231DBB105986E2EB870C9996024B6CA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

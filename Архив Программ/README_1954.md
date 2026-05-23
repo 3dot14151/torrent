@@ -6,7 +6,7 @@ WinToUSB Technician 5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144402.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Flight Simulator Screensaver 1.1 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144384.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ashampoo Photo Optimizer 7.0.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144338.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Maxthon Browser 5.1.5.200 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144325.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Flash Player 20.0.0.267 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144321.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Process Lasso Pro 9.0.0.548 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144318.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mozilla Thunderbird 52.5.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144272.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Windows 11 Enterprise 21H2 x64 Rus by OneSmiLe [22000.376]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144250.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Topaz Photography Suite 2015 Plugin Portable by PortableWares (28.12.2015) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144246.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ PROMT Home 11 Build 9.0.556 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144235.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144223.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Rufus 2.6 (Build 818) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144219.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ JRiver Media Center 27.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144217.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Photoshop 2022 Build 23.1.0.143 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144210.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ HandBrake 1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144174.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Wise Registry Cleaner Pro 10.3.3.692 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144151.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Mozilla Firefox 43.0.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144147.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Mozilla Thunderbird 52.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144126.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ FL Studio Producer Edition 20.6.0.1458 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144106.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ WinHex 16.8 [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144102.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ WindowsPlayer 3.1.1.0 RePack (& Portable) by AlekseyPopovv [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144098.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ PROMT Freelance 11 Build 9.0.556 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144093.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144051.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Adobe Photoshop CC 2015.1.1 (20151209.r.327) Portable by PortableWares (28.12.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144044.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Chromium 65.0.3306.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144015.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ TweakPower 1.167 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143975.jpg" />
 </div>
 
 

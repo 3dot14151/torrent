@@ -1,81 +1,3 @@
-###  Публикация: 1118268   (802082) от 31.03.2017
-
-Владислав Петров | Очень мелкий бес (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман Владислава Петрова “Очень мелкий бес” (“Нева”, № 7,8) — весьма неудачная попытка совместить авантюрное повествование из жизни современного издательского бизнеса с фантастическим и даже фантасмагорическим элементом. Сюжет поначалу заинтриговывает: из закрытой комнаты средь бела дня исчезает один из совладельцев издательства “Проза”, а на столе пропавшего обнаруживаются (   Читать дальше...   )Жанр: Приключенческий романПродолжительность: 14:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EC6BFD9ACFD83E07779C58730D6FDFCC862605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010799   (802078) от 25.04.2016
-
-Стиг Ларссон | Девушка с татуировкой дракона (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сорок лет загадка исчезновения юной родственницы не дает покоя стареющему промышленному магнату, и вот он предпринимает последнюю в своей жизни попытку – поручает розыск журналисту Микаэлю Блумквисту. Тот берется за безнадежное дело больше для того, чтобы отвлечься от собственных неприятностей, но вскоре понимает: проблема даже сложнее, чем кажется на первый взгляд. (   Читать дальше...   )Жанр: ДетективПродолжительность: 21:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316ED178336D5F33705C718E08018698D93CCB26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119937   (802055) от 31.03.2017
-
-Вениамин Смехов | В один прекрасный день (Повесть об актере) (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Один день из жизни актера Леонида Павликовского. Как любит говорить отец: «Извините, что без скандала обошлось».... Вениамин Борисович Смехов... В один прекрасный день… Утро Понедельник 14 марта 197… года у драматического актера Леонида Алексеевича Павликовского начался как обычно, в семь часов утра по его собственному будильнику. Ничего особенного, утро светлее (   Читать дальше...   )Жанр: Современная проза, литературные чтенияПродолжительность: 02:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C866D13A6279C37C0D8111CF2C1718DEF3F43E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119951   (802047) от 31.03.2017
 
 Юрий Рытхэу | Сон в начале тумана (1 книга) (2012) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802047.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802043.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802027.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802020.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802014.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802010.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802003.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802002.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802001.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801990.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801957.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801953.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801937.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801928.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801795.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801781.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801729.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801726.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801701.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801639.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801626.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801613.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801591.jpg" />
 </div>
 
 
@@ -672,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65BD1B0CAA374D8D427E279F53E473EB258461F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384624   (801588) от 21.05.2020
+
+Михаил Рапов | Зори над Русью (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художественное произведение — исторический роман, о сложных для Руси временах — событиях, связанных с татаро-монгольским игом, сбором дани и начальным этапом централизации русских земель под эгидой Московии; взрослении князя Дмитрия, прозванного после битвы на Поле Куликовом «Донским» и его отношениях с Сергием Радонежским; феодальной раздробленности — борьбе князей (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 32:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C5F8C76B78D331BC69FB1D82EC57326610954C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384794   (801583) от 21.05.2020
+
+Алекс Градов | Магия крови (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кому дракон – страшный зверь, а кому – форма существования. Алекс должен научиться летать. Или самое дорогое, что у него осталось от человеческой жизни, будет безжалостно раздавлено. Клан позаботится об этом. Вот тогда ярость, сильнейшее из чувств дракона, поднимет Алекса в небо. Времени почти не осталось. К Земле приближается враг. Выбор для Черного Клана невелик: (   Читать дальше...   )Жанр: Боевое фэнтези, попаданцы,Продолжительность: 13:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EF9296E92E76B583CEFB9E4D764CEB8DAD5780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199366   (801501) от 15.01.2018
+
+Роман Злотников | Долгое море (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Столица Империи людей, блистательный Эль Северин, освобождена от полчищ орков. Но мир ждет новая угроза – воплощение Темного Бога Шиг Хаоры в земле Глыхныг. Сможет ли герцог Арвендейл собрать армию светлых сил? Будут ли верными союзниками эльфы Светлого леса и гномы Подгорного предела? Все решится на берегу Долгого моря…Жанр: Боевое фэнтезиПродолжительность: 08:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26EFE42BEE3C0F3DBB8F3BC7A40C89D2D90DD69B
 ```
 
 https://mybot314.ru/tekegram_catalog/

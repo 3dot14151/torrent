@@ -7,7 +7,7 @@ Stellarium 26.1.0 [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063123.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SAS.Планета 260404 portable [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062967.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SAS.Планета 251212 portable [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048075.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Cityinfo 3.0.7.3 (карта города Минска) [Ru/En]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936370.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ JOSM 13265 [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791402.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_686799.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547948.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359878.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194740.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81747.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Maptorium GoogleSat Cache [Ru/En]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36210.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Stellarium 25.1 (x64) [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23671.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ SAS.Планета 250505 portable [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18454.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Maptorium 3.2.0 Portable [Ru/En] (авторская раздача)
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10134.jpg" />
 </div>
 
 

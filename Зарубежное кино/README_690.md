@@ -1,55 +1,3 @@
-###  Публикация: 1523220   (752825) от 10.01.2022
-
-Тайна Сен-Тропе / Mystere a Saint-Tropez (2021 BDRip [H.265]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Убийство — это не повод для смеха. Обычно. Но вот попробуйте сдержать улыбку, когда преступление происходит среди харизматичных богачей на курорте Сен-Тропе, а расследование ведет весьма эксцентричный и не самый смышленый сыщик. Мотив есть у каждого, а вот с дедукцией — явно дефицит! Чтобы распутать это дело, горе-детективу придется притвориться дворецким и затеряться (   Читать дальше...   )Производство: Франция, Бельгия | Canal+ (fr), Ciné, Curiosa Films, France 2 Cinéma, France TélévisionЖанр: Комедия, криминал, детективРежиссер: Николя БенамуАктеры: Кристиан Клавье, Бенуа Пульворд, Тьерри Лермитт, Жером Коммандёр, Росси де Пальма, Вирджини Хок, Жерар Депардье, Венсан Дезанья, Николя Бриансон, Жиль АльмаПеревод: Дублированный (iTunes)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88D93D5CD18DCF1F39A2CDE00AFD3804EEF9F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523041   (752820) от 10.01.2022
-
-Война Фараона / Pharaoh's War / Hamlet Pheroun (2019) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный опыт военнослужащего обошелся своему обладателю не малой кровью. Испытанные ужасы войны остаются позади, когда он выходит на заслуженный отдых. Но некоторые из бывших вояк не желают отдыхать и предаваться лени и находят себе соответствующее занятие. И один из таких берётся за крайне сложное и муторное задание, заключающееся в том, чтобы провести (   Читать дальше...   )Производство: Египет, Саудовская Аравия / ElSobky Film, Rotana Film ProductionЖанр: Боевик, триллер, приключенияРежиссер: Рауф АбДель АзизАктеры: Майк Тайсон, Хафтор Бьёрнсон, Амр Саад, Мухаммад Лютфи, Баюми Фуад, Ахмед Фахми, Сюзен Наджим Альдин, Махмуд Абдулмугни, Рамез Амир, Хамди Эль-МерганиПеревод: Дублированный (КиноПоиск HD)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6870ECCACAC8E17E0EB586936013B257B6702E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518021   (752819) от 10.01.2022
 
 Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) WEB-DL [H.264/1080p] [Локализованная версия] [16:9]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752819.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752810.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752743.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752741.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752731.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752730.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752699.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752643.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752641.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752543.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752542.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752541.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752540.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752536.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752535.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752529.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752526.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752524.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752522.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752520.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752519.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752502.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752454.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752445.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206110   (752436) от 31.05.2010
+
+Телепорт / Jumper (2008) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток из неблагополучного района Дэвид Райс всегда считал себя обычным парнем, пока однажды он не узнал, что он может телепортироваться с места на место. Новые способности открыли перед ним весь мир. Он может побывать в Нью-Йорке и Токио, посетить античные развалины в Риме, увидеть «крышу мира» с горы Эверест, увидеть 20 рассветов и 20 закатов. И все — в один (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Даг Лайман.Актеры: Хейден Кристенсен, Джэми Белл, Рэйчел Билсон, Дайан Лэйн, Сэмюэл Л. Джексон, Майкл Рукер, Анна-Cофия Робб, Макс Тириот, Джесси Джеймс, Том Хульц и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782131   (752373) от 30.04.2014
+
+Полуденная нега / Afternoon Delight (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752373.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Рэйчел — образованная и привлекательная домохозяйка, тридцати с лишним лет, живущая среди творческой богемы Лос-Анджелеса в одном из самых богатых районов города — Сильвер-Лейк. На первый взгляд у неё есть всё: роскошный благоустроенный дом, успешный муж, прелестный ребёнок и огромное количество хипстерской одежды. Однако почему же она изнывает от тоски?
+• Измученная (   Читать дальше...   )Производство: США | 72 Productions, Rincon EntertainmentЖанр: КомедияРежиссер: Джилл СолоуэйАктеры: Кэтрин Хан, Джуно Темпл, Джош Рэднор, Джейн Линч, Джессика Ст. Клэр, Михаэлла Уоткинс, Джош Стэмберг, Джон Капелос, Кигэн-Майкл Ки, Энни МумолоПеревод: Двуголосый закадровый, профессиональныйОзвучка / Автор перевода: Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117EBD4F193F3B3ECD52E325BC3C87ECD1442AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

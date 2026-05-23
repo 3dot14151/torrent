@@ -1,133 +1,3 @@
-###  Публикация: 1044303   (559325) от 23.08.2016
-
-Ф. Бурдейный, Н. Казанский и др. | Справочник коротковолновика (1950) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Справочник коротковолновика» предназначен для радиолюбителей, желающих заняться короткими волнами, и для радиолюбителей-коротковолновиков всех групп, имеющих элементарные знания по электро-радиотехнике.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71144935D039C93EE148552355094C5A62029861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045233   (559324) от 23.08.2016
-
-Колин Крауч | Как сделать капитализм приемлемым для общества (2016) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Капитализм – единственная известная нам система, которая способна обеспечить эффективную и инновационную экономику, но финансовый кризис обнажил пагубную сторону капитализма и показал, что выживание последнего по-прежнему зависит от государства. Можно ли реформировать капитализм так, чтобы он стал приемлемым для общества, или мы должны согласиться с точкой зрения, (   Читать дальше...   )Жанр: ЭкономикаФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E979B30AFD2BED5E0F5D23776A273566934C7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045040   (559323) от 23.08.2016
-
-Иван Беляев | Как самому сделать детекторный приёмник (1949) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В брошюре описывается несколько образцов простых детекторных приемников. Конструкция их не сложна, построить их легко. На таких приемниках можно уверенно принимать несколько станций и, таким образом, иметь даже некоторый выбор программ.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FB2A331FCEBFCF427387AA4B8609A54B318900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043607   (559315) от 23.08.2016
-
-Г. Гюнтер, Г. Фаттер | Книга радиостроителя (1926) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга дает указания для самостоятельного изготовления различных частей радиоприемников и усилителей, поскольку самостоятельное изготовление их вообще возможно.... Несмотря на прошедшие 90 лет с момента опубликования книги, ряд материалов не сильно устарел. Это советы по паянию, подбору инструмента, да и рекомендации по сборке аппаратуры вполне могут пригодиться (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C489F5BE0A4F861ACE3320BB4F1819EBE597F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044287   (559313) от 23.08.2016
-
-Л. Гальперштейн, П. Хлебников | Самодельные громкоговорители (1944) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге в занимательной форме описывается принцип действия динамического громкоговорителя и возможность его изготовления своими руками.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD83AB85DB4675EBAF6F730AD69C84C4E52A2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044384   (559310) от 23.08.2016
 
 В.П. Шейко | Антенны любительских радиостанций (1962) [PDF, DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559310.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559308.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559305.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559218.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559213.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559207.jpg" />
 </div>
 
 
@@ -295,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559174.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ Peter Frances (ред) | История мира в 1000 объектах / Hist
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559115.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559072.jpg" />
 </div>
 
 
@@ -373,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559068.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559066.jpg" />
 </div>
 
 
@@ -428,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558986.jpg" />
 </div>
 
 
@@ -454,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558982.jpg" />
 </div>
 
 
@@ -480,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558967.jpg" />
 </div>
 
 
@@ -506,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558966.jpg" />
 </div>
 
 
@@ -532,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558844.jpg" />
 </div>
 
 
@@ -558,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558766.jpg" />
 </div>
 
 
@@ -584,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558730.jpg" />
 </div>
 
 
@@ -612,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558269.jpg" />
 </div>
 
 
@@ -638,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558174.jpg" />
 </div>
 
 
@@ -665,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558077.jpg" />
 </div>
 
 
@@ -678,6 +548,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35AA6C869A4A25FCE51EC8ED845C6C1AFEEEE7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153552   (558066) от 27.07.2017
+
+Е.С. Анфимов, Е.И. Полинин (сост.) | Микросхемы для современных импортных телефонов (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, продолжая серию ”Энциклопедия ремонта”, описывает около четырехсот микросхем, используемых в современной импортной телфонной аппаратуре и аппаратуре средств связи. В справочник вошли изделия фирм «AMI», «Ericsson», «GEC Plessey», «Exar», «Harris», «НМС», «Motorola», «Mostek», «Mitel», «National Semiconductor», «Panasonic», «Philips», «Rohm», «Samsung», «Sanyo», (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A43B6D06DB36C5869754C6551BED290A854D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305116   (558052) от 29.05.2019
+
+Виктория Суслова | Полный гид по витамину D + Антиаллергенная программа [2 книги] (2019) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, что приходит на ум, когда мы говорим о витамине D, - его роль в профилактике рахита. Но это лишь крохотная часть его возможностей. В действительности же витамин D – король всех витаминов. Достаточное количество его в организме является залогом сильного иммунитета, гормонального баланса, здорового сердца и бесперебойной работы всех без исключения органов и (   Читать дальше...   )Жанр: МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2003AA27914ED0AB1F9610C9409D1B6ABF9D642E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305148   (558046) от 29.05.2019
+
+Джек Лондон | Белый Клык. Уникальная методика обучения языку В. Ратке (2019) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший способ учить иностранный язык – это читать художественное произведение, постепенно овладевая лексикой и грамматикой.
+Предлагаем учить английский язык вместе со знаменитым романом Джека Лондона «Белый Клык». Адаптированный текст произведения снабжен подробным лексико-грамматическим комментарием, расположенным на полях, напротив комментируемого места, с отсылками (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1328408793103528811FB514ECBB2C7832ED8ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814772   (557988) от 21.08.2014
+
+В. Випперман | Европейский фашизм в сравнении: 1922-1982 (2000) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга пользуется заслуженной известностью в мире как детальное, выполненное на высоком научном уровне сравнительное исследование фашистских и неофашистских движений в Европе, позволяющее понять истоки и смысл «коричневой чумы» двадцатого века.Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09475D9D5CBAAAF93FE8775CECC7044927FACB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153512   (557982) от 27.07.2017
+
+Чарльз Эддисон | Орден тамплиеров. История братства рыцарей Храма и лондонского Темпла (2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Чарльза Г. Эддисона – ученого-правоведа, знатока истории ордена – посвящена легендарному братству Бедных рыцарей Иерусалимского храма.
+Автор рассказывает о зарождении самого могущественного военно-религиозного ордена того времени, особенностях устава, иерархии и владениях тамплиеров на Востоке и Западе.
+Эддисон сообщает о подвигах тамплиеров во имя защиты Святой (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79E0549764ADDCFD7E4EA78631CFD71B3C90D3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

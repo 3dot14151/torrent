@@ -1,30 +1,3 @@
-###  Публикация: 1224679   (58902) от 22.04.2024
-
-BBC: Морские гиганты / Ocean Giants (2011) BDRemux [VC-1/1080p] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В подводном мире киты и дельфины ведут необычный образ жизни. Их мир совершенно отличен от нашего, и мы можем лишь заглянуть туда. Синий кит - крупнейшее животное на планете. Более того, это крупнейшее животное из когда-либо живших на Земле. Миллионы лет эти гигантские киты и их сверхразумные братья - дельфины, царили в подводном мире.
-Наши отношения с ними не всегда (   Читать дальше...   )Производство: Великобритания, BBC Bristol, Thirteen / WNETЖанр: Документальный, природа, фаунаРежиссер: Ингрид Квале, Аннушка Скофилд, Эллен ХусейнУчастники: Стивен Фрай, Даг Аллен, Дидье Нуаре, Эндрю Армор, Вера Да Силва, Джим Дарлинг, Аша Де Воз и др.Перевод: Двуголосый закадровый, профессиональный (Омикрон)Субтитры: отсутствуютПродолжительность: 3 х 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D861216A1BB38FD5F3EC21B27615BBB1BDE9D630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132236   (58822) от 23.04.2024
 
 BBC: История древней Британии / A History of Ancient Britain (2011-2012) HDTVRip  [H.264/720p] (сезоны 1-2, серии 1-8 из 8)
@@ -33,7 +6,7 @@ BBC: История древней Британии / A History of Ancient Brita
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58822.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58821.jpg" />
 </div>
 
 
@@ -87,7 +60,7 @@ BBC: Звуковые волны: симфония физики / Sound Waves: T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58814.jpg" />
 </div>
 
 
@@ -113,7 +86,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58746.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58724.jpg" />
 </div>
 
 
@@ -165,7 +138,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58718.jpg" />
 </div>
 
 
@@ -191,7 +164,7 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58570.jpg" />
 </div>
 
 
@@ -218,7 +191,7 @@ BBC: По странам и континентам. Дикая Африка / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58478.jpg" />
 </div>
 
 
@@ -244,7 +217,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58466.jpg" />
 </div>
 
 
@@ -270,7 +243,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58434.jpg" />
 </div>
 
 
@@ -297,7 +270,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58389.jpg" />
 </div>
 
 
@@ -323,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58358.jpg" />
 </div>
 
 
@@ -349,7 +322,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58277.jpg" />
 </div>
 
 
@@ -375,7 +348,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58169.jpg" />
 </div>
 
 
@@ -401,7 +374,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58167.jpg" />
 </div>
 
 
@@ -427,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57991.jpg" />
 </div>
 
 
@@ -453,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57670.jpg" />
 </div>
 
 
@@ -479,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57669.jpg" />
 </div>
 
 
@@ -505,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57651.jpg" />
 </div>
 
 
@@ -531,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57639.jpg" />
 </div>
 
 
@@ -558,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57535.jpg" />
 </div>
 
 
@@ -584,7 +557,7 @@ BBC: Луи Теру. Разговоры с анорексией / Talking to An
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56180.jpg" />
 </div>
 
 
@@ -610,7 +583,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53048.jpg" />
 </div>
 
 
@@ -637,7 +610,7 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49033.jpg" />
 </div>
 
 
@@ -663,7 +636,7 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44906.jpg" />
 </div>
 
 
@@ -674,6 +647,32 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829A498B12AF9F614376AE96B5819450D1FBDDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757708   (38760) от 31.10.2024
+
+Космический шаттл Колумбия: Последний полет / Space Shuttle Columbia: The Final Flight (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4) Pazl Voice
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38760.jpg" />
+</div>
+
+
+###  Подробнее
+
+История последней миссии Колумбии рассказывается в захватывающих подробностях, начиная с нескольких месяцев до проблемного запуска, разворачиваясь на протяжении 16 дней на орбите и заканчиваясь расследованием трагической гибели семи астронавтов.Производство: США / BBC Studios, Mindhouse Productions, CNN Original SeriesЖанр: документальный, история, космосУчастники: Боб ПейджПеревод: Многоголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02542388FC80D3847020E276FACBEAD2F9B246A
 ```
 
 https://mybot314.ru/tekegram_catalog/

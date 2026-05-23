@@ -6,7 +6,7 @@ Disney Dreamlight Valley (2023) [Ru/Multi] (1.20.2.42/dlc) Repack Other s [Ultim
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047300.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (739124) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046972.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Please Be Happy (2022) [En ] (2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046863.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ghost Town (2025) [Multi] (19226835) Scene Rune [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046860.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046734.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046712.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MiSide (2024) [Ru/Multi] (0.93L) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046675.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Myst (2021) [Ru/Multi] (3.0.9) Repack Necros [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046639.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Disney Villains Cursed Cafe (2025) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046627.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fran Bow (2015) [Ru/Multi] (11189293) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046556.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Riven (2024) [Ru/Multi] (1.7.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046555.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sable (2021) [Multi] (4.3.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046373.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Interrogation: You Will Be Deceived (2019) [En] (1.1.9.a1704342) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046307.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ September 7th (2023) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045614.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045449.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ My Grandparents' Christmas Mystery (2022) [En] (Build 10272844) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045356.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045009.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ American Fugitive (2019) [Ru/Multi] (1.1.19095) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043114.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (1.4.5.1) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042642.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (1.84/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042577.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Walking Dead: The Telltale Definitive Series (2020) [Ru/Multi] (1.6/dlc) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042374.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ DARQ (2019) [Ru/Multi] (2.3.1/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042210.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Twinsen's Little Big Adventure Classic / Relentless: Twinsen's Adventure (1994) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041225.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ GRUNND (2023) [En] (1.016d) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040965.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Fear of the Dark (2023) [Ru/Multi] (Build 10576095) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039218.jpg" />
 </div>
 
 

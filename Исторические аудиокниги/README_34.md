@@ -1,55 +1,3 @@
-###  Публикация: 1193259   (262242) от 20.12.2017
-
-Алекс Бертран Громов | Нарком Берия. Злодей развития (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Все основные этапы биографии Лаврентия Берии известны уже несколько десятилетий. Но происходит смещение акцентов в том или ином направлении. Для объективности в издании представлены как минимум две точки зрения. Одна основана на парадной биографии Берии, а вторая на тех документах и показаниях, которые появились после его ареста. Каждое из этих информационных направлений (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 18:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C4D233A7197F256C9C3EA033A0CDC5FCB031DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193265   (262228) от 20.12.2017
-
-Владимир Гельфанд | Дневник 1941–1946 (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Дневники красноармейца, потом младшего лейтенанта, командира взвода стрелковой роты, потом командира взвода минометной роты, лейтенанта и, наконец, помощника начальника транспортного отдела - Владимира Гельфанда, который с 19 до 22 лет был в армии. Весьма интересны свидетельства об освобождении Польши. Гельфанд более года служил в оккупированной Германии, активно (   Читать дальше...   )Жанр: военные мемуары, историяПродолжительность: 31:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B07CE0E7B8E9278B371AEA337AD4DCC0002821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193346   (262099) от 21.12.2017
 
 Симона Вилар | Замок тайн (2017) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262099.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261739.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260872.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258072.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252513.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250276.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250025.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249261.jpg" />
 </div>
 
 
@@ -275,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247634.jpg" />
 </div>
 
 
@@ -302,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245967.jpg" />
 </div>
 
 
@@ -328,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245608.jpg" />
 </div>
 
 
@@ -356,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244952.jpg" />
 </div>
 
 
@@ -382,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244406.jpg" />
 </div>
 
 
@@ -408,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242729.jpg" />
 </div>
 
 
@@ -434,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241851.jpg" />
 </div>
 
 
@@ -461,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241023.jpg" />
 </div>
 
 
@@ -489,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240647.jpg" />
 </div>
 
 
@@ -515,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238082.jpg" />
 </div>
 
 
@@ -541,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236746.jpg" />
 </div>
 
 
@@ -567,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236690.jpg" />
 </div>
 
 
@@ -593,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235718.jpg" />
 </div>
 
 
@@ -619,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233643.jpg" />
 </div>
 
 
@@ -645,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232964.jpg" />
 </div>
 
 
@@ -671,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232081.jpg" />
 </div>
 
 
@@ -683,6 +631,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5DE47E74C0719CFB0CD350D825308C842EA56D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648413   (231316) от 23.07.2023
+
+Наталья Павлищева | Трон любви. Сулейман Великолепный (2022) [MP3, Денис Тимофеев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите увидеть блистательную эпоху Сулеймана Великолепного глазами его славянской жены Роксоланы? Желаете заглянуть в запретный мир гарема и смертельно опасных дворцовых интриг? Слушайте этот любовно-исторический роман, перед которым меркнет телесериал «Великолепный век»!
+
+Как не только завоевать сердце султана, но и остаться любимой и желанной даже через 20 лет (   Читать дальше...   )Жанр: исторические любовные романыПродолжительность: 08:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377C098DEF4DB8B1EA9FF3463E839EDC9E479C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649177   (230858) от 26.07.2023
+
+Генри Райдер Хаггард | Аллан Квотермейн (Книга 1). Аллан Квотермейн (2019) [MP3, Ольга Андреева]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет аудиокнигу знаменитого английского романиста Генри Райдера Хаггарда – «Аллан Кватермэн» – первую в одноименной культовой серии. Его творчество широко известно у нас по книгам «Копи царя Соломона» и «Дочь Монтесумы», однако два этих произведения – лишь малая часть богатого творческого наследия автора.
+«Я похоронил недавно моего мальчика, (   Читать дальше...   )Жанр: Исторические приключенияПеревод: Вера КарпинскаяИздательство: МедиаКнигаПродолжительность: 07:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D13B66186FE2920A5A5197B6CA74B3E21A28F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

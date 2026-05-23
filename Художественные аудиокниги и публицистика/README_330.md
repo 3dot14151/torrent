@@ -1,82 +1,3 @@
-###  Публикация: 1521908   (763224) от 04.01.2022
-
-Дем Михайлов | Ковчег 5.0. (Жирдяй) (Книга 2). Восходящая тьма (2021) [MP3, Андрей Новокрещенов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алексей Демидов заключил контракт на оцифровку своего сознания после смерти. Таких, как он, немало, но в его случае произошёл сбой, и оцифровка произошла гораздо раньше. Теперь два мира стали единым целым, и миллионы людей оказываются в проекте «Ковчег». Здесь обитают как привычные для человека живые существа, так и неведомые мутанты и создания из фэнтези-миров. (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, LitRPGПродолжительность: 09:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878164EF7C266FFF5BBB540C65B7B2A5D3EE7440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521897   (763219) от 04.01.2022
-
-Дем Михайлов | Инфериор (Книга 5). Инфер 5 (2022) [MP3, Владимир Хлопов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Оди оказался на поверхности планеты. Искусственный мир, созданный для спасения Земли от катастрофы, остался за спиной, хотя ужасы его не изгладились из памяти героя. Но мир, куда он попал теперь, не менее кошмарен. Оди вновь приходится идти напролом, не щадя врагов, и доказывать окружающим, что не зря он внушал страх и уважение в прошлой, уже подзабытой, жизни. На (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, LitRPGПродолжительность: 10:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3221693D9553AFAD6176DF0C709A3386C89792CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214746   (763165) от 23.03.2018
-
-Вера Чиркова | Принцесса для младшего принца (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Послушайте завершающую книгу серии про секретаря для младшего принца. Приключения героев продолжаются, и развязка близка…
-Покинув Землю, Иллира ле Трайд возвращается с приёмными родителями и названой сестрой в их родной мир. Однако граф Хингред ле Трайд, приёмный отец Иллиры, и члены его семейства оказываются перед выбором: отдать невинных на растерзание банде убийц (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 10:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19173FCB02C1061E9473BDDDE8D102C59DB7833C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017306   (763128) от 16.05.2016
 
 Проспер Мериме и др. | Ноготок судьбы (2013) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763128.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763126.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763076.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763034.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763022.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762993.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762941.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762880.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762829.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762690.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762536.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762469.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762213.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762107.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761959.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761912.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761910.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761678.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761364.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761221.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761217.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761155.jpg" />
 </div>
 
 
@@ -663,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761114.jpg" />
 </div>
 
 
@@ -674,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:625DF3C7CB698562743AD624A33238EB1EA1EB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017627   (761103) от 17.05.2016
+
+Кристофер Райх | Клуб патриотов (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой романа Томас Болден - преуспевающий тридцатилетний банкир на Уолл-стрит, хотя в детстве судьба его не слишком баловала. Дерзкое нападение грабителей, заставившее его вспомнить полузабытые навыки уличных драк, неожиданно превращается в кошмар и наваждение: всего через несколько часов карьера и жизнь Болдена перечеркнуты, его разыскивает полиция - за убийство, (   Читать дальше...   )Жанр: ДетективПродолжительность: 15:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8627A36AEF6A4D206DF64BB3E122DB0EC61F068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214909   (761035) от 24.03.2018
+
+Андрей Васильев | Черная Весна (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не всегда возвращение домой может стать праздником, и в этом на собственном примере убедились ученики мага по имени «Ворон». После тягот минувшей войны они рассчитывали немного отдохнуть в солнечной Силистрии, в гостях у своего друга Гарольда Монброна, а вместо этого попали в очень и очень неприятную историю, из которой затруднительно будет выбраться живым. Да и (   Читать дальше...   )Жанр: Героическое фэнтезиПродолжительность: 13:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7EA50B8044695B47F91689F24941CF340A1E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214904   (761031) от 24.03.2018
+
+Данияр Сугралинов | Level Up 2. Герой (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фил открывает свою компанию, ничего не зная о бизнесе, но учится на своих ошибках. Продолжая помогать близким и чужим людям, он обрастает друзьями и уважающим его окружением, которое помогает ему в его целях. Вместе с тем, он продолжает саморазвитие, стараясь быть лучше не только по оценке Системы, но и в своих собственных глазах, пытаясь при этом выяснить как можно (   Читать дальше...   )Жанр: Героическая фантастика, LitRPGПродолжительность: 16:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EE06502A9EBF5064C1D15962B7C88BC6CA31CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

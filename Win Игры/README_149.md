@@ -1,29 +1,3 @@
-###  Публикация: 1281157   (755083) от 06.02.2019
-
-Legacy: Witch Island 2 (2019) [En] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы вернулись на таинственный остров, и стало ясно, что ваше предыдущее приключение не было сном. Остров действительно существует, и ведьма вернула себе силу. Используйте свои знания и смекалку, чтобы разрушить ее владения на острове. Ваш путь лежит через ослепительные островные локации - таинственный лес, горы, пещеры и озера.Тип издания: UnofficialРазработчик: Litera LaboratoriesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E0B89B59A4882DF16E78862C34B6D1C48BB258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354009   (755044) от 10.07.2020
 
 Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack xatab
@@ -32,7 +6,7 @@ Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755044.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Alicia Quatermain 3: And Mystery of the Flaming Gold / Алисия Квотер
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754958.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Kingdom Rush Origins (2018) [Ru/Multi] (1.3.4) License PLAZA
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754833.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Sudden Strike 4 (2017) [Ru/En/Ger] (1.14.29902/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754713.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754268.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Tiny Tales: Heart of the Forest (2017) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753371.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dark Dimensions 8: Vengeful Beauty (2017) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753367.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Left Alone (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753316.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Legacy: Witch Island 2 / Наследие: Остров ведьмы 2 (2019) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753234.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Scrap Garden (2016) [Ru/Multi] (1.1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753206.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Endless Legend (2014) [Ru/Multi] (1.8.2/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753181.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ DESOLATE (2019) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753005.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Myths of the World 14: Love Beyond / Мифы народов мира 14: За �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752835.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Insomnis (2022) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752807.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0/dlc) License SKIDROW [Enhan
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752724.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ TT Isle of Man (2018) [Ru/Multi] (1.0) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752624.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Reflections of Life 5: Hearts Taken (2017) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751957.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Chimeras 11: Cherished Serpent / Химеры 11: Заветный Змей (202
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751934.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Legendary Tales: Stolen Life (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751918.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Darkness and Flame 2: Missing Memories (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751873.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dark Tales 17: Edgar Allan Poe's. The Bells / Тёмные истории 17: Э
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751828.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Myths of the World 6: The Heart of Desolation (2015) [En] Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751644.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751631.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Andersen Accounts 2: The Price of a Life (2019) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751622.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ My Memory of Us (2018) [Ru/Multi] (1.13057.1) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751488.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ My Memory of Us – это воспоминание о дружбе между �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8808AED545A7EE134752CF67C450E0468A0A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356120   (751296) от 12.07.2020
+
+Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в программу «Первопроходец»! В нашем веселом и ярком приключении для одного или двух игроков вы играете за нового работника корпорации «Родной Космос», которая с гордостью называет себя четвертой лучшей межзвездной компанией. Вас выбросили на неизведанной планете почти без оборудования, и теперь ваша задача – определить, подходит ли планета для заселения (   Читать дальше...   )Тип издания: RepackРазработчик: Typhoon StudiosЖанр: Adventure, Action, RPG, 1st Person, 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADED8F362C264694CC344DD2FB6359AE52ED7898
 ```
 
 https://mybot314.ru/tekegram_catalog/

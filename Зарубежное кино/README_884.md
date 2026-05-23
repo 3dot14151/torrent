@@ -1,55 +1,3 @@
-###  Публикация: 1142796   (640647) от 15.06.2017
-
-Счастливый ключ / Lukki (2016) WEB-DLRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Неудачливый актёр Чэ-сон думает свести счёты с жизнью и напоследок решает сходить в баню. У киллера Хён-ука дела наоборот идут в гору, и он оказывается в той же самой общественной бане. Но вот незадача — поскальзывается на мыле, ударяется головой и лишается памяти. Чэ-сон решает воспользоваться ситуацией и избавиться от своей никчёмной жизни, подменив ключ от шкафчика (   Читать дальше...   )Производство: Корея Южная / Yong FilmЖанр: КомедияРежиссер: Ли Ге-бёкАктеры: Хэ Чжин Ю, Джун Ли, Юн Хе Чжо, Чжи Ён Им (I), Хан Чхоль Чо, Бён Сук Сон, Хе Бин Чон, Дон Хви Ли, Хёк Чжин Чан ...Перевод: Любительский двухголосый (Колобок)Субтитры: ОтсутствуютПродолжительность: 01:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1950B5B8216EF83FC3F0A97EA0E73945206BC34F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142762   (640644) от 15.06.2017
-
-Широко шагая / Walking Tall (2004) BDRip [H.265/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Шериф графства МакНейри Буфорд Пассер оставался на своем посту три срока подряд. За время своей службы он отчаянно боролся с преступностью, не раз вступая в неравную схватку. После убийства его горячо любимой жены он почувствовал себя совершенно беспомощным. Но вот солдат особых войск армии США Крис Ваугн возвращается домой, надеясь наладить небольшой семейный бизнес, (   Читать дальше...   )Производство: СШАЖанр: Боевик, КриминалРежиссер: Кевин БрэйАктеры: Майкл Боуэн, Джонни Ноксвил, Дуэйн Джонсон, Нил МакДонаф, Эшли Скотт, Джон Бизли, Барбара Тарбак, Кристен Уилсон, Хлео Томас, Кевин ДюранПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BE87EF314929D7885329F3FCE58EEB8694C611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142517   (640643) от 15.06.2017
 
 Возмутитель спокойствия / Borgman (2013) BDRip [H.264/1080p] [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640643.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640642.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640638.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640636.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640633.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640630.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640625.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640623.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640617.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640583.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640528.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ SuperАлиби / Alibi.com (2017) HDRip [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640526.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640514.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640507.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640505.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640503.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640502.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640491.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640398.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640397.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640394.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640391.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640390.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640388.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5C0F8BE35A490061DA036DD79B21A966AC0A930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542137   (640373) от 05.04.2022
+
+Порочное удовольствие / Vicious Fun (2020) BDRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миннесота. 1983 год. Молодой кинокритик Джоэл, работающий в хоррор-журнале, решил проследить за ухажёром своей соседки, с которой он снимает дом и в которую безответно влюблён. В результате, парень напился и уснул в подсобке бара, а когда пришёл в себя, случайно оказался на групповой терапии для героев своих любимых фильмов ужасов — серийных убийц...Производство: Канада, Particular Crowd, Black Fawn Films, Breakthrough EntertainmentЖанр: ужасы, комедияРежиссер: Коуди КэлаханАктеры: Ивэн Марш, Эмбер Гольдфарб, Ари Миллен, Джулиан Ричингс, Роберт Мэйллет, Шон Баек, Дэвид Кёкнер, Алекс Стил, Кристофер Боуман, Марк ГибсонПеревод: Профессиональный многоголосый (СВ Дубль)Субтитры: Английские (full, SDH)Продолжительность: 01:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0162A6AF1F13673C5AF54BD70EB65245AAC5597D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541900   (640368) от 05.04.2022
+
+История моей жены / A felesegem tortenete / The Story of My Wife (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640368.jpg" />
+</div>
+
+
+###  Подробнее
+
+История несчастливого брака капитана военно-морского флота Якоба Сторра с Лиззи, француженкой, на которой он женился после того, как поспорил с другом, что первая женщина, вошедшая в кафе, станет его женой. «История моей жены» — экранизация одноименного романа венгерского писателя Милана Фюста.Производство: Германия, Венгрия, Франция, Италия / arte France Cinеma, Dorje Film, Inforg-M&M Film Kft.Жанр: Драма, мелодрамаРежиссер: Ильдико ЭньедиАктеры: Леа Сейду, Гийс Нейбр, Луи Гаррель, Серджо Рубини, Жазмин Тринка, Луна Ведлер, Йозеф Хадер, Ульрих Маттес, Удо Замель, Тулиан АцельПеревод: Дублированный (iTunes)Субтитры: немецкиеПродолжительность: 02:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3888B25D70EE6463DEE4DD31A508C89B315C166
 ```
 
 https://mybot314.ru/tekegram_catalog/

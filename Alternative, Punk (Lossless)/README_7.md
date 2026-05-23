@@ -6,7 +6,7 @@ Muse - Live At Rome Olympic Stadium (2013) [FLAC|Lossless]<Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936505.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Envy - Atheist's Cornea (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936498.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tacocat - This Mess Is a Place (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936497.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ North by North - Get Weird (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936494.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Envy - A Dead Sinking Story (2003) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935042.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935041.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935040.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935039.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Envy - The Fallen Crimson (2020) [FLAC|Lossless|tracks + .cue] <Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935035.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Envy - Compiled Fragments 1997-2003 (2005) Anthology [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935034.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dead Can Dance - The Serpent's Egg (1988) remaster 2008, Vinyl Replica, 4AD, Jap
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934060.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dead Can Dance - Within The Realm Of A Dying Sun (1987) remaster 2008, 4AD, Japa
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934057.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Noise Box - Here's That Bliss You Left Behind (2019) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933899.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Isobel Campbell - There Is No Other… (2020) [FLAC|Lossless|tracks + .cue] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933819.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Cornershop - England is a Garden (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Br
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933809.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Noise Box - Every Picture of You Is When You Were Younger (2016) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933414.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dead Can Dance - Aion (1990) remaster 2008, Vinyl Replica, 4AD, Japan for UK, Eu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932480.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dead Can Dance - Toward The Within (1994) remaster 2008, Vinyl Replica, 4AD, Jap
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930859.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Cure - Bloodflowers (2000) Japanese Edition [FLAC|Lossless|image + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930855.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Destroyer - Have We Met (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930809.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Wyldest - Redream Chaos (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930799.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ U.S. Girls - Heavy Light (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930790.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Phantogram - Ceremony (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Trip-Hop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930684.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Cure - Greatest Hits (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930442.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Cure - Kiss Me Kiss Me Kiss Me (1987) Reissue, 2008, Universal/Fiction [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929154.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Cure - Wish (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929067.jpg" />
 </div>
 
 

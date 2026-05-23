@@ -6,7 +6,7 @@ Spotify 1.1.70.610 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822807.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Allavsoft Video Downloader Converter 3.22.5.7433 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822766.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Seagate DiscWizard 18.0.6030 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822711.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Visual Studio 2019 Professional 16.11.5 (Offline Cache, Unofficial) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822707.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Speedtest by Ookla 1.10.163 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822684.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Mirillis Action! 4.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822653.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Opera 68.0.3618.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822651.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PrivaZer 4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822644.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Microsoft Security Essentials 4.9.218.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822603.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822589.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Autodesk AutoCAD LT 2017 HF1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822587.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822585.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Stardock Fences 3.13 (x64) RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822579.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ventoy 1.0.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822570.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ OpenVPN 2.5.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822566.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Telegram Desktop 2.1.4+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822525.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Autorun Organizer 4.41 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822515.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ AnyMP4 Blu-ray Player 6.2.20 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822474.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Aiseesoft Video Converter Ultimate 9.2.8 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822471.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ EaseUS Data Recovery Wizard Professional 10.0.0 Portable by PortableWares [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822458.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Microsoft® Windows® 11 x64 Ru 21H2 4in1 Upd 10.2021 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822418.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe Acrobat Pro DC 2021.007.20099 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822407.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ CocCoc 68.4.126 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822399.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ CocCoc 68.4.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822397.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ NeoAxis Engine 2020.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822370.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ CrystalDiskInfo 8.5.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822368.jpg" />
 </div>
 
 

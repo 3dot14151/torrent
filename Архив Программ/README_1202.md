@@ -6,7 +6,7 @@ Hetman FAT Recovery 2.7 Home Edition RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434498.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ oCam 337.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434491.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ USB Safely Remove 5.4.6.1244 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434490.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434480.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Hetman Word Recovery 2.5 Home Edition RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434435.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ CCleaner Professional / Business / Technician 5.34.6207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434432.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Hetman Office Recovery 2.5 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434427.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ BurnAware Professional 10.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434424.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Daum PotPlayer 1.7.3795 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434420.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Notepad++ 7.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434386.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Bat! Professional 7.3.8 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434380.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wise Driver Care Pro 2.1.908.1006 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434328.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FastStone Capture 8.6 Final RePack (& portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434324.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Wondershare Data Recovery 6.5.1.5 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434323.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ultra Adware Killer 6.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434320.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Hetman NTFS Recovery 2.7 Home Edition RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434313.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Adobe Flash Player 27.00.130 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434312.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ CleanMyPC 1.8.0.545 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434286.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Aiseesoft Video Enhancer 1.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434277.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MAGIX Vegas Pro 15.0 Build 177 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434238.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ FastStone Capture 8.6 Final RePack (& portable) by KpoJIuK (11.09.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434230.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sputnik 2.1.947.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434213.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Abelssoft SSD Fresh Plus 2016 5.0 Retail [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434212.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Daum PotPlayer 1.7.3795 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434170.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AOMEI Backupper Technician Plus 4.0.6 RePack (& portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434168.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ SpyHunter 4.23.2.4686 RePack (& Portable) by D!akov (16.10.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434110.jpg" />
 </div>
 
 

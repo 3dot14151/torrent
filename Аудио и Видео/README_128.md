@@ -1,366 +1,3 @@
-###  Публикация: 1536716   (672890) от 13.03.2022
-
-VA - Il Caffe Italiano Bologna (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Montefiori Cocktail - Riviera Beat (5:02)
-02. Matteo Brancaleoni - Cosa hai messo nel caffè (3:20)
-03. Massimo Guerra Xtet - Futura (6:33)
-04. Italian Secret Service - Italian melody (4:50)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C950F2B4E8EE9C0018BFDCDE96642C50E2CB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536730   (672888) от 13.03.2022
-
-VA - Class of '87 (2022) [AAC|~339 Kbps] <Pop, Rock, Alternative>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. R.E.M. - It's The End Of The World As We Know It (And I Feel Fine) (4:07)
-02. Sting - Englishman In New York (4:27)
-03. Public Image Limited - Seattle (2011 Remaster) (3:41)
-04. The Northern Pikes - Teenland (4:00)(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 01:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165830AAC72E060BB2DE8910ECD4F32DBCB0042E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536715   (672887) от 13.03.2022
-
-VA - Il Caffe Italiano Milano (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Papik, Alan Scaffardi - Prendila così (3:40)
-02. Matteo Brancaleoni - Una Carezza In Un Pugno (3:07)
-03. Zerosospiro - C'èun Tic (2:55)
-04. Parma Brass Quintet - Via con me (3:15)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D06AF6C583EAEA85B6073206E5D547066D7691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536724   (672885) от 13.03.2022
-
-VA - Electronica Royale, Vol. 1 (Organic Downtempo Vibes Deluxe) (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Warrior - Excalibur (Electronic Dub Mix) (4:45)
-02. Intergalactic Traveller - Ursa Major (Minimal Mix) (5:05)
-03. Once Upon A Time - Feel Alone (4:38)
-04. Electric Echoes - I Go Now (3:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, AmbientПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB39FCA160F438ACF8F8AB1521AC1EF2F87EFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536719   (672884) от 13.03.2022
-
-VA - Il Caffe Italiano Torino (Italian Lounge Espresso Music) (2017) [AAC|~333 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Matteo Brancaleoni - Volare (Nel Blu Dipinto di Blu). (2:48)
-02. Papik, Alan Scaffardi - Che Sarà (4:05)
-03. Giuseppe Milici - Dimmi cos'è (3:45)
-04. Melania - Caruso (4:42)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D05E09A1A8F311F8911116414BBBC83FC63BFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536718   (672792) от 13.03.2022
-
-VA - Il Caffe Italiano Venezia (Italian Lounge Espresso Music) (2017) [AAC|~333 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Milici - Estate (3:55)
-02. Papik, Alan Scaffardi - Amarsi un po' (3:46)
-03. Montefiori Cocktail - Anonimo Veneziano (3:29)
-04. Matteo Brancaleoni - Arrivederci (3:52)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9632E6460828EE214397A07DC9DA754AAB984CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536693   (672670) от 13.03.2022
-
-Bryan Adams - So Happy It Hurts (2022) [AAC|~328 Kbps] <Rock, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. So Happy It Hurts (3:35)
-02. Never Gonna Rain (3:18)
-03. You Lift Me Up (3:08)
-04. I've Been Looking For You (2:01)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859F4F40ED9CD9FD988272AC7B1FD6CF28B1E3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536695   (672651) от 13.03.2022
-
-Michael Giacchino - The Batman (Original Motion Picture Soundtrack) (2022) [AAC|~306 Kbps] <Film Scores, Soundtracks>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Fight City Halloween (4:05)
-02. Mayoral Ducting (2:34)
-03. It's Raining Vengeance (4:31)
-04. Don't Be Voyeur with Me (2:38)(   Читать дальше...   )Жанр: Film Scores, SoundtracksПродолжительность: 01:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DAE4D8EB342EEEEE2EC5BD0AC1284B2BD1E77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291095   (672212) от 23.03.2019
-
-Гринч / The Grinch (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Любой бы на месте Гринча позеленел и взбесился. Как порядочный интроверт он живёт в тёмной пещере на самой вершине горы подальше ото всех, но эти «все» готовят грандиознейшее празднование нового года. Они шумят, всё украшают и дико бесят. Кто бы отказал себе в удовольствии испортить праздник? Гринч решает украсть Новый год.Производство: Китай, США, Франция, Япония, Illumination Entertainment , Perfect World Pictures Co., Universal PicturesЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Ярроу Чейни, Скотт МоужерАктеры: Бенедикт Камбербэтч, Кэмерон Сили, Рашида Джонс, Фаррелл Уильямс, Тристан О’Хэйр, Кенан Томпсон, Сэм Лаваньино, Рамон Хэмилтон, Анджела Лэнсбери, Скарлетт ЭстевесПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские,  Английские SDHПродолжительность: 01:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D21038E3C97A5D90FD402908660F30F90AB0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291172   (672149) от 23.03.2019
-
-Гринч / The Grinch (2018) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Любой бы на месте Гринча позеленел и взбесился. Как порядочный интроверт он живёт в тёмной пещере на самой вершине горы подальше ото всех, но эти «все» готовят грандиознейшее празднование нового года. Они шумят, всё украшают и дико бесят. Кто бы отказал себе в удовольствии испортить праздник? Гринч решает украсть Новый год.Производство: Китай, США, Франция, ЯпонияЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Ярроу Чейни, Скотт МоужерАктеры: Бенедикт Камбербэтч, Кэмерон Сили, Рашида Джонс, Фаррелл Уильямс, Тристан О’Хэйр, Кенан Томпсон, Сэм Лаваньино, Рамон Хэмилтон, Анджела Лэнсбери, Скарлетт ЭстевесПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские,  АнглийскиеПродолжительность: 01:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E58958A2CE2A5732898580A7F077C7D46E4E0F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291119   (672033) от 23.03.2019
-
-Китайский квартал / Chinatown (1974) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Гиттес принимает предложение загадочной богатой красавицы заняться расследованием обстоятельств тайного романа на стороне ее мужа — инженера.
-Согласившись на это дело, Гиттес не подозревал, что окажется в центре тайных скандалов, беспредела коррупции и скрытых махинаций, правда о которых всплывет однажды ночью вместе с телом несчастного инженера…Производство: США / Paramount Pictures, PenthouseЖанр: Триллер, Драма, ДетективРежиссер: Роман ПоланскиАктеры: Джек Николсон, Фэй Данауэй, Джон Хьюстон, Перри Лопес, Джон Хиллерман, Даррел Зверлинг, Дайан Лэдд, Рой Дженсон, Роман Полански, Ричард БакалянПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 02:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F77E83A93B798391A33FFBBDF69C04F2061EE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291057   (672022) от 23.03.2019
-
-Грязь / The Dirt (2019) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-После мирового успеха "Богемской рапсодии" на экраны выходит лента о знаменитой американской группе Mötley Crüe. Фильм получил название "Грязь" (The Dirt) и основан на одноименной автобиографической книге, которая была написана без малого 20 лет назад. За это время участники группы немного постарели, но слава о подвигах их рок-н-рольной (   Читать дальше...   )Производство: США / 10th Street Entertainment, LBI Entertainment, NetflixЖанр: Биография, МузыкаРежиссер: Джефф ТреймейнАктеры: Машин Ган Келли, Иван Реон, Ливэн Рамбин, Дуглас Бут, Даниэль Уэббер, Пит Дэвидсон, Дэвид Костабайл, Тони Кавалеро, Кэбби Бордерс, Ребека ГрафПеревод: Дублированный (Пифагор)Субтитры: Русские, английские, немецкие, испанские, финские, французские, иврит, итальянские, польские, португальские, шведские.Продолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53651959C9BD6DC6223412A31961014F86A21B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291082   (672017) от 23.03.2019
-
-Цензор (2017) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в недалеком будущем. Индустрия развлечений шагнула вперед после изобретения виртуальной реальности. Вира получила распространение только в клубах — уж очень дорогое это удовольствие: чтобы просчитать реалистичный игровой мир, нужны мощные компьютеры; для полной имитации всех пяти чувств нужны кабинки вира-контакта, а каждая кабинка стоит как приличная (   Читать дальше...   )Производство: Россия / UGC Pictures, HHG Film Company, FilmaticoЖанр: Фантастика, Боевик, ДрамаРежиссер: Константин ШелеповАктеры: Степан Бекетов, Павел Михайлов, Галина Сумина, Сергей Мардарь, Юлия Денисова, Ольга Витченко, Владимир Чернышов, Руслан Кацагаджиев, Артём Шилов, Натиг Талыбов, Евгений ДобряковПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 02:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A349AFB9169C34672BA993C29010AD6B4D658E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223766   (671306) от 06.05.2018
 
 Ночные игры / Game Night (2018) WEB-DL [720p] ATV
@@ -369,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671306.jpg" />
 </div>
 
 
@@ -395,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671229.jpg" />
 </div>
 
 
@@ -421,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671227.jpg" />
 </div>
 
 
@@ -447,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671121.jpg" />
 </div>
 
 
@@ -473,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671109.jpg" />
 </div>
 
 
@@ -499,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670992.jpg" />
 </div>
 
 
@@ -525,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670878.jpg" />
 </div>
 
 
@@ -551,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670736.jpg" />
 </div>
 
 
@@ -578,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670337.jpg" />
 </div>
 
 
@@ -604,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670241.jpg" />
 </div>
 
 
@@ -631,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670223.jpg" />
 </div>
 
 
@@ -657,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670218.jpg" />
 </div>
 
 
@@ -683,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669479.jpg" />
 </div>
 
 
@@ -694,6 +331,368 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EA63A6C38350647C6472255A01B683088BEC965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798532   (669423) от 22.06.2014
+
+Жестокий ринг / Victor Young Perez (2013) WEB-DL  [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческая драма, основанная на реальной истории Виктора Переса, который стал чемпионом мира по боксу в 1930-е годы в Париже и был женат на знаменитой французской актрисе. Из-за его еврейского происхождения он был депортирован в Освенцим…Жанр: Драма, биография, история, спортПродюсер: Жан-Доминик Чоачан, Жак Уаниш, Джеймс ДэйлиВ ролях: Брахим Аслум, Стив Суисса, Изабелла Орсини, Патрик Бушите, Дави Сарду, Брюс Пэйн, Pierre-Henri Toubas, Ромен Канонн, Алаа Омузун, РомаПеревод: Профессиональный (дублированный) (iTunes Russian)Продолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4270301497D6A0CD0B4363A6352979D2216D4937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537133   (669417) от 15.03.2022
+
+VA - Licence to Chill 2022 (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva Sakellari - Afraid (Remix) (3:50)
+02. Stefano del Mare - Flying High (4:00)
+03. ENCHUAVI - Inea Maia (7:04)
+04. Solanos - Siempreverde (5:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4844CBF1C9B8968C258B7DA26D321008D2C116B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537130   (669416) от 15.03.2022
+
+VA - Ibiza Feeling (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basics On Lounge - Hovering (6:08)
+02. Gries - On the Move (5:42)
+03. Asservat - Intriguing Additions (6:08)
+04. Gamma Orionis - Spring Trees (5:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D26D86B498C1201B7D6A2704A2733471A21812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537172   (669324) от 15.03.2022
+
+Caravan Palace - Panic (2013) [AAC|~333 Kbps] <Jazz, Neo Swing, Electro Swing, Gypsy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queens (4:06)
+02. Maniac (4:12)
+03. The Dirty Side of the Street (3:39)
+04. 12 juin 3049 (3:25)(   Читать дальше...   )Жанр: Jazz, Neo Swing, Electro Swing, GypsyПродолжительность: 01:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A4556FE59C747AEFD9984AAA1494ED90D613B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537126   (669320) от 15.03.2022
+
+VA - Sunrise Avenue, Vol. 6 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~350 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasper Jones - I Want to Meet You Again (Original Mix) (4:13)
+02. Nat Wood - Te Quiero Mi Vida (Original Mix) (4:59)
+03. Frederic Flores - Groove Therapy (Original Mix) (3:32)
+04. James Wilson - Reggae Morning (Original Mix) (3:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C5390046C88902162660421ED33BA6E295DFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537169   (669315) от 15.03.2022
+
+Caravan Palace - Caravan Palace (2008) [AAC|~337 Kbps] <Jazz, Neo Swing, Electro Swing, Gypsy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragons (4:06)
+02. Star Scat (3:51)
+03. Ended with the Night (5:00)
+04. Jolie Coquine (3:45)(   Читать дальше...   )Жанр: Jazz, Neo Swing, Electro Swing, GypsyПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E123E87F3B2920C1B85380B7D4D8A510E4D1232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537128   (669266) от 15.03.2022
+
+VA - Sunrise Avenue, Vol. 8 (20 Lounge & Chill-Out Pearls) (2016) [AAC|~355 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Moore - In the Sunshine (Original Mix) (4:08)
+02. Scott Navarro - Tell Me Why (Original Mix) (6:38)
+03. Nigel Scott - Disco Salsa (Original Mix) (6:24)
+04. Peter Cox - White Star (Original Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C01A0BA00ECA4B23A8E1B0ADB3363522CAB851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537123   (669254) от 15.03.2022
+
+VA - Sunrise Avenue, Vol. 4 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Parker - Orange Lights (Original Mix) (4:54)
+02. Gil Ward - Fluctuate (Original Mix) (4:32)
+03. Bennett Robinson - Mister Key (Original Mix) (5:10)
+04. Jason Torres - Dorme Il Mare (Original Mix) (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A92FC4C1B078341D5AF941D5AE5A8B46FEECE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536014   (669235) от 15.03.2022
+
+Пламя - Время "Пик" (1982) [AAC|~344 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег кружится (4:14)
+02. Лабиринт (4:23)
+03. Сказка (3:49)
+04. Колосок золотой (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BF8B304174F1CA3A7C43686EE92C0F05BD19AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537236   (669085) от 15.03.2022
+
+Человек-паук: Нет пути домой / Spider-Man: No Way Home (2021) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь, когда весь мир узнал, кто скрывается за маской Человека-паука, жизнь Питера Паркера и его близких меняется не в лучшую сторону. Не придумав ничего лучше, Паркер обращается за помощью к Доктору Стрэнджу. Но в процессе заклинания, которое должно было заставить человечество забыть о Питере, что-то идет не так, в результате чего открывается портал в Мультивселенную. (   Читать дальше...   )Производство: США /  Columbia Pictures Corporation, Marvel Studios Inc., Pascal Pictures, Sony Pictures Entertainment (SPE)Жанр: Фантастика, боевик, приключения, фэнтезиРежиссер: Джон УоттсАктеры: Том Холланд, Зендая, Бенедикт Камбербэтч, Мариса Томей, Джейкоб Баталон, Уиллем Дефо, Альфред Молина, Джейми Фокс, Рис Иванс, Томас Хейден Черч, Джон Фавро, Тоби МагуайрПеревод: ДублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 02:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3903F0E1012948DA7A02C580C76435EEE924FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136907   (669065) от 25.05.2017
+
+Послесвадебный разгром / A Few Less Men (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение похождений бедовых друзей-англичан в Австралии. На сей раз незадачливой троице Дэвиду, Тому и Грэму предстоит через всю страну перевозить гроб с покойным приятелем после того, как их самолет делает непредвиденную высадку в глухой глубинке.Производство: АвстралияЖанр: КомедияРежиссер: Марк ЛампреллАктеры: Дакре Монтгомери, Завьер Сэмюэл, Крис Маршалл, Райан Корр, Кевин Бишоп, Саша Хорлер, Линетт Каррен, Дебора Мэйлман, Хлоя Херст, Шэйн ДжейкобсонПеревод: Русский/Дублированный, Украинский/Многоголосый закадровый (iTunes)Субтитры: НетПродолжительность: 01:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8387E40F19C7E0C4E6E61B3BA1AEB971AFE0E439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137293   (668956) от 25.05.2017
+
+Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город — Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, ДанияЖанр: Мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крис МакКейАктеры: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Сири, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, АнглийскиеПродолжительность: 01:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5300E64A61CC988960B58C1DEF6A976C78661D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291442   (668678) от 25.03.2019
+
+Сергей Мавроди - Сын Люцифера. Книга третья. Деньги (2019) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга знаменитого основателя МММ Сергея Мавроди. Люцифер на конкретных, живых примерах показывает ему силу и слабость человеческую, ставя конкретных, живых людей в ситуации, когда им приходится делать выбор. Цель книги показать: мы иные, не совсем такие, какими себя представляем. Просто обычный человек редко оказывается в необычных ситуациях, и в этом его счастье. (   Читать дальше...   )Жанр: Мистика, УжасыФормат: *m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD67CF9C725E40A764F0304CEC95220D301C8D61
 ```
 
 https://mybot314.ru/tekegram_catalog/

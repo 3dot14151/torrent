@@ -1,87 +1,3 @@
-###  Публикация: 1812182   (8065) от 13.08.2025
-
-Дмитрий Лим, Дмитрий Парсиев | Гангстер вольного города. (Книга 1). (2025) [MP3, Сергей Куроедов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-При жизни меня звали Ювелиром. На моих похоронах печалились не все, некоторые вздыхали с облегчением. Я летал бесплотным духом и вглядывался в их лица, подводя итог непростой насыщенной жизни... Но...
-— Эй, мужик! — рядом со мной, как по волшебству появился старик. — Не хочешь в новый мир? Он правда магический... но ты сможешь прожить жизнь ещё раз и заниматься своим (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFB36B73CC135315F8B5DF9038E3A9A72ED6D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811981   (8064) от 13.08.2025
-
-Дмитрий Билик | Рубежники. Бедовый. (Книга 3). Княжий человек (2025) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Можно ли чувствовать себя в безопасности, после того, как присягнул на верность Великому Новгородскому князю? Конечно же нет. Главный враг затаился, но не сбежал окончательно. Опасная нечисть, способная менять обличия, ходит где-то рядом. А беды продолжают сыпаться, как из рога изобилия.
-
-В третьей книге рубежник Матвей – уже не одиночка: он находится под защитой (   Читать дальше...   )Жанр: Фэнтези, приключения, юморИздательство: 1С-ПаблишингПродолжительность: 09:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09A14579526CCDF49DF1C44CAB455FE4930D4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812019   (8062) от 13.08.2025
-
-Алексей Губарев | Тайны предтеч. Древо Астарк (Книга 1). Рейтинг минус (2024) [MP3, Александр Потеряев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Когда жизнь идет под откос, человек пойдёт на многое, чтобы исправить ситуацию. Даже на сделку со странными условиями.
-Мне, нищему инвалиду, "случайный" прохожий предложил всё исправить, ничего не попросив взамен.
-Кто ж знал, что меня переселят в чужое тело. Да и мир совершенно другой...
-Здесь, в Содружестве, любое действие имеет цену и последствия, а репутация (   Читать дальше...   )Жанр: Фантастика, попаданцы, РеалРПГИздательство: ЛитРесПродолжительность: 07:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81FA9A50CE4F469F6334AA465E334F5A75F8A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812172   (8060) от 13.08.2025
 
 Тимофей Царенко | Три сапога пара. (Книги 1-4) (2022-2024) [MP3, Олег Кейнз]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8060.jpg" />
 </div>
 
 
@@ -116,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8058.jpg" />
 </div>
 
 
@@ -143,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8057.jpg" />
 </div>
 
 
@@ -169,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8056.jpg" />
 </div>
 
 
@@ -197,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8055.jpg" />
 </div>
 
 
@@ -223,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8054.jpg" />
 </div>
 
 
@@ -250,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8053.jpg" />
 </div>
 
 
@@ -277,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8052.jpg" />
 </div>
 
 
@@ -305,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8051.jpg" />
 </div>
 
 
@@ -331,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8050.jpg" />
 </div>
 
 
@@ -359,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8049.jpg" />
 </div>
 
 
@@ -386,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8048.jpg" />
 </div>
 
 
@@ -413,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8047.jpg" />
 </div>
 
 
@@ -440,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8045.jpg" />
 </div>
 
 
@@ -466,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8043.jpg" />
 </div>
 
 
@@ -492,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8042.jpg" />
 </div>
 
 
@@ -519,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8041.jpg" />
 </div>
 
 
@@ -545,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8040.jpg" />
 </div>
 
 
@@ -571,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8039.jpg" />
 </div>
 
 
@@ -598,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8038.jpg" />
 </div>
 
 
@@ -624,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8037.jpg" />
 </div>
 
 
@@ -650,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8036.jpg" />
 </div>
 
 
@@ -676,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8035.jpg" />
 </div>
 
 
@@ -687,6 +603,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F54BC988F505C59C380CCC5D8BFA92CA00644C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812180   (8033) от 13.08.2025
+
+Дмитрий Парсиев | Профсоюз водителей грузовых драконов. Город Богов. (Книга 2). (2025) [MP3, Антон Родин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы отказался стать богом? Божественность сулит много приятных преимуществ, но это пока не влетишь головой в суровую реальность бытия. Я влетел.
+В чем-то мир богов очень схож с миром людей. А в чем-то отличается, сильно отличается.
+Вот скажем, боги бессмертны. Это здорово, да? Но, как говорят, есть нюанс. Личный дракон - круто, но есть нюанс. Вокруг прекрасные (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцы, детективы, триллерыИздательство: ЛитРесПродолжительность: 09:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A04E621FEAD4191393967920A6DC3519C781A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812185   (8031) от 13.08.2025
+
+Дмитрий Парсиев | История одного эволюционера. (Книга 2). Демон (2024) [MP3, Сергей Ермилов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это только в голливудском сериале горстка отважных американцев пытается выжить в окружении кровожадных орд зомби на протяжении десяти бесконечных сезонов. Наши люди сообразительны, изобретательны и с готовностью объединяются в охоте за ценным ресурсом, дающим опыт и добычу.
+- * - * - * -
+Уже через три месяца после начала зомбокалипсиса уцелели только те зомби, что (   Читать дальше...   )Жанр: Фантастика, боевикИздательство: ЛитРесПродолжительность: 07:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B693086FF371E413C0C1FC7C228039D6B00A1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812169   (8030) от 13.08.2025
+
+Алекс Кош | Вампиры (Книга 1). Если бы я был вампиром (2021) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько случайностей может подкинуть нам жизнь? Много! А какова вероятность того, что проскользнувшая где-то в уголках сознания мысль сможет соединить незримой нитью двух существ: вампира и человека — так похожих внешне и настолько различных внутри? Что произойдет, если они поменяются местами? А вот и не угадали. Вампир, к примеру, пойдет в библиотеку или будет с (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 17:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA952432A5B5B6E25993E68A4B1C6990184CC752
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1336809   (277420) от 08.11.2019
-
-Гийом Мюссо | Тайная жизнь писателей (2019) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рафаэль Батай – начинающий писатель, который никак не может ухватить удачу за хвост. Рукопись его романа «Застенчивые вершины» не привлекает издателей, и он получает один отказ за другим. В поисках вдохновения он отправляется на остров Бомон, чтобы найти там своего кумира – Натана Фаулза, автора трех невероятных романов. Загвоздка лишь в том, что Фаулз много лет (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6ECAEAE082A3D7237B2AA098DFA413791DB658A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082499   (277382) от 13.12.2016
-
-Джонатан Коу | Номер 11 (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Притягательный, загадочный, умный, безжалостно насмешливый новый роман вне всякого сомнения, одного из самых-самых современных писателей. : «Номер 11» вырос из двух любимых многими романов Джонатана Коу – «Дома сна» и «Какое надувательство!». Это не книга, это любовь.
-
-Однажды маленькая Рэйчел гостила у бабушки и увидела странную Птичью Женщину. А в свой следующий (   Читать дальше...   )Жанр: Современная зарубежная литератураПродолжительность: 11:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002BA495F7E52296E4A01E408E43CDAC4D0EC5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082545   (277369) от 13.12.2016
-
-Джозефина Тэй | Исчезновение (2012) [MP3, Алексей Ковалев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Инспектор Скотленд-Ярда Алан Грант всегда с некоторой осторожностью относился к писателям и журналистам, - однако просто не сумел отклонить приглашение Лавинии Фитч в приморскую деревушку, облюбованную лондонской богемой. Увы, очень скоро мирный, хотя и скучноватый отдых прерывается таинственным преступлением... Бесследно исчезает красавец фотограф Лесли Сирл - и (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 10:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434AB7D0D344D67B5483833874821ED6A6B5703F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082568   (277366) от 13.12.2016
 
 Елена Басманова, Дмитрий Вересов | Кот госпожи Брюховец (2013) [MP3, Маргарита Иванова]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277366.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277330.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277256.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277240.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277031.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277026.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276973.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276972.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276955.jpg" />
 </div>
 
 
@@ -321,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276948.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276923.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276875.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276864.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276736.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276729.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276722.jpg" />
 </div>
 
 
@@ -506,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276574.jpg" />
 </div>
 
 
@@ -532,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276570.jpg" />
 </div>
 
 
@@ -558,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276568.jpg" />
 </div>
 
 
@@ -584,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276504.jpg" />
 </div>
 
 
@@ -610,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276448.jpg" />
 </div>
 
 
@@ -636,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276409.jpg" />
 </div>
 
 
@@ -662,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276408.jpg" />
 </div>
 
 
@@ -673,6 +593,84 @@ XIV век. Великий Новгород. Молодые парни, Носо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9082F5F285381372A54CC27E72A4471CB4FB5017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265234   (276404) от 26.11.2018
+
+Фредерик Олссон | Конец цепи (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вильям Сандберг, в прошлом авторитетный военный шифровальщик, переживает глубокий душевный кризис. Его карьера разрушена, брак распался, и он уже не в силах противостоять темной депрессии. Но, оказывается, таланты Вильяма не забыты. Специалиста по сложным кодам похищают агенты могущественной сверхсекретной организации. На него возлагается сложная миссия: расшифровать (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 21:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9447F3ED4FBA48257CD541798464FAC66BB8E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264979   (276367) от 26.11.2018
+
+Сергей Баталов | Разум Богов (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276367.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русские на войне своих не бросают!» – Высокий молодой драк по имени Ар'рахх из племени Хромой Черепахи пока не знает, что такое война, кто такие русские, и почему они никогда не бросают своих. Однако он знает другое – эти слова произнёс его друг, светлокожий пришелец по имени Саш'ша, чел'век со светлой головой и бесстрашным сердцем. Бывший гладиатор, который никогда (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 12:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC25C6F6DF1B6D18FD0616F804027BCB8022013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616578   (276352) от 26.11.2018
+
+Алла Демидова | Владимир Высоцкий. Каким помню и люблю (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоверсия книги «Владимир Высоцкий. Каким помню и люблю», которую Алла Демидова представила в проекте «Однажды в истории». В программе принимает участие Никита Высоцкий. Звучат уникальные и редкие архивные записи из фондов Культурного центра-музея Владимира Высоцкого – фрагменты спектаклей с участием артиста, его песни и стихи.Жанр: Биография, мемуарыПродолжительность: 03:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04269FDD54A3AD67FFC7BB6FDAE5223629ECE5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

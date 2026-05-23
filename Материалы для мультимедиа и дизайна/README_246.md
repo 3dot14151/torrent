@@ -1,29 +1,3 @@
-###  Публикация: 1174809   (382719) от 16.10.2017
-
-Звуковые библиотеки - Loopmasters - Mainstream Hardcore [NKI, WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Gancher and Ruin вернулись с еще одним разрывающим мозг набором сэмплов для поклонников Hardcore музыки и других жестких электронных стилей. Mainstream Hardcore включает фирменные бочки, созданные с нуля, а также набор мелодических лупов.Формат: NKI, WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E0A89F1B54CC7785191E4DB31F7825C94D23C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174849   (382703) от 16.10.2017
 
 Digital Juice - Drag & Drop: Series 2 - Touch of Glass [MOV]
@@ -32,7 +6,7 @@ Digital Juice - Drag & Drop: Series 2 - Touch of Glass [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382703.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Digital Juice - Drag & Drop: Series 2 - Color Leaks [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382531.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Digital Juice - Drag & Drop: Series 2 - Hot Spots [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382373.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380749.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Digital Juice - Juice Drops 56: sideSCROLLERS (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380724.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Digital Juice - Drag & Drop: Series 3 - Crystal Caustics [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380659.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Digital Juice - Drag & Drop: Series 3 - Cloudy Daze [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380658.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Digital Juice - Drag & Drop: Series 3 - Paper Stops [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380657.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Digital Juice - Drag & Drop: Series 3 - Glass Facets [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380656.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Digital Juice - Drag & Drop: Series 2 - Ethereal Thoughts [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380651.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Boom Library - MODERN UI [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380634.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Creative Fabrica - 5000 in 1 - Black Lines Mega Bundle [PNG, JPG, EPS]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380629.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Creative Fabrica - 1500 Graphic Mega Halloween Bundle [PNG, JPG, EPS]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380628.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Digital Juice - Drag & Drop: Series 3 - Spark Sweeps [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380526.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Digital Juice - Drag & Drop: Series 2 - Ragged Edge [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380525.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Digital Juice - Drag & Drop: Series 2 - Fabric Flow [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380524.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Digital Juice - Drag & Drop: Series 3 - Film Burns [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380523.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380467.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Digital Juice - Drag & Drop: Series 2 - Speed Lines [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380363.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Digital Juice - Drag & Drop: Series 3 - Party Time [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380180.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379085.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379009.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Boom Library - MONSTERS & BEASTS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378489.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Boom Library - MECHANICALS DESIGNED [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378488.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Boom Library - CINEMATIC METAL – TITAN [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378479.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Boom Library - CINEMATIC METAL – TITAN [WAV]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7B763F4451F3D73F7E4B633D1BDD08A2EE4C09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175495   (378460) от 18.10.2017
+
+Растровый клипарт - Оверлеи для оформления фотографий и бэкграундов. Часть 1 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник авторских оверлеев для быстрого оформления фотографий, фото-коллажей, создания бэкграундов, а также для оформления открыток, флайеров, постеров, баннеров и другого материала.Формат: PNGРазрешение файлов: 3600x2400, 5184x3456
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93624B6DD1ACF19531B5FA88467F931791FC846
 ```
 
 https://mybot314.ru/tekegram_catalog/

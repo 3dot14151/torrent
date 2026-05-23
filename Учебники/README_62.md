@@ -1,133 +1,3 @@
-###  Публикация: 555166   (433899) от 02.10.2012
-
-Е.И. Несис | Методы математической физики [1977] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге изложен учебный материал по математической теории поля, дифференциальным уравиеииям в частных производных и линейной алгебре в объеме, соответствующем учебной программе по курсу "Методы математической физики" для физико-математических факультетов.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB59508DD16336E26ED8C1B7B586A6BF7D97BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707940   (433398) от 07.10.2013
-
-И.М. Струженцев | Конструкция паровозов (1937) [DjVu]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Обзор старого паровозного парка железных дорог СССР.Формат: DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02805DD81D3D577E02AF755E7F50A958721F4C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707914   (433393) от 07.10.2013
-
-Н.С. Конарев | Большая энциклопедия транспорта. Том 4 (2003) [DjVu]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Энциклопедия "Железнодорожный транспорт" является систематизированным изданием, в котором материал размещен в самостоятельных тематических разделах, расположенных в логической последовательности В ряде случаев для удобства читателей в конце разделов приводятся необходимые термины по излагаемым вопросам.Формат: DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5894CE7D99275AEDE3443BB54258A218E197D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707908   (433390) от 07.10.2013
-
-В.А. Дробинский | Как устроен и работает паровоз (1955) [DjVu]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге в научно-популярной форме описаны принципы устройства и работы современного паровоза; изложена сущность действия пневматических и электротерапевтических тормозов, автостопов, самопишущего скоростемера, радиосвязи с локомотивом; даны основные понятия о современных экипировочных устройствах паровоза, силе тяги, вписывание в кривые участки железнодорожного пути, уравновешивании движущихся частей паровой машины; приведены некоторые сведения о газотурбовозах, паротурбовозах, паровозах с пылеугольным отоплением и другие локомотивы. Книга рассчитана на широкие круги железнодорожников, знакомых с основами физики и химии, а также учащихся старших классов железнодорожных школ.Формат: DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F22A43F7F1EC5E17342C43F80013A461759A186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707816   (433389) от 07.10.2013
-
-Н.С. Конарев | Железнодорожная Энциклопедия (1995) [DjVu]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настоящая энциклопедия по существу - первое многоплановое научно-справочное издание, в котором сделана попытка систематизировать сведения по широкому кругу вопросов, относящихся к железнодорожному транспорту, а также упорядочить терминологию, используемую в различных изданиях.Формат: DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30329A6251CC9D9997365F905DC755910876AF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 707939   (433203) от 07.10.2013
 
 В.И. Ковалева | Системы автоматизации и информационные технологии управления перевозками на железных дорогах (2006) [DjVu]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433203.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433121.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432918.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431459.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431327.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431075.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429595.jpg" />
 </div>
 
 
@@ -322,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429555.jpg" />
 </div>
 
 
@@ -348,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427165.jpg" />
 </div>
 
 
@@ -374,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427155.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426449.jpg" />
 </div>
 
 
@@ -427,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425179.jpg" />
 </div>
 
 
@@ -453,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425164.jpg" />
 </div>
 
 
@@ -479,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424548.jpg" />
 </div>
 
 
@@ -511,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424535.jpg" />
 </div>
 
 
@@ -537,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424355.jpg" />
 </div>
 
 
@@ -568,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423944.jpg" />
 </div>
 
 
@@ -595,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423760.jpg" />
 </div>
 
 
@@ -621,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423756.jpg" />
 </div>
 
 
@@ -647,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421598.jpg" />
 </div>
 
 
@@ -674,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421434.jpg" />
 </div>
 
 
@@ -685,6 +555,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26793B1C7CE08ABB4D256AC72101C7997B4B1496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166941   (421268) от 18.09.2017
+
+Н.С. Москалев и др. | Металлические конструкции, включая сварку (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник отвечает классическим представлениям отечественной инженерной школы о стальных строительных конструкциях.
+В учебнике рассмотрены вопросы и производства сталей и проката, их основные свойства. Рассмотрены работа и расчет элементов конструкций при различных видах загружений. Изложены основы проектирования и расчета строительных металлических конструкций, таких (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70052192CA5531499A67EE233AF81E11A450728F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324608   (420490) от 11.09.2019
+
+В.А. Далингер | Информатика и математика. Решение уравнений и оптимизация в Mathcad и Maple (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник знакомит читателя с возможностями применения популярных сред компьютерной математики Mathcad и Maple в решении ряда задач, возникающих в прикладных исследованиях и учебном процессе (решение скалярных уравнений и их систем, решение рекуррентных соотношений, диофантовых уравнений, решение задач оптимизации).
+В учебнике содержатся краткие теоретические сведения (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC68452D8B2FEFCA7E7ED43BAD3BD1713255978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167241   (419451) от 19.09.2017
+
+И.В. Романовский и др. | Биоорганическая химия (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены теоретические основы органической химии. Рассмотрены механизмы реакций основных классов органических соединений. При интерпретации строения и реакционной способности природных органических соединений широко использованы квантовохимические и стереохимические представления. Особое внимание уделено соединениям и реакциям, имеющим аналоги в клетке и живом организме, (   Читать дальше...   )Жанр: ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB03D63513E4F84BD8405AFB0FBBF8261647E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167513   (417309) от 20.09.2017
+
+В.Х. Осадченко и др. | Фильтры высоких и низких частот (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены процессы интегрирования и дифференцирования напряжений RC-цепями.
+На основе метода комплексных амплитуд получены формулы для комплексного коэффициента передачи для фильтров высоких и низких частот.
+Перед выполнением лабораторных работ производится моделирование процессов интегрирования, дифференцирования и передачи входных напряжений с помощью компьютерных (   Читать дальше...   )Жанр: Электротехника, РадиоэлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BE6F19E7E2EBB216D8EDB62565653F703B2B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167531   (417305) от 20.09.2017
+
+Г.Г. Раннев | Интеллектуальные средства измерений (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417305.jpg" />
+</div>
+
+
+###  Подробнее
+
+В информационно-измерительной технике в связи с удешевлением вычислительных мощностей микропроцессоры проникают на самый нижний уровень - датчики преобразования сигналов. Каждое интеллектуальное устройство (датчик, контроллер, элемент сравнения, аналого-цифровой преобразователь (АЦП), интерфейс) может накапливать, хранить и выдавать информацию о том, где и кем оно (   Читать дальше...   )Жанр: Метрология, приборостроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2A47E9C5EAA740265602464BE810688871DA49
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Intel® Processor Identification Utility 5.40 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152683.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CoolUtils Total Audio Converter 6.1.0.257 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152680.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nitro Pro 14.17.2.29 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152672.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows Repair Toolbox 3.0.2.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152671.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CoolUtils Total Excel Converter 4.1.198 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152663.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PDFsam Basic 4.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152647.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.111 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152622.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152616.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ASCOMP Cleaning Suite Pro 4.006 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152609.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MAGIX Video Pro X13 19.0.1.133 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152601.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ OCCT 12.1.11 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152598.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Autorun Organizer 5.39 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152592.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Opera 82.0.4227.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152590.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AnyDesk 2.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152587.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ OCCT 10.0.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152547.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Privacy Eraser Free 5.31.2 Build 4408 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152535.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Google Chrome 25.0.1359.3 Dev [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152524.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Wise Disk Cleaner 10.9.7.813 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152499.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1115) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152493.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Display Driver Uninstaller 18.0.4.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152490.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ QuickTextPaste 3.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152460.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ CyberLink PowerDirector Ultimate 20.1.2415.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152439.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ HWiNFO 7.16 Build 4650 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152425.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Psiphon 3 build 180 (15.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152407.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Coolutils Total PDF Converter 2.1.226 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152402.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Bandicam 7.0.1.2132 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152400.jpg" />
 </div>
 
 

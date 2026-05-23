@@ -1,82 +1,3 @@
-###  Публикация: 1572543   (421050) от 27.08.2022
-
-Антон Чехов и др. | Классика русского юмористического рассказа. Сатирикон (2012) [MP3, Александр Бордуков и др.]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 20-е годы прошлого столетия в СССР, огромным по тем временам тиражом 60 тысяч экземпляров, издавался сатирический еженедельник журнал "Бегемот". В объявлении о подписке на журнал было сказано: "Журнал выходит в большом формате, по образцу лучших многокрасочных изданий, с участием первоклассных литературных и художественных сил. Всем годовым подписчикам (   Читать дальше...   )Жанр: ЮморПродолжительность: 02:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2507B0A930D1E11EB702B029895425782B6AD868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572610   (421048) от 27.08.2022
-
-Артуро Перес-Реверте | Осада, или Шахматы со смертью (2022) [MP3, Владимир Голицын]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1811-1812 год. Кадис, последний оплот испанцев, сражающихся за свою независимость, осажден французами. Войска Жозефа Бонапарта планомерно обстреливают город, и, странное дело, именно в тех местах, куда попадают снаряды, происходит серия жестоких убийств молодых девушек. Рохелио Тисон, комиссар местной полиции, не отличающийся мягкостью нрава, вместе с Ипполитом Баррулем, (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 25:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1B5EF71ED6F8067DC9C461890EDA54553E4B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572605   (421045) от 27.08.2022
-
-Аркадий и Георгий Вайнеры | Евангелие от палача (Книга 2). Евангелие от палача (2022) [MP3, Владимир Голицын]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В центре романа «Евангелие от палача» – Николай Хваткин, харизматичный антигерой, который ловко плетет убийственные заговоры, но сам находится в плену страха и страстной тяга к женщине, чью жизнь и семью он безжалостно разрушил…
-В 1970-е годы отставной, но еще совсем не старый полковник МГБ Хваткин по-прежнему на коне: престиж, богатство, красивая жена… Времена, (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 21:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D953FE1E1441C54FB3CB538942ECB85AD41C09AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324645   (420985) от 11.09.2019
 
 Глен Кук | Белая Роза (2018) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420985.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420983.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420982.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420964.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420897.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420827.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420825.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_420692.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420662.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420491.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420398.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420392.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420329.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420244.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420228.jpg" />
 </div>
 
 
@@ -484,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420145.jpg" />
 </div>
 
 
@@ -510,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420127.jpg" />
 </div>
 
 
@@ -538,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420099.jpg" />
 </div>
 
 
@@ -564,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420096.jpg" />
 </div>
 
 
@@ -591,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420090.jpg" />
 </div>
 
 
@@ -617,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419996.jpg" />
 </div>
 
 
@@ -643,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419969.jpg" />
 </div>
 
 
@@ -669,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419960.jpg" />
 </div>
 
 
@@ -680,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C67637ED5E4465BBE3B76394491FC2287D678D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167047   (419589) от 19.09.2017
+
+Аркадий Ваксберг | Гибель Буревестника (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему так трагически сложилась жизнь писателя на финальном ее витке, что послужило причиной его гибели -- об этом рассказано в книге А. Ваксберга. Использовано много новых, не известных ранее документов. Объективность историка, логика криминалиста и художественное прозрение помогли воссоздать автору образ "другого" Горького, не похожего на тот, который (   Читать дальше...   )Жанр: ИсторияПродолжительность: 03:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DFDB39B83978A4A3CFD9ECC17F107A290BA563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251283   (419477) от 30.09.2018
+
+Дмитрий Нелин | Охотник на читеров (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока вы играете, я охочусь на самых хитрожопых из вас. Думаете, легко быть охотником на читеров в игре, которая проходит в осознанном сновидении? Конечно! Только мне самому подкачаться надо, да помощницу нуба навязали, а еще в наш мир проник настолько могущественный читер, что у нашего босса подгорает пятая точка, а значит снова пора браться за свой любимый банхаммер! (   Читать дальше...   )Жанр: ЛитРПГПродолжительность: 13:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E72F05E527835F03F04F8B32877A2FBA7510FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572746   (419463) от 28.08.2022
+
+Эдуардо де Филиппо | Риск (1985) [MP3, Лидия Головатая и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль Таллинского Русского Драматического театра по одноименной пьесе итальянского драматурга Эдуардо де Филиппо. Бывший неаполитанец Микеле возвращается из Америки в родную страну. И что же он здесь застает? Разгул мафии? Нет, гораздо хуже! Он попадает в дом своего старого друга Артуро, который каждый день стреляет в свою собственную жену. Из настоящего (   Читать дальше...   )Жанр: Комедия, РадиоспектакльПродолжительность: 00:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B909C2280F34E6F479B9883D6CAE051F47869E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

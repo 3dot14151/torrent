@@ -1,32 +1,3 @@
-###  Публикация: 1532169   (716396) от 18.02.2022
-
-VA - Beatport Chill Electronic: Sound Pack #405 (2022) [MP3|320 Kbps] <Electronic, Chillout, Synth Relaxation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Целительные силы музыки способны пробудить в человеке его скрытый потенциал, который не используется по одной простой причине – для нормальной, привычной жизни этот скрытый потенциал не особенно то и нужен, но становится необходим в том случае, когда обычная жизнь заводит в тупик и обычных усилий преодолеть "подарки судьбы" уже не хватает.001. Maarja Nuut Ja Ruum - Cloths Of Heaven
-002. Cashminus - Paradise
-003. Edvard Hunger - Seems All Is Great
-004. Neutron 9000 - She Trails Flowers(   Читать дальше...   )Жанр: Electronic, Chillout, Synth RelaxationПродолжительность: 08:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8444AE0D86EA29756B98C6DEED399DE8A767A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130317   (716340) от 01.05.2017
 
 VA - Пацаны - Ваще Ребята! Vol.33 (2017) [MP3|192-320 Kbps] <Pop>
@@ -35,7 +6,7 @@ VA - Пацаны - Ваще Ребята! Vol.33 (2017) [MP3|192-320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716340.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Surfer's Disco Waves (2016) [MP3|320 кб/с] <House, Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716141.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Sky Air Trance: Progressive Session (2016) [MP3|320 кб/с] <Progressive T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716140.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Ultimate Summer Trance: SunLight Project (2016) [MP3|320 кб/с] <Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716133.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Chill Vibes (2016) [MP3|320 кб/с] <Deep House, Electro pop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716131.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Vision Of The Future (Compiled by Breeeze) (2016) [MP3|320 кб/с] <House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716037.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Pleasure Country (2016) [MP3|244-320 кб/с] <Blues Rock, Country>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716021.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - ЕвроХит Топ 40 от Европа Плюс - Апрель (2017) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715975.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Tarjolla Tanaan - Rautalankaa (2013) [MP3|320 кб/с] <Instrumental, Guita
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715956.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Spencer Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715950.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Melodious Chill Vol.1 (2018) [MP3|320 Kbps] <Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715843.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ DJ Vlad Kardash - The best (2013) [MP3|320 кб/с]<Dubstep, House, Club.Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715790.jpg" />
 </div>
 
 
@@ -387,7 +358,7 @@ VA - Hot Spring Dance (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715740.jpg" />
 </div>
 
 
@@ -416,7 +387,7 @@ VA - Экспресс русских хитов на Hit FM (5) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715739.jpg" />
 </div>
 
 
@@ -445,7 +416,7 @@ VA - Torment Inside (2018) [MP3|320 Kbps] <Heavy, Power, Death Metall>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715733.jpg" />
 </div>
 
 
@@ -474,7 +445,7 @@ VA - Экспресс русских хитов на Hit FM (6) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715729.jpg" />
 </div>
 
 
@@ -503,7 +474,7 @@ VA - Душевный шансон в хорошей компании (4) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715728.jpg" />
 </div>
 
 
@@ -532,7 +503,7 @@ VA - Душевный шансон в хорошей компании (3) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715727.jpg" />
 </div>
 
 
@@ -561,7 +532,7 @@ VA - Душевный сборник радио Шансон (5) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715632.jpg" />
 </div>
 
 
@@ -590,7 +561,7 @@ VA - Душевный сборник радио Шансон (4) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715630.jpg" />
 </div>
 
 
@@ -619,7 +590,7 @@ VA - Сочный Басс [Sound Clinic - Bass Edition] (2018) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715628.jpg" />
 </div>
 
 
@@ -648,7 +619,7 @@ VA - Душевный сборник радио Шансон (6) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715626.jpg" />
 </div>
 
 
@@ -677,7 +648,7 @@ VA - Душевный сборник радио Шансон (7) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715622.jpg" />
 </div>
 
 
@@ -706,7 +677,7 @@ VA - Душевный сборник радио Шансон (3) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715621.jpg" />
 </div>
 
 
@@ -735,7 +706,7 @@ VA - Back To 90 s’ Eurodance (2018) [MP3|320 Kbps] <Eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715619.jpg" />
 </div>
 
 
@@ -749,6 +720,35 @@ VA - Back To 90 s’ Eurodance (2018) [MP3|320 Kbps] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F8EEED331DC7459AB02DF7735586F6A562B20E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219165   (715605) от 13.04.2018
+
+VA - Jazz With Blues Accent (2018) [MP3|128-320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715605.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carmen McRae - I Only Have Eyes For You (Live)
+002. Renata Ghiso - I'm a Stranger Here Myself
+003. Bobby Short - Heebie Jeebies
+004. Y'Akoto - Come Down To The River(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 08:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3D2B0A81C413E9E70177EF79EEE69E53A35324
 ```
 
 https://mybot314.ru/tekegram_catalog/

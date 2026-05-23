@@ -1,55 +1,3 @@
-###  Публикация: 1495743   (875441) от 15.09.2021
-
-Вуайеристы / The Voyeurs (2021) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Переехав в квартиру своей мечты, Пиппа и Томас замечают, что их окна выходят прямо на квартиру напротив, невольно приглашая их стать свидетелями изменчивых отношений привлекательной пары соседей. Но опрометчивая попытка анонимного вмешательства в чужую жизнь запускает цепь событий, неизбежно ведущих к катастрофе.Производство: США / Divide/Conquer, Amazon StudiosЖанр: триллерРежиссер: Майкл МоханАктеры: Сидни Свини, Наташа Лю Бордиццо, Бен Харди, Джастис Смит, Кэйтлин Александр, Кэтрин Кинг, Мадлен Харви, Дэниэл Гроган, Джиллиан Харрис, Jimmy CaspeurПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 01:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D1D25A91464C41E8D1BFBD0047970AAC5F372B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643196   (875359) от 13.04.2013
-
-Фантомы / Phantoms (1998) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Некая страшная сила, веками дремлющая в недрах земли, однажды пробуждается от сна. Это зловещее Нечто, способное уничтожать целые цивилизации, выбирает себе первую жертву - маленький миролюбивый городок Сноуфилд в штате Колорадо. В одночасье сотни его жителей умирают ужасной смертью, а горстка оставшихся в живых людей, среди которых две девушки, местный шериф со (   Читать дальше...   )Производство: СШАЖанр: Ужасы, фантастика, триллер, драмаРежиссер: Джо Чаппелль/Joe ChappelleАктеры: Бен Аффлек, Питер О’Тул, Роуз МакГоун, Джоэнна Гоуинг, Лив Шрайбер, Никки Кэтт, Клифтон Пауэлл, Рик Отто, Валери Чоу, Адам Нельсон, Джон Хэммил, Джон Скотт Клоф, Майкл ДеЛоренцо, Уильям Хан, Роберт Химбер и др.Перевод: Профессиональный (многоголосный, закадровый)Язык субтитров: Русский, украинскийФормат: DVD5Продолжительность: 01:32:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 643056   (875350) от 13.04.2013
 
 Грешники и святые / Sinners and Saints (2010) DVD5
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875350.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875299.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875288.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875262.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875261.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875247.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875132.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875130.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875126.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875041.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874950.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874946.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874875.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874832.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874813.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874775.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874763.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874753.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874751.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874750.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874701.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874683.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ XX / XX (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874679.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874678.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CA87A4E28F875CB50FC81EEE4776248FBAF54F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496068   (874635) от 16.09.2021
+
+Сакура / Sakura (2020) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в Японии живет счастливая семья с тремя детьми. В семье Хасэгава трое детей. Хадзимэ – старший сын, красив и популярен. Средний Каору – обычный студент университета. Мики – младшая сестра, и она по-настоящему восхищается своим самым старшим братом. А еще есть Сакура, собака семьи, которая всегда рядом с ними. Однажды Хадзимэ попадает в аварию, и у семьи начинаются (   Читать дальше...   )Производство: Япония, Shochiku Co., Ltd.Жанр: ДрамаРежиссер: Хитоси ЯдзакиАктеры: Такуми Китамура, Нана Комацу, Рё Ёсидзава, Синобу Тэрадзима, Масатоси Нагасэ, Кахо Мидзутани, Тамиясу Тё, Масая Като, Юи Кобаяси, Касуми ЯмаяПеревод: Двуголосый любительский (STEPonee)Субтитры: Русские (SubQueens), английскиеПродолжительность: 01:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DC9681A44A757BA423EEB6BA4D8170C5F24EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997370   (874600) от 16.03.2016
+
+Голодные игры: Сойка-пересмешница. Часть II / The Hunger Games: Mockingjay - Part 2 (2015) HDRip [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китнисс Эвердин и своенравный Пит Мелларк пытаются выиграть гражданскую войну между самодержавным Капитолием и истерзанными войной районами Панема…Производство: США, Color Force, Lionsgate, Studio BabelsbergЖанр: Фантастика, ПриключенияРежиссер: Френсис ЛоуренсАктеры: Дженнифер Лоуренс, Джош Хатчерсон, Лиам Хемсворт, Вуди Харрельсон, Дональд Сазерленд, Филип Сеймур Хоффман, Джулианна Мур, Уиллоу Шилдс, Сэм Клафлин, Элизабет БэнксПеревод: Дублированный (Чистый звук)Продолжительность: 02:17:21Реклама: Присутствуют вставки голосовой и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456C40AE3443650F913CB5E4462CEFC0A8BA32C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

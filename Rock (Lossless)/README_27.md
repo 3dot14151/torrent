@@ -6,7 +6,7 @@ Paul McCartney - Grand Collection (1997) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918979.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ David Crosby - For Free (2021) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917498.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Black Mirrors - 1 album, 1 EP (2017-2018) [FLAC|Lossless|image + .cue] <Blues Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917305.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Christoffer Franzen [of Lights & Motion] - 8 Albums (2013-2017) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_917289.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Queen - On Air (2016) 6 CD Deluxe [FLAC|Lossless|tracks + .cue] <Rock, Classic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917199.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ It - Departure (2009) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917036.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ John Ford - Resurrected (The Best Of and Then Some) (2011) [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917020.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ It - Over & Out (2002) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917016.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ The Temperance Movement - White Bear (2016) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917007.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - The 60's Collection (2000) [FLAC|Lossless|tracks + .cue] <Rock&Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916996.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - The Best Rock Ballads... Ever! Volume 2 (2013) 4CD Box Set, Deluxe Edition 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916510.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - The Best Rock Ballads... Ever! (2007) 4CD Box Set, Delux Edition [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916503.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Beardfish - +4626-Comfortzone (2015) Limited Edition 2CD Digipak [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916020.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ The Pineapple Thief - Your Wilderness (2016) [FLAC|Lossless|image + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915921.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Arabs In Aspic - 3 Albums (2010-2015) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915899.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Last Leaf Down - Fake Lights (2014) [FLAC|Lossless|image + .cue] <Shoegaze, Post
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915788.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Marty Friedman - Tokyo Jukebox 2 (2011) [FLAC|Lossless|tracks] <Rock, Heavy Meta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915779.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ ME - Even The Odd Ones Out (2013) [FLAC|Lossless|tracks + .cue] <Alternative, Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915648.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - The 70's Collection (2000) S&V #04/2000 [FLAC|Lossless|tracks + .cue] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915258.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Anathema - Judgement (1999) /2006, Music For Nations/ [FLAC|Lossless]<Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914316.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Syd Barrett - An Introduction to Syd Barrett (2010) Compilation, Remastered [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913884.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Junius - Reports from the Threshold of Death (2011) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913609.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Barock Project - Skyline (2015) 2xCD, Japanese Edition, Reissue, 2021, Belle Ant
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912394.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Saga - Symmetry (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912388.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912007.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ HIM - XX - Two Decades Of Love Metal (2012) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910885.jpg" />
 </div>
 
 

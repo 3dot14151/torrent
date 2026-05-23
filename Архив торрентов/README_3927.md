@@ -6,7 +6,7 @@ R-Studio Network 9.2 Build 191115 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204453.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PhotoDirector - Редактор фото 18.3.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204446.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ExamDiff Pro Master Edition 14.0.1.12 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204434.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Brave Browser 1.57.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204432.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Krita 5.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204428.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MiniTool Power Data Recovery 11.4 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204427.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Auslogics BoostSpeed 13.0.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204415.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Garden Planner 3.8.48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204413.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ PhotoRoom 4.6.6 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204406.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Master of Typing 3 - Practice 15.13.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204396.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sandboxie 5.66.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204394.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ WPS Office-PDF, Word, Excel, PPT v16.8.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204386.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dropzone 4 Pro 4.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204385.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Data Guardian 7 v.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204383.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PhotoRoom 4.6.6 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204379.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NetWorker Pro 8.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204378.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NVIDIA GeForce Desktop Game Ready 528.02 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204376.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Folder Tidy 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204375.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ventoy 1.0.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204373.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204372.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VSDC Video Editor Pro 7.2.2.442 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204369.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ FanControl V168 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204361.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CherryTree 1.0.1.0 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204354.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Outline Client VPN 1.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204353.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Photo Lab PRO v3.12.66 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204347.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ RAR for Android v6.23 build 117 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204346.jpg" />
 </div>
 
 

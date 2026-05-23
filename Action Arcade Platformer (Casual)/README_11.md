@@ -6,7 +6,7 @@ Awesomenauts [En/Multi6) (L/Steam-Rip/1.3) 2012 | R.G. Игроманы
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501955.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Giana Sisters: Dream Runners (2015) [Ru/En] (1.0) Repack R.G. Freedom
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500196.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Red Goddess Inner World (2015) [En/Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499013.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Daydreamer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499010.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Exile's End (2015) [En] (1.0) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498962.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498961.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498124.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Platypus Adventures (2022) [En] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491820.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485592.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Starbound (2016) [Ru/En] (1.4.4) Repack R.G. Alkad
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484446.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Blade Kitten (2010) [En/Multi] (1.0/dlc) RePack Let'sPlay [Re-Release Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483193.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Messenger (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481514.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Dark Matter (2013) [Ru/En/Ge] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471270.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Selma and the Wisp (2016) [Ru/Multi] (1.0/u2/dlc) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461460.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) License GOG [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454301.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Tiny Echo (2017) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454237.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Gateways (2012) [En] (1.15) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450216.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Teslagrad (2015) [Ru/Multi] (1.4.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448822.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Small Tanks [En] (RePack) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445431.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Deadlings: Rotten Edition (2014) [Ru/Multi] (0.0.51) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439558.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Monkey King: Master of the Clouds (2018) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435130.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) Repack R.G. Catalyst [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434626.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432476.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Lost in Play (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431261.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Cut the Rope [Ru/Multi4] (L) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430427.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426282.jpg" />
 </div>
 
 

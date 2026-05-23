@@ -6,7 +6,7 @@ GoldWave 6.36 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285929.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Macrium Reflect v7.2.4524 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285840.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FinePrint 10.05 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285819.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Visual Studio 2019 Enterprise 16.3.6 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285815.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Mailbird Pro 2.5.24.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285760.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adobe Flash Player 31.0.0.153 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285759.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Google Chrome 70.0.3538.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285748.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hosts File Editor+ 1.5.8 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285743.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Unity Pro 2019 2.10f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285676.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ BELOFF [dp] 2019.10.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285671.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Internet Download Manager 6.25 Build 5 Final RePack (& Portable) by D!akov [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285639.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Skype 7.16.0.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285637.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ oCam Screen Recorder 167.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285631.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ oCam Screen Recorder 167.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285629.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Wise JetSearch 2.25.130 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285628.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Punto Switcher 4.1.8 Build 851 Beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285623.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.99.4900 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285585.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ RadioBoss Advanced Edition 5.5.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285580.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Dr.Web Security Space 11.0.3.12051 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285576.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ DLL Suite 9.0.0.13 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285571.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Rowbyte Plexus 3.0.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285562.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Macrium Reflect v 7.2.4523 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285521.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ WizNote 4.2.560 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285479.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285470.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Daum PotPlayer 1.7.5545 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285467.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ CrystalDiskInfo 6.6.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285466.jpg" />
 </div>
 
 

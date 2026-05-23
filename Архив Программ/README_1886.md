@@ -6,7 +6,7 @@ Firefox Browser 71.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165665.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VLC Media Player 3.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165664.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FastStone Capture 9.4 (15.12.2020) Final RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165646.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Video Converter 21.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165644.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Revo Uninstaller Pro 4.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165640.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 108.0.5359.125 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165624.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1387]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165615.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Visual Studio 2022 Enterprise 17.4.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165613.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Stardock Fences 4.0.0.3 (x64) RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165611.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Aiseesoft FoneLab for Android 3.1.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165575.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Topaz Video AI 3.0.7 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165574.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.32.5600 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165529.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ADB AppControl 1.7.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165472.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Winamp 5.9.1 RC4 Build 10027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165467.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Icecream Screen Recorder Pro 7.31 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165454.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Nero Burning ROM 2020 22.0.1008 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165453.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.2364]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165433.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [15.12.2022]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165428.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165423.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165398.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ O&O DiskImage Professional 18.5 Build 340 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165392.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Adobe Photoshop 2020 21.0.2.57 x64 Lite Portable by punsh (with Plugins) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165357.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ n-Track Studio Suite 10.0.0.8158 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165333.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ocenaudio 3.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165311.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Opera GX 72.0.3815.450 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165301.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Pale Moon 32.5.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165286.jpg" />
 </div>
 
 

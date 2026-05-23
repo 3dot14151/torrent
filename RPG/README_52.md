@@ -6,7 +6,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59004.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58946.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58922.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58909.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mato Anomalies (2023) [Multi] (rc3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58884.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58852.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack dixen18 [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58835.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kingsgrave (2024) [Ru/Multi] (1.0.0.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58827.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bloody Spell (2022) [Multi] (20240414/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58739.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.3(4)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58729.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58723.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Tamarak Trail (2024) [Ru/Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58695.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Eclipse: Echo of Dimension (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58623.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Life Eater (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58601.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Crimson Tactics: The Rise of The White Banner (2023) [En] (1.0.0b) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58577.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.21/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58489.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Royal Order (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58452.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58272.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58242.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Scene Rune [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58221.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Repack FitGirl [Game of the Year Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58211.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58192.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License GOG [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58171.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57065.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ the Dwarf (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57043.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Legend of Heroes: Trails of Cold Steel IV (2021) [Multi] (1.2.1/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56731.jpg" />
 </div>
 
 

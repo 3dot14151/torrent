@@ -6,7 +6,7 @@ Majo no Tabitabi OST (2020) [MP3|320 kbps] <2CD OP+ED>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339332.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Azur Lane OST (2019-2020) [MP3|320 kbps] <19CD+OST+OP+ED+Character Song+Audio Dr
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312517.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Shiro Sagisu - Shiro Sagisu Music from "Evangelion 3.0" You Can (Not) Redo (2012
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298461.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Girls` Frontline | Dolls` Frontline | Девушки на линии фронт�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249883.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Fantasy Bishoujo Juniku Ojisan to | В другом мире с мужчиной
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249715.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245100.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220959.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Prima Doll OST (2022) [MP3|320 kbps] <5CD+OP+ED+OST+Character Song>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207334.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Selection Project OST (2021) [MP3|320 kbps] <4CD+OP+ED+OST+Character Song>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147955.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Various - Call Me Tonight (1986) [MP3|320 Kbps] <Boogie, Funk, Pop Rock, Synth-p
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141306.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Mahou Shoujo ni Akogarete | Gushing Over Magical Girls | Восхищаясь д
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108305.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Elfen Lied | Эльфийская песнь (2004) [MP3|320 Kbps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63831.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fairy Tail / Фейри Тейл / Сказка о Хвосте Феи [2009-202
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39335.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Hibi wa Sugiredo Meshi Umashi OST (2025) [MP3|320 kbps] <3CD+OP+ED+Character Son
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11917.jpg" />
 </div>
 
 

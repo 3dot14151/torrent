@@ -1,55 +1,3 @@
-###  Публикация: 1807344   (11101) от 18.07.2025
-
-Ворон / The Crow (1994) BDRip [AV1/1080p] [HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В ночь на Хэллоуин банда отморозков убивает рок-музыканта Эрика Дрейвена и его невесту Шелли. Спустя год Эрик восстаёт из мёртвых, чтобы покарать убийц.Производство: США / Crowvision Inc., Edward R. Pressman Film, Miramax FilmsЖанр: фэнтези, боевик, драма, криминалРежиссер: Алекс ПройасАктеры: Актеры: Брэндон Ли, Майкл Уинкотт, Эрни Хадсон, Рошель Дэвис, Дэвид Патрик Келли, Лоуренс Мейсон, Майкл Масси, Тони Тодд, Бай Лин, София ШинасПеревод: Дублированный, Многоголосый, Двуголосый, Авторский, ОдноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0B16D5E5FC7A7A39BFA49E3DF09BAECCE03057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807306   (11096) от 18.07.2025
-
-Последний шанс / Haru ni Chiru / One Last Bloom (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Спустя сорок лет жизни в Америке Дзинъити наконец возвращается на родину в Японию. Там в одном из баров он случайно сталкивается с Сёго — молодым боксером, чья карьера пошла на спад после несправедливого поражения, которое разбило ему сердце. Этот случай удивительным образом перекликается с личной трагедией самого Дзинъити: несправедливость также стоила ему карьеры. (   Читать дальше...   )Производство: Япония / Gaga CorporationЖанр: спорт, драмаРежиссер: Такахиса ДзэдзэАктеры: Коити Сато, Рюсэй Ёкохама, Канна Хасимото, Рёта Бандо, Цурутаро Катаока, Сё Аикава, Масатака Кубота, Синъитиро Мацуура, Эита Окуно, Юкиёси ОдзаваПеревод: Дублированный (Марафон)Язык озвучки: Русский, японскийСубтитры: английскиеПродолжительность: 02:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D10A7F99174D8BBE67727295F0623F936093C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807352   (11089) от 18.07.2025
 
 Громовержцы* / Thunderbolts* (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11089.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11070.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11067.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11043.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11033.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10980.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10932.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10911.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10909.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10907.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10905.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10902.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10899.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10889.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10882.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10880.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10856.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10844.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10808.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10801.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10795.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10784.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10775.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10774.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:446FF98287D862BE0FC8EB7FFA393F1EA4BE2C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807866   (10770) от 21.07.2025
+
+Дангал / Борьба / Dangal (2016) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10770.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета история бывшего борца Махавира Сингха Пхогата, воспитавшего Гиту Пхогат и Бабиту Кумари, ставших прославленными индийскими женщинами-борцами... Когда-то Махавир Сингх Пхогат был чемпионом Индии по борьбе. По причине бедности он был вынужден бросить спорт, но поклялся воспитать сына, который станет в будущем олимпийским чемпионом. Но вот досада — у (   Читать дальше...   )Производство: Индия / Aamir Khan Productions Ltd., Walt Disney PicturesЖанр: драма, спорт, биографияРежиссер: Нитеш ТивариАктеры: Аамир Кхан, Сакши Танвар, Фатима Сана Шейкх, Санья Мальхотра, Апаршакти Кхурана, Заира Васим, Сухани Бхатнагар, Ритвик Сахоре, Гириш Кулкарни, Анураг Арора, Махеш Балрадж, Виван Бхатена, Анмол Чаран, Бадрул Ислам, ДжагбирПеревод: дублированный (Кинопоиск HD), профессиональный многоголосый (FocusStudio; Honey&Haseena)Язык озвучки: русский, хиндиСубтитры: русские (на песни и полные), английскиеПродолжительность: 02:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11EC4D4C1D4EA7203668920D39E9AF048823013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808158   (10708) от 22.07.2025
+
+Знамение / Knowing (2009) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10708.jpg" />
+</div>
+
+
+###  Подробнее
+
+После вскрытия временной капсулы, в которую в 1959 году группа школьников поместила рисунки со своим видением будущего, в руки к профессору Джону Кестлеру попадает загадочный лист, сверху донизу исписанный цифрами. Расшифровывая его, Кестлер устанавливает связь между цифрами и крупнейшими бедствиями, произошедшими на Земле за последние 50 лет. Если верить цифрам, (   Читать дальше...   )Производство: США, Великобритания, Австралия / Summit Entertainment, Escape Artists, Goldcrest Pictures, Kaplan/Perrone EntertainmentЖанр: Фантастика, триллер, драма, детектив, экранизацияРежиссер: Алекс ПройасАктеры: Николас Кейдж, Чандлер Кентербери, Роуз Бирн, Лаура Робинсон, Надя Таунсенд, Алан Хопгуд, Эдриэнн Пикерин, Даниэль Картер, Алетеа МакГрат, Дэвид РенниПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E875E435B5E2F58CD8DD4EE7CF92DB2F8E7AFD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,110 +1,3 @@
-###  Публикация: 1073238   (346883) от 15.11.2016
-
-LEGO Jurassic World (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Динозавр и человек — два вида, которых разделяют 65 миллионов лет эволюции, — неожиданно столкнутся друг с другом в игре LEGO® Jurassic World™ для Wii U! Приготовьтесь к приключениям, экшену и классическому юмору LEGO, продвигаясь по сюжету, основанному на всех четырех фильмах популярной франшизы.
-
-Играйте в одиночку или объедините силы с другом и снова погрузитесь (   Читать дальше...   )Тип издания: LicenseРазработчик: TT GamesЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F829398EB9010F5F796CB9E0FCDF975DAB46476A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953656   (346370) от 05.11.2015
-
-Rugby World Cup 2015 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в захватывающий мир регби с официальной видеоигрой Rugby World Cup 2015. Выберите одну из 20 команд и участвуйте в престижном турнире. Победите в Чемпионате мира, или создайте свой чемпионат!
-Голоса Стюарта Барнса и Майлса Харрисона перенесут вас на стадион! Вам доступны все движения: толчки руками, ложные пасы, дроп-голы, захваты, короткие пасы, реализации. (   Читать дальше...   )Тип издания: UnofficialРазработчик: HB StudiosЖанр: Sport / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C96DAC0E56E11CCA560F3646E99D4E2A566513C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953897   (346335) от 05.11.2015
-
-The Peanuts Movie: Snoopy's Grand Adventure (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Учавствуйте в грандиозном приключении вместе со Снупи и помогите ему найти Чарли Брауна и всех его друзей. В приключении ему помогут Вудсток и бигль-скауты, позволяя Снупи получать новые способности и выполнять особые приемы. Кооперативный режим: вместе с другом вы можете управлять Снупи и Вудстоком одновременно! Простота и доступность: незатейливое управление, позволяющее (   Читать дальше...   )Тип издания: LicenseРазработчик: Behaviour InteractiveЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C374E7321FC36D9A066ECDB6819BE794DE1983DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418729   (346279) от 25.10.2020
-
-Pumpkin Jack (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.8] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Тыквенный Джек» — это дикая, но симпотишная 3D-игра, в которой вы перевоплощаетесь в Джека, фантастического Повелителя Тыкв! Сюжет игры вращается вокруг нашего героя, которому теперь прямо в канун Хэллоуина предстоит отправиться в длинное и опасное путешествие, в котором его будут ждать сражения, головоломки, испытания, и многое-многое другое, ну а вам же в новые (   Читать дальше...   )Тип издания: LicenseРазработчик: Nicolas MeyssonnierЖанр: Экшн, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780B3D45339F7B3DAAE9B16791A1F622CACCC921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329984   (345295) от 08.10.2019
 
 Iron Man (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -113,7 +6,7 @@ Iron Man (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345295.jpg" />
 </div>
 
 
@@ -139,7 +32,7 @@ Iron Man 2: The Video Game (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345277.jpg" />
 </div>
 
 
@@ -165,7 +58,7 @@ Dance Dance Revolution DDR (2010) [PS3] [USA] 3.55 [CFW] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344128.jpg" />
 </div>
 
 
@@ -191,7 +84,7 @@ The Sims 3 [Wii] [Multi 5] [PAL] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342947.jpg" />
 </div>
 
 
@@ -217,7 +110,7 @@ Superstars V8 Racing (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340999.jpg" />
 </div>
 
 
@@ -243,7 +136,7 @@ Murasaki Baby (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [PSN] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339269.jpg" />
 </div>
 
 
@@ -271,7 +164,7 @@ Borderlands: The Pre-Sequel! [Region Free] [ENG] [LT+3.0] (XGD3 / 16537) (2014) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339189.jpg" />
 </div>
 
 
@@ -301,7 +194,7 @@ PlayStation Vita Pets (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339168.jpg" />
 </div>
 
 
@@ -329,7 +222,7 @@ Just Dance 2018 (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339162.jpg" />
 </div>
 
 
@@ -355,7 +248,7 @@ The Peanuts Movie: Snoopy's Grand Adventure (2015) [Xbox360] [RegionFree] [LT+1.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339122.jpg" />
 </div>
 
 
@@ -381,7 +274,7 @@ Call of Duty: Black Ops 3 (2015) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338844.jpg" />
 </div>
 
 
@@ -407,7 +300,7 @@ Rise of the Guardians: The Video Game [xbox 360] [eng] [Region free] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337279.jpg" />
 </div>
 
 
@@ -437,7 +330,7 @@ Untitled Goose Game (2019) [Switch] [USA] 10.1.0 [NSZ] [License / 1.1.0] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336926.jpg" />
 </div>
 
 
@@ -464,7 +357,7 @@ Devil May Cry 4 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [Repack] [R
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336256.jpg" />
 </div>
 
 
@@ -490,7 +383,7 @@ Borderlands (2009) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334740.jpg" />
 </div>
 
 
@@ -516,7 +409,7 @@ FAR: Lone Sails (2019) [Switch] [EUR] 8.1.0 [NSP] [License] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333231.jpg" />
 </div>
 
 
@@ -542,7 +435,7 @@ DOOM (2017) [Switch] [EUR] 8.1.0 [NSP] [License] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333084.jpg" />
 </div>
 
 
@@ -568,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332852.jpg" />
 </div>
 
 
@@ -594,7 +487,7 @@ ATOM RPG (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.1.73] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331903.jpg" />
 </div>
 
 
@@ -620,7 +513,7 @@ Kung Fu Panda 2: The Videogame (2011) [PS3] [USA] 3.60 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331879.jpg" />
 </div>
 
 
@@ -646,7 +539,7 @@ Wolfenstein (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329958.jpg" />
 </div>
 
 
@@ -672,7 +565,7 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru] | R.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328140.jpg" />
 </div>
 
 
@@ -683,6 +576,111 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru] | R.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B2A001AA0D063880CE2053310BB4A7F9F834329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842460   (327086) от 19.11.2014
+
+Far Cry 4 [Region Free] [Eng] [LT+3.0] (XGD3 / 16537) (2014) [XBox360]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Кират – затерянную среди вершин Гималаев страну с богатыми традициями, мир которому угрожает деспотичный правитель. Ваш герой, Аджай Гейл, прибыл сюда, чтобы исполнить последнюю волю матери, но оказался втянут в гражданскую войну: местные жители пытаются свергнуть самозванца Паган Мина. Отправляйтесь в путешествие по открытому миру, но будьте осторожны: в незнакомой стране с вами может случиться что угодно.
+(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Ubisoft Montréal, Ubisoft Shanghai и Red Storm EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75002991526CFCC86B992D1D3A5CA446E1347E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957502   (326388) от 18.11.2015
+
+Bionic Commando (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военное подразделение, в котором состоял Натан Спенсер, было признано опасным после выполнения своей последней миссии. А самого бойца обвинили в преступлениях и приговорили к смертной казни. И в один роковой день, день казни Натана, некая террористическая группа задействовала в своих целях мощное экспериментальное оружие. После чего в городе Эсеншн-сити (Ascension (   Читать дальше...   )Тип издания: LicenseРазработчик: GRINЖанр: Action / Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0277F2818D1BEFA1E69C83F6DC1486383407D57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 263103   (324144) от 27.11.2010
+
+Kororinpa [WII] [PAL] [Multi 5] (2008)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паззл-игра для консоли Wii, использующая все возможности нового джойстика. Игроки должны добиваться равновесия шариков и проводить их через сложные 3D лабиринты.Необходимо провести шарик по уровню до конца, параллельно собирая бонусы. Наклоны wiimote заставляют наклоняться в соответствующую сторону всё пространство, в котором происходит действие уровня и шарик катится (   Читать дальше...   )Язык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: WBFS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E84A588E35E2E593800E326DFF50C78C3AAA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958459   (323529) от 21.11.2015
+
+Game of Thrones: A Telltale Games Series - Episodes 1-6 (2014) [Xbox360] [RegionFree] [FreeBoot] [XBLA] [Ru] | R.G. X360CLUB
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Game of Thrones: A Telltale Games Series – эпизодическая игра на основе американского драматического телесериала «Игра престолов». Сюжет игры рассказывет о Доме Форрестер во времена Войны Пяти Королей. Если опираться на хронологию TV-сериала, то события игровой саги ведутся от окончания третьего его сезона и до начала пятого.Тип издания: XBLAРазработчик: Telltale GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39CFB98C86E9CA6A4A8FBFD3C68C00798567640
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Clue/Cluedo (2023) [Ru/Multi] (738449/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063340.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tiny Robots: Portal Escape (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060142.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Gruniożerca (Gruniozerca) Trilogy (2025) [Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051279.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Cats Hidden Around the World (2024) [Ru/Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049824.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Book Of Changes / Книга Перемен (2007) [Ru] (1.0.0) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049602.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Abra-Cooking-Dabra (2025) [Ru/Multi] (1.0.13r1) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049073.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Papers, Please (2013) [Ru/Multi] (1.2.72) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041817.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SuDoKu / Судоку (2018) [Ru/Multi] (1.3.0) License [Portable]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039199.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039189.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Dorfromantik (2022) [Ru/Multi] (1.1.5.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029548.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027128.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Neurodeck (2021) [Ru/Multi] (1.2.4) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016638.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Griftlands (2021) [Multi] (1.0) License Fairlight
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012938.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ LEGO Builder's Journey (2021) [Ru/Multi] (1.0) License Fairlight
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009613.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Quantum Conundrum [Ru/En] (Repack/1.0.8623.0/2 DLC) 2012 | R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999527.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999518.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999221.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0) 2012 | Audioslave
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999044.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Indie Game Collection [Ru/En/Multi13] (Repack) 2005 - 2012 | R.G. ILITA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998480.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Crazy Machines 2 Happy New Year Bundle Edition [En] (Add-on/1.06) 2013 | TINYISO
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997381.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Invention Highway / Как решить проблему (200) [Ru] (1.0) Licens
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983145.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Tharsis (2016) [En/Multi] (1.0) License HI2U
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969230.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Armikrog (2015) [Ru/Multi] (1.05) SteamRip Let'sРlay [Deluxe Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969160.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0/2 DLC) 2012 | R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968092.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Disoriented (2016) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954920.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Pixel Puzzles Ultimate (2016) [En] (1.11.0.220) License PROPHET
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953303.jpg" />
 </div>
 
 

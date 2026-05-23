@@ -6,7 +6,7 @@ Adobe After Effects 2020 17.0.1.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168587.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ ThisIsMyFile 3.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168584.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Hard Disk Sentinel PRO 5.61.13 Build 11463 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168580.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Victoria 5.22 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168578.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v13 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168563.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Unreal Commander 3.57 Build 1495 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168557.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168533.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168532.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ UltraUXThemePatcher 4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168521.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Microsoft Activation Scripts (MAS) 2.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168511.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Visual Studio Code 1.52.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168475.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Scrutiny 12 v.12.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168473.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cardhop 2.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168471.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Auslogics Windows Slimmer 3.0.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168443.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Psiphon 3 build 159 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168435.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ FurMark 1.24.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168414.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ DxO ViewPoint 3 v3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168404.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Firefox Browser 95.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168402.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Coming soon 3 v.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168395.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Firefox Browser 91.4.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168391.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Storyist 4 v.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168374.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Blocs 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168358.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ RAR Extractor Max-Unzip Winrar 8.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168357.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Cookie 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168354.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Keep It 1.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168347.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Wattagio 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168342.jpg" />
 </div>
 
 

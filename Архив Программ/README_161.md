@@ -6,7 +6,7 @@ DVDFab 9.0.2.0 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998565.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MiniLyrics 7.5.22 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998564.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998553.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Product Key Explorer 3.2.3.0 RePack [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998548.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ DFX Audio Enhancer 11.108 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998541.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aiseesoft Blu-ray Ripper Platinum 6.3.60.9310 Portable by Invictus [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998526.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Internet Download Manager 6.14.5 Final RePack by KpoJIuK [Русский / Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998499.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Uniblue DriverScanner 2013 4.0.10.0 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998494.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998486.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998447.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ GeoGebra 4.9.90 RC [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998396.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Win7codecs 3.9.5 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998349.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ O&O SafeErase 6 Build 226 Professional [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998335.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ SolveigMM Video Splitter 3.6.1301.10 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998333.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Defraggler 2.12.628 Portable by Baltagy [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998291.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Google Chrome 24.0.1312.52 Stable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998285.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Almeza MultiSet Professional 8.4.7 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998275.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VueScan Pro 9.2.02 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998268.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ HandyCache RC3 1.0.0.409 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998241.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Skype 6.1.0.129 Final + PortableAppZ [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998229.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ FileMenu Tools 6.4.0 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998227.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ XWidget 1.8.0.109 [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998218.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Xmind 3.3.1 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998212.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Skype 6.1.0.129 Final [Multi/Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998199.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Stardock Decor8 1.0 RePack by PainteR [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998190.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Maxidix Wifi Suite 11.11.8 Build 71 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998181.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Dj Бинокль - Housemission II (PlayOff) (2004) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942647.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dj Бинокль - Dnepro House (2001) [MP3|320 Kbps] <House, Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942637.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942627.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Pro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942617.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942542.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940302.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939275.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937425.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937419.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937417.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937411.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937328.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, T
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936406.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934026.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934024.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933811.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Urban Sports Music, Vol. 1 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933810.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Ministry Of Sound: Chilled House Session (2016) [MP3|320 кб/с] <Afro Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932463.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Clinique Sampler, Pt. 230 (2020) [MP3|320 Kbps] <House, Progressive House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932345.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - EDM Big Room Partytime, Vol. 7 (2020) [MP3|320 Kbps] <House, Big Room, Danc
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932343.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Future Punk, Vol. 6 (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932342.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Urban Sports Music, Vol. 2 (2019) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932336.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932249.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932244.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - Urban Sports Music, Vol. 5 (2020) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930797.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - Toolroom Miami 2020 [MP3|320 Kbps] <House, Tech House, Progressive House, D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930681.jpg" />
 </div>
 
 

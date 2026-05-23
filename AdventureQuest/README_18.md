@@ -1,29 +1,3 @@
-###  Публикация: 1002810   (846202) от 01.04.2016
-
-Adam's Venture: Origins (2016) [Ru/Multi] (1.0) License CODEX
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в рискованное путешествие в игре Adam’s Venture: Origins! Действие игры разворачивается в бурные 20-е годы. Вместе с помощницей Эвелин вам предстоит исследовать древние развалины, искать таинственные артефакты, а самое главное - обойти злодейскую компанию Clairvaux.Тип издания: LicenseРазработчик: Vertigo GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8BCEFBC96BAF1E6DFC3B589C99BBB655CBA0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499741   (845817) от 03.10.2021
 
 Dap (2021) [En] (1.0.0) License PLAZA
@@ -32,7 +6,7 @@ Dap (2021) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845817.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Meridian 157 (2019-2021) [Ru/Multi] (1.0.6/1.0.6/1.0.6.0/1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845815.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Heaven's Hope (2016) [En/De] (1.0) License CODEX [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844734.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack Choice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844577.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844363.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Inspector Waffles (2021) [Multi] (1.0.2.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844151.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ LUNA The Shadow Dust (2020) [Graphic] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844114.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Hektor (2015) [En] (1.1.0b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843477.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Swordbreaker: The Game / Мечелом (2015) [Ru/En] (1.0 u1) Repack DARKSiDER
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842622.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.13) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842334.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Monumental (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841283.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Wick (2015) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841270.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Distraint (2015) [Ru/Multi] (03.04.16) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841172.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ BREATHEDGE (2021) [Ru/En] (1.1.0.4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840812.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Children Of Morta (2019) [Ru/Multi] (1.2.74/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837629.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Anna's Quest (2015) [Ru/Multi] (1.1.0214) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836047.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd17) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836035.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Maid of Sker (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836005.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Deponia: The Complete Journey (2014) [Ru/En] (3.3.0155) Repack R.G. Механи
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835783.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Breathedge (2021) [Ru/Multi] (1.1.0.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834751.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Broken Sword: Тень тамплиеров. Расширенное издани
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833399.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ The Magister (2021) [En] (1.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833208.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Statues (2015) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832140.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Mind: Path to Thalamus (2015) [Ru/Multi] (1.0/upd1) License SKIDROW [Enhanced Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832066.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831647.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3E5DE74A6A5E55FF76D4254934C4A838D602A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380705   (830851) от 04.05.2020
+
+The Walking Evil (2020) [Ru/Multi] (1.2) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830851.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Walking Evil переносит вас в великую классику ужасов выживания 90-х, управляя главным героем с помощью фиксированной системы камер, которая усиливает ощущение того, что вы находитесь в настоящем фильме ужасов, или с видом от третьего лица. Столкнитесь с множеством испытаний, головоломок и ужасными врагами, которые заставят вас не тратить пули, прятаться или даже (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616CD452FE323629FA6E63E343007AC59682ABDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

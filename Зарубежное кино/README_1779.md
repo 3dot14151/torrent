@@ -1,55 +1,3 @@
-###  Публикация: 1587224   (193049) от 29.10.2022
-
-Не беспокойся, дорогая / Don't Worry, Darling (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-1950-е. Джек и Элис живут в идеальном корпоративном городке, состоящем сплошь из дизайнерских домов. Пока мужчины работают над секретным проектом «Победа», их жёны занимаются хозяйством, балетом и шопингом — делают всё, чтобы угодить мужьям. Однако со временем Элис начинает подозревать, что компания, в которой трудится Джек, скрывает ужасные тайны.Производство: США / Warner Bros., New Line Cinema, Vertigo Entertainment, New Line ProductionsЖанр: драма, триллер, фантастикаРежиссер: Оливия УайлдАктеры: Флоренс Пью, Гарри Стайлс, Крис Пайн, Оливия Уайлд, Кики Лэйн, Джемма Чан, Ник Кролл, Сидни Чендлер, Кейт Берлант, Азиф АлиПеревод: Дублированный (iTunes)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E1C21FD71A52D71ACC6E305E40A5FD58A802E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587182   (193048) от 29.10.2022
-
-Клетка / Jaula / The Chalk Line (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Семейная пара находит травмированного ребёнка неизвестного происхождения. Жена Паула пытается понять странное поведение девочки и узнать, кто она и что с ней случилось.Производство: Испания / Pokeepsie FilmsЖанр: ужасыРежиссер: Ignacio TatayАктеры: Елена Анайя, Пабло Молинеро, Eva Tennear, Эва Льорач, Карлос Сантос, Эстер Асебо, Элой Асорин, Мона Мартинес, Сония Альмарча, Пау РокаПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: русский, испанскийСубтитры: русские, английские, украинскиеПродолжительность: 1:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3015088A540D69D23E13ECE081F18AB6920A6D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657206   (193024) от 02.09.2023
 
 Понтипул / Pontypool (2008) BDRip [H.264] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193024.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192974.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192952.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192933.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192919.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192916.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192914.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192909.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192892.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192879.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192874.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192871.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192862.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192857.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192856.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192848.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192836.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192834.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192827.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192814.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192808.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192806.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192796.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192764.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F8CF7A16112BE5634BF2742717235108DED9CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587348   (192756) от 30.10.2022
+
+Холодный детектив / San taai daam zin / Detective vs Sleuths (2022) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отстраненный от службы безумный следователь пытается распутать серию загадочных убийств, когда выясняется, что все жертвы — подозреваемые в нераскрытых преступлениях, так называемых «холодных делах».Производство: Гонконг, Китай / Emperor Motion Pictures, Er Dong PicturesЖанр: детектив, криминал, триллерРежиссер: Вай Ка-ФайАктеры: Чин Ван Лау, Чарлин Чой, Рэймонд Лам, Карман Ли, Тань Кай, Карлос Чан, Джина Хо, Кэти Тун, Стефани Че, Кевин ЧуПеревод: Многоголосый любительский (Head Pack Films)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB427898E2139134C40342112BA46E530C6360C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587222   (192752) от 30.10.2022
+
+На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) WEB-DL [H.264/1080p] [UKR, ENG, GER / UKR, EN, GER Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их вырвали из привычной жизни и швырнули в кровавую грязь войны. Когда-то они были юношами, учившимися жить и мыслить, а теперь они — пушечное мясо, которое учится выживать и не думать.Производство: Германия, США, Великобритания / Amusement Park Films, Rocket ScienceSliding, Down Rainbows EntertainmentЖанр: военный, боевик, драма, историяРежиссер: Эдвард БергерАктеры: Даниэль Брюль, Альбрехт Шух, Себастьян Хюльк, Эдин Хасанович, Феликс Каммерер, Антон фон Люк, Девид Штрисов, Люк Фейт, Джо Вайнтрауб, Михаэль ВиттенборнПеревод: дублированный (Netflix)Язык озвучки: украинский, английский, немецкийСубтитры: украинские (forced, full), немецкие (forced, full, SDH), английские (forced, full, SDH)Продолжительность: 02:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E64019BFD1881A39311BD3B0971DC0634D25E80
 ```
 
 https://mybot314.ru/tekegram_catalog/

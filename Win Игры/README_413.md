@@ -1,29 +1,3 @@
-###  Публикация: 1714005   (60445) от 07.04.2024
-
-Handball 17 (2016) [Multi] (1464816) Repack FitGirl
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Handball 17 – это возможность сыграть в профессиональный гандбол, выбрав одну из 80 реальных команд. Максимально приближенный к действительности геймплей позволит почувствовать себя настоящим игроком, частью команды. В игре можно разыгрывать красивые комбинации, использовать многоходовую тактику, наслаждаться поддержкой фанатских трибун. А все действия команды, ее (   Читать дальше...   )Тип издания: RepackРазработчик: Eko SoftwareЖанр: Спортивные игрыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FB9B0F49694A7251780B9FE01B351A88BA6FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713820   (60434) от 07.04.2024
 
 Timeworks (2024) [En] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Timeworks (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60434.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Scene Tenoke [Vanguard Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60428.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.25) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60403.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60396.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60387.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60369.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Barn Finders (2020) [Ru/Multi] (25372/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60350.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mystical Riddles 4: Ghostly Park (2024) [Multi] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60341.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Last Hope Bunker: Zombie Survival (2024) [Ru/Multi] (107) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60321.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ In Stars and Time (2023) [Multi] (1.0.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60303.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60288.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dishwashing Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60272.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60250.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Felvidek (2024) [Multi] (20240405) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60197.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.033s/dlc) Repack Other
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60169.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60165.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Shadow Strikers (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60160.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60158.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Inkbound (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60146.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Paradise Marsh (2022) [Multi] (1.0) Scene Tenoke [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60136.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (20240405) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60089.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ South Park: Snow Day! (2024) [Multi] (70374/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60061.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dark Days (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60041.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60038.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Other s [AD]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60034.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Children of the Sun бросает вас с головой в жестокую 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFC948260D43677A7872C2FD82512474676FD622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715434   (59986) от 12.04.2024
+
+Broken Roads (2024) [Ru/Multi] (1.40.7035) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broken Roads создана командой настоящих энтузиастов классических компьютерных ролевых игр, так что далеко не последнее место в путешествии игроков по австралийским пустошам будет занимать глубокий и захватывающий сюжет. Традиционные элементы здесь сочетаются с инновационными решениями — например, здесь нет классов, что позволяет экспериментировать со способностями (   Читать дальше...   )Тип издания: RepackРазработчик: Drop Bear BytesЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6190E636963F6BF84B2FCED3EA0DCE9D22A9BF4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

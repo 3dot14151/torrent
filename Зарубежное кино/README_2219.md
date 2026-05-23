@@ -1,56 +1,3 @@
-###  Публикация: 1771183   (31905) от 05.01.2025
-
-Охота на короля / King of Killers (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Для каждого наемного убийцы важнее жизни только собственная репутация. Чтобы возвыситься в мире киллеров, группа самых отчаянных и безжалостных из них решила устроить охоту на Дракоса по кличке Король. Отправившись за его головой, они не догадываются, что вскоре сами могут стать добычей и пополнить список побед опаснейшего из убийц.Производство: США, Канада / Alain Moussi Productions, BondIt, Buffalo 8 Productions, Channel 56 FilmsЖанр: боевик, триллер, криминал, детектив, приключенияРежиссер: Кевин ГревьеАктеры: Ален Мусси, Фрэнк Грилло, Стивен Дорфф, Мари Авгеропулос, Шэннон Кук-Чун, Кевин Гревье, Райан Тарран, Жорж Сен-Пьер, Джанни Капальди, Эми ГроунингПеревод: Дублированный (Велес), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4203C3444A3E5126459523091A152D897EC7CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 79442   (31864) от 06.01.2025
-
-Старикам здесь не место / No Country for Old Men (2007) [1080p]  WEB-DL
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Разворачивающаяся в западном Техасе 1980 года история повествует о молодом вьетнамском ветеране, чья попытка сбыть наркотики заканчивается весьма плачевно. Герою приходится уносить ноги с полным чемоданом денег от двух киллеров, желающих вернуть наличные.
-Неподалеку от Рио Гранде охотник случайно натыкается на груду труппов, партию героина и 2 миллиона долларов наличными. (   Читать дальше...   )Жанр: Триллер, драма, криминалРежиссер: Итан Коэн, Джоэл КоэнАктеры: Томми Ли Джонс, Хавьер Бардем, Джош Бролин, Вуди Харрельсон, Стивен Рут, Келли Макдоналд, Джеймс Бролин, Барри Корбин, Бет Грант, Джейсон Дуглас, Мэтью Грир, Тесс Харпер, Брэндон Смит, Крис Уорнер, Ричард Барела, Роджер Бойс, Ричард Джексон, Люс РэйнсСубтитры: SoftSub (SRT)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098F2F4EAFBCEB48B5EDE8E9CCA1FF914B738E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633659   (31862) от 06.01.2025
 
 Последний выстрел / Dead Shot (2023) BDRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31862.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31843.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31809.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31786.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31781.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31780.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31778.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31776.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip 3D [H.
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31770.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31763.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31761.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31760.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31757.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31742.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31720.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31709.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31706.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31684.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31675.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31664.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31658.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31642.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31639.jpg" />
 </div>
 
 
@@ -658,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31637.jpg" />
 </div>
 
 
@@ -669,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E364D5C8A3396A9DC4A44A44DF3685B3429C0BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771866   (31635) от 08.01.2025
+
+Чёрный краб / Svart krabba (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир после апокалипсиса. Шестеро солдат отправляются через ледяную пустыню с секретной миссией — доставить таинственную посылку. Впереди их ждут не только километры льда, но и непредвиденные опасности.Производство: Швеция, INDIOЖанр: фантастика, боевик, триллер, драма, приключения, военныйРежиссер: Адам БергАктеры: Нуми Рапас, Алиетт Офейм, Дар Салим, Якоб Офтебро, Ардалан Эсмаили, Эрик Лонгрен, Cecilia Säverman, Мартин Хендрикс, Илир ЛатифиПеревод: Дублированный (Пифагор, Так Треба Продакшн укр.)Язык озвучки: русский, украинский, шведскийСубтитры: русские (forced, full), украинские  (forced, full), английские (forced, full, SDH), шведские (full, SDH)Продолжительность: 01:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C04F7C9A9C9149149D51F4C526E6D8BBDFCAA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770380   (31628) от 08.01.2025
+
+Нирвана / Nirvana (1997) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31628.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 год. Компания Окосама Старр собирается выпустить к Рождеству новую виртуальную игру Нирвана, в которой возможно всё. Но игра даёт сбои и способна нанести вред разуму и здоровью игроков. Создатель Нирваны Джими решает уничтожить игру. Для этого он сам отправляется в Нирвану за три дня до Рождества...Производство: Италия, Франция / Cecchi Gori Group Tiger Cinematografica, Colorado Film Production, Davis-FilmsЖанр: фантастика, драма, детективРежиссер: Габриэле СальваторесАктеры: Кристофер Ламберт, Диего Абатантуоно, Серджо Рубини, Стефания Рокка, Аманда Сандрелли, Эмманюэль Сенье, Клаудио Бизио, Антонио Катания, Джиджио Алберти, Уго КонтиПеревод: двухголосый профессиональный, авторскийЯзык озвучки: русский, английский, итальянскийСубтитры: русские, английские, итальянскиеПродолжительность: 01:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66BB37D52AF8D9593888FEAEE7E0F8D3FAE766C
 ```
 
 https://mybot314.ru/tekegram_catalog/

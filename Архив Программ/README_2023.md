@@ -6,7 +6,7 @@ AVS Media Player 5.6.4.158 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118836.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Winaero Tweaker 1.60.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118835.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 121.0.6167.161 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118834.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118829.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Capture One 23 Enterprise 16.3.5.1929 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118822.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ReviverSoft PC Reviver 4.0.2.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118815.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Google Chrome 121.0.6167.161 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118812.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FastCopy Pro 5.6.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118810.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ HomeBank 5.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118809.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Wise Disk Cleaner 11.0.8.822 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118805.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Blender 3.6.8 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118801.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Opera One 107.0.5045.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118799.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Wise Duplicate Finder Pro 2.1.1.61 RePack & (Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118798.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Firefox Browser 122.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118791.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ AVS Image Converter 6.0.2.334 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118789.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Vivaldi 6.5.3206.61 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118784.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Minimal Audio - Effect Bundle 2024.02 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118782.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ GeoGebra 6.0.823.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118776.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Wise Disk Cleaner 11.0.7.821 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118768.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ EarthView 7.8.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118760.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Ungoogled Chromium 121.0.6167.139-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118758.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Opera GX 106.0.4998.76 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118757.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sante DICOM Editor 10.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118746.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sante DICOM Viewer Pro 14.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118742.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Hiren’s BootCD PE x64 v1.0.3 (26 January 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118716.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.5 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118712.jpg" />
 </div>
 
 

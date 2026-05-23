@@ -6,7 +6,7 @@ Firemin 6.1.0.4986 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 7.5.0.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669360.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dicter 3.62.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669348.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AdwCleaner 4.205 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669285.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ProgDVB 7.09.2 Professional Edition + Channels [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669274.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Daum PotPlayer 1.6.54266 Stable RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669272.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PicturesToExe Deluxe 9.0.10 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669212.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Skype 7.5.0.101 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669207.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NVIDIA GeForce Desktop 352.84 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669205.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Internet Download Manager 6.23 Build 12 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669198.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ K-Lite Codec Pack Update 16.8.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669186.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Skype 8.82.0.403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669183.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chromium Updater 2016 Release 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669140.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WinTools.net Premium 17.5.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669134.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Bandicam 3.4.1.1256 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669072.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Slimjet 14.0.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669069.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669060.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Bandicam 3.4.1.1256 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669057.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ AVG PC Tuneup 2015 15.0.1001.518 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669031.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Realtek High Definition Audio Driver R2.78 (6.0.1.7512) WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669029.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6721.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669020.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Microsoft Windows 10 Home Insider Preview 10.0.10122 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669014.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Hard Disk Sentinel PRO 6.0.1 Build 12540 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668963.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Internet Download Manager 6.28 Build 11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668948.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Techsmith Snagit 13.1.3 Build 7993 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668947.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Autodesk AutoCAD Plant 3D 2018 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668942.jpg" />
 </div>
 
 

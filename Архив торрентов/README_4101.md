@@ -6,7 +6,7 @@ Adobe Photoshop Lightroom Classic 13.0.1.1 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172923.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics Driver Updater 1.26.0.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172922.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe After Effects 2024 v.24.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172920.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ADB AppControl 1.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172907.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172885.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Path Finder 2161 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172881.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PhotoMill X 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172880.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ KCNcrew Pack 10-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172876.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PhotoSweeper X 4.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172875.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ System Dashboard Pro 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172872.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ EverWeb (Standalone) 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172871.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ High-Logic FontCreator Professional 15.0.0.2941 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172864.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Icecream Video Converter Pro 1.35 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172860.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Text Workflow 1.7  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172859.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Sync Folders Pro 4.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172858.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VueScan Pro 9.8.18 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172856.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172855.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Dropzone 4 Pro v.4.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172852.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ DVD-Cloner 2023 for Mac 10.20.738  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172851.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Path Finder 2162 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172846.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ JetBrains RubyMine for Mac 2023.2.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172844.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Glary Disk Cleaner 5.0.1.297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172837.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Process Lasso Pro 12.4.1.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172832.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Wondershare UniConverter Ultimate 15.0.3.14 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172831.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ n-Track Studio Suite 10.0.0.8038 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172825.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Text Editor Pro 27.8.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172823.jpg" />
 </div>
 
 

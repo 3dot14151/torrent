@@ -1,84 +1,3 @@
-###  Публикация: 349988   (45898) от 23.08.2024
-
-Сигизмунд Кржижановский | Автобиография трупа. Материалы к биографии Горгиса Катафалаки (2008) [MP3, Олег Исаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Архив мировой литературы. Мистические приключения.
-Сигизмунд Доминикович Кржижановский (1887–1950) – русский советский писатель и драматург, философ, историк и теоретик театра. В 1950 году Василий Ян охарактеризовал С.Д. Кржижановского как писателя, чье «присутствие» сделало бы честь любой литературе мира.Жанр: Русская литература, классика, мистика, новелла, повестьИздательство: ООО «АрМир»Продолжительность: 04:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4425E6EDB4468E39F63D92458227DCF5037502E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744863   (45897) от 23.08.2024
-
-Евгений Астахов | Сопряжение (Книга 2). Шериф (2024) [MP3, Владимир Хлопов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Во второй книге герой становится шерифом небольшого городка, и новая служба обещает быть весьма насыщенной и крайне опасной. Но Егерь не собирается оставаться тут надолго, его устремления идут гораздо дальше. А значит, настало время обрастать верной командой и искать союзников. Слушайте продолжение захватывающей истории..Жанр: Боевая фантастикаИздательство: 1С-ПаблишингПродолжительность: 11:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BAF6C8399B55A15A88C46990DF2C2CDE7839FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349975   (45890) от 23.08.2024
-
-Сигизмунд Кржижановский | Возвращение Мюнхгаузена (2008) [MP3, Олег Исаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Архив мировой литературы. Мистические приключения.
-Сигизмунд Доминикович Кржижановский (1887–1950) – русский советский писатель и драматург, философ, историк и теоретик театра.
-Повесть «Возвращение Мюнхгаузена» написана  в 1928 году. Кто не наслышан о невероятных приключениях барона Мюнхгаузена, о его бесстрашии и находчивости, умении «вытаскивать» себя (   Читать дальше...   )Жанр: Русская литература, классика, мистика, повестьПродолжительность: 05:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27426BB32BC9211D292BC42CFD58ED420A2FE142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 350028   (45885) от 23.08.2024
 
 Сигизмунд Кржижановский | Чужая тема (2008) [MP3, Владимир Рыбальченко]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45885.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45866.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45865.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45857.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45828.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45806.jpg" />
 </div>
 
 
@@ -248,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45798.jpg" />
 </div>
 
 
@@ -275,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45777.jpg" />
 </div>
 
 
@@ -303,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45707.jpg" />
 </div>
 
 
@@ -331,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45645.jpg" />
 </div>
 
 
@@ -357,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45588.jpg" />
 </div>
 
 
@@ -383,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45566.jpg" />
 </div>
 
 
@@ -409,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45562.jpg" />
 </div>
 
 
@@ -435,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45557.jpg" />
 </div>
 
 
@@ -461,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45545.jpg" />
 </div>
 
 
@@ -487,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45495.jpg" />
 </div>
 
 
@@ -515,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45488.jpg" />
 </div>
 
 
@@ -543,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45487.jpg" />
 </div>
 
 
@@ -570,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45479.jpg" />
 </div>
 
 
@@ -597,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45476.jpg" />
 </div>
 
 
@@ -623,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45389.jpg" />
 </div>
 
 
@@ -649,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45385.jpg" />
 </div>
 
 
@@ -678,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45353.jpg" />
 </div>
 
 
@@ -689,6 +608,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF0E4BF83E44D97502806866745A414EA32B9F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745914   (45342) от 28.08.2024
+
+Алексей Ермоленков | Недомерок (Книга 4) (2024) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45342.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Недомерок» – роман Алексея Ермоленкова, четверная книга одноименного цикла. И почему я постоянно нахожу приключения там, где их в принципе найти невозможно? Как так вышло, что меня с двумя беременными женами закинуло в… И вот, как отсюда сейчас выбираться?Жанр: Боевое фэнтези, Бояръ-аниме, ПопаданцыИздательство: ИДДКПродолжительность: 07:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4107F0908D963BB8A4E1BD8D3AEB4FCF989EE1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745852   (45333) от 28.08.2024
+
+Алексей Ермоленков | Недомерок (Книга 3) (2024) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45333.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Недомерок» – роман Алексея Ермоленкова, третья книга одноименного цикла,  Наконец-то я вернул достаточно силы, чтобы пробивать путь на изнанку, где я еще не был. А это значит, что пришла пора встретиться с цивилизациями из других миров и расширить сферу влияния ордена Искоренителей скверны.Жанр: Боевое фэнтези, Бояръ-аниме, ПопаданцыИздательство: ИДДКПродолжительность: 07:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15DFCE984D26634E388AB6A197153F4C0AF1557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746079   (45309) от 29.08.2024
+
+Игорь Осипов | Бортовой журнал «Синей птицы» (Книга 1). Княжич (2024) [MP3, Михаил Алексеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда люди поняли, что идея гиперпрыжкового двигателя физически нереализуема, то за помощью в освоении космоса обратились к потусторонним существам. И знаете, что из этого вышло? А вот хотя бы на экипаж «Синей птицы» посмотрите! У них и штатная богиня есть, и эмпат, и искусственный интеллект, и целый княжеский сын. С такой командой скучно не бывает, потому что приключения (   Читать дальше...   )Жанр: Юмористическая фантастика, Космическая фантастикаИздательство: ИДДКПродолжительность: 09:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE214A2DEA953BD0E5346C4D6A1B6489BD724A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

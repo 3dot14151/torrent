@@ -6,7 +6,7 @@ BlueStacks HD App Player 2.0.0.1011 MOD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285082.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SamDrivers 15.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DriverPack Solution 15.12 + Драйвер-Паки 15.12.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285047.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VMware Workstation 12.1.0 build 3272444 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285044.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ XMind 7 Pro 3.6.0.R-201511090408 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285042.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Anti-Porn 20.2.11.2 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285015.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WinSnap 3.5.4 х86 + Portable [Multilang]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284699.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ DesktopOK 4.47 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284634.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284598.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Vivaldi 2.9.1705.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284573.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ SlimBrowser 11.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284554.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Brave Browser 0.55.22 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284492.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ SRWare Iron 55.0.2900.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284463.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ GPU-Z 1.14.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284462.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Display Driver Uninstaller 17.0.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284460.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ GoodSync Enterprise 10.10.11.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284396.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Macrium Reflect v7.2.3858 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284358.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Macrium Reflect v7.2.3858 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284354.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ XYplorer 19.40.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284332.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe Prelude CC 2017 6.0.1 (3) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284287.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Adobe InCopy CC 2017.0 12.0.0.81 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284280.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Tray Radio 13.0.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284277.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ HDCleaner 1.277 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284251.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ UltraUXThemePatcher 3.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284186.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ WinToUSB Technician 4.5 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284181.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ YouTube By Click Premium 2.2.94 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284175.jpg" />
 </div>
 
 

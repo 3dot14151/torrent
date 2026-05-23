@@ -1,55 +1,3 @@
-###  Публикация: 1212899   (774063) от 14.03.2018
-
-Сладкий яд скорпиона / Bruna Surfistinha (2011) Blu-ray [H.264/1080p] [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Девушка Ракель, живущая в семье среднего класса, в свои 17 лет протестует против такого образа жизни, и оставляет свою семью и обучение в традиционном колледже в Сан-Паулу, становясь девушкой по вызову. Поднабравшись "опыта", она создает свой блог в интернете и начинает описывать свои похождения. Блог за короткое время становится сверхпопулярным. Её приглашают (   Читать дальше...   )Производство: Бразилия, Damasco Filmes, Rio Filmes, TeleimageЖанр: Драма, ЭротикаРежиссер: Маркус БальдиниАктеры: Дебора Секку, Кассио Габус Мендес, Дрика Мораэс, Fabiula Nascimento, Кристина Лаго, Гута Руис, Клариссе Абужамра, Luciano Chirolli, Sergio Guize, Симона ИлиескуПеревод: Профессиональный (многоголосый закадровый, НТВ+)Субтитры: РусскиеПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B614C942EA97A569257BAEE269E1020339C6E195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277969   (774018) от 23.01.2019
-
-Человек, который убил Дон Кихота / The Man Who Killed Don Quixote (2018) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Режиссер Тобиас Граммет, мучаясь в Испании над очередным рекламным шедевром, в поисках вдохновения отправился в деревню, где 10 лет назад снимал свой дипломный фильм — про Дон Кихота. И нашел там исполнителя главной роли — спятившего старого сапожника, уверовавшего, что он… и есть настоящий Рыцарь печального образа! Старик принял Тоби за своего верного оруженосца (   Читать дальше...   )Производство: Испания, Бельгия, Франция, Португалия, Великобритания, Alacran Pictures, Tornasol Films, Entre Chien et LoupЖанр: Фэнтези, Драма, Комедия, ПриключенияРежиссер: Терри ГиллиамАктеры: Адам Драйвер, Джонатан Прайс, Стеллан Скарсгард, Ольга Куриленко, Жуана Рибейру, Оскар Хаенада, Джейсон Уоткинс, Серхи Лопес, Хорди Молья, Диого АндрадеПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D47435F344C2C90AFDB2EDE1159EA788A029079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874853   (774016) от 14.03.2018
 
 Хокинг / Hawking (2004) BDRip [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774016.jpg" />
 </div>
 
 
@@ -87,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774012.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774002.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773997.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773973.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773969.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773965.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773954.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773931.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773925.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773910.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773908.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773885.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773880.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773874.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773870.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773841.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773838.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773827.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773822.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773723.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773424.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773062.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773050.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6F211F35CF564A35C020D1D2D5F739D806A017D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124901   (773040) от 13.04.2017
+
+Великолепная семёрка / The Magnificent Seven (2016) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злобный эксплуататор трудового народа нещадно третирует рабочий класс, прикрываясь армией наемников. Местный шериф бездействует и желает всем счастья, хорошего настроения и здоровья. Тогда жители близлежащих спальных районов скидываются и нанимают черного человека для черной работы. Тот, в свою очередь, собирает банду агрессивно настроенных организмов и все вместе (   Читать дальше...   )Производство: США / Columbia Pictures, Escape Artists, LStar CapitalЖанр: Вестерн, Боевик, ПриключенияРежиссер: Антуан ФукуаАктеры: Дензел Вашингтон, Крис Прэтт, Итэн Хоук, Винсент Д`Онофрио, Ли Бён-хон, Мануэль Рульфо, Мартин Сенсмейер, Хейли Беннетт, Питер Сарсгаард, Люк ГраймсПеревод: Дублированный (Blu-ray CEE), авторский одноголосый (Гаврилов/Горчаков/Сербин/Есарев), любительский одноголосый (Solod)Субтитры: Английский (SDH, Full), Русский (Full)Продолжительность: 02:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDFED3D9DA1E407D066D4DCDAF30AEC7DC7AE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213006   (772930) от 15.03.2018
+
+Переговорщик / The Negotiator (1998) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переговорщик — это полицейский, ведущий переговоры с преступниками или террористами, захватившими заложников. Герой картины Дэнни Роумэн — один из лучших «переговорщиков» в Чикаго. Напарник и близкий друг Роумэна сообщает ему, что в Фонде помощи инвалидам, членом правления которого был Дэнни, расхищают деньги, а он знает, кто за этим стоит. Это Терренс Найбаум из (   Читать дальше...   )Производство: Германия, США / Mandeville Films, Monarchy Enterprises B.V., New Regency Pictures, Regency Enterprises, Taurus FilmЖанр: Триллер, Боевик, Криминал, ДетективРежиссер: Ф. Гэри ГрейАктеры: Сэмюэл Л. Джексон, Кевин Спейси, Дэвид Морс, Рон Рифкин, Джон Спенсер, Дж.Т. Уолш, Шаван Фэллон, Пол Джаматти, Реджина Тейлор, Брюс БиттиПеревод: ДублированныйСубтитры: Русские, Английские (SDH)Продолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E529579944CB5FEA3984BA6A3114DF5F82C512DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

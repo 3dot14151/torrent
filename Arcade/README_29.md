@@ -6,7 +6,7 @@ Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377397.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Magnetic: Cage Closed (2015) [Ru/Multi] (1.09-p2/dlc) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374131.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sprill: The Mystery of The Bermuda Triangle / Сприлл: Тайна Берм�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_373304.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Farm Together (2018) [Ru/Multi] (1.0/dlc) License HOODLUM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372251.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ WWE 2K18 (2017) [Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371228.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ AIRHEART - Tales of broken Wings (2018) [Multi] (1.09) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369783.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367620.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alien Breed Trilogy (2010) [Ru/En] (12.10.2015) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367124.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) SteamRip =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366850.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.15/dlc) Repack Other s [Cultist Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365663.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ SEUM: Speedrunners from Hell (2016) [Ru/Multi] (3266/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365557.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Velocity Stream (2015) [En] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365202.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.318) License EMPRESS [Premium Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364519.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364030.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Batman: Arkham Origins Blackgate (2014) [Ru/Multi] (F1-RLS-33278) SteamRip R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363281.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) License EMPRESS [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362186.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361049.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Streets of Rage 4 / Bare Knuckle 4 (2020) [Ru/Multi] (4g-r10450) Repack R.G. М�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359730.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Omensight (2018) [Ru/Multi] (1.04) License CODEX [Definitive Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356016.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ TEKKEN 7 (2017) [Ru/En] (3.30/dlc) Repack xatab [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355008.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Minoria (2019) [Ru/Multi] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353951.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Family Guy: Back to the Multiverse [En] (L) 2012 l SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352093.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mechanic Escape (2014) [En] (1.0/12.11.2016) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351834.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351712.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Omensight (2018) [Ru/Multi] (1.04) Repack R.G. Catalyst [Definitive Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351678.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Abyss Odyssey (2014) [Ru/En] (1.0.8767.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351581.jpg" />
 </div>
 
 

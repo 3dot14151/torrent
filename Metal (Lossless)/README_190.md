@@ -6,7 +6,7 @@ Clouds - Durere (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302425.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Visceral Disgorge - Slithering Evisceration (2019) [WavPack|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301594.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Soilwork - Feverish (2019) Single [FLAC|Lossless|Web-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301589.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Ghost Ship Octavius - Delirium (2018) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301587.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Space Avenue - Voices From The Other Worlds (2006) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301582.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Unleashed - Where No Life Dwells / And the Laughter Has Died... (1991) [FLAC|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301416.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Manimal - Purgatorio (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301294.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ A Dying Planet - Facing The Incurable (2018) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301286.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Dio - Sacred Heart (1985) Japanese Edition [FLAC|image + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301239.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Tarja - From Spirits and Ghosts (Score for a Dark Christmas) (2017) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301184.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alcest - Spiritual Instinct (2019) [FLAC|Lossless|Web-DL|tracks] <Post-Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301156.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Queensryche - Empire  (1990) Remastered, 2000, DCC Compact Classics ‎[FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300965.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Vernissage - Intensiv (1998) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300760.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Valley's Eve - Prodigia (1997) [FLAC|Lossless|image + .cue] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300759.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Versital - A New Millennium (1999) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300756.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Black Reaper - Blood Moon Rising (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299436.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Peshmerga - Murderous Acts of Cruelty (2010) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299134.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Dragon - Horde of Gog + Horda Goga (1989+1990) Remastered, 2008 [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299133.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Revenge - From Hell (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299130.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ For All We Know - For All We Know (2011) [FLAC|Lossless|image + .cue] <Melodic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299129.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ For All We Know - Take Me Home (2017) [FLAC|Lossless|image + .cue] <Melodic Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299124.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Searing Meadow - Corroding From Inside (2005) [WavPack|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299123.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Stravaganzza - Su Historia (2009) 4CD [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299122.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Dysrhythmia - Test of Submission (2012) [FLAC|Lossless|image + .cue] <Instrument
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299121.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Night Verses - Into The Vanishing Light (2016) [FLAC|Lossless|image + .cue] <Exp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299117.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Peer Gunt - Years On The Road (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299116.jpg" />
 </div>
 
 

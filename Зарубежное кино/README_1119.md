@@ -1,55 +1,3 @@
-###  Публикация: 936003   (497433) от 10.09.2015
-
-Старые, добрые парни / The Good Old Boys (1995) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В начале двадцатого века «хороший старый парень», бывалый техасский ковбой Хьюи Кэллоуэй, отправляется в путешествие на помощь брату, ферму которого хотят отобрать. Хьюи — мужчина со старомодным, но невероятно острым чувством справедливости, которому не по нутру лицемерные порядки нового века с его автомобилями и «цивилизованным» обществом. Кэллоуэй прожил свою жизнь, (   Читать дальше...   )Производство: СШАЖанр: Приключения, вестернРежиссер: Томми Ли ДжонсАктеры: Томми Ли Джонс, Терри Кинни, Фрэнсис МакДорманд, Сэм Шепард, Сисси Спейсек, Уилфорд Бримли, Уолтер Олкевич, Мэтт Дэймон, Блэйн Уивер, Брюс МакГиллПеревод: Профессиональный двухголосыйПродолжительность: 01:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDE3023236932ED360E67D46878BE578D000E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936133   (497427) от 10.09.2015
-
-Взрыв / Blast (1997) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Во время олимпийских игр в Атланте террористы во главе с Эндрю Дивоффом захватывают плавательный комплекс и минируют многие другие объекты. В плавательном комплексе случайно оказывается бывший чемпион по боевым искусствам, получивший в свое время травму, пристрастившийся к наркотикам, потерявший жену (тренера по плаванию) и нашедший работу уборщиком. Опытнейший агент (   Читать дальше...   )Производство: СШАЖанр: БоевикРежиссер: Альберт ПьюнАктеры: Линден Эшби, Эндрю Дивофф, Кимберли Уоррен, Рутгер Хауэр, Норберт Вайссер, Тим Томерсон, Юдзи Окумото, Винсент Клин, Соня Эдди, Джилл Пирс, Барбара Робертс, Роберт Леннон, Эрл Уайт, Пол Элиопулос, Джон Х. Эпштейн, Тина Коте, Синтия Айрлэнд, Ховард Платт, Саймон Кларк, Джерри Ректор, Хезер Марч, Элизабет Варела, Шеннон Элизабет, Том МэтьюзПеревод: Профессиональный многоголосыйПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0EB1974F9B75107E843A0F2527C6C9E11B05B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564992   (497424) от 21.07.2022
 
 Затерянный город / The Lost City (2022) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497424.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497422.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497417.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497416.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497408.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497394.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497365.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497355.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497346.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497338.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497336.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497335.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497326.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497323.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497322.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497321.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497320.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497272.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497268.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497261.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497254.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497213.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497209.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497208.jpg" />
 </div>
 
 
@@ -670,6 +618,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26819481BB53C54E3828D7A4E88C9EBDD0F2B0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935763   (497205) от 10.09.2015
+
+Роковая женщина / Femme Fatale (2002) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она — соблазнительная красавица, «роковая женщина». Через семь лет после дерзкого похищения брильянтов, авантюристка мирового класса возвращается в Париж под новым именем.
+Но когда бывший папарацци делает фотографию таинственной красотки для модного скандального журнала, он ставит под угрозу ее жизнь…Производство: Франция, Швейцария / Epsilon Motion Pictures, Quinta CommunicationsЖанр: Триллер, КриминалРежиссер: Брайан Де ПальмаАктеры: Ребекка Ромейн, Антонио Бандерас, Питер Койот, Эрик Эбони, Эдуард Монтут, Рье Расмуссен, Тьерри Фремон, Грегг Генри, Фиона Курзон, Даниэль МильграмПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7F7B78AFC398DA5E48C930EAB3479C0F818A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542947   (497197) от 04.09.2012
+
+Лопе де Вега: Распутник и соблазнитель / Lope (2010) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497197.jpg" />
+</div>
+
+
+###  Подробнее
+
+XVI век, Испания. Одаренный молодой драматург Лопе де Вега возвращается в Мадрид с войны, полный амбиций, стремления жить и писать… Но за душой у него ни гроша, поэтому он вынужден работать переписчиком при более известных авторах. Лопе влюбляется в Елену, восхитительную дочь своего босса. Ее отец, руководящий самой успешной театральной труппой в городе, никогда не одобрил бы такой связи, поэтому Лопе и Елена вынуждены видеться тайком. Но у Елены есть и другая тайна: она уже замужем за другим. Лопе просит возлюбленную рассказать всем об их любви и расторгнуть брак, но получает отказ. Уязвленный, он придает огласке лицемерие Елены и ее отца, а в ответ получает обвинение в клевете. Последний способ уйти от расправы — пуститься в бега.
+
+Единственный, кто готов помочь Лопе в его несчастьях, — его подруга детства Изабелла. Но и у нее есть тайна — она много лет влюблена в Лопе… За время странствий Лопе де Вега, наконец, осознает, кому же в действительности принадлежит его сердце, но судьба преподносит молодому человеку (   Читать дальше...   )Жанр: ДрамаРежиссер: Андруча УэддингтонАктеры: Альберто Эмманн, Леонор Уотлинг, Пилар Лопес де Айяла, Рамон Пуйоль, Антонио де ла Торре, Хуан Диего, Луис Тосар, Антонио Дечент, Селтон Меллу, Мигель Анхель МуньосПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7768C85ABA3CEFC4AD0FA7F9E162697E1B7AFE5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

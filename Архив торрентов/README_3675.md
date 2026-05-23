@@ -6,7 +6,7 @@ Glarysoft Malware Hunter PRO 1.154.0.771 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241379.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rectangle Pro 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241377.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ FastFlix 5.5.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241376.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Swizz Beatz - Hip Hop 50, Vol. 2 (2023) [MP3|192 Kbps] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241368.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ SQLPro Studio 2020.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241366.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ aText 2.36.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241359.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ EarthView 7.7.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241353.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ URL Manager Pro 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241351.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ GPU Caps Viewer 1.60.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241344.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PdfFactory Std & Pro 8.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241341.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Emsisoft Emergency Kit 2022.8.1.11609 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241325.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241320.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ ISO Workshop 11.4 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241318.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 5 - Fontana. Гонка (2017) H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241313.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Auto Highlight 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241310.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ ImageRanger Pro Edition 1.7.1.1527 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241306.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Paste Queue (Multi Clipboard) 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241298.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Framer Studio v88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241295.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ GraphicConverter 11 v11.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241292.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Twixl Publisher Pro 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241290.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Integrity Pro 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241286.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Movavi Video Editor Plus 22.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241276.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ QuickLinks 2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241273.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ JRiver Media Center 30.0.91 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241264.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Apeaksoft DVD Creator for Mac 1.0.36 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241250.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Cookie 6.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241244.jpg" />
 </div>
 
 

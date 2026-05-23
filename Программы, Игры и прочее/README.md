@@ -7,7 +7,7 @@ Rosetta Stone: Изучение языков 9.1.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069255.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rosetta Stone: Изучение языков 9.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066921.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Plus Messenger (Telegram+)  v12.6.4.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065924.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AI Photo Editor Pro - Polish v1.741.254 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065923.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PictureThis - Plant Identification v5.23.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065916.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Remini / Улучшение Фото v3.7.1306.202520571 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065915.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065841.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Photo Studio PRO v2.10.1.4939 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065839.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ LazyMedia Deluxe v3.445 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065800.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NokoPrint - Мобильная печать v5.26.12 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064989.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CYBERPORTAL // X 1.0.5 Mod by STR_BYPASS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064815.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ TuDiziPlay / Просмотр турецких сериалов 1.1.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063989.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CYBERPORTAL // X  1.0.2 Mod by STR_BYPASS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063471.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Rosetta Stone: Изучение языков 9.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062491.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Opera Proxy для Android 3.0.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062309.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Solid Explorer File Manager v3.4.2 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062074.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Grok - ИИ ассистент v1.1.44-release.01 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062073.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ PictureThis - Plant Identification v5.22.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062072.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ OsmAnd+  Карты & GPS Офлайн v5.3.0 Mod by Balatan [Ru/Multi]
 >>Навигация для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062069.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Smart Tools v2.1.17a mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062068.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Vanced Tube v5.5.80.529 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062067.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Remini / Улучшение Фото v3.7.1301.202520225 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062063.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Call Filter / Фильтр Звонков v1.33.8 Mod by FreeSoftware [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062062.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.4 Mod by baalajimaestro  [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061970.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ NewPipe v0.28.4 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061969.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Photo Editor v12.7.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061965.jpg" />
 </div>
 
 

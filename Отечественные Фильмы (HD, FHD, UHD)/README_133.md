@@ -1,81 +1,3 @@
-###  Публикация: 1422073   (30162) от 22.01.2025
-
-Коридор бессмертия (2019) BDRip [H.264/720p-LQ] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вчерашняя ленинградская школьница Маша Яблочкина после лютой блокадной зимы 1941-1942 года приходит на железнодорожные курсы в надежде выжить и набраться сил. Оттуда девушку отправляют на строительство Шлиссельбургской магистрали, соединяющей город с Большой землей и находящейся в прямой видимости немецкой артиллерии. Так героиня попадает в 48-ю паровозную колонну (   Читать дальше...   )Производство: Россия / Студия СтеллаЖанр: драма, военный, историяРежиссер: Федор ПоповАктеры: Артем Алексеев, Анастасия Цибизова, Игорь Ясулович, Артём Мельничук, Александр Яценко, Дарья Екамасова, Анатолий Горячев, Александр Обласов, Светлана Смирнова-Кацагаджиева, Тагир РахимовСубтитры: отсутствуютПродолжительность: 02:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA577B66B0BC352BD7A4DC9EDB8FF7421D04EDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684022   (28852) от 03.02.2025
-
-Свидетель (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Коэн, скрипач-виртуоз из Бельгии, считает себя гражданином мира, верит в добро и справедливость. В конце февраля 2022 г. он приезжает на гастроли в Киев, и эта поездка навсегда меняет его жизнь. События специальной военной операции приводят музыканта в украинский поселок Семидвери, где он становится свидетелем бесчеловечных преступлений и кровавых провокаций. (   Читать дальше...   )Производство: Россия / АП ИнтертейментЖанр: драмаРежиссер: Давид ДадунашвилиАктеры: Карэн Бадалов, Юлия Афанасьева, Александр Дьяченко, Олег Комаров, Серафима Низовская, Дмитрий Блохин, Виктор Раков, Иса Новиков, Марк Румянцев, Василий МичковСубтитры: ОтсутствуютПродолжительность: 02:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E71EB057243A96D7743611C6E380731AFFBCB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776898   (28790) от 03.02.2025
-
-Моя революция (2016) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Артур – тридцатилетний житель мегаполиса с обычными проблемами типа нехватки денег, отсутствия взаимопонимания с бывшей женой, матерью его ребёнка, и самодурства деспота-начальника. Он пишет речи для кандидата в народные избранники и обладателя машины с «мигалкой», прилежно соблюдая известные каждому правила игры в больших и маленьких людей. Но всё меняется, когда (   Читать дальше...   )Производство: Россия | «Эн Джи Продакшн»Жанр: Драма, приключения, триллерРежиссер: Александр КарпиловскийАктеры: Иван Жидков, Игорь Миркурбанов, Владимир Епифанцев, Елизавета Саксина, Макс Уральский, Анна Носатова, Клим Бердинский, Ирина Рындина, Максим Сапрыкин, Елена МорозоваСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A653BDE3A13187BE1AE21681A0B590A41BF847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777019   (28706) от 04.02.2025
 
 Кровные братья / Старики (2010) WEBRip [H.264/1080p]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28706.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28689.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28655.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28483.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28357.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28083.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27997.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27901.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27898.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27776.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27673.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27649.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27592.jpg" />
 </div>
 
 
@@ -423,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27569.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27478.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27252.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27236.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26959.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26958.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26953.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26861.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26855.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26750.jpg" />
 </div>
 
 
@@ -669,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9725739A46EECF8424DFE56F9716400963FD2A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781195   (26639) от 24.02.2025
+
+Финист. Первый богатырь (2024) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финист Ясный Сокол — самый удалой богатырь Белогорья, самый сильный, самый ловкий и самый красивый. Все остальные богатыри на него равняются, дети хотят быть на него похожими, а девушки — просто заглядываются. Он горделив и самоуверен, и порой даже отказывается от подвигов, если считает их скучными и неинтересными. Но ему просто необходимо оставаться лучшим, чтобы (   Читать дальше...   )Производство: Россия / Телеканал «Россия 1», START, Yellow, Black & WhiteЖанр: приключения, фэнтезиРежиссер: Дмитрий ДьяченкоАктеры: Кирилл Зайцев, Юлия Пересильд, Елена Яковлева, Фёдор Добронравов, Сергей Лавыгин, Кристина Строителева, Федор Гамалея, Софья Зайка, Артем Гайдуков, Павел ПрилучныйПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE03CD1332CD5779044450B679C24B8ECA8CF15C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597093   (26625) от 24.02.2025
+
+Звёзды мне укажут путь (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александрина живёт вместе с мамой в маленьком провинциальном городке и мечтает стать музыкантом, как и ее папа - Гена, который давно не живет с семьёй: трудности семейной жизни отпугнули его и он «сбежал», чтобы посвятить себя музыке, но успех прошёл мимо него, как и семейное счастье. Гена в одиночестве скитается по прибрежным городкам, играет на гитаре и поёт на (   Читать дальше...   )Производство: Россия, ООО «Продюсерский центр «Молодёжные инициативы», Кинокомпания «СКАZКА»Жанр: Семейный, музыка, мелодрамаРежиссер: Филипп АбрютинАктеры: Елизавета Бугулова, Иван Соловьев, Алёна Чехова, Анастасия Абаджиди, Светлана Глинка, Евгений Журавкин, Ирина Демидкина, Анатолий Бобер, Андрей БронниковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEA38676F953342612A025F41F928260CF13ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781402   (26126) от 01.03.2025
+
+Финист. Первый богатырь (2024) WEBRip [H.264/2160p] [4K, SDR, 8-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финист Ясный Сокол — самый удалой богатырь Белогорья, самый сильный, самый ловкий и самый красивый. Все остальные богатыри на него равняются, дети хотят быть на него похожими, а девушки — просто заглядываются. Он горделив и самоуверен, и порой даже отказывается от подвигов, если считает их скучными и неинтересными. Но ему просто необходимо оставаться лучшим, чтобы (   Читать дальше...   )Производство: Россия / Телеканал «Россия 1», START, Yellow, Black & WhiteЖанр: приключения, фэнтезиРежиссер: Дмитрий ДьяченкоАктеры: Кирилл Зайцев, Юлия Пересильд, Елена Яковлева, Фёдор Добронравов, Сергей Лавыгин, Кристина Строителева, Федор Гамалея, Софья Зайка, Артем Гайдуков, Павел ПрилучныйПеревод: не требуетсяСубтитры: русские (SDH)Продолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8E223AAD247939D64811DF3DC68A511A4AD3B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

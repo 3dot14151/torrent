@@ -6,7 +6,7 @@ Buck Clayton & Buddy Tate - Buck & Buddy (1960) 1992, Original Jazz Classics[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292215.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Budd Johnson And The Four Brass Giants (1960) 1999, Original Jazz Classics [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291813.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kat Green - Until You (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291740.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Little G. Weevil - Something Poppin' (2017) [MP3|320 Kbps] <Blues, R&B>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291731.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Duke Ellington - Moonlight Fiesta (1936 - 1953) 3CD, 2011, Le Chant du Monde [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291730.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Waso - Live In Laren (1980) 1992, Polydor [FLAC|Lossless|tracks + .cue] <Gypsy, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291676.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Max Roach & Abdullah Ibrahim - Streams Of Consciousness 1977 (2003) Piadrum Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291675.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gene Ammons - Up Tight! (1961) 1994, Prestige [APE|Lossless|image + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291591.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ralph Sharon Trio - The Magic Of George Gershwin (2000) Avid Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291585.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Casiopea - Platinum (1987) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291582.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Casiopea - Euphony (1988) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291576.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Detonics - Raise Your Bet (2018) [MP3|320 Kbps] <West Coast Blues, Swing>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291544.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mark Murphy - Links (2001) HighNote[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291491.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lil' Son Jackson - The Complete Imperial Recordings (1995) [MP3|320 кб/с]<Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291488.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sonny Terry - Whoopin' the Blues: The Capitol Recordings, 1947-1950 (1995) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291487.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Modern Blues Rock Ballads (2015) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291260.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Jazz Streets Smooth Jazzy Pleasures (2015) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291151.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Zoot Sims & Al Cohn - Zoot Case (1982) 1991, Sonet Records[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290447.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Coltrane - A Love Supreme. In Concert (1961, 1965) 1991, Suisa[APE|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290417.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Thelonious Monk - Criss-Cross (1963) 1993, Columbia[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290416.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dave Hole - The Live One (2003) Live [APE|Lossless|image + .cue] <Blues Rock, Mo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290410.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ray Charles & Betty Carter - Just You Just Me (1991) Traditional Line[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290341.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Aynsley Lister - Eyes Wide Open (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290239.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Optimystica Orchestra - Всё, что делает река (2016) Live [MP3|32
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290138.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290116.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Chico Freeman - The Emissary (1996) Clarity Recordings [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290115.jpg" />
 </div>
 
 

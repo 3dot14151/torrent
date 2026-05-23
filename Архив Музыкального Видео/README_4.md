@@ -6,7 +6,7 @@ DJ Rhiannon - All The Girls Do It (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509763.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wisin & Yandel ft. Chris Brown ft. T-Pain - Algo Me Gusta De Ti (2012) [H.264/10
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509754.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ATB - Authentic Reaction (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509744.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DJ E-MaxX - Like It Sexy (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509742.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sonya Dance - In The Dark (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509682.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509497.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bijue - All The Stars (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506738.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kat DeLuna - Wanna See You Dance (La La La) (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506730.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Karie feat Cabron & Legalize - Esenta de rom (Uncensored) (2012) [H.264/1080р] 
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506589.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505437.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Audio Girls feat. Батишта - Игра (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503862.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Klangkarussell - Sonnentanz (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503851.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Deepside Deejays - Look Into My Eyes (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503807.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Out of Blackout - Let Bygones Be Bygones (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503795.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Linkin Park - Lost In The Echo (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499353.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Quiet Riot - Live At M3 Rock Festival (2012) HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498118.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Hien. Who Matters (2012) [H.264/720р] HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497708.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Christopher S feat. Nalaya - Let You Go (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497631.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Remady & Manu-L Feat. Amanda Wilson. Doing It Right (2012)[H.264/1080р] HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497546.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Roxette. It's Possible (2012) [H.264/1080р] HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497313.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497125.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Alexander Brown feat. Szhirley - Sidste Gang (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494043.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Fabio XB & Wach vs Roman Sokolovsky - Eternal (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494034.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ DJ Sergey Fisun - Aura (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493903.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ ARMIA - Follow your feeling (Vina del Mar Festival Sensation!) (2012) [H.264/720
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493732.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Papa Roach - Still Swingin (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493600.jpg" />
 </div>
 
 

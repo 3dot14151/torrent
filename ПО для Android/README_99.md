@@ -1,56 +1,3 @@
-###  Публикация: 1601351   (137111) от 31.12.2022
-
-eWeather HD - weather app v8.7.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-eWeather HDF - это точный прогноз погоды от двух метеоагенств, домашняя метеостанция и барометр.
-Уникальные виджеты погоды на экране телефона имеют более 50-ти тем оформления на выбор, включающие виды Санкт-Петербурга, Москвы, Парижа, римские и арабские часы на экране и т.д. Виджет часы показывает время будильника и текущее время на домашнем экране телефона как в (   Читать дальше...   )Тип издания: Pro / Mod ExtraРелиз состоялся: 23.12.2022Разработчик: Elecont softwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6F020230DCA32D5FB705A6B47E78DDDE72D80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824702   (136968) от 15.10.2025
-
-Smart AudioBook Player Pro v11.5.5 Mod by Kirlif' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: ProРелиз состоялся: 15.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8A6B878F69429636337F2E0E8AEE426F34302A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824705   (136967) от 15.10.2025
 
 Smart AudioBook Player Pro v11.5.5 Mod by Balatan [Ru/Multi]
@@ -59,7 +6,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136967.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136966.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ Node Video - Pro Video Editor 6.9.1 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135264.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ Seal 1.11.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135231.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ AI Translate Voice Translator (Talkao) v388.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135141.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ VPN Russia - VPN сервера в России 1.184 Mod by FreeApkexe [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135042.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ PhotoRoom 4.7.5 (b1178) Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135003.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ PhotoDirector - Редактор фото 18.7.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134929.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ FX Player Pro 3.7.2 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134814.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ Smart Launcher 6.3 build 036 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134807.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ Square Home Launcher 3.0.5 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134787.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ VIP Notes 9.9.77 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134513.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ PhotoRoom 4.7.5 (b1174) Lite-Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134322.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134155.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ V Recorder - Запись видео с экрана 7.1.1 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134133.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ FBReader Premium v3.5.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134065.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133888.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ Mobizen Screen Recorder 3.10.0.31 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133825.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ Shazam (шазам) 14.3.1-231120 Lite-Mod by inqvizitor [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133763.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ Music Folder Player Full 3.1.31 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133727.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ PROTO - симулятор схем v1.25.0 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133564.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133058.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ Moon+ Reader Pro v8.6 (build 806004) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132972.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ Photo Lab PRO v3.12.80 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132671.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:204B0CDF5299B509F0A17D0007ABEC7ADB2C6909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681432   (132637) от 03.12.2023
+
+Psiphon Pro 390 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon Pro дает вам беспрецедентный доступ к вашим любимым новостным передачам или платформам социальных сетей. По своей природе Psiphon Pro также защищает вас при доступе к точкам доступа Wi-Fi, создавая безопасный частный туннель между вами и Интернетом. Psiphon Pro — лучший инструмент VPN для доступа ко всему в Интернете.Тип издания: ProРазработчик: Psiphon Inc.Поддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D62E0B469E32B9026CB8564BF099036B732EF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681513   (132624) от 03.12.2023
+
+Аудиокниги онлайн v1.64 Free [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой каталог аудиокниг разделенный по категориям, с возможностью их скачивания. Для работы возможно понадобится VPN.Тип издания: FreeРелиз состоялся: 02.12.2023Разработчик: Центр разработкиПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F9E2A0517EDF7359684818ADC37CB6CB3F5FEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

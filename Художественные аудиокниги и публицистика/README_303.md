@@ -1,82 +1,3 @@
-###  Публикация: 1387874   (790678) от 03.06.2020
-
-Алла Демченко | Вопреки всему (2020) [MP3, Юрий Белик]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Странные дела творятся в медицинском колледже. В подвале завелось привидение, которое до смерти пугает ночных дежурных, и те отказываются работать. Марк Казанцев, новый директор колледжа, бывший военный, в привидения не верит и вместе с преподавателем Маргаритой Пикузой начинает собственное расследование. Правда, есть одна проблема – Маргарита воспринимает Марка (   Читать дальше...   )Жанр: Современные детективы, Мистика,Продолжительность: 08:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544FFAECB97E66B5ABB69F5FE5E7E60271C452E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387753   (790580) от 03.06.2020
-
-Борис Акунин | Просто Маса (Книга 1) (2020) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Произведение Акунина, которое посвящено Японии и приключениям помощника Эраста Фандорина Масахиро Сибаты. Вот как описал свое новое произведение сам автор:
-""Просто Маса" – это Масахиро Сибата один, без Фандорина. Осиротевший помощник великого сыщика возвращается в родную Японию, которая очень сильно изменилась за время странствий своего блудного сына (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B6059551871935A86D8254615675634930D30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202093   (790461) от 28.01.2018
-
-Андрей Столяров | Маленькая Луна (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман о предназначении, которое превращает жизнь человека в судьбу. Ученый пытается лабораторным путем открыть тайну живого и подходит к границе, за которой начинается Мрак… И вот – восходит Маленькая Луна, предвещающая безумие, спадает завеса, скрывающая изнанку реальности, распахиваются тайные двери: в мир просачивается воплощение темного инобытия… В контраст этому (   Читать дальше...   )Жанр: Научная фантастика, ТриллерПродолжительность: 11:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17D6309B683DBF2C1532331B20847B65B69357D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202129   (790406) от 28.01.2018
 
 Джеймс Дэшнер | Лекарство от смерти (2018) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790406.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790364.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790362.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790358.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790357.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790352.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790347.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790304.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790278.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790213.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790211.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790208.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790089.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790076.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790068.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790063.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790051.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790028.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790005.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789906.jpg" />
 </div>
 
 
@@ -609,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789901.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789888.jpg" />
 </div>
 
 
@@ -661,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789887.jpg" />
 </div>
 
 
@@ -672,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9893242C73F016EFFE0A858B63E3936DCC60A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202456   (789882) от 29.01.2018
+
+Елена Кароль | Песец библиотечный, подвид кровожадный (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убежать из дома от ненавистного жениха лишь с верным вороном-фамильяром на плече? Легко! Сменить пол, чтобы запутать следы? Уже не просто, но вполне возможно. Спрятаться от преследователей в надежных стенах Академии Крови? Безумно, но выполнимо. Очаровать загадочного ректора-инкуба с темным прошлым и обрести в его лице надежную защиту? Почему бы и… да!Жанр: Романтическое фэнтези, Детективное фэнтезиПродолжительность: 12:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF40ADDA8F369AA799AC71BD4CD239BADC1CF04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202434   (789828) от 29.01.2018
+
+Юрий Москаленко | Нас не догонишь… (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789828.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире очень неспокойно. Мир на пороге большой войны. Созданный тобой Орден, с трудом отбивается от многочисленных недоброжелателей, а ты.. Ты, наконец, нашел убежище, но оно не гарантирует тебе спокойную жизнь. Тебя по-прежнему ищут сильные мира сего, за тобой по-прежнему идет охота. И наступает время расставания с твоим последним защитником…Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 32:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BCAB94E000ED058FB294AAF703F57F4D3FF7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511061   (789802) от 19.11.2021
+
+Николай Брест | Враг или брат? (2018) [MP3, Павел Русский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть основана на реальных событиях. Главный герой повести «Враг или брат» - снайпер ополченцев ДНР с позывным «Угрюмый». Это отважный воин с солидным боевым опытом. Ему противостоит молодой, но умелый и амбициозный снайпер ВСУ. Кто победит в этой беспощадной схватке на Донбассе? Что несёт братоубийственная война? К чему ведёт жестокость и есть ли место милосердию (   Читать дальше...   )Жанр: Военная драмаПродолжительность: 02:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B55A92D74FD5B31B363696589E01542FE6749DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

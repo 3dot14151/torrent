@@ -1,31 +1,3 @@
-###  Публикация: 1264905   (276070) от 26.11.2018
-
-eJay Dance 6 Reloaded [De]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ejay Dance возвращается! Программное обеспечение, которое вдохновило болельщиков со всего мира теперь даже лучше, чем когда-либо.
-У Ejay Dance 6 reloaded это получается: не имеет значения, вы настоящий музыкант или вы просто хотите развлечься, создавая классные треки.
-И это еще не все: в 3D VJ Box вы можете создать видеоклипы с визуальными эффектами для вашей музыки (   Читать дальше...   )Язык интерфейса: Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEA6F019F84D2A0D877AD022F258CFF940DFE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501141   (258411) от 25.05.2012
 
 [Оболочки, Скины] Скины для AIMP
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258411.jpg" />
 </div>
 
 
@@ -63,7 +35,7 @@ Crescendo Music Notation Editor 9.62 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208308.jpg" />
 </div>
 
 
@@ -91,7 +63,7 @@ Everyone Piano 2.5.9.4 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190871.jpg" />
 </div>
 
 
@@ -118,7 +90,7 @@ IVONA voices 2 v.1.6.76 + Speech2Go v.1.128 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147892.jpg" />
 </div>
 
 
@@ -144,7 +116,7 @@ StemRoller 2.0.3 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122220.jpg" />
 </div>
 
 
@@ -171,7 +143,7 @@ Fakin The Funk 5.4.0.158 (х64) Portable by Spirit Summer [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120520.jpg" />
 </div>
 
 
@@ -197,7 +169,7 @@ RadioBOSS Advanced 7.0.2.0 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60379.jpg" />
 </div>
 
 
@@ -224,7 +196,7 @@ NonVisual Desktop Access (NVDA) 2024.2 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51298.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ Fakin The Funk 6.0.0.162 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47763.jpg" />
 </div>
 
 
@@ -279,7 +251,7 @@ MediaMonkey Gold 5.0.5.2695 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35584.jpg" />
 </div>
 
 
@@ -305,7 +277,7 @@ Nucleer Coffee - My Music Collection 2.3.14.156 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28716.jpg" />
 </div>
 
 
@@ -331,7 +303,7 @@ TagScanner 6.1.20 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10658.jpg" />
 </div>
 
 
@@ -357,7 +329,7 @@ Neuratron Photoscore Ultimate 6.1.0 Retail [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10128.jpg" />
 </div>
 
 
@@ -385,7 +357,7 @@ MuseScore 4.5.2 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6468.jpg" />
 </div>
 
 
@@ -411,7 +383,7 @@ Music Collection 3.9.3.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6026.jpg" />
 </div>
 
 

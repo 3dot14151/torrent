@@ -6,7 +6,7 @@ The Bat! Voyager 9.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736115.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kerish Doctor 2020 4.80 [DC 21.07.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736108.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows 10 Manager 3.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736080.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hetman Partition Recovery 3.1 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736075.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BELOFF [dp] 2020.07.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736074.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ EaseUS Data Recovery Wizard Technician 13.5 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735989.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735947.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ CrystalDiskInfo 8.15.0 Beta1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735842.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ UltraUXThemePatcher 4.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735807.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ KiCad 6.0.1 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735799.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windows 10 Manager 3.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735797.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Vit Registry Fix Pro 14.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735785.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WinRAR 6.10 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735762.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ reaConverter Pro 7.592 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735701.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Auslogics BoostSpeed Pro 11.5.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735628.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ AIMP 4.70 build 2224 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735588.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Zemana AntiMalware Premium 3.2.15 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735546.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ IObit Driver Booster Pro 7.6.0.766 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735545.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ KRT CLUB ATB 3.1.0.29 v5.5 RePack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735498.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Sandboxie 5.55.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735383.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Firefox Browser 91.5.1 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735381.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ RegCool 1.309 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735377.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ HDCleaner 2.016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735375.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ GeoGebra 6.0.686.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735374.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.19 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735364.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ ApowerREC 1.5.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735357.jpg" />
 </div>
 
 

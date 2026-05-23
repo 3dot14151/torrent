@@ -6,7 +6,7 @@ VA - Embedded Audio EA presents: Best Of 2017 (Mixed by Sebastian Montano) (2018
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801143.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Atragun - Younity (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801139.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Silk Music Pres. Trance Treasures 09 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801137.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Ferry Corsten presents:Corstenas Countdown March (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800651.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Trance In Space 5 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800644.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dawid Jurzyk - Mysterious Forest (2017)Single [MP3|320 Kbps] <Progressive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800488.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Suanda Music Year Mix 2018 (Mixed by Roman Messer) (2018) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799894.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - The Best Of Suanda Base 2018: Mixed by Michael Milov (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799404.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799259.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Global DJ Broadcast Top 20 April (2016) [MP3|320 кб/с] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797665.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Pro
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797537.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797534.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797532.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797007.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Tech-Trance Essentials Vol. 1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797003.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796998.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796993.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ The Digital Blonde - N3ON (2021) [MP3|320 Kbps] <Trance, Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796860.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796450.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796410.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Markus Schulz - Watch The World (2016) [MP3|320 кб/с] <Trance, Progressive Ho
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796357.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795054.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Clubbers Culture: Trancefields 003 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795021.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795002.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Dark Uplifting Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794979.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Damian Wasse - Music Colours (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794978.jpg" />
 </div>
 
 

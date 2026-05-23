@@ -6,7 +6,7 @@ Togu Audio Line - TAL-J-8 1.6.6 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036431.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036427.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Registry Cleaner Pro 10.9.2.709 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036426.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Free Hex Editor Neo 7.25.02.8467 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036424.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Topaz Photo AI 1.2.3 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036420.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ K-Lite Codec Pack Update 17.4.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1036418.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Hex Editor Neo Ultimate 7.25.02.8467 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036413.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ MediaHuman YouTube Downloader 3.9.9.80 (2802) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036412.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VueScan Pro 9.7.98 (01.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1036409.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.1.4  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036407.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ EZ CD Audio Converter 10.3.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1036405.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Sumatra PDF 3.5.15330 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036404.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Audacity 3.2.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1036401.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Wise Registry Cleaner Pro 10.9.2.709 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036400.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Hornil StylePix 3.0.3.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036399.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Microsoft PowerToys 0.68.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1036397.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Topaz Video AI 3.1.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036396.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Adobe Illustrator 2023 27.3.1.629 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1036381.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ IObit Driver Booster Pro 10.3.0.124 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036376.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Office 2013-2021 C2R Install + Lite 7.6 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1036371.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Tempomate 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036363.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Battery Charging Alert 3.00 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036360.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Adobe InCopy 2021 v16.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036359.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Adobe Prelude 2020 v9.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036354.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Kanata.t - Haruka (2021) [MP3|320 Kbps] <Trance, Progressive House,>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036342.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036336.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Opera One 100.0.4815.30 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234181.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows Update Viewer 0.5.14.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234177.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FanControl V157 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234173.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Typora for Mac 1.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234171.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WinTools.net 23.5.1 Classic / Professional / Premium RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234168.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Opera GX 98.0.4759.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234167.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AnyMP4 Data Recovery 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234166.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Pale Moon 32.2.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234164.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ doPDF 11.8.404 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234161.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cisdem Video Converter 7.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234159.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Folder-Factory 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234145.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Aiseesoft Mac Data Recovery 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234131.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Revo Uninstaller Pro 5.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234130.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ FX Player Pro 3.6.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234124.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ PDFCreator 5.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234123.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Pro Microphone: Audio Recorder 1.4.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234121.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Bulk Image Downloader 6.24.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234109.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Maxthon Browser 7.0.2.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234107.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Professional Recorder & Editor 6.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234105.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1605) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234097.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ CCleaner 6.04.10044  Free / Professional / Business / Technician Edition RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234091.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Capture One 23 Pro 16.2.0.112 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234084.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ EZ CD Audio Converter 11.0.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234078.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Xliff Editor 2.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234071.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ DxO PhotoLab 6 ELITE Edition 6.6.0 (build 50) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234070.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Node Video - Pro Video Editor 6.3.0 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234068.jpg" />
 </div>
 
 

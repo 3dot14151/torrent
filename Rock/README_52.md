@@ -6,7 +6,7 @@ VA - Season Of The Witch (2011) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493040.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492441.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Discover More Classic Rock (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491177.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Uriah Heep - Sweet Freedom (Live) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490679.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pikku-Orava - 3 Альбома (2006-2007) [MP3|320 kbps] <Comedy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490640.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Joe Macre - The Dream Is Free (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490439.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Shroud of Bereavement - A Beautiful Winter (2022) [MP3|320 Kbps] <Epic Doom, Neo
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490436.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Cosmos - Mind Games (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489315.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Pink Floyd - Transmissions + 1969 (2020) Unofficial Release, 2xCD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489254.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Cravinkel - Garden Of Loneliness (1971) Reissue, 2003, Walhalla [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488133.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Cravinkel - Cravinkel (1970) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488007.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486250.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Buck Dharma - BD Archive 3CD (2000) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485368.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Stabbing Westward - 4 альбома (1994-2001) [MP3|320 кб/с]<Industrial Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484753.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Suspension Solar - Crisis del Arte (2022) [MP3|320 Kbps] <Progressive Rock, Cros
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484615.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Black Country Communion - Black Country (2010) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483046.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sting - Discography (1985-2010) [MP3|320 kbps]<Rock / Soft-rock / Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482534.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Three Colours Dark - The Science Of Goodbye (2020) [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481631.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ David Gilmour - Rattle That Lock (2015) Deluxe Edition [MP3|320 кб/с]<Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481415.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Marc Bolan - Tramp King Of The City (2018) [MP3|320 Kbps] <Glam Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479929.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Chris Norman - Crossover (2015) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479556.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Desperate Rock'n'Roll (20CD Set) (2000) [MP3|320 кб/с]<Rock & Roll, Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478222.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Zdob si Zdub - 20 de Veri (2015) [MP3|320 кб/с]<Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477673.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ The Walkabouts - Satisfied Mind (1993) [MP3|160-320 кб/с]<Indie rock, Alterna
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476911.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Full Trunk - Time For Us To Move (2015) [MP3|320 кб/с]<Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475997.jpg" />
 </div>
 
 
@@ -773,7 +773,7 @@ Mick Rogers - Sharabang (2013) [MP3|320 Kbps] <Pop Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475348.jpg" />
 </div>
 
 

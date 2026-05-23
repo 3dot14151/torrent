@@ -1,55 +1,3 @@
-###  Публикация: 1824170   (128901) от 15.10.2025
-
-Дэнни Цепной пес / Unleashed (2005) BDRip [H.264/1080p] [Unrated] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Дэнни постоянно ходит в ошейнике, ест и спит в ошейнике, практически круглые сутки проводит в ошейнике. Именно так воспитал его Барт, гангстер из Глазго, который не брезгует никакими методами для достижения поставленных целей. Когда ему длительное время не отдают долг, у Барта лопается терпение и тогда он снимает с Дэнни ошейник. Именно в такие мгновения Дэнни превращается (   Читать дальше...   )Производство: Франция, Великобритания, США / Europa Corp. / Canal +Жанр: боевик, триллер, криминалРежиссер: Луи ЛетерьеАктеры: Джет Ли, Морган Фриман, Боб Хоскинс, Керри Кондон, Винсент Риган, Дилан Браун, Тамер Хассан, Майкл Дженн, Филлида Ло, Кэрол Энн УилсонПеревод: Многоголосый профессиональный (MVO Superbit)Язык озвучки: Русский, узбекскийСубтитры: Русские, английскиеПродолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA4BB72A7ED6069F887D2F46E757285AAFC95B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824476   (128890) от 15.10.2025
-
-Гадкая сестра / The Ugly Stepsister / Den stygge stesosteren (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Женщина с двумя дочерьми выходит замуж за богатого, как она думала, вдовца, но после его внезапной смерти оказывается в ещё больших долгах. Её старшая дочь Эльвира, некрасивая сводная сестра прекрасной Агнес, мечтает выйти замуж за принца и готова на многое, чтобы стать красавицей и блистать на грядущем балу. Рассматривая это как выгодное вложение средств, мать отправляет (   Читать дальше...   )Производство: Норвегия, Дания, Румыния, Польша, Швеция / Lava Films, Mer Film, Motor, Scanbox Entertainment, Zentropa International SwedenЖанр: драма, фэнтези, комедияРежиссер: Эмили БлихфельдтАктеры: Леа Мюрен, Теа Софье Лок Несс, Ане Даль Торп, Фло, Исак Калмрот, Мальте Гордингер, Ральф Карлссон, Исак Аспберг, Альбен Вайденблад, Оксана ЧеркашинаПеревод: Дублированный (Велес), двуголосый  (UAFlix)Язык озвучки: Русский, Украинский, НорвежскийСубтитры: Русские, Украинские (Forced), Английские, Французские и др.Продолжительность: 01:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CFCCDFBB888F819ECB0A90843A3152E15729B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 892780   (128880) от 15.10.2025
 
 Скафандр и бабочка / Le Scaphandre et le papillon / The Diving Bell and the Butterfly (2007) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128880.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128868.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128855.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128819.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128817.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128801.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128770.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128762.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128757.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128753.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128747.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128740.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128739.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128728.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128723.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128713.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128648.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128645.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128644.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128600.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128591.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128588.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128585.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128523.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5727441A9D44C0A7BCC4AECB1A9515ED9C2ABDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683463   (128519) от 11.12.2023
+
+Наша рождественская фреска / Our Christmas Mural (2023) WEB-DLRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оливия — талантливый арт-куратор, живущая в Нью-Йорке со своим сыном Паркером, которого воспитывает самостоятельно после смерти мужа Тома. Получив известие от своего босса о том, что ее должность может быть сокращена в следующем году, Оливия решает уехать из города и отправляется на каникулы навестить своих родителей Бетти и Мак в свой родной город Велингтон.Производство: Канада, США / MarVista Entertainment, Neshama EntertainmentЖанр: мелодрамаРежиссер: Тара ДжонсАктеры: Алекс Пэкстон-Бизли, Дэн Джиннотт, Кэтлин Лэски, Нил Кроун, Вигго Ханвельт, Тристан Д. Лалла, Сара Бут, Philippe Martel, Susan Elizabeth Brown, Gina LandryПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AB2B884CB98D2CA1F7A784F8A5711E1D67BFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683528   (128518) от 11.12.2023
+
+Кукловод / Кукольник / The Puppetman (2023) WEB-DLRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Микаэла была маленькой, её отец убил мать, но при этом утверждал, что невиновен и некая сила заставила его это сделать. Прошли годы, Микаэла учится в колледже и собирается с компанией друзей отметить начало каникул, когда вдруг узнаёт, что её соседка по комнате рассказала остальным, что Микаэла страдает лунатизмом. Девушка злится на подругу, и та внезапно прыгает (   Читать дальше...   )Производство: США / Not the Funeral HomeЖанр: ужасыРежиссер: Брэндон КристенсенАктеры: Алисон Горске, Энджел Пратер, Кио Кир, Камерон Вонг, Анна Телфер, Майкл Паре, Кэрин Ричман, Natalie Meetze, Закари Ле Вей, Кэтрин ШнайдерПеревод: Многоголосый профессиональный (Синема УС, ViruseProject, Андрей Дольский)Язык озвучки: Русский, АнглийскийСубтитры: Русский, Английские (Full, SDH)Продолжительность: 01:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D97AF665A2DC0E30627AEBAFDE153CA58396958
 ```
 
 https://mybot314.ru/tekegram_catalog/

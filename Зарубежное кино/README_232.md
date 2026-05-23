@@ -1,59 +1,3 @@
-###  Публикация: 606664   (995033) от 21.01.2013
-
-Великий Мерлин / Merlin (1998) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В стародавние времена никто не удивлялся чудесам, а волшебники, маги феи и драконы жили рядом с людьми. Но когда люди поверили в единого бога, колдунов и волшебниц стали забывать.
-
-Тогда королева тьмы Мэб с помощью злого короля Вортингера и злой феи Морганы решила сделать волшебника Мерлина вождем темных сил. А Мерлин хотел воспитать короля Артура, построить золотой замок Камелот и найти священный грааль, который избавит мир от страданий.
-
-На помощь ему собрались благородные рыцари. Коварная Мэб наслала на Мерлина огнедышащего дракона отняла у него прекрасную Нимуэ…Жанр: Фэнтези, Драма, ПриключенияРежиссер: Стив БэрронАктеры: Сэм Нил, Хелена Бонем Картер, Джон Гилгуд, Рутгер Хауэр, Джеймс Эрл Джонс, Миранда Ричардсон, Изабелла Росселлини, Мартин Шорт, Пол Каррен, Лина Хиди ...Перевод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 02:19:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606129   (995009) от 21.01.2013
-
-Воры / The Thieves (2012) [720p] BDRip
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Интернациональная команда воров экстра-класса планирует грандиозное ограбление в Макао. Все участники банды — опытные профессионалы, бывали в переделках и способны эффективно работать в самых опасных и стрессовых условиях. Однако, несмотря на то, что все роли в безупречном плане преступления четко определены, многие из участников расклада совсем не собираются довольствоваться своей долей и коварно намереваются умыкнуть весь куш. К тому же один из них — полицейский «под прикрытием»…Жанр: Криминал, ТриллерРежиссер: Чхве Дон ХунАктеры: Ким Юн Сок, И Чон Чжэ, О Дар Су, Саймон Ям, Чон Чи Хён, Ким Хэ Сук, Анжелика Ли, Ким Хё СуПеревод: Одноголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 02:15:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605326   (994993) от 21.01.2013
 
 Бункер (Темная сторона) / La cara oculta (The Hidden Face) (2011) DVD5
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994993.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994985.jpg" />
 </div>
 
 
@@ -114,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994984.jpg" />
 </div>
 
 
@@ -140,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994776.jpg" />
 </div>
 
 
@@ -166,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994713.jpg" />
 </div>
 
 
@@ -194,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994682.jpg" />
 </div>
 
 
@@ -220,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994640.jpg" />
 </div>
 
 
@@ -246,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994611.jpg" />
 </div>
 
 
@@ -272,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994602.jpg" />
 </div>
 
 
@@ -298,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994487.jpg" />
 </div>
 
 
@@ -326,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994424.jpg" />
 </div>
 
 
@@ -352,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994388.jpg" />
 </div>
 
 
@@ -378,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994371.jpg" />
 </div>
 
 
@@ -404,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994344.jpg" />
 </div>
 
 
@@ -432,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994341.jpg" />
 </div>
 
 
@@ -458,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994188.jpg" />
 </div>
 
 
@@ -484,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994155.jpg" />
 </div>
 
 
@@ -512,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994115.jpg" />
 </div>
 
 
@@ -538,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994085.jpg" />
 </div>
 
 
@@ -567,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993970.jpg" />
 </div>
 
 
@@ -594,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993955.jpg" />
 </div>
 
 
@@ -620,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993881.jpg" />
 </div>
 
 
@@ -646,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993879.jpg" />
 </div>
 
 
@@ -673,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993862.jpg" />
 </div>
 
 
@@ -684,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B06A40697B63F55CA64EF8AAB10656BB7EA85ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607737   (993840) от 24.01.2013
+
+Судья Дредд 3D / Dredd (2012) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее не столь красочно и великолепно, каким его представляют современные люди. Через несколько столетий человечество окажется на грани самоуничтожения, захлёбываясь в кровавых преступлениях, смертельных грехах и беспорядочных убийствах. Старую систему правосудия будет невозможно использовать — анархия, всеобщие беспорядки вынуждают ещё сохранившуюся власть, тем не менее, потерявшую всякий авторитет и легитимность, пойти на отчаянные крайние меры и ввести институт Судей — универсальных полицейских, правоприменителей, а по совместительству — и прокуроров, которые упростили бы весь процесс задержания, следствия и судебных тяжб, совмещая в одном лице все должности блюстителей и защитников правопорядка.Жанр: Фантастика, Боевик, КриминалРежиссер: Пит ТрэвисПродюсер: Алекс Гарленд, Эндрю МакДональд, Аллон РичАктеры: Карл Урбан, Оливия Тирлби, Лина Хиди, Вуд Харрис, Рэйчел Вуд, Андил Мнгади, Портес Ксандо Стинкамп, Джейсон Коуп, Эмма Бреши, Рэки АйолаПеревод: ДублированныйПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3F826833D13FAC596EBD0FF27BC8B8A877FC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 89954   (993571) от 02.01.2012
+
+Престиж / Prestige, The (2006) [HQ-VIDEO] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руперт и Альфред - фокусники-иллюзионисты, которые на рубеже XIX и XX веков соперничали друг с другом в Лондоне. С годами их дружеская конкуренция на профессиональной почве перерастает в настоящую войну. Они готовы на все, чтобы выведать друг у друга секреты фантастических трюков и сорвать их исполнение. Но вскоре непримиримая вражда, вспыхнувшая между ними, начинает (   Читать дальше...   )Режиссер: Кристофер Нолан /Christopher Nolan/Актеры: Хью Джекман /Hugh Jackman/, Кристиан Бэйл /Christian Bale/, Майкл Кейн /Michael Caine/, Дэвид Боуи /David Bowie/, Скарлетт Йоханссон /Scarlett Johansson/, Энди Серкис /Andy Serkis/Перевод: Русский дублированный + Oригинальная английская дорожкаПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

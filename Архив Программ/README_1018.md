@@ -6,7 +6,7 @@ Skype 7.8.0.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529613.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Calibre 3.6.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529563.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tipard All Music Converter 9.2.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529558.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ KMSAuto Lite 1.3.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529532.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ uTorrent 3.5.4 Build 44508 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529531.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 44.0.2403.155 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529520.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SolveigMM Video Splitter 5.0.1508.11 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529519.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mozilla Firefox 40.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529518.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ R-Studio 7.7 Build 159562 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529516.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Microsoft Malicious Software Removal Tool 5.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529505.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529502.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Internet Download Manager 6.28 Build 17 Final RePack by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529476.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Driver Easy Pro 5.5.2.18358 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529472.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ HD Tune Pro 5.70 Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529466.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Mozilla Firefox 40.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529460.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ uTorrent 3.4.3 Build 40907 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529458.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ uTorrent Pro 3.4.3 Build 40907 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529448.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Office Tab Enterprise 10.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529443.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ CyberLink MakeupDirector Deluxe 2.0.1827.62005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529410.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ UltraISO Premium Edition 9.7.0.3476 DC 01.08.2017 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529409.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Internet Download Manager 6.28 Build 17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529402.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ FilmConvert Pro 2.32 for After Effects and Premiere Pro [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529393.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ uTorrent Pro 3.4.3 Build 40907 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529391.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ PassMark BurnInTest Pro 8.1 Build 1008 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529388.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Sandboxie 5.01.7 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529384.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ TeamViewer 10.0.45862 Free | Corporate | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529383.jpg" />
 </div>
 
 

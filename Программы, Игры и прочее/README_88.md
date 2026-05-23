@@ -1,55 +1,3 @@
-###  Публикация: 1623325   (243216) от 01.04.2023
-
-Joy Walls - 4k Wallpapers App v1.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Joy Walls стремится предоставить вам уникальные обои 4K, которые удовлетворят ваши потребности в настройке! Получите максимум от своего телефона с красивыми обоями качества 4K, которые заставят ваш домашний экран выглядеть потрясающе. Все обои доступны в 3 различных цветовых вариациях. Так что вы можете выбрать тот, который вам нравится. Произведения создаются с (   Читать дальше...   )Тип издания: ModРелиз состоялся: 19.03.2023Разработчик: YoGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482A88C9783167930F03E8369DA762FF12697484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496171   (242768) от 10.04.2022
-
-160+ Звуки животных v10.1 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Звуки животных. Cвыше 160 звуков и съемок самых популярных на свете животных. Играйте в игры и открывайте для себя звуки и изображения животных. Можете ли вы назвать имена и звуки животных? Вы знаете животных со всего мира? Удивительные образы и звуки животных развлекают вас дома, в машине, в зале ожидания и во многих других местах.Тип издания: Пиратка (открыт Pro)Релиз состоялся: 10.02.2022Разработчик: Premium SoftwareПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED51B7A0E40E907EDF06C33356007665CE9BDF06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568670   (242666) от 09.08.2022
 
 Gismeteo Lite 1.1.6 Mod by artpen, Grisha180288, Digika [Ru/Multi]
@@ -58,7 +6,7 @@ Gismeteo Lite 1.1.6 Mod by artpen, Grisha180288, Digika [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242666.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Camera Pro 3.4.0 Mod by vitaxa978 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242560.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242224.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ GPS Waypoints Navigator v9.24 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241889.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241882.jpg" />
 </div>
 
 
@@ -194,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241609.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ Hollow Knight 1.0 (Unofficial port) Mod by Dan Cooper [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241529.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ FullReader - читалка всех форматов книг v4.3.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241262.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ ReVanced YouTube Music 5.17.51 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240089.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ CamSam PLUS v3.7.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239625.jpg" />
 </div>
 
 
@@ -326,7 +274,7 @@ Learn English - 6000 Essential Words 4.1.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238896.jpg" />
 </div>
 
 
@@ -354,7 +302,7 @@ AntiBAG Тахограф 2.0.108 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238863.jpg" />
 </div>
 
 
@@ -380,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238528.jpg" />
 </div>
 
 
@@ -406,7 +354,7 @@ Garmin: City Navigator North America NT 2023.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238023.jpg" />
 </div>
 
 
@@ -432,7 +380,7 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237744.jpg" />
 </div>
 
 
@@ -459,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237718.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237700.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ Colorfy PLUS - Coloring Book v3.19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237508.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ Volume Panel 21.23 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237121.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ English Grammar & Phonetics v7.6.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237071.jpg" />
 </div>
 
 
@@ -590,7 +538,7 @@ ZaZa Remote v4.8.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237045.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ Radio Alarm Clock + 5.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236676.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236642.jpg" />
 </div>
 
 
@@ -670,7 +618,7 @@ Car Radio Reloaded 1.45.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236636.jpg" />
 </div>
 
 
@@ -681,6 +629,59 @@ Car Radio Reloaded 1.45.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575042   (236484) от 08.09.2022
+
+Compass Level & GPS 2.4.13 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте точный встроенный компас, уровень и GPS в одном приложении. Если вы любите собирать мебель сами или просто хотите ровно повесить полку - это приложение вам поможет. Если вам нравится спортивное ориентирование - с нашим приложением вы никогда не собьётесь с дороги! Наше приложение очень точное и всегда пригодится - попробуйте сами!
+Совет: для большей точности (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 6 сент. 2022 г.Разработчик: LemonClipПоддерживаемая ОС: Android: 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA6DAA51B82239074A5ED690B5BB9B5CEA8F45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575398   (236254) от 09.09.2022
+
+Webcams 2.0.17 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236254.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью приложения Веб-камер EarthCam вы можете путешествовать по всему миру, посещая живописные и знаковые места с помощью нашей уникальной сети потокового hd-видео и мегапиксельных камер. Исследуйте Зал славы, чтобы насладиться лучшими архивами изображений, представленными посетителями EarthCam.com и поделиться своими избранными через Facebook, Twitter, Instagram, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17 мая 2022 г.Разработчик: EarthCam, Inc.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BE4115E98123333E90F4B633BA460C054AA768
 ```
 
 https://mybot314.ru/tekegram_catalog/

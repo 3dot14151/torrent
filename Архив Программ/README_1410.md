@@ -6,7 +6,7 @@ XMedia Recode 3.2.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321620.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer 3.0.31 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321587.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mp3tag 2.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321576.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Wondershare Filmora 10.0.0.94 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321545.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Media Player Classic Home Cinema 1.9.8 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321544.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ASAP Utilities for Excel 7.8 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321538.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Ashampoo Burning Studio 16.0.0.25 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321508.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ QupZilla 1.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321503.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WinTools.net Premium 17.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321443.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Blumentals Surfblocker 5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321440.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Windows 10 1909 (18363.1139) x64 Home + Pro + Enterprise (3in1) by Brux v.10.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321424.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Total Commander 9.51 Podarok Edition + Lite [Ru/Uk]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321421.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MAGIX Vegas Pro 18.0 Build 373 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321410.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Wise Program Uninstaller 2.2.7.122 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321396.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Waterfox 56.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321389.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Waterfox 56.2.5 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321385.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ USDownloader 1.3.5.9 (22.11.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321377.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ DFX Audio Enhancer 12.013 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321376.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Ashampoo Burning Studio 16.0.0.25 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321367.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Ashampoo Burning Studio 16.0.0.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321361.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Any Video Converter Ultimate 6.2.0 RePack (& Portable) by ZVSRus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321304.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Video Thumbnails Maker Platinum 12.0.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321264.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Startup Delayer 3.0 Build 365 Standard [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321234.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ TreeSize Professional 6.2.2.1066 Retail [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321232.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ USDownloader 1.3.5.9 Portable (22.11.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321160.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Hosts Block 1.6.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321100.jpg" />
 </div>
 
 

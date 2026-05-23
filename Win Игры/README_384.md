@@ -1,29 +1,3 @@
-###  Публикация: 1691761   (123232) от 13.01.2024
-
-Supernormal (2024) [En] (1.3.3) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Классический хоррор с давящей атмосферой, где вам предстоит с головой окунуться в мрачные тайны и испытать неподдельный ужас от происходящего. Казалось бы, что может скрывать в себе обычная на первый взгляд квартира, но переступив порог детектив Уайетт ощущает мистическое присутствие. Вам предстоит узнать связано ли это с его текущим делом о пропажи дочери Сакамото (   Читать дальше...   )Тип издания: SceneРазработчик: Hitori de ProductionsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8250FFA679D1A2809E95483B2DC9E97426F38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691622   (123231) от 13.01.2024
 
 Remnant II (2) (2023) [Ru/Multi] (402.015/dlc) Scene Rune [Ultimate Edition]
@@ -32,7 +6,7 @@ Remnant II (2) (2023) [Ru/Multi] (402.015/dlc) Scene Rune [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123231.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Beer Factory (2024) [Ru/Multi] (build 69) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123200.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123191.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Stellar Tactics (2016) [Ru/Multi] (0.724) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123038.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123034.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Retreat to Enen (2022) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123011.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123009.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ RUN: The world in-between (2022) [Ru/Multi] (1.3.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123001.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122863.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122690.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Ys Origin (2012) [En] (2024-01-08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122677.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122666.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Unstoppable (2024) [Ru/Multi] (1.0) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122664.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Progeria: Vae Victis (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122643.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Baldr Sky (2019) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122586.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Unsolved Case5: Killer Popularity / Нераскрытое дело5: Убийс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122574.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Crossroads 3: What Was Lost / Перекрёсток 3: Возврата нет 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122560.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Connected Hearts 4: Cost of Beauty (2024) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122545.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Angel at Dusk (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122459.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Path of the Midnight Sun (2023) [Multi] (2.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122411.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Viewfinder (2023) [Ru/Multi] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122282.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Affogato (2023) [Multi] (1.0.19) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122261.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Grand Emprise: Time Travel Survival (2023) [Ru/Multi] (20230809) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122101.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (20231218/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122091.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Cursed Fables 4: Before the Clock Strikes (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122038.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Cursed Fables 4: Before the Clock Strikes (2024) [En] (1.0) Unofficial [Collecto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08344193D4D47F4DA1CC19E3AAB75EFFBACBC91A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693448   (121980) от 20.01.2024
+
+The Cub (2024) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект The Cub погружает пользователей в атмосферные приключения в сеттинге постапокалипсиса, где нужно пробираться через разные опасные локации. Игра является платформером, напоминающим олдскульные аркады времен SEGA. Пользователи будут передвигаться через разрушенные постройки и леса, чтобы разобраться в тайнах вселенной. Выйдет посетить множество разнообразных (   Читать дальше...   )Тип издания: SceneРазработчик: Demagog StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Английский, китайский (упрощенный, традиционный)Язык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CFBBAB653CFEF9D02AAF8F8C311ACB7894D084
 ```
 
 https://mybot314.ru/tekegram_catalog/

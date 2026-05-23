@@ -6,7 +6,7 @@ Warhammer 40,000 Dark Heresy (2026) [Ru/Multi] (0.0.3.507) Repack Let'sРlay [Pl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057076.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aztecs: The Last Sun (2025) [Ru/Multi] (0.6.0/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056039.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Being and Becoming (2026) [Ru/Multi] (2023.2.20f1) Repack Necros [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055472.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vampires: Bloodlord Rising (2026) [Ru/Multi] (1.0.1.19431/dlc) License GOG [Earl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054859.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hytale (2026) [Ru/En] (14.01.2026) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054338.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hytale (2026) [Ru/En] (14.01.2026) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054337.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (0.8.1.6) Repack Let'
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054296.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054175.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ StarRupture (2026) [Ru/Multi] (0.1.1 112941-S/dlc) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053920.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ LORT (2026) [Ru/Multi] (0.5.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053913.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ My Winter Car (2025) [Ru/Multi] (build 21360632) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053494.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Overthrown (2024) [Ru/Multi] (b19669165) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053286.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DDoD (2026) [Multi] (СL-42080) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051553.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Stationeers (2017) [Ru/Multi] (0.2.5919.26060) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051461.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Typhon: Bot vs Bot (2025) [En] (0.1.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050218.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049659.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ DeadPoly (2022) [En] (0.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049603.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ He is Coming (2025) [Ru/Multi] (0.8.33) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049439.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Star Birds (2025) [Ru/Multi] (0.1.1b) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049390.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Project Zomboid (2013) [Ru/Multi] (42.13.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049119.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Whiskerwood (2025) [Ru/Multi] (0.6.157.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048501.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.62EA) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047646.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Call to Arms: Panzer Elite (2025) [En] (0.04.02/dlc) Repack Let'sРlay [Supporte
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046885.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Death Must Die (2023) [Ru/En] (0.8.5) Repack Necros [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046873.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DYSMANTLE (2020) [Ru] (0.6.5.15) Unofficial KASaLEX [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038925.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Sons Of The Forest (2023) [Ru/Multi] (32361) Repack Chovka [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035244.jpg" />
 </div>
 
 

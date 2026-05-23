@@ -6,7 +6,7 @@ R-Studio 8.3 Build 168075 Network Edition RePack (& Portable) by elchupacabra  [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529348.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.08.04 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529340.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BELOFF 2017.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529338.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bandicam 2.3.0.834 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529330.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SQL Dynamite 2.1.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529254.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ XYplorer 20.20.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529216.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GoodSync Enterprise 10.10.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529209.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ TagScanner 6.0.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529202.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PrivaZer 3.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529193.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ The Bat! Professional Edition 7.3.2 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529192.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529152.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ FastStone Image Viewer 5.9 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529141.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ YouTube Video Downloader PRO 5.7.2 (20160829) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529139.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Wise Registry Cleaner 9.31.599 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529134.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ XYplorer 20.20.0100 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529103.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ IObit Smart Defrag Pro 6.3.0.228 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529090.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Silverlight 5.1.50709.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529070.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ SamDrivers 19.6 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529020.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Game WideScreener 1.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529015.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Auslogics BoostSpeed 11.0.1.0 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529006.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Auslogics BoostSpeed 11.0.1.0 RePack (& Portable) by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529003.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Reg Organizer 7.50 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528997.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Avira Antivirus Free 15.0.20.59 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528987.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Caramba Switcher + Corporate + Lab 2019.07.03 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528959.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ SamDrivers 19.6 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528944.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ The Bat! Professional Edition 7.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528931.jpg" />
 </div>
 
 

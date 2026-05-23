@@ -6,7 +6,7 @@ Enter Shikari - The Mindsweep: Hospitalised (2015) [MP3|320 кб/с]<Drum & Bass
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360762.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Patty Ryan - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360759.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Woman Trance Voices vol. 12 (2015) [FLAC|tracks+.cue]<Trance, Progressive T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360753.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Anvir Task Manager 9.1.0 Final RePack (& Portable) by KpoJIuK  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360752.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Markus Schulz - 16 Альбомов , 21 Компиляция (1999 - 2014) [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360746.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Paint.NET 4.0.19 Final Portable by flaner [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360739.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360731.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Restore Point Creator 3.3 Build 8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360728.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Money Pro 1.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360717.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Efficcess Pro 5.10 Build 511 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360704.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ SketchUp Pro 2017 17.0.18899 (x64) Portable by Baltagy [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360700.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Daum PotPlayer 1.6.56815 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360696.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Swinsian 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360695.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ WonderPen 1.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360691.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ SketchUp Pro 2017 17.0.18899 (x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360683.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Adobe Illustrator CC 2017 21.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360679.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Power Clean 2.9.0.12 [Ru/Multi] - Чистильщик
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360677.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Serif Affinity Photo 1.7.3.481 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360667.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360666.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Dawn of Man (2019) [Multi] (1.3.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360665.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ AnyDesk 5.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360662.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Auslogics BoostSpeed 11.1.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360660.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Topaz Gigapixel AI 4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360657.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360655.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360654.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Movavi Screen Capture Studio 10.0.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360641.jpg" />
 </div>
 
 

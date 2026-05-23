@@ -1,32 +1,3 @@
-###  Публикация: 1851349   (1055458) от 03.02.2026
-
-VA - Euro Hits 2023 (2023) [MP3|320 Kbps] <pop,dance,electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-[2:36].001- Alle Farben & Flynn - I Need To Know
-[2:53]. 002-Alex Gaudino - Don't Talk To Me
-[3:01]. 003-Robin Schulz & Fil Bo Riva - Killer Queen
-[2:54]. 004-Tiesto & Ar-Co - Back Around(   Читать дальше...   )Жанр: pop,dance,electronicПродолжительность: 07:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECECAEA9CD6A15D67F076E6154B54DFD41D29458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851781   (1055457) от 03.02.2026
 
 VA - Music News For Forum vol.161 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -35,7 +6,7 @@ VA - Music News For Forum vol.161 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055457.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Romantic Dreams - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Italodisco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055436.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Frezee - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055354.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Spacesynth Forever 6 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055341.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Music News For Forum vol.160 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055204.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - No name compilation part 46 Assorted (2026) [MP3|320 Kbps] <Italodisco, Ita
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055158.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Vocal Trance NNM 7 (2026) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055011.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Record Super Chart 31.01.2026 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054955.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Sensual Dark Blues (2026) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054840.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Booker T. & the M.G.'s - Super Collection (2026) [MP3|320 Kbps] <R'B, Soul, Jazz
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054771.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Yello & Dieter Meier & Boris Blank best (1980-2024) [MP3|320 Kbps] <electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054622.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054605.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Music News For Forum vol.159 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054403.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054347.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054262.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054160.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Solo Projects From The Rolling Stones (1971-2024) [MP3|320 Kbps] <Rock, Blu
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054076.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Jupiter Panic - Collection [MP3|320 Kbps] <New Age, Ambient>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054052.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Ai - No name compilation part 46 Slow Pop Rock Ballad (2026) [MP3|320 Kbps] <Slo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053988.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - No name compilation part 45 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053987.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - No name compilation part 44 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053986.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Music News For Forum vol.158 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053841.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - The Best Of Italo-Disco 2025 (2026) [MP3|320 Kbps] <Italo-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053751.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ CosmoDance - Collection (2026) [MP3|320 Kbps] <Spacesynth, Synthdance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053747.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Summer Dance Explosion (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053623.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Summer Dance Explosion (2025) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDC4E50467A98D4D18B76F2064880432D8AF62A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848282   (1053479) от 23.01.2026
+
+RetroVinyl80 - Collection (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas In Your Heart (feat. Nyox) (3:34)
+02. Winter Wonderland (feat. New Sisters) (3:58)
+03. Christmas Dance (feat. Sterio Dancers) (3:18)
+04. I’m Coming Home For Christmas (feat. Robert Rubin) (4:20)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 03:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28635743BFC73D7B9F7BAC520811FB255346D1D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Dizzy Gillespie meets The Phil Woods Quintet (1986) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794807.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marco Bartoccioni - Eyes (Nashville Sessions) (2015) [MP3|320 кб/с] <Blues, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794801.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tony Bennett - Tony Bennett's Greatest Hits of the '50s (2006) Columbia [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794553.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Miles Davis - Birth Of The Cool (1957) Remastered 2001 [FLAC|Lossless|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794477.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dusty Springfield - A Girl Called Dusty (1964) Reissue 1997 [FLAC|Lossless|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794471.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Paquito D'Rivera special guest artist Arturo Sandoval - Reunion (1990) 2006, Lan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794170.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jimmy Smith - Organ Grinder Swing (1965) 2018, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794168.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ McCoy Tyner - Atlantis (1974) 2CD, 1989, Victor[FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793831.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jimmy McGriff - Black Pearl (1971) Remaster, 2014, Universal[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793828.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Count Basie & His Atomic Band - Complete Live At The Crescendo 1958 (2016) 5CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793822.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ B.B. King - Live At The Regal (1964) [FLAC|Lossless|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793791.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Bugs Henderson And The Shuffle Kings - Four Tens Strike Again (1996) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793726.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ The Bob Brookmeyer Quartet - Oslo (1986) 1997,  Concord [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793720.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Edward Simon - Poesia (2009) CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793719.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ike Quebec - With A Song In My Heart (1962) Remaster, 2012, EMI Music [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793717.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Billy Cobham - Life & Times (1976) 2000, Wounded Bird [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793713.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Francis Albert Sinatra & Antonio Carlos Jobim - Francis Albert Sinatra & Antonio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793674.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Billie Holiday - My Man (1995) Series Success [APE|Lossless|image + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793673.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Robin Bessier - Open Road (2016) [MP3|320 кб/с] <Jazz, Vocal Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793667.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Miles Davis - Kind Of Blue (1958) 2CD, 2010, Not Now Music[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793631.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Bill Thomas Trio - Rough Draft (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793622.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Buddy Rich - The Solos (1976, 1977) 2014, Lightyear Entertainment [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793617.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Tonight Jazz, Thoughtful Atmosphere Nice Evening Jazz (2017) [MP3|320 Kbps]
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793615.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Otis Redding - Otis Blue / Otis Redding Sings Soul (1965) Remastered 1991, Mono 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793585.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ James Brown - Live At The Apollo (1962) Expanded Edition Remastered 2004 [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793471.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Ray Conniff - The Real... Ray Conniff (2014) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793422.jpg" />
 </div>
 
 

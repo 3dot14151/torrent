@@ -6,7 +6,7 @@ VA - 25 Best Christmas Songs Ever For Fitness & Workout (2019) [MP3|320 Kbps] <F
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264661.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Best Of Dance 2019 (Presented by Spinnin' Records) [MP3|320 Kbps] <Progress
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264287.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Planeta Mix Hits 2020: Winter Edition (2019) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262917.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Destination Chill House (2017) [MP3|320 Kbps] <Deep House,  Lounge, Downtem
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262502.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Steve Angello - Genesis-Inferno-Paradiso (2017) Single [MP3|320 Kbps] <Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262489.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Planeta Mix Hits 2018: Winter Edition (2017) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262487.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Buddha-Bar By Armen Miran And Ravin (2017) [MP3|320 Kbps] <Deep House,  Lou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262454.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 35 Best Flat ABS Hits 2019 (35 Tracks For Fitness & Workout) (2019) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262331.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Remembering The 90's: Best Hits Remixed (2017) [MP3|320 Kbps] <House, Club,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262096.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Twelve Inch Nineties: Feels Like Heaven (2017) [MP3|320 Kbps] <House, Euro-
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261978.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Black Hole House Music 12-17 (2017) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261830.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - House Party (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261816.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261708.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Polyptych Limited: Year Four (2024) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261682.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Ministry of Sound - The Annual 2026 (2025) 2 CD [MP3|320 Kbps] <Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261552.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Purified Chronicles 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260622.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Barcode Brothers - 2 Альбома , 4 Сингла (2000-2002) [MP3|320 кб/�
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260476.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Groove Coverage feat. Rameez - Think About The Way (WEB) (2012) [MP3|320 кб/с
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259555.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Alice DeeJay - Better Off Alone (Laidback Luke Remixes) (WEB) (2011) [MP3|320 к
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259522.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Dada Life's Musical Freedom (2012) [MP3|~245 кб/с ]<House, Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258752.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Balearic Melodic House and Techno Winter 2026 (2025) [MP3|320 Kbps] <Progre
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257985.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Enormous Tunes - The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256785.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Ibiza Winter 2026 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256685.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Black Hole House Music 11-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255884.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - Being Humans 02 - Human Ritual (2025) [MP3|320 Kbps] <Organic House, Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255606.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ VA - Being Humans 01 (2024) [MP3|320 Kbps] <Organic House, Deep House, Melodic H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255605.jpg" />
 </div>
 
 

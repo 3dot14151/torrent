@@ -1,29 +1,3 @@
-###  Публикация: 1591890   (28544) от 06.02.2025
-
-McPixel 3 (2022) [Ru/Multi] (1.0.38) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Это птица? Это самолет? Нет, падает слишком быстро! Это же МакПиксель! Он мечтает быть героем и постоянно попадает в самые невероятные ситуации, которые вы только можете себе представить. Предотвращайте одну катастрофу за другой, используя нетрадиционные, но занимательные хаотичные методы. Например, призовите паука-миллиардера с барбекю в штанах, выкиньте тираннозавра (   Читать дальше...   )Тип издания: LicenseРазработчик: Sos SosowskiЖанр: Приключeние, Квeст, КомeдияЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A25F9357893D68B447E03D0B219EB0C3AACC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772948   (28541) от 06.02.2025
 
 Status One (2025) [Ru/Multi] (1.1.0) Repack Let'sРlay
@@ -32,7 +6,7 @@ Status One (2025) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28541.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dying Light: The Following (2016) [Ru/En] (1.38.0/dlc) Repack xatab [Enhanced Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28528.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28508.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28498.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28491.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28437.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.1.1-11377/dlc) Repack dixen18 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28383.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28343.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ City of Stories 3: The Hunter's Heart / Город Историй 3: Сердц�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28342.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28339.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Warcraft: Remastered Trilogy (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157/2.0) Repac
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28331.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28324.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28321.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Hired 2 Die (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28316.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Men of War: Assault Squad 2  / В тылу врага: Штурм 2 (2014) [Ru/E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28311.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6/dlc) Repack seleZen [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28301.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Sims Legacy Collection (2025) [Multi] (17149764/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28265.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28232.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28222.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28208.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Only Lead Can Stop Them (2024) [Ru/Multi] (1.16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28205.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28195.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28190.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Sword of the Necromancer: Resurrection (2025) [Multi] (1.0.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28184.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Hero of the Kingdom III / Герой Королевства III (2018) [Ru/Multi
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28182.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Hero of the Kingdom III / Герой Королевства III (2018) [Ru/Multi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05897AD768CEA83A8DA88787CABBB93AE37B00FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726845   (28180) от 09.02.2025
+
+Hero of the Kingdom: The Lost Tales 1 / Герой Королевства: Утраченные Сказания 1 (2020) [Ru/Multi] (1.2.12) License GOG
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в опасное приключение и спасите город от драконьей угрозы. В своих скитаниях по миру вы прибываете в город, недавно переживший нападение дракона. Никто не знает, откуда явилось это ужасное чудовище. Среди людей, охваченных страхом, живёт маленький мальчик-сирота по имени Брент, который мечтает совершать подвиги и заслужить всеобщее признание. Желание (   Читать дальше...   )Тип издания: LicenseРазработчик: Lonely TroopsЖанр: Приключенческие игры, Казуальные игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEACDBF9ADF3E456CC4E6C8EE2769C4A81BAB19
 ```
 
 https://mybot314.ru/tekegram_catalog/

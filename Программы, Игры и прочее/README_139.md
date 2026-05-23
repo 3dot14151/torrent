@@ -1,55 +1,3 @@
-###  Публикация: 1710791   (61479) от 28.03.2024
-
-Все заболевания (Offline) v5.0 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В этом словаре все болезни расположены в алфавитном порядке и содержат заболевания с краткой информацией и симптомами,  чтобы было легче понять понять о том, что это за болезни. Это очень полезный и удобный справочник. К Вашим услугам самая подробная информация о любой интересующей болезни - от банальной простуды до сложнейших генетических патологий.Тип издания: PremiumРелиз состоялся: 27.03.2024Разработчик: ufostudioПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7295AC6893B33F68DC44B6E0D32CD1D9F917FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711512   (61183) от 31.03.2024
-
-Picsart AI Photo Editor, Video v24.6.4 Final Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к сообществу Picsart, насчитывающему более 150 миллионов авторов по всему миру. С помощью фоторедактора и видеоредактора Picsart AI вы сможете воплотить свои творческие идеи в жизнь. Создавайте с помощью инструментов искусственного интеллекта, создавайте коллажи профессионального уровня, создавайте и добавляйте наклейки, быстро удаляйте и меняйте (   Читать дальше...   )Тип издания: Full / GoldРелиз состоялся: 29.03.2024Разработчик: PicsArt, Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712087   (61096) от 01.04.2024
 
 Книжная находка v1.0.5 Mod by Alex.Strannik [Ru]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61096.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61076.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ YouTube ReVanced Extended 19.11.38 (RVP v2.223.0) Mod by Number one' + microG Gm
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60898.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ BZ Напоминания и Дни Рождения PRO v3.3.10 Mod by Eco19 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60873.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ IPTV Pro v7.1.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60581.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60567.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ AI Translate Voice Translator (Talkao) v389.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60566.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ Weather app - eWeather HDF v8.8.4 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60565.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ GPS Локер Prime v2.4.4 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60545.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60498.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ SnapTube - YouTube Downloader VIP v7.17.0.71750910 Final Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60492.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60448.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ Adobe Photoshop Express 13.4.404 (ARM64) Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60349.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64/x86) Mod by Mixroot [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60176.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ Lark Player - YouTube Music & Audio Player 5.70.10 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60116.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ RS Explorer / RS Проводник 2.1.1.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60012.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ Call of Duty: Strike Team 1.0.40 Mod by Dhаmpir & Eastlion [Ru/Uk]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59974.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ YouTube ReVanced Extended 19.11.43 (RVP v2.224.0-dev.1) Mod by VooltMace + micro
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59875.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ Cx Проводник / Cx File Explorer 2.2.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59853.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ Filmic Pro 6.8.4 Mod by EasyAPK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59812.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ Rutube v29.1.3 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59802.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59801.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59800.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ Zaycev.net v8.9.4 Mod by Timozhai, Dymonyxx  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59735.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ Zaycev.net v8.9.4 Mod by Timozhai, Dymonyxx  [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FC49C9E78E028A082A1F06D90C8F24CEB8A4D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716152   (59720) от 14.04.2024
+
+Super Recorder / Диктофон: Звукозапись v2.3.1 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Recorder - это мощное приложение для записи голоса и транскрипции аудио, высококачественная запись в реальном времени, также вы можете пометить момент записи + редактировать аудио + прямая расшифровка!Тип издания: ProРелиз состоялся: 06.04.2024Разработчик: Video Screen Recorder, Voice Audio Editor, Cut MP3Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A7AEA4B6EA68CF77A9007164E6B95D8E3D7F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665036   (59459) от 17.04.2024
+
+Сапер GO - классическая игра v1.1.8 Mod by Bubalex88 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сапер с легкостью поможет вам развить мозг и увеличить скорость мышления. В то же время это интересная и затягивающая классическая головоломка. Цель игры - исследовать минное поле, не сдетонировав ни одной мины. Используйте флаги чтобы отмечать мины, нажимайте на цифры чтобы открыть безопасные ячейки.Тип издания: ModРелиз состоялся: 12.01.2024Разработчик: evolvegamesПоддерживаемая ОС: Android 4.4+Жанр: ЛогическаяЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FA5C439AC3269F88E9A5ED5A740652E9532DE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

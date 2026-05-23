@@ -6,7 +6,7 @@ Sandboxie 5.23.5 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784632.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Softany WinCHM Pro 5.21 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784631.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Movavi Slideshow Maker 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784630.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Light Image Resizer 5.1.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784629.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Flip PDF Professional 2.4.9.13 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784625.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TechSmith Snagit 2018.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784622.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Flip PDF Corporate Edition 2.4.9.13 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784610.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ KLS Backup 2017 Professional 9.0.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784601.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FileMenu Tools 7.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784598.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SpeedCommander Pro 16.41.8600 Portable by AlexAGF [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784586.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Flash Player 28.0.0.161 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784580.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Slimjet 26.0.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784579.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Windows 10 Manager 2.2.3 Final RePack (& portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784568.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AllDup 4.4.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784557.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CudaText 1.103.5 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784556.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ GIMP 2.10.20 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784515.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ WhatsApp 2.2023.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784514.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Topaz Gigapixel AI 4.9.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784512.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Basilisk 2020.06.10 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784502.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Opera 68.0.3618.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784499.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Natron 2.3.15 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784498.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BlueStacks App Player 4.210.0.1093 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784495.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Edge 84.0.522.15 Beta (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784493.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Windows 10 Pro 1909 b18363.900 x64 ru by SanLex (edition 2020-06-10) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784446.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Tidy Up 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784410.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Der Luchs - Wonderful (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784403.jpg" />
 </div>
 
 

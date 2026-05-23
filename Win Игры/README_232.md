@@ -1,29 +1,3 @@
-###  Публикация: 933176   (506788) от 31.08.2015
-
-Hegemony III: Clash of the Ancients (2015) [En] (1.0.0) License CODEX
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Битва за древний мир началась! И только одна фракция сможет основать величайшую империю Средиземья. Выбирайте Этрусков, Галлов или Греков и установите гегемонию.Тип издания: ЛицензияРазработчик: Longbow GamesЖанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05BFCA0E248427D05E26128F57C281939E09888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316371   (506718) от 25.07.2019
 
 Fantasy Strike (2019) [Multi] (1.17545) License PLAZA
@@ -32,7 +6,7 @@ Fantasy Strike (2019) [Multi] (1.17545) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506718.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Immortal: Unchained (2018) [Ru/Multi] (1.18/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506709.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак Прошлого [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506055.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Mystery Trackers 9: Winterpoint Tragedy / Охотники за тайнами 9
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505940.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Heroes of Might and Magic 5 / Герои Меча и Магии 5 (2006) [Ru] (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505810.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ The Expendables 2 Videogame [Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504203.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Bluebeard's Castle 2: Son of the Heartless / Замок Синей Бороды 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504144.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Guacamelee (2014) [Ru/Multi] (1.0) Repack R.G. Механики [Super Turbo Cha
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504101.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Azure Striker Gunvolt (2015) [Ru/Multi] (1.0.760608) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504092.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Jagged Alliance: Crossfire / Jagged Alliance: Перестрелка [Ru/En] (L/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504086.jpg" />
 </div>
 
 
@@ -303,7 +277,7 @@ Hidden Expedition 18: Neptune's Gift / Секретная экспедиция 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504046.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ Nobunaga's Ambition: Sphere of Influence (2015) [En] (1.0) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503946.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ Hidden Expedition 9: Dawn of Prosperity (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503653.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ Turok [RUS/ENG] 2008 | R.G. Catalyst (VelArt) [Rip]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503453.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ Chimeras 9: Wailing Waters / Химеры 9: Кошмары Чёрного оз�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503231.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ LOST ORBIT: Terminal Velocity (2019) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503120.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ Valdis Story: Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503090.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ Valiant Hearts: The Great War (2014) [Ru/En] (1.1.150818) Rip West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503053.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ Valiant Hearts: The Great War (2014) [Ru/Multi] (1.1.150818) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503049.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ Tinertia (2015) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503008.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ BGE Mario 2011 [En] (P) 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502984.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ Risen: Дилогия / Risen: Dilogy [Ru] (Repack) 2009 - 2012 | {AVG}
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502982.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ Mystical Riddles 2: Behind Doll Eyes (2022) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502488.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ Dark Tales 16: Edgar Allan Poes. Ligeia / Тёмные истории 16: Эдг
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502232.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ MADiSON (2022) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502218.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ MADiSON - это психологический хоррор от первого
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B347B3A74114A3495A2865B0517D8CDBF50627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563904   (502213) от 16.07.2022
+
+Dragon Forge (2022) [En] (1.0.8224) License FLT
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502213.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dragon Forge главный герой игры рождается в облике дракона. Этот монстр не вызывает ни у кого доверия. Поэтому потребуется сделать все, чтобы снять проклятие. Но сделать это проблемно – на каждом шагу может поджидать опасность. Протагонист будет развиваться. Сначала маленький дракончик будет учиться ходить. А после персонаж сможет плеваться ядом и дышать пламенем. (   Читать дальше...   )Тип издания: LicenseРазработчик: Legend StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E6FA5D9393B1560C53469B27719122BE605196
 ```
 
 https://mybot314.ru/tekegram_catalog/

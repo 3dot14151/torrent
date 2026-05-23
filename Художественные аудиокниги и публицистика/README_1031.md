@@ -1,85 +1,3 @@
-###  Публикация: 1750206   (43128) от 18.09.2024
-
-Фредерик Пол | Заговор губернатора (2023) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Короткая зарисовка из какого-то космического приключенческого романа. Главный герой, вовлеченный в подготовку военного переворота, теряет память и вынужден доделывать свои дела, пользуясь собственной логикой, принципами и сохранившимися навыками." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67554E10DCDAEDF0F481A335BEED4B46137FD184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300435   (43096) от 19.09.2024
-
-Сергей Шубинский | Пётр I и его время (2005) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторические очерки и рассказы.
-Сергей Николаевич Шубинский (1834–1913) русский историк, журналист, основатель и многолетний редактор журналов «Древняя и Новая Россия», «Исторический вестник», популяризатор истории и библиофил.
-Вашему вниманию предлагается сборник увлекательных исторических рассказов о Петре I, как, например, поездка его в Англию, строительство (   Читать дальше...   )Жанр: Русская историческая литература, рассказИздательство: Вира-М (аудио)Продолжительность: 04:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76C969000860276CBB4F38D9C205BB615FFBD77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300423   (43078) от 19.09.2024
-
-Сергей Шубинский | Картины прошлого (2007) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская историческая библиотека.
-Сергей Николаевич Шубинский (1834–1913) русский историк, журналист, основатель и многолетний редактор журналов «Древняя и Новая Россия», «Исторический вестник», популяризатор истории и библиофил.
-Книга о генерал-прокуроре Обольянинове Петре Хрисанфовиче, о жене Суворова – Варваре Ивановне, о братьях Архаровых – Николае (   Читать дальше...   )Жанр: Русская историческая литература, рассказИздательство: Вира-М (аудио)Продолжительность: 04:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4EBED07C750D845C54A35180B01AE88662AF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 300422   (43074) от 19.09.2024
 
 Сергей Шубинский | Исторические портреты (2007) [MP3, Олег Фёдоров]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43074.jpg" />
 </div>
 
 
@@ -116,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43069.jpg" />
 </div>
 
 
@@ -144,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43068.jpg" />
 </div>
 
 
@@ -172,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43057.jpg" />
 </div>
 
 
@@ -198,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43051.jpg" />
 </div>
 
 
@@ -224,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43049.jpg" />
 </div>
 
 
@@ -250,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43047.jpg" />
 </div>
 
 
@@ -278,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43046.jpg" />
 </div>
 
 
@@ -304,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42992.jpg" />
 </div>
 
 
@@ -332,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42929.jpg" />
 </div>
 
 
@@ -358,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42855.jpg" />
 </div>
 
 
@@ -385,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42845.jpg" />
 </div>
 
 
@@ -411,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42836.jpg" />
 </div>
 
 
@@ -437,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42831.jpg" />
 </div>
 
 
@@ -463,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42824.jpg" />
 </div>
 
 
@@ -491,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42810.jpg" />
 </div>
 
 
@@ -517,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42771.jpg" />
 </div>
 
 
@@ -546,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42678.jpg" />
 </div>
 
 
@@ -572,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42660.jpg" />
 </div>
 
 
@@ -599,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42657.jpg" />
 </div>
 
 
@@ -626,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42655.jpg" />
 </div>
 
 
@@ -652,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42654.jpg" />
 </div>
 
 
@@ -679,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42651.jpg" />
 </div>
 
 
@@ -692,6 +610,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D5F509B5EFB3A9478D312B41C98600550A70A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751231   (42643) от 23.09.2024
+
+Павел Барчук, Павел Ларин | ОБХСС-82 (Книга 2). Дело о гастрономе (2024) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мажор-раздолбай и циничный опер БЭПа с первой встречи стали врагами. Судьба решила, хрен вам, и закинула обоих в СССР, в 1982 год, поменяв их местами. Чтоб разобраться с аферистами и мошенниками из высших эшелонов власти, им придется работать сообща.Жанр: Альтернативная история, Историческая фантастикаИздательство: ЛитРес: чтецПродолжительность: 06:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45FBC069F7B82C8057C98CBA84C544F1365E410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751236   (42639) от 23.09.2024
+
+А. Райро | Алекс Бринер (Книга 1). Последний ранг (2024) [MP3, Александр Потеряев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я упорно шёл к своему последнему рангу, которого не достигал ещё никто. Меня называли самым молодым магом, покорившим такую силу.Но прямо во время повышения я вдруг очнулся… в теле своего тщедушного потомка, Алексея Бринера.Будто кто-то сделал это специально.От парня мне достался ворох проблем, да и мир за сто лет разделился надвое. Только это меня не остановит – (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-анимеИздательство: ЛитРесПродолжительность: 12:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51AE781E270AA89BB0A164A72CC26FC52B19EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751214   (42638) от 23.09.2024
+
+Саша Фишер | Пионерский гамбит (Книга 1) (2024) [MP3, Николай Прокофьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сначала я выносил мозг дочери-подростку на тему «как вести себя в коллективе», а потом вдруг оказался в 1980 году в теле четырнадцатилетнего парня. Которого родители на все лето отправляют в пионерский лагерь.Иронично. Неожиданная возможность доказать правдивость своих аргументов.Ну что, раз-два, левой-правой, «Всегда готов!», зарница, пионерская зорька!Смогу повторить?Жанр: Альтернативная история, Историческая фантастикаИздательство: ЛитРесПродолжительность: 10:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76C6F5A2E48FA3417449BAB1771BECF896405F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

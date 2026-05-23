@@ -6,7 +6,7 @@ App Tamer 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190213.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft PowerToys 0.64.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190212.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iStat Menu 6 v6.63 (1204) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190210.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Wise Care 365 Pro 6.3.9.617 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190208.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Bootstrap Studio 6.2.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190206.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NCH ClickCharts Diagram Pro 8.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190191.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NoMachine 8.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190189.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Icecream PDF Editor PRO 2.63 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190187.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Notepad++ 8.4.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190181.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Upscayl for Mac 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190175.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Microsoft .NET 7.0.0 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190173.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Google Chrome 107.0.5304.107 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190171.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Serial Box & SerialSeeker 09-2023 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190168.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ RJ TextEd 15.94.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190161.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Windows 10 Manager 3.7.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190159.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Pixelmator Pro 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190154.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Dynamic Wallpaper Engine 15.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190150.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ DMG Canvas 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190146.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Abelssoft SSD Fresh Plus 2022 11.11.42432 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190145.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190143.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Phase One Capture One 23 Enterprise 16.0.0.143 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190141.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wondershare UniConverter 14.1.4.99 (х64) Repack by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190140.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Live Wallpaper & Themes 4K Pro 18.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190131.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AIDA64 Extreme Edition  6.80.6210 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190128.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Bazaart: Photo Editor & Graphic Design v2.2.6 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190115.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2251]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190111.jpg" />
 </div>
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1696462   (119678) от 02.02.2024
-
-Константин Демченко | Шагая в вечность (Книга 1) (2024) [MP3, Александр Сидоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пусть небо и вода остались того же цвета, но мир перестал быть самим собой. Ничто не осталось неизменным. И в этом новом мире, среди разрушенных городов и неведомо откуда взявшихся тварей, выживает и эволюционирует Данила Звягинцев, в прошлом обычный историк, а в будущем… А кем он будет в будущем, не знает никто, даже он сам. Но он идёт.Жанр: Боевая фантастика, ПопаданцыИздательство: ЛитРес: чтец, АвторПродолжительность: 10:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6FD2CBF60E288607FEEFE9608E83D4FD5DD525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696508   (119675) от 02.02.2024
-
-Серж Винтеркей, Артём Шумилин | Цикл «Ревизор: Возвращение в СССР» (Книга 10-12) (2024) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приключeния московского аудитора, попавшего из нашего времени в 1971 год, продолжаются. Павел Ивлев готовится к взрослой жизни, завоевывает себе авторитет, окружает близкими друзьями, которым искренне стремится помочь. Кроме того, необходимо распутать схему с хищениями на механическом заводе, отомстив за сотрудника ОБХСС, и разобраться с угрозами от криминального (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: ~23:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B992F51AACA24CA388967937728BE53A4109BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371957   (119674) от 02.02.2024
-
-Пантелеймон Романов | Актриса (2008) [MP3, Лидия Леликова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Архив мировой литературы. Классический реализм
-Произведения Пантелеймона Романова (1884–1938) не печатались в нашей стране с конца тридцатых годов прошлого века. И лишь с начала 70-х годов XX-го века стали появляться публикации его рассказов. 
-«Современность стремится сделать художника полным выразителем своих чувств, идей, интересующих ее образов и настроений. (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: АрМирПродолжительность: 05:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63ED36174502A8CAF8D99363BCAF04128DF73189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 371961   (119673) от 02.02.2024
 
 Пантелеймон Романов | Арабская сказка (2005) [MP3, Виктор Татарский и др.]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119673.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119671.jpg" />
 </div>
 
 
@@ -142,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119666.jpg" />
 </div>
 
 
@@ -170,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119665.jpg" />
 </div>
 
 
@@ -196,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119659.jpg" />
 </div>
 
 
@@ -222,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119658.jpg" />
 </div>
 
 
@@ -250,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119652.jpg" />
 </div>
 
 
@@ -278,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119610.jpg" />
 </div>
 
 
@@ -304,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119569.jpg" />
 </div>
 
 
@@ -331,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119539.jpg" />
 </div>
 
 
@@ -357,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119538.jpg" />
 </div>
 
 
@@ -385,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119515.jpg" />
 </div>
 
 
@@ -411,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119493.jpg" />
 </div>
 
 
@@ -438,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119488.jpg" />
 </div>
 
 
@@ -464,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119476.jpg" />
 </div>
 
 
@@ -490,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119465.jpg" />
 </div>
 
 
@@ -518,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119386.jpg" />
 </div>
 
 
@@ -546,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119383.jpg" />
 </div>
 
 
@@ -574,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119380.jpg" />
 </div>
 
 
@@ -600,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119365.jpg" />
 </div>
 
 
@@ -626,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119331.jpg" />
 </div>
 
 
@@ -655,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119329.jpg" />
 </div>
 
 
@@ -681,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119327.jpg" />
 </div>
 
 
@@ -693,6 +613,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C5BCDA0D450E508B678A13770C6E9341FFD7001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696904   (119302) от 04.02.2024
+
+Василий Шукшин | Рассказы (2013) [MP3, Илья Прудовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию сборник избранных рассказов замечательного советского писателя, драматурга и кинорежиссера Василия Макаровича Шукшина (1929–1974).
+Прочитано по изданию: М., Художественная литература, 1979 г.Жанр: Классика советской прозы, рассказИздательство: Нигде не купишьПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05A53F28FED62C72F04F00BD7A084AB3CD83A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356272   (119269) от 05.02.2024
+
+Велимир Хлебников | Творения (2006) [MP3, Вадим Максимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Велимир (Виктор Владимирович) Хлебников (1885–1922) – уникальное явление в русской культуре. Поэт, прозаик, теоретик и исследователь искусства, мыслитель, математик, орнитолог, он во многом опередил свое время. Его гениальные прозрения не укладывались в рамки современной ему науки, гениальные стихи – в рамки существовавших литературных (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 04:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B130E6F56201063742BBEC93FD122AC9435291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 312560   (119258) от 05.02.2024
+
+Василий Ян | Александр Невский. Юность полководца (2007) [MP3, Владимир Конкин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига об Александре Невском Василия Яна. Его трилогией «Чингисхан», «Батый», «К последнему морю» русская публика зачитывается уже много лет. На этот раз маститый писатель говорит о юности Александра Невского. Он начинается с той поры, когда юный князь Александр Ярославич не был еще ни Невским, ни Святым, ни Благоверным, но он был русским рыцарем, и русская рыцарская (   Читать дальше...   )Жанр: Русская литература, исторический романИздательство: Эксмо-Сидиком, Sound TimeПродолжительность: 04:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE343AD8EE5655A2D684689E6DDDABF459D6565
 ```
 
 https://mybot314.ru/tekegram_catalog/

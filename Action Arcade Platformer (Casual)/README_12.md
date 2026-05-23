@@ -6,7 +6,7 @@ Lost Socks: Naughty Brothers (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422943.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Odallus: The Dark Call (2015) [Ru/Multi] (1.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422826.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ The Misadventures of P.B. Winterbottom [Ru/Multi6] (RePack) 2010 | NSIS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418408.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Castle Crashers (2012) [Ru/Multi] (2.1/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415216.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Overloop (2022) [En] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414009.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Rocketbirds: Hardboiled Chicken [En/Multi11] (L) 2012 | TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404263.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Hob (2017) [Ru/Multi] (1.12.2.0/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397335.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hob (2017) [Ru/Multi] (1.12.2.0) Repack Covfefe
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396406.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Omega Strike (2017) [Ru/Multi] (1.0.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395423.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Albert and Otto: The Adventure Begins (2015) [En] (1.0) Repack R.G. Механи
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382076.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Toby: The Secret Mine (2015) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382074.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Portal Knights (2017) [Ru/Multi] (1.2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373571.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Castle Crashers (2012) [Ru/Multi] (2.2.1/dlc) SteamRip Let'sРlay [Steam Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369280.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Raiden IV: OverKill (2015) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368350.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Tinykin (2022) [Ru/Multi] (1.0.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367975.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367970.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Yoku's Island Express (2018) [Ru/Multi] (1.2) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365418.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Spelunker Party! (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364707.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ The Mummy Demastered (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362293.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Fly'N [En] (L) 2012 | SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359644.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Final Exam (2013) [Ru/En] (1.0u3) RePack Audioslave
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355917.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Candle (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353990.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ ScourgeBringer (2020) [Ru/Multi] (1.42) License GOG [Supporter Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350644.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Party of Sin (2012) [Ru/Multi] (1.0.0.5766) License [indiegamestand]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350110.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Hob (2017) [Ru/Multi] (1.16.3.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344131.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339688.jpg" />
 </div>
 
 

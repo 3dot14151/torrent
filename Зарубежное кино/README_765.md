@@ -1,55 +1,3 @@
-###  Публикация: 1532749   (710695) от 21.02.2022
-
-Три якудза / Three Yakuza / Matatabi sannin yakuza (1965) DVDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Три истории про трёх странствующих якудза. В первой истории, скрывающийся от погони якудза, укрывается в доме у одного босса, который хочет использовать этого якудза в своих целях. Во второй истории, якудза помогает старику уйти от погони. Чтобы скрыться от погони, они укрываются в заброшенной чайхане. Третья история рассказывает о трусливом якудза, которого жители (   Читать дальше...   )Производство: Япония, Toei Kyoto Co. Ltd.Жанр: Боевик, драмаРежиссер: Тадаси СавасимаАктеры: Кинносукэ Накамура, Тацуя Накадаи, Хироки Мацуката, Хироко Сакурамати, Вакаба Ириэ, Такаси Симура, Дзюнко ФудзиПеревод: Авторский (BadBajo)Субтитры: Английские (отключаемые)Продолжительность: 02:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD16CF887AD22A1EA814672ADE48B9829E60399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528727   (710692) от 21.02.2022
-
-Роковая восьмёрка / Sydney / Hard Eight (1996) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пожилой завсегдатай игровых заведений Сидни встречает на заправке вдрызг проигравшегося Джона. Сидни берёт нового знакомого под крыло и обучает его ремеслу жить за счёт казино. Проходит несколько лет, Сидни и Джон неразлучны, как отец и сын. В одном из заведений они знакомятся с официанткой Клементиной, подрабатывающей проституцией. Молодые люди симпатизируют друг (   Читать дальше...   )Производство: США, Green Parrot, Rysher Entertainment, TrinityЖанр: драма, криминалРежиссер: Пол Томас АндерсонАктеры: Филип Бейкер Холл, Джон Си Райли, Гвинет Пэлтроу, Сэмюэл Л. Джексон, Ф. Уильям Паркер, Филип Сеймур Хоффман, Натаниэль Купер, Винн Уайт, Роберт Риджли, Кэтлин КэмпбеллПеревод: профессиональные многоголосые (Paramount Channel, Первый канал), авторский (Андрей Гаврилов)Субтитры: русские (Vouka, с ненормативной лексикой), английскиеПродолжительность: 01:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC19BAB6F94B6B85EE53E8A36E97AA172F43955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 893912   (710689) от 30.04.2015
 
 Зажигая звёзды / Set Fire to the Stars (2014) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710689.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710628.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710615.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710611.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710602.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710600.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710593.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710590.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710585.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p] [UKR, EN 
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710572.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710565.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710560.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710537.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710490.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710487.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710486.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710460.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710455.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710453.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710445.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710443.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710441.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710440.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710436.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B26240956755BB236EBC693A250677A55CE9FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286395   (710428) от 03.03.2019
+
+Вернуть Бена / Ben Is Back (2018) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710428.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества  Бен Барнс сбегает из реабилитационного центра и возвращается домой. В свое время хлебнувшая с ним горя мать тепло принимает сына, но скоро убеждается, что ничего не изменилось — от парня по-прежнему нужно ждать беды. У нее есть 24 часа, чтобы уберечь сына от опасности. Но как далеко можно зайти, спасая тех, кого мы любим?Производство: США, Black Bear Pictures, 30West, Color ForceЖанр: ДрамаРежиссер: Питер ХеджесАктеры: Джулия Робертс, Лукас Хеджес, Кортни Б. Вэнс, Кэтрин Ньютон, Рэйчел Бэй Джонс, Дэвид Залдивар, Александра Парк, Майкл Эспер, Тим Гини, Мира Лукреция Тейлор ...Перевод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8944942E09F36DD7F2232A3289323212C621322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528601   (710419) от 21.02.2022
+
+Два мира / Les Deux mondes (2007) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710419.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком затерянном параллельном мире жители крохотного племени Бегамени изнывают под гнетом каннибала Зотана. И каждый день они молят небеса о спасителе, который освободил бы их от тирана. А в это время в Париже, в нашем мире, живет типичный неудачник, скромный и никому неизвестный реставратор картин Реми Бассано. На него свалилось сразу 33 несчастья: его мастерскую (   Читать дальше...   )Производство: Франция / Film Afrika Worldwide CCЖанр: Фэнтези, комедияРежиссер: Дэниэл КоэнАктеры: Бенуа Пульворде, Наташа Линдинжер, Мишель Дукоссю, Дэниэл Коэн, Паскаль Элсо, Флоренс Лорье, Арли Джовер, Огустен Легран, Матиас Млекуз, Зофиа МореноПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F2E672BD2E259EBBA27DA7DF22BE894B527C45
 ```
 
 https://mybot314.ru/tekegram_catalog/

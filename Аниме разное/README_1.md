@@ -6,7 +6,7 @@
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848061.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou / Виолетта Эве�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840548.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836274.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lixiang Jinqu | Evil or Live | Злой или живой [2017, TV, 12] WEBRip 
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822114.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sol Levante | Восходящее солнце [2020, ONA] WEBRip 1080p raw
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816833.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sol Levante | Восходящее солнце [2020, ONA] MasterRip 2160p/4K H
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814674.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Spiritpact / Контракт душ [2017, TV, 10] WEBRip 720p raw
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814508.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Nerawareta Gakuen / Psychic School Wars / Школа под прицелом [Mo
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809702.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Hitori no Shita: The Outcast | Hitorinoshita: The Outcast | Один из отв
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804109.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Yes! Bang Dream! & Hoshi no Kodou / Группа Мечты! [2016, Movie] BDRip
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803118.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Mibao zhi guo | The Country Of Rare Treasure | Страна таинственн
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802488.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ On Your Mark / На старт! [1995, OVA] BDRemux 1080p raw+eng
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801951.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Can Ci Pin: Fangzhu Xingkong | The Defective | Дефектные: Доступ 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793524.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDRemux 108
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788962.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] Blu-ray 108
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788957.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Hataraku Maou-sama! / The Devil is a Part-Timer! / Повелитель Тьмы
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788285.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Death Parade / Парад смерти [2015, TV, 12 эп. + 1 OVA] BDRemux 1080
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787754.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Dou Shen Ji | Ancient Girl's-Fram | Бог войны [2021, ONA, 6 из 12] WEB
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787304.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bungo Stray Dogs: Dead Apple | Bungou Stray Dogs: Dead Apple | Великий и
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786948.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Claymore | Клеймор [ТВ-1] [2007, TV, 26 из 26] BDremux raw+rus+eng
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777002.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Space Fantasia 2001 Yoru Monogatari / Space Fantasia 2001 Nights / Космич�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761943.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 + SP] BD
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754831.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ano Hi Mita Hana no Namae o Bokutachi wa Mada Shiranai | Anohana: The Flower We 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749810.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Spirit Pact: Yomi no Chigiri | Spiritpact 2 | Контракт душ - 2 [2018,
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749086.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Handmade Anime / Аниме руками отаку [2010, Другое, 97 из
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723746.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Riding Bean | Боб на колесах [1989, OVA] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703232.jpg" />
 </div>
 
 

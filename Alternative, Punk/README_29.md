@@ -6,7 +6,7 @@ Muse - Simulation Theory (2018) Deluxe Edition [MP3|320 Kbps] <Alt.Rock, Progres
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311645.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SunSay - Выше головы (2016) [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311210.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nico Vega - Wars (2018) EP [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309723.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Uni_Form - 1984 (2012) [MP3|192 kbps] <Post-Punk / Indie Rock / Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308269.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Architects - Holy Hell (2018) [MP3|320 Kbps] <Progressive Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307289.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Muse - Simulation Theory (2018) Super Deluxe Edition [MP3|320 Kbps] <Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306735.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Larkin Poe - Venom & Faith (2018) [MP3|320 Kbps] <Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305318.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Black Pistol Fire - Black Pistol Fire (2011) [MP3|320 Kbps] <Alternative Rock, I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304640.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Black Pistol Fire - Don't Wake the Riot (2016) [MP3|320 Kbps] <Alternative, Blue
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304635.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Placebo - Black Market Music: B-Sides (2015) [MP3|320 кб/с]<Alt. Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303222.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Green Day - Greatest Hits: God's Favorite Band (2017) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303052.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Blue Stahli - Copper (2020) [MP3|320 Kbps] <Industrial Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302183.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ The Smashing Pumpkins - Monuments to an Elegy (2014) [MP3|320 кб/с]<Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302083.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Halestorm - 1 Album + 3 EP + 1 Single (2001-2014) [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300308.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ System Of A Down - Fucking Rare (2010) [MP3|192 кб/с]<Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300202.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ _ash Aria_ - _ash Aria_ (2016) [MP3|320 Kbps] <Alternative Metal, Industrial Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298211.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Gno (Gnô) - Sick Princess (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298147.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Coldplay - A Head Full of Dreams (2015) [MP3|320 кб/с]<Pop Rock, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296550.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ The Smashing Pumpkins - Shiny and Oh So Bright Vol. 1 / LP: No Past. No Future. 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294901.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ P.O.D. - Circles (2018) [MP3|320 Kbps] <Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294891.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Eskimo Callboy - Rehab (2019) Deluxe Edition [MP3|320 Kbps] <Post-Hardcore, Alte
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294868.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sam Roberts Band - TerraForm (2016) [MP3|320 Kbps] <Alternative, Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294372.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Zebrahead - The Bonus Brothers (Japan Only Bonus Tracks) (2017) [MP3|320 Kbps] <
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293609.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Those Poor Bastards - Inhuman Nature (2018) [MP3|320 Kbps] <Gothic, Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289906.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Celldweller - Beta Cessions: Demos & Rarities (2017) [MP3|320 Kbps] <Industrial,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289819.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ The Men That Will Not Be Blamed For Nothing - Now That's What I Call Steampunk! 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288442.jpg" />
 </div>
 
 

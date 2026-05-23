@@ -6,7 +6,7 @@ Orden Ogan - Studio Albums (9 releases) (2004-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065422.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sacrilege (Sweden) - Studio Albums (2 releases) (1996-1997) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065369.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Merle Haggard And George Jones - A Taste Of Yesterdays Wine (1982) [FLAC 2.0|192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065368.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Merle Haggard And The Strangers - A Working Man Can't Get Nowhere Today (1977) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065367.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Enforcer - Studio Albums (6 releases) (2008-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064814.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Gorguts - Studio Albums (6 releases) (1991-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064615.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Larry Gatlin - Rain Rainbow (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064613.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Sons of Eternity - Studio Albums (2 releases) (2023-2026) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064150.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Prelude - Owlcreek Incident (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064048.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Tommy Roe - Tommy Roe's 16 Greatest Hits (1975) [FLAC 2.0|96/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063898.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Monolithe - Studio Albums (11 releases) (2003-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063706.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Anthemon - Studio Albums (5 releases) (1998-2005) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063223.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Doomed - Studio Albums (6 releases) (2012-2018) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063058.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ram-Zet - Studio Albums (6 releases) (2000-2026) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062842.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Harry Secombe With Myrna Rose - Sings The Songs Of Ivor Novello (1967) [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062841.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Melachrino Strings And Orchestra - Moods In Music: Music For Relaxation (195
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062562.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Samael - Studio Albums (13 releases) (1991-2026) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062561.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Hollywood Symphony Orchestra - Orchestral Fireworks (1966) [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062317.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Celine Dion - I Am. Original Motion Picture Soundtrack (2024) [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062316.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Johnny Mathis - Faithfully (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062283.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Barry Manilow - Manilow Magic. The Best Of Barry Manilow (1979) [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062282.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Les Paul And Mary Ford - Lovers' Luau (1959) [FLAC 1.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061627.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Peggy Lee - I'm A Woman (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061595.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Roger Miller - The One And Only Roger (1965) Reissue 1969 [FLAC 2.0|96/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061388.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Elvenking - Studio Albums (12 releases) (2001-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061347.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Dinah Kaye With Tubby Sykes And The Power-House 7 - The Roaring 20's (1963) [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061229.jpg" />
 </div>
 
 

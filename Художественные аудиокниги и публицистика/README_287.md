@@ -1,81 +1,3 @@
-###  Публикация: 1505428   (804457) от 27.10.2021
-
-Лаврентий Чекан | Эго маньяка (Книга 03). Красный дождь (2021) [MP3, Николай Бердик]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Убиты две молодые женщины. Тело каждой несчастной было восемь раз пронизано тонким неметаллическим предметом. Причем пронизано ОЧЕНЬ МЕДЛЕННО. Как если бы убийца растягивал свое удовольствие от самой процедуры убийства, доставляя жертве невыносимые страдания. Расследование приводит старшего лейтенанта следственного отдела полиции Валерия Самсонова в приют, где когда-то (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 07:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE59E87755511B1A10CCC8F650E35C2490186A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505201   (804453) от 27.10.2021
-
-Роман Волков | Эго маньяка (Книга 02). Черный поток (2021) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что вы знаете о маньяках? Только то, что рассказывают о них по телевизору и в соцсетях – извращенцы с больной психикой… А вот маньяки знают о вас все. Самое главное – они знают ваши слабые места и могут воспользоваться этим. Страшную картину застали оперативники на месте первого преступления. Пожилой ростовщик и его слабоумный внук – оба убиты рубящими ударами по (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 06:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5F65EF2841DB1818C2AA6158332B94A51A8415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198806   (804423) от 13.01.2018
-
-Сью Монк Кидд | Тайная жизнь пчел (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История четырнадцатилетней Лили Оуэнс, потерявшей в детстве мать, — это история об утратах и обретениях, о любви, вере и прощении, история о людях, которым открылся истинный смысл концепций «выбора того, что важно».Жанр: Современная прозаПродолжительность: 09:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E5E765208CEA13EE08135CDFFFACF45FC7E610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198821   (804418) от 13.01.2018
 
 Эд Макбейн | 87-й полицейский участок (Книга 5). Выбор убийцы (2017) [MP3, Валерий Стельмащук]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804418.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804366.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804353.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804330.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804300.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804219.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804199.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804197.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804193.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804183.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804167.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804127.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804118.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803903.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803830.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803455.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803364.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803361.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803353.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803346.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803309.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803190.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803161.jpg" />
 </div>
 
 
@@ -671,6 +593,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7C7FE5A2964E37DBA839EDE1FFAFF847F66D817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199062   (802714) от 14.01.2018
+
+Филипп Майер | Американская ржавчина (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802714.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Американская ржавчина» произвела фурор среди критиков и читателей, авторитетнейшие издания “Economist” и “New York Times” назвали этот роман “книгой года”, а “Washington Post” включил «Ржавчину» в десять лучших книг года.
+Роман о потерянной американской мечте и современном отчаянии, о дружбе и верности, о любви, вырастающей из обломков разрушенной жизни. Филипп (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1469518FB2C0E9C94BE1DA66095DA74C746F6C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384511   (802651) от 20.05.2020
+
+Мэттью Фаррелл | Я все знаю (2020) [MP3, Роман Волков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сохранить рассудок, если все улики против тебя? Детективу Сьюзен Адлер поручают непростое дело: наследница многомиллионного состояния и глава крупной благотворительной организации попадает в аварию, но, по словам криминалистов, причина её смерти кроется совсем не в этом. Полиция прилагает огромные усилия, чтобы найти убийцу, но почти не обращает внимание на то, (   Читать дальше...   )Жанр: Современные детективы, ТриллерыПродолжительность: 09:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A68FD313E97598DF511A5F888F245FCC850CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384526   (802642) от 20.05.2020
+
+Маргарет Этвуд | Заветы (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802642.jpg" />
+</div>
+
+
+###  Подробнее
+
+35 лет назад, в 1985 году, вышел самый знаменитый роман канадской писательницы Маргарет Этвуд «Рассказ служанки». Антиутопическая книга о кошмарном режиме патриархальной теократии, о Галааде, принесла Этвуд небывалую известность. В прошлом году, после феноменального успеха одноименного сериала на Hulu, писательница выпустила долгожданное продолжение — «Заветы». Еще (   Читать дальше...   )Жанр: Социально-психологическая фантастика, альтернативная историяПродолжительность: 11:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1044BDF62FFF85105A43027582B4401F805E54BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

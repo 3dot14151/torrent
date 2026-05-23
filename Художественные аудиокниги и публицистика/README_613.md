@@ -1,83 +1,3 @@
-###  Публикация: 1579065   (340806) от 25.09.2022
-
-Андрей Ткачев, Findroid | Я покорю Лабиринт с помощью техник массажа (Книга 4) (2022) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Я покорю Лабиринт с помощью техник массажа» – фантастический роман Андрея Ткачева и Findroid, четвертая книга одноименного, жанр городское фэнтези, бояръ-аниме.
-
-Я постепенно становлюсь сильнее, а техники массажа позволяют мне наладить связи и обзавестись новыми полезными знакомствами. Пока непонятно что меня ждёт дальше, но я точно уверен, что не сойду со своего (   Читать дальше...   )Жанр: Городское фэнтезиПродолжительность: 07:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE968398E076F28FD6B4752816CE7A38B48C4F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073586   (340734) от 18.11.2016
-
-Герхарт Гауптман | Перед заходом солнца (1978) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Перед заходом солнца» — одна из немногих пьес XX века, которую и по тематике, и по уровню ее художественного осмысления можно сопоставить с творениями таких титанов, как Шекспир и Гете. Прямая генетическая связь с «Королем Лиром» здесь очевидна. Еще более ощутимо влияние Гете с его фаустовской темой горделивого бунта свободной личности против неумолимых законов (   Читать дальше...   )Жанр: Спектакль, драмаПродолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B4B48FDC2FD3E18541FFDDF7F55BE27B127D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257920   (340693) от 28.10.2018
-
-Денис Владимиров | Шкуры из стали (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У Дика Гаррота всего две цели – выжить и отомстить. Убить его мечтает каждый, ведь награда непомерно высока. Враги же могущественны и практически недостижимы. А здесь, среди бескрайнего лазурного неба, парят тысячи и тысячи островов, между ними снуют летающие корабли, которых с пронзительными и победными криками обгоняют белоснежные чайки. Блеск золота и латуни, (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 11:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4BE4100D693610E832CD8590AC9E80A2727004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579115   (340663) от 25.09.2022
 
 Aгата Фишер, Антон Войтов | Хрономаг (Книга 1). Хрономаг (2022) [MP3, Алексей Семёнов]
@@ -86,7 +6,7 @@ Aгата Фишер, Антон Войтов | Хрономаг (Книга 1).
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340663.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340648.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340561.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340551.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340454.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340430.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340414.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340411.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340407.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340395.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340353.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340323.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340040.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339955.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339938.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339936.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339860.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339819.jpg" />
 </div>
 
 
@@ -564,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339712.jpg" />
 </div>
 
 
@@ -590,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339578.jpg" />
 </div>
 
 
@@ -616,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339569.jpg" />
 </div>
 
 
@@ -643,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339507.jpg" />
 </div>
 
 
@@ -669,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339396.jpg" />
 </div>
 
 
@@ -680,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88966890EE692F584FE79A25E5F633EEF610C9EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954674   (339257) от 08.11.2015
+
+Николай Стариков | Адмирал Колчак. Протоколы допроса. (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Протоколы допроса Колчака – важнейшее свидетельство истории. В ночь с 6 на 7 февраля 1920 года, А. В. Колчак был расстрелян, а его тело сброшено в прорубь реки Ангары. Это конец жизни адмирала, Верховного правителя России, полярного исследователя, моряка, отца, мужа, возлюбленного… Преданный союзниками, арестованный революционерами, Колчак прекрасно понимал, что (   Читать дальше...   )Жанр: Мемуары, документальная литература, историяПродолжительность: 08:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C2550D91009D22C898FA119DAB43CFDCC3D3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330600   (339104) от 11.10.2019
+
+Юрий Нагибин | Тьма в конце туннеля. Моя золотая тёща (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга произведений, которые представляют собой особый феномен позднего Ю.Нагибина: своеобразный итог, черту, которая подводится под литературной деятельностью этого неординарного писателя. Повести "Тьма в конце туннеля" и "Моя золотая теща" пронизаны болью о горькой судьбе России в XX веке.Жанр: ПовестьПродолжительность: 13:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5909462575FAE8BC669D47196D321DD76B8FAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330623   (339094) от 11.10.2019
+
+Наталья Нестерова | Дом учителя (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как ни горько это признавать, но многие женщины, чьи дети покидают отчий дом, теряют почву под ногами. Куда теперь себя девать? Готовить завтраки, собирать в школу, стирать и чинить рваные джинсы, мазать зеленкой разбитые коленки, проверять уроки и ходить на классные собрания больше не нужно. Ну, а что тогда делать? «Судьба человека есть его характер», – много лет (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E08E7108B51A4DB5A720574CC117E2FD939CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

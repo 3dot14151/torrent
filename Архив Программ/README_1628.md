@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Backupper Technician Plus 6.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225267.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Argos Cursors by jacksmafia [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225246.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Visual C++ 14.28.29515 Runtimes AIO (x86-x64) Repack by @ricktendo64 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225244.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ IObit Smart Defrag Pro 8.2.0.197 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225228.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FanControl V132 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225213.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ USB Protection & Recovery 1.2 Portable by killer000 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225202.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Juicer 3.89c Build 250 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225196.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Uninstall Tool 3.7.1 Build 5695 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225195.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ashampoo Burning Studio 2013 11.0.5.38 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225189.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Antivirus Removal Tool 2022.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225164.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Windows and Office ISO Download Tool 8.41.0.147 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225142.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Google Chrome 87.0.4280.66 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225135.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AOMEI Backupper Pro 6.2.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225114.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AOMEI Partition Assistant Pro 9.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225108.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Viber 14.2.0.38 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225100.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adobe Photoshop 2023 24.0.0.59 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225049.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Krita 4.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225007.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Webcam Surveyor 3.8.1 Build 1135 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224967.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ CRM система Клиент Коммуникатор 7.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224966.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Wallpaper Engine 2.0.17 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224956.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ KMS Tools Portable by Ratiborus 18.10.2022 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224946.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ YouTube By Click Premium 2.2.121 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224944.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Q-Dir 7.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224940.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Adobe Media Encoder 2020 14.6.0.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224919.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ FreeFileSync 10.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224900.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1693567   (121720) от 21.01.2024
-
-OsmAnd+ — Карты & GPS Офлайн v4.6.13 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету.
-OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.01.2024Разработчик: OsmAndПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2A9056D67A8AD71CE62056041CAC0D243A7CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694388   (121221) от 24.01.2024
-
-Яндекс Карты и Навигатор v17.3.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Яндекс Карты — приложение к городу. К тому, который прямо сейчас вокруг вас. Тут есть много всего, чтобы город был комфортным и понятным. Например, можно в любое время узнать, когда нужный транспорт будет на остановке. Ведь автобусы, троллейбусы и трамваи едут прямо по карте. Есть поиск мест по адресу, названию или просто по категории. Есть тот самый Навигатор с (   Читать дальше...   )Тип издания: ModРелиз состоялся: 22.01.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F03BE36D0E755EC657312A80EB501E406A87437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694267   (121211) от 24.01.2024
 
 vpnify - Безлимитный VPN 2.1.6 Mod by YouAreFinished [Ru/En]
@@ -59,7 +6,7 @@ vpnify - Безлимитный VPN 2.1.6 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121211.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ MacroDroid v 5.40.4 Pro/Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121200.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ Carista OBD2 v8.2.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121187.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ Plus Messenger (Telegram+) v10.6.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121152.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ PictureThis - Plant Identification v3.76.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121041.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ PhotoTune - Улучшитель фото v4.4.9 Mod by maxi123444 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121019.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ AR Ruler App: Линейка Рулетка v2.7.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121009.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ Strava: бег, велоезда, хайкинг v344.9 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120674.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ DtcFix v3.42 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120575.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ My TTS: Text-to-Speech v1.2.2 Mod by Alex.Strannik [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120523.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ AirReceiver AirPlay Cast DLNA v5.0.8 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120521.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ OfficeSuite Pro + PDF 14.2.50872 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120480.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ RUTUBE - видео, шоу, трансляции 28.16.1.TV-androidtv Mod by N3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120192.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120181.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ RUTUBE: видео, шоу, трансляции 28.18.2-android Mod by N3k1t4_1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120164.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ ViewBox v1.8.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120058.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ Lumii - Фоторедактор, Фильтры v1.621.148 Mod by maxi123444 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119544.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ LightX - Фоторедактор v2.2.1 b417 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119530.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ ToonMe v0.6.106 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119506.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ Strava: бег, велоезда, хайкинг v345.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119486.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.014.1437 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119477.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.5 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119459.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119413.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ Rock Identifier - Stone ID v2.3.36 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119348.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ Rock Identifier - Stone ID v2.3.36 Mod by youarefinished [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17798905BA13235343887E9ED95F63A946B271A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696811   (119344) от 04.02.2024
+
+Simply Piano: Learn Piano Fast v7.22.7 Mod by youarefinished [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simply Piano - это одно из лучших приложений для обучения игры на фортепиано с любого уровня владения навыком: от новичка до профессионала. Мечтаете научиться играть известные композиции легендарных композиторов всех времен и народов, но нет времени посещать музыкальную школу? Начните свой путь с самоучителем от JoyTunes – Simply Piano, с приложением, которое научит (   Читать дальше...   )Тип издания: Premium + CheatsРелиз состоялся: 01.02.2024Разработчик: Simply (formerly JoyTunes)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624312BC00112ECCA9987F1CEB3358EADBAB912E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696926   (119237) от 05.02.2024
+
+Clean Master 9.4.9.3479 Mod by Dymonyxx [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое clean master? Эта программа – очиститель приложений, которую должен иметь каждый пользователь андроид. Она содержит в себе всеобъемлющие методы для очистки: кэша, неиспользуемых файлов, личной истории и пакетов приложений на андроид телефонах. Она так же завершает приложения и освобождает память для ускорения телефона и продлевает время работы аккумулятора. (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 17.01.2024Разработчик: KS MobileПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75D47D1724F345FE7A2838409375271B4905255
 ```
 
 https://mybot314.ru/tekegram_catalog/

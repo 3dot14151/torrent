@@ -7,7 +7,7 @@ Microsoft Windows 11 [10.0.26100.8457], Version 24H2 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070260.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Windows 11 [10.0.26100.8457], Version 24H2 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070259.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft Windows 11 [10.0.26200.8457], Version 25H2 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070258.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Windows 11 [10.0.26200.8457], Version 25H2 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070257.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft Windows 11 [10.0.28000.2113], Version 26H1 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070256.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Windows 11 [10.0.28000.2113], Version 26H1 (Updated May 2026) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070255.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Windows 11 [10.0.26100.8246], Version 24H2 (Updated April 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066251.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Windows 11 [10.0.26100.8246], Version 24H2 (Updated April 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066250.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft Windows 11 [10.0.26200.8246], Version 25H2 (Updated April 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066249.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Microsoft Windows 11 [10.0.28000.1836], Version 26H1 (Updated April 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066248.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft Windows 11 [10.0.28000.1836], Version 26H1 (Updated April 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066247.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Windows 11 [10.0.26200.8246], Version 25H2 (Updated April 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066220.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft Windows 11 [10.0.26100.8037], Version 24H2 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061436.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Windows 11 [10.0.26100.8037], Version 24H2 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061435.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Microsoft Windows 11 [10.0.26200.8037], Version 25H2 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061434.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Windows 11 [10.0.26200.8037], Version 25H2 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061433.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Windows 11 [10.0.28000.1719], Version 26H1 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061432.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Microsoft Windows 11 [10.0.28000.1719], Version 26H1 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061340.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Microsoft Windows 11 [10.0.26200.7840], Version 25H2 (Updated February 2026) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057432.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Microsoft Windows 11 [10.0.26200.7840], Version 25H2 (Updated February 2026) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057431.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Microsoft Windows 11 [10.0.26100.7840], Version 24H2 (Updated February 2026) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057430.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Microsoft Windows 11 [10.0.26100.7840], Version 24H2 (Updated February 2026) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057429.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Microsoft Windows 11 [10.0.28000.1450], Version 26H1 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056279.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Microsoft Windows 11 [10.0.28000.1450], Version 26H1 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056276.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Windows 11 [10.0.26100.7623], Version 24H2 (Updated January 2026) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053303.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Microsoft Windows 11 [10.0.26100.7623], Version 24H2 (Updated January 2026) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053302.jpg" />
 </div>
 
 

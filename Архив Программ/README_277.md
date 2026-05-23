@@ -6,7 +6,7 @@ Symantec Backup Exec 13.0.2896.9 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920166.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics Driver Updater 1.23.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920139.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CyberLink PowerDVD Ultra 16.0.2406.60 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920127.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Phase One Capture One Pro 10.0.1.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920116.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Reg Organizer 8.76 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920087.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Flash Player 32.0.0.344 (Adobe Runtimes AllInOne 11.03.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920075.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MAGIX Vegas Pro 19.0.0.341 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920040.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Hard Disk Sentinel Pro 5.61 Build 11463 Final RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920035.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe XD 42.1.22.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920027.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Advanced SystemCare Pro 13.3.0.232 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920021.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ IDM UltraCompare Professional 8.00.0.1012 [eng/rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920012.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ontrack EasyRecovery Enterprise 11.5.0.2 RePack (& portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920011.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adguard Премиум 6.0.189.984 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920002.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Daum PotPlayer 1.6.58772 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_919993.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MAGIX Vegas Pro 19.0 Build 341 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919980.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.0.055 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919979.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Caramba Switcher + Corporate + Lab 2020.02.20 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919973.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Inkscape 0.48.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919969.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FastStone Image Viewer v7.5 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919923.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Sweet Home 3D 5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919922.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe Photoshop 2021 22.5.0.384 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919917.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 8.1 6.3 (Build 9600.19665) (24in2) x64/x86 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919909.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Windows 10 Pro (light) 1909 x64 Rus by Huronat [18363.719] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919900.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Windows 10 1909 (Build 18363.719) (44in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919892.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Microsoft Office 2016 Standard 16.0.4312.1000 RePack by KpoJIuK (2016.02) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919889.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919887.jpg" />
 </div>
 
 

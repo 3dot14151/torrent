@@ -1,56 +1,3 @@
-###  Публикация: 1767515   (32941) от 26.12.2024
-
-X Downloader & Video Player v2.1.25 Premium Mod by PlatinumMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-🌟 Быстрое приложение для загрузки видео. Легко сохраняйте все видео и фотографии из Интернета.
-XDownloader — это мощный инструмент, который позволяет вам загружать видео с любого веб-сайта или приложения социальных сетей, включая TikTok (без водяного знака), Facebook, Instagram и другие. С помощью встроенного браузера XDownloader вы можете легко просматривать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.12.2024Разработчик: DC Mobile StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769000   (32925) от 26.12.2024
-
-Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Автоматическое размытие фона - это быстрое и простое в использовании приложение для создания потрясающих изображений с эффектом размытия фона.Тип издания: AdfreeРелиз состоялся: 24.12.2024Разработчик: Judi StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739514   (32910) от 27.12.2024
 
 Радио онлайн - PCRadio v2.7.5.2 Mod by Alex.Strannik [Ru/Multi]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32910.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32808.jpg" />
 </div>
 
 
@@ -115,7 +62,7 @@ TikTok Private Plus (PayBack Edition) v37.9.16 Mod by TikTok Updates + Plugin Up
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32615.jpg" />
 </div>
 
 
@@ -142,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32597.jpg" />
 </div>
 
 
@@ -169,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32543.jpg" />
 </div>
 
 
@@ -195,7 +142,7 @@ ASR Voice Recorder v539 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32503.jpg" />
 </div>
 
 
@@ -221,7 +168,7 @@ Panels - панель быстрого доступа v1.476 Mod by KirIif' [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32413.jpg" />
 </div>
 
 
@@ -247,7 +194,7 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32236.jpg" />
 </div>
 
 
@@ -274,7 +221,7 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32233.jpg" />
 </div>
 
 
@@ -300,7 +247,7 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32189.jpg" />
 </div>
 
 
@@ -327,7 +274,7 @@ PicsMaster AI Photo Editor Pro v2.0.4 Mod by TRUMods [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32112.jpg" />
 </div>
 
 
@@ -353,7 +300,7 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32074.jpg" />
 </div>
 
 
@@ -379,7 +326,7 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32047.jpg" />
 </div>
 
 
@@ -405,7 +352,7 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32044.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32033.jpg" />
 </div>
 
 
@@ -457,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32006.jpg" />
 </div>
 
 
@@ -484,7 +431,7 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32000.jpg" />
 </div>
 
 
@@ -510,7 +457,7 @@ Graph Messenger (Telegraph) vT11.5.3 - P11.16.2 Mod by NNN x RBMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31948.jpg" />
 </div>
 
 
@@ -538,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31911.jpg" />
 </div>
 
 
@@ -564,7 +511,7 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31824.jpg" />
 </div>
 
 
@@ -593,7 +540,7 @@ Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31799.jpg" />
 </div>
 
 
@@ -621,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31727.jpg" />
 </div>
 
 
@@ -647,7 +594,7 @@ Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31663.jpg" />
 </div>
 
 
@@ -673,7 +620,7 @@ Filmora - Редактор видео с AI v14.4.01 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31641.jpg" />
 </div>
 
 
@@ -684,6 +631,58 @@ Filmora - программа для редактирования видеоза�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:811A9BEA3019CDDC44278B66EE84FF31FB84BA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772522   (31279) от 11.01.2025
+
+Просто Радио онлайн v13.5 Mod by 0x7d [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31279.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении Вы найдете более 1500 радиостанций всех жанров: Наша музыка, Поп, Рок, Ретро, Диско, Танцевальная музыка, Шансон, Реп, R&B, Хип-хоп, Джаз, Электронная, Deep, House, Этническая, Фолк, Релакс, Классическая музыка, Разговорное радио. Просто радио онлайн. Вы можете слушать любимые радиостанции онлайн. Для прослушивания воспользуйтесь соединением wifi (   Читать дальше...   )Тип издания: FullРелиз состоялся: 10.01.2025Разработчик: a-labПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCE043D61405A12433C14221DCDBF7D778F8719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772519   (31267) от 11.01.2025
+
+SnapEdit - AI photo editor v7.2.8 Mod by Maximoff⁠ [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31267.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 10.01.2025Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
 ```
 
 https://mybot314.ru/tekegram_catalog/

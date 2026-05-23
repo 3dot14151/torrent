@@ -6,7 +6,7 @@ VA - EnTangled Vol.03 (Mixed By Latex Zebra) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455114.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Black Hole Trance Music 09-18 (2018)[MP3|320 Kbps]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454936.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Infrasonic Summer Selection (2022) [MP3|320 Kbps] <Trance, Uplifting Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453832.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Uplifting Trance Selection 001 (2022) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453828.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Markus Schulz – Global DJ Broadcast Top 20 - August-September (2012) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453326.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Lifted Audio 3 Years Together With You (Mixed by Azima) (2018) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452874.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Trance In Tomorrow's Land: The Festival Edition (2018) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452871.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Ellie Lawson: The Best Of (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452861.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ DJ Dado - The Album (1996) [OGG|485 Kbps] <House, Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451647.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Le Tour De Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451390.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ David Forbes pres. Hal Stucker - Electronic Excursions (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451378.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Vocal Dance Vol.4 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451372.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Progressive Ibiza (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448807.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - FSOE Ibiza (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445102.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Nothing But... Total Trance Selections Vol.05 (2018) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444929.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Epic Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444925.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443264.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443126.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 September (2018) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442559.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Black Hole Trance Music 09-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440874.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Sheridan Grout Presents Escape Vol.1 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439895.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Aurosonic - Winter Sessions (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438507.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438307.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438298.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Voice Hits Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438013.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ VA - Uplifting Trance Essentials Vol 3 (2020) [MP3|320 Kbps] <Trance, UpliftingT
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436161.jpg" />
 </div>
 
 

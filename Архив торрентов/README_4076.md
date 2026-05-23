@@ -6,7 +6,7 @@ WinCatalog 2024.3.0.1005 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177428.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zoner Photo Studio X 19.2009.2.286 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177423.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IceCream Ebook Reader Pro 6.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177420.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ant Download Manager Pro 2.10.5 Build 86416 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177412.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TapinRadio 2.15.96.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177404.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Visual Studio 2019 Professional 16.8.1 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177401.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Task Office 8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177400.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Art Text 4 v.4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177398.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ eM Client Pro 8.1.852.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177397.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Drovnin (Юрий Дровнин) - Vintage Circus Heroes (2022) [FLAC|Lossless|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177388.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ RisohEditor 5.7.8 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177387.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wise Care 365 PRO 5.6.1.557 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177384.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Money Pro - Personal Finance 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177380.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Plus Messenger (Telegram+) v10.1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177374.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ eM Client Pro 9.2.2093.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177366.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Path Finder 2147 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177364.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Tixati 2.77 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177363.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mailbird Pro 2.9.83.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177362.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177344.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Geekbench 5 v.5.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177343.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Resource Hacker 5.2.1.376 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177339.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ PassMark RAMMon 2.5 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177337.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ The Bat! Professional 9.3.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177336.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ HopToDesk 1.40.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177332.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ MailWasher Pro 7.12.182 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177330.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Geekbench 6.2.1 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177328.jpg" />
 </div>
 
 

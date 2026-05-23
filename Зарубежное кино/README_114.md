@@ -1,57 +1,3 @@
-###  Публикация: 1448019   (1031019) от 16.02.2021
-
-Асоциальная сеть / Silk Road (2020) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В мире супергероев он был бы Джокером. Настоящий суперзлодей, бросивший вызов системе. Он создал свой Амазон в мире даркнета, где преступники со всего мира сбывали оружие, поддельные документы и наркотики. Многомиллионное состояние, возможность по щелчку пальцев организовать любую хакерскую атаку и вооружить небольшую страну - кажется, он был неуязвим. Но как и всякий (   Читать дальше...   )Производство: США / High Frequency Entertainment, Mutressa Movies, Perfect Season ProductionsЖанр: Триллер, драма, криминалРежиссер: Тиллер РасселлАктеры: Ник Робинсон, Дженнифер Юн, Джимми Симпсон, Джейсон Кларк, Пол Блотт, Даррел Бритт-Гибсон, Дэниэл Дэвид Стюарт, Кеннет Миллер, Александра Шипп, Кэтрин АселтонПеревод: Авторский (Антон Карповский)Субтитры: Английские
-Присутствует ненормативная лексика.Продолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B296B2DC2A880452F8E5FE10079C02D07083CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448020   (1031018) от 16.02.2021
-
-Асоциальная сеть / Silk Road (2020) HDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В мире супергероев он был бы Джокером. Настоящий суперзлодей, бросивший вызов системе. Он создал свой Амазон в мире даркнета, где преступники со всего мира сбывали оружие, поддельные документы и наркотики. Многомиллионное состояние, возможность по щелчку пальцев организовать любую хакерскую атаку и вооружить небольшую страну - кажется, он был неуязвим. Но как и всякий (   Читать дальше...   )Производство: США / High Frequency Entertainment, Mutressa Movies, Perfect Season ProductionsЖанр: Триллер, драма, криминалРежиссер: Тиллер РасселлАктеры: Ник Робинсон, Дженнифер Юн, Джимми Симпсон, Джейсон Кларк, Пол Блотт, Даррел Бритт-Гибсон, Дэниэл Дэвид Стюарт, Кеннет Миллер, Александра Шипп, Кэтрин АселтонПеревод: Авторский (Антон Карповский)Субтитры: Отсутствуют
-Присутствует ненормативная лексика.Продолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D340C1BF9B6E07C5EC302C25917F99FF4F96769A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440915   (1031009) от 16.02.2021
 
 Страна тигров / Tigerland (2000) BDRip [H.264/1080p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031009.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030961.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030960.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030902.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030899.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030894.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030881.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030879.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030865.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030842.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030839.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030828.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030827.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [H.264
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030824.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030814.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030811.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030807.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030801.jpg" />
 </div>
 
 
@@ -529,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030797.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030792.jpg" />
 </div>
 
 
@@ -581,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030786.jpg" />
 </div>
 
 
@@ -607,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030781.jpg" />
 </div>
 
 
@@ -633,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030777.jpg" />
 </div>
 
 
@@ -659,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030773.jpg" />
 </div>
 
 
@@ -670,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41C950374996DADA723DECA017C924863E4756CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621865   (1030735) от 26.03.2023
+
+Сестричка, действуй 2 / Sister Act 2: Back in the Habit (1993) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прогульщики и лоботрясы ни в какую не хотят учиться, и бедные учителя не находят себе места от их шуток и приколов. Их молитвы услышаны - неугомонная Долорес соглашается внедриться к ним под маской обычного учителя музыки. Бывшая подруга мафиози вспомнила о своих былых похождениях, и под рясой монахини в класс входит крутая «сестричка». Религиозные догмы снова дрогнули... (   Читать дальше...   )Производство: США / Touchstone PicturesЖанр: комедия, семейный, музыкаРежиссер: Билл ДьюкАктеры: Вупи Голдберг, Кэти Нэджими, Барнард Хьюз, Мэри Уикс, Джеймс Коберн, Майкл Джитер, Уэнди Маккена, Шерил Ли Ральф, Роберт Пасторелли, Томас ГоттшалькПеревод: многоголосый профессиональный, двуголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7CC8D0E8543248838214A2277755645AD92E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621819   (1030733) от 26.03.2023
+
+Моя милая Аудрина / My Sweet Audrina (2016) HDTVRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня психологического триллера Аудрина живет в большом родительском особняке и ни с кем не общается. Девочку постоянно преследуют кошмары, с которыми она самостоятельно не может справиться. Она уверена, что у нее когда-то была старшая сестра, которая в результате нападения в лесу погибла. Родители знают тайну первой Аудрины, но рассказывать правду больной (   Читать дальше...   )Производство: США, A+E Studios, Audrina Road ProductionsЖанр: триллер, драма, детективРежиссер: Майк РолАктеры: Индиа Айсли, Уильям Моусли, Джеймс Таппер, Тесс Аткинс, Кирстен Робек, Дженнифер Коппинг, Кейси Рол, Фаррин ВанХамбек, Мэтт Андерсон, Сет Исаак ДжонсонПеревод: Двуголосый любительский (datynet & Galina Vasyukova)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B389A695744A52F88E09D77ED8ED6786C19250
 ```
 
 https://mybot314.ru/tekegram_catalog/

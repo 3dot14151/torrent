@@ -6,7 +6,7 @@ VMware Workstation 17 Pro 17.6.3 Build 24583834 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TranslucentTB 2024.4 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24326.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CPU-Z 2.15.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24312.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24303.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SIV (System Information Viewer) 5.80 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24298.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wise Care 365 Pro 7.2.3.696 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24284.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ GIMP 3.0.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24277.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ StartAllBack 3.9.6 build 5261 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24271.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Firefox Browser 136.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24260.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ ExtraDisks 25.3.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24252.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WinTools.net Premium 25.3.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24245.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 14.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24243.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Windows 11 PRO 24H2 26100.3476 Update 13 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24236.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24221.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows 11 PRO 23H2 22631.5039 Update 17 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24212.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24209.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ CCleaner 6.34.11482 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24207.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ AIMP 5.40 Build 2669 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24201.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Tixati 3.33.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24186.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ GIMP 3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24183.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ XYplorer 27.00.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24176.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ XtraTools Professional 25.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24172.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Alfa eBooks Manager 9.1.32 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24171.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Skype 8.138.0.209 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24169.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ UltraSearch Professional 4.6.3.1106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24168.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ FastFlix 5.10.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24167.jpg" />
 </div>
 
 

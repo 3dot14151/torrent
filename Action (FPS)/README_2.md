@@ -6,7 +6,7 @@ BioShock Infinite (2013) [Ru/En] (1.0.1643565/dlc) Repack dixen18 [Complete Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029360.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BPM: BULLETS PER MINUTE (2020) [En] (1.0) Steam-Rip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028399.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027427.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026489.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026454.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025862.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Doom 3 + Doom 3: Resurrection of Evil (2004-2005) [Ru] (1.3/1.3.1302) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024658.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.0.1.1) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023915.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023232.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Relicta (2020) [Ru/En] (1.10) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020361.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018841.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Deadstep (2018) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018168.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/Multi] (6.5.0.1331/dlc) License GOG 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017458.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Metro: Exodus / Метро: Исход (2019, 2021) [Ru/Multi] (2.0.0.0/dlc) Lic
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017307.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016640.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Thief (2014) [Ru/Multi] (1.7) License GOG [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011558.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007206.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Liberated (2020) [Ru/Multi] (1.16/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004637.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/Multi] (1.32) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004188.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/En] (1.32) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004176.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002880.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002364.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip Other s [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001493.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Doom 3 BFG Edition [Ru/En] (RePack/1.0.0.1u1) 2012 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999503.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Doom 3: BFG Edition [Ru/En] (RePack/1.1400.346456) 2012 | R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999204.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Homefront [Ru/En] (RePack/1.0.384501) 2011 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998465.jpg" />
 </div>
 
 

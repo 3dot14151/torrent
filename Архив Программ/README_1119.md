@@ -6,7 +6,7 @@ BELOFF [dp] 2019.8.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477048.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SoftMaker Office Professional 2018 rev 968.0812 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477045.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ OCCT 6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477042.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ iZotope - Insight 2 2.1.1.409 VST, VST3, AAX RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477022.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adobe components: Flash Player 32.0.0.238 + AIR 32.0.0.125 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477015.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Firefox Browser 80.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477008.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AltDesk 1.9.1 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476991.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AVG PC TuneUp 16.2.1.18873 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476962.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Windows 10 RTM_GDR 10.0.10240.16393 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476952.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Windows 10 Insider Preview 10.0.10547 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476951.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Mozilla Firefox Nightly 52.0a1 (2016-09-26) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476937.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ YouTube Video Downloader PRO 5.7.4 (20160829) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476925.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VSO Downloader Ultimate 2.9.10.6 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476896.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ UnHackMe 10.87 Build 837 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476860.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Tor Browser Bundle 8.5.4 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476842.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ HiBit Uninstaller 2.5.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476841.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476827.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ XYplorer 21.00 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476822.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ DxO PhotoLab Elite 3.3.0 build 4391 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476818.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ AIMP 4.70 Build 2227 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476808.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476801.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Bandicam 3.2.4.1118 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476785.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Glary Utilities PRO 2.49.0.1600 Portable by PortableAppZ  [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476770.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7232.5000 (2019.08) RePack by KpoJIuK [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476689.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ iZotope - RX 8 Audio Editor Advanced 8.0.0.496 STANDALONE, VST, VST3, AAX RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476662.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ BurnAware Pro 5.2 Final Portable by PortableAppZ  [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476633.jpg" />
 </div>
 
 

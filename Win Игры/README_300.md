@@ -1,29 +1,3 @@
-###  Публикация: 1838524   (260846) от 23.11.2025
-
-Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Decepticon
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Почувствуйте азарт погони и получите настоящий драйв в Need for Speed Hot Pursuit Remastered. Дайте волю неистовой жажде скорости - примерьте на себя роль преступника или служителя закона и гоняйте на самых крутых и мощных машинах мира. Перехитрите копов или нейтрализуйте нарушителей, используя свой арсенал, в невероятном мире захватывающих гонок, где можно состязаться (   Читать дальше...   )Тип издания: RepackРазработчик: Stellar Entertainment LimitedЖанр: Экшены, ГонкиЯзык озвучки: Русский (частично), Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55600A84A461BE02C16A1EBC19C06DD5138FBD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838522   (260842) от 23.11.2025
 
 Demeo x Dungeons and Dragons: Battlemarked (2025) [Multi] (1.5.0) Scene SKIDROW [VR]
@@ -32,7 +6,7 @@ Demeo x Dungeons and Dragons: Battlemarked (2025) [Multi] (1.5.0) Scene SKIDROW 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260842.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Kingdoms Reborn (2020) [Ru/Multi] (0.250) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260826.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260757.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Killbug (2023) [En] (1.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260755.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260733.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260672.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Port Royale 3: Pirates & Merchants [Ru/En] (RePack/1.1.2.24556) 2011 l R.G. Cata
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260669.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Syberia - Remastered (2025) [Ru/Multi] (20251104) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260656.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Pro Evolution Soccer 2012 (Patch/Mod/3.4) 2012 | PESEdit
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260569.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ Goblin Dungeon (2025) [Ru/Multi] (Build 20909598/dlc) Repack Let'sРlay [Eternal
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260546.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ Defenders of Ardania [Ru] (RePack/1.2) 2012 l Naitro
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260352.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260144.jpg" />
 </div>
 
 
@@ -353,7 +327,7 @@ Chicken Rush Deluxe / Куриная месть. Снова в деле (P) [Ru]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260133.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ Formula Legends (2025) [Multi] (1.0.8/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260078.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.3.101.1763.0303/dlc) Repack F
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260077.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ Onimusha 2 (2025) [Ru/Multi] (1.0.0.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260063.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260051.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260038.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ Outlaws + Handful of Missions: Remaster (2025) [Multi] (1.1.1748) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260028.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259962.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ Oxygen Not Included (2019) [Ru/Multi] (700386/dlc) Repack Necros [Complete Bundl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259828.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2) Repack Other s [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259779.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Reentry: A Space Flight Simulator (2018) [Ru/Multi] (1.00.00) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259778.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Reentry: A Space Flight Simulator (2018) [Ru/Multi] (1.00.00) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259777.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Agricultural Simulator: Historical Farming (RePack) [Multi3/-] 2012 | Sash HD
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259485.jpg" />
 </div>
 
 
@@ -676,6 +650,33 @@ Agricultural Simulator: Historical Farming (RePack) [Multi3/-] 2012 | Sash HD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E59B3CDBC0949777AAF12F26C492A1FB06ACADB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501534   (259251) от 28.05.2012
+
+Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259251.jpg" />
+</div>
+
+
+###  Подробнее
+
+По всей Европе полная разруха, земли поделены мелкими феодалами, император борется с Папой Римским, и Святой Отец объявляет о том, что всем, кто отправится на освобождение Святой Замли, будет даровано прощение грехов.
+В игре Crusader Kings II вам предстоит взять роль правителя одной из могущественных христианских династий и постараться расширить свои границы. Для этого придется постоянно следить за состоянием своей разрастающейся империи. Если будете правильно назначать вассалов, удачно противостоять предателям и внедрять полезные для развития государства законы, то в итоге сможете создать самую могущественную династию в средневековой Европе.(   Читать дальше...   )Тип издания: RePackРазработчик: Paradox InteractiveЖанр: Strategy / RTSЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4004645071869987F625F503A2E11103EC42425
 ```
 
 https://mybot314.ru/tekegram_catalog/

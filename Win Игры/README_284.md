@@ -1,29 +1,3 @@
-###  Публикация: 1183831   (304964) от 15.11.2017
-
-ATV Drift and Tricks (2017) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Устали от двухколесных «железных коней»? Тогда гонки на квадроциклах ATV Drift & Tricks — как раз для вас!  Играйте сами или с другими игроками — всего в игре 8 улетных режимов:Лига, Гонки на время, Быстрый заезд, Суперкруг, Король дороги, Золотой шлем, Игра на выживание и Охотник.Тип издания: LicenseРазработчик: Artefacts StudioЖанр: Action, Racing, 3DЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D6B788BEAB3A05886197F80CF89FC23C7DAEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333292   (304946) от 24.10.2019
 
 The Park (2015) [Ru/Multi] (1.0) Repack Other s
@@ -32,7 +6,7 @@ The Park (2015) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304946.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Polaris Sector (2016) [Ru/En/Spa] (1.06с/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304768.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304763.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Space Pirates and Zombies 2 (2017) [Ru/Multi] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304755.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Serious Sam: The Random Encounter (2011) [En] (13.11.2015) Repack R.G. Меха�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304594.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Abandon Ship (2019) [Ru/Milti] (1.0.13298) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304589.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Chimeras 4 Mortal Medicine / Химеры 4. Смертельная медици
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304307.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Curio Society 2: New Order / Антикварное общество. Нов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304181.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) Repack Seraph1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303949.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Bullshot (2016) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303941.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303936.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Quern - Undying Thoughts (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303815.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Crazy Machines 3 (2016) [Ru/Multi] (1.1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303806.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Sneaky Sneaky  (2014) [En] (1.0.293) Repack  Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303752.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ One Day For Ched (2012) [En] (1.0.5/dlc) Repack Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303751.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Halloween Chronicles 2: Evil Behind a Mask (2019) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303277.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Malzbie's Pinball Collection (2017) [Multi] (1.9.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303145.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Iggy's Egg Adventure (2015) [En] License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302922.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.10.2.468/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302812.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302753.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Outcast: Second Contact (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302731.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Ben 10 (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302728.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Close Combat: The Bloody First (2019) [Multi] (1.00.02) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302572.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302570.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Crashlands (2016) [En/Ch] (1.4.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302329.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Crashlands – ARPG с захватывающим сюжетом и возмож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:925EEC391E91ED4B6A11399B13735F4E062F4D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121360   (302328) от 11.11.2018
+
+Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph1 [Game of the Year Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огонь гаснет, мир обращается в руины, и вам предстоят сражения с еще более колоссальными врагами. Вас ждет традиционная мрачная и притягательная атмосфера, напряженные битвы и еще более динамичный геймплей. Неважно, начинаете ли вы знакомство с серией или давно являетесь ее преданным поклонникомТип издания: RepackРазработчик: From SoftwareЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A73B212287FAC91B6E7FED32B8DD56C39F930E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

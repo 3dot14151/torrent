@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931906.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ USB Flash Drives Control 4.0.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931873.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Snappy Driver Installer Origin R709 / Драйверпаки 20031 [Multi/Ru] (�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931813.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Notepad++ 7.8.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931810.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Driver Easy Pro 5.1.6.18378 RePack by tolyan76 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931785.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wireless Network Watcher 2.05 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931773.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Gilisoft Audio Editor 1.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931772.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Amazing Audio Player 3.1 Enterprise [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931767.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TVTool 9.7  Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931750.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ O&O SafeErase Professional 8.10 Build 236 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931749.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hotspot Shield Elite 5.20.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931743.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Skype 7.18.32.112 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931739.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931702.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ SoftPerfect WiFi Guard 1.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931698.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Cockos - REAPER 6.05 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931652.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AMD Radeon Software Adrenalin 2020 Edition 20.2.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931650.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Gilisoft Audio Converter Ripper 5.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931611.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Windows Repair (All In One) 3.9.22 Pro + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931610.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Sublime Text 3 Build 3103 Beta + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931592.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Tor Browser Bundle 5.5.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931585.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ FontCreator Professional Edition 9.1.0 build 1991 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931580.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Office 2007 Standard SP3 12.0.6743.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931572.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Re:Vision Effects Twixtor Pro v6.2.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931470.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Movavi Video Converter 20.1.2 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931393.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ CoolUtils Total Image Converter 5.1.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930847.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NetSetMan 4.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930746.jpg" />
 </div>
 
 

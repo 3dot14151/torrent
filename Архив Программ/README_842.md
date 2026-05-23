@@ -6,7 +6,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.21 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620321.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HiBit Uninstaller 2.7.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620316.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ KMS Tools Portable 20.07.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620313.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Rufus 2.10 (Build 973) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620308.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ESET Smart Security 9.0.386.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620301.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Corel VideoStudio Ultimate X9 19.5.0.35 + StandardContent + Bonus [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620298.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ DriverPack Solution 17.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620296.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ EagleGet 2.0.4.1 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620236.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Resource Hacker 4.2.0 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620235.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Avira Phantom VPN Pro 2.23.1.32633 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620226.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620223.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ IObit Uninstaller Pro 11.4.0.2 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620206.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NIUBI Partition Editor 7.8.7 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620204.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Maxthon Browser 6.1.3.2020 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620200.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Topaz DeNoise AI 3.6.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620196.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft Office 2010 Professional Plus SP1 Volume x86 14.0.6112.5000 [Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_620124.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620087.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ PhotoDiva Pro 3.25 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620041.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Shutter Pro 3.7 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619967.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ ESET NOD32 Internet Security 12.1.34.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619932.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Chromium UNGOOGLED 100.0.4896.60 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619909.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ EarthView 6.17.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619903.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BELOFF [dp] 2022.04.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619898.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Blank And Secure 4.06 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619719.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ WinTools.net Premium 17.6.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619695.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Avira Antivirus Premium 2013 13.0.0.3884 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619659.jpg" />
 </div>
 
 

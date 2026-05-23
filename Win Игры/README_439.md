@@ -1,29 +1,3 @@
-###  Публикация: 1257962   (50942) от 06.07.2024
-
-Frozen Synapse 2 (2018) [En] (108) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Frozen Synapse 2 предлагает классический для стратегий игровой процесс с одним существенным отличием: события игры разворачиваются внутри огромного процедурно сгенерированного города. Мы называем такой подход «тактикой открытого мира» - он сочетает в себе элементы масштабной стратегии и пошаговых боёв. В одиночной игре вам предстоит защитить город Гейст Маркова от (   Читать дальше...   )Тип издания: LicenseРазработчик: Mode 7Жанр: Стратегия, Пошаговая, ТактическаяЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269687001B92C5CD0B97298E2AE652F537185AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735076   (50925) от 06.07.2024
 
 Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50925.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Circuit Superstars (2023) [Ru/Multi] (1.6.2/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50924.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50916.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ MotoGP 24 (2024) [Multi] (1356129) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50910.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Metal Gear Rising: Revengeance (2014) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50900.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Chocolate Factory (2024) [Ru/Multi] (1.006) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50885.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ KoroNeko (2024) [Multi] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50876.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ FlashBack 2 (2023) [Ru/Multi] (20240627) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50875.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50872.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Star Leaping Story (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50864.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ TOEM: A Photo Adventure (2021) [Ru/Multi] (3.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50863.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50860.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Frozen Synapse (2011) [En] (35/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50854.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.31.23/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50847.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Young Hearts (2024) [Ru/En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50824.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50811.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50806.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50730.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Scythe (2018) [Ru/Multi] (2.1.0/dlc) License GOG [Digital Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50728.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50720.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Islands of the Caliph (2023) [En] (1.2.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50709.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.1.4/dlc) Scene Tenoke [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50702.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50690.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Godrop (2024) [Ru/Multi] (1.34/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50682.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Splatter - Zombiecalypse Now (2024) [Ru/Multi] (1.2_gog) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50635.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Splatter - Zombiecalypse Now – top-down шутер с интересной к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E09EE49FE2312767A797D36CFEB54CD8E2393021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256218   (50623) от 09.07.2024
+
+We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50623.jpg" />
+</div>
+
+
+###  Подробнее
+
+We Happy Few - экшен, приключение, сценой которому служит наводненный наркотиками ретрофутуристический город альтернативной Англии 1960-х. Применяйте навыки маскировки, адаптации и ведения боя. Отыщите выход из этого бредового, подсаженного на Joy мира. We Happy Few - это история небольшой группы отважных и в меру ужасных людей, пытающихся сбежать от жизни в городе (   Читать дальше...   )Тип издания: RepackРазработчик: Compulsion GamesЖанр: Action, Adventure, Open World, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7503B86B0EC69A49F4A396ED7AFADBCD013C8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

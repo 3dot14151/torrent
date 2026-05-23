@@ -1,55 +1,3 @@
-###  Публикация: 1031985   (647406) от 06.07.2016
-
-Река / River (2015) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма - врач, который добровольно решил отправиться в Лаос. Однажды ночью он становится свидетелем насилия над девушкой. Врач вступается за беззащитную девушку. Но это происшествие заставило его податься в бега. Ведь теперь его обвиняют в убийстве насильника, тело которого обнаружили в реке Меконг. Врачу приходиться скрываться, чтобы самому не стать (   Читать дальше...   )Производство: Канада, ЛаосЖанр: ТриллерРежиссер: Джэми М. ДаггАктеры: Россиф Сазерленд, Дуангмони Солифанх, Сара Ботсфорд, Тед Атертон, Дэвид Сончин, Эйдан Джиллетт, Яновутти Чангхолунси, Карен Глэйв, Витхая ПансрингармПеревод: Одноголосый закадровый, любительский (Хихидок)Продолжительность: 01:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA47EF0277CB712EA37962A924E0AAAEFAB68D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517501   (647391) от 01.07.2012
-
-Новый мировой беспорядок / New World Disorder (1999) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В самом центре знаменитой Силиконовой Долины неслыханный скандал - прямо из офиса компании, занимающейся разработкой новейшей программы безопасности компьютерных систем, похищены сверхсекретные микрочипы. Все сотрудники фирмы убиты, и лишь одному чудом удалось остаться в живых. Компьютерный хакер-пират Курт Бишоп, организовавший этот дерзкий налет, рассчитывает получить денежный куш, в противном случае он выведет из строя жизненно важные компьютерные сети. На поиски Бишопа и его головорезов брошены лучшие силы полиции и ФБР: детектив-ветеран Дэвид Маркс, прозванный Патологоанатомом за свою `бульдожью` хватку, и агент Кристина Пэддок, эксперт по компьютерам и очаровательная молодая женщина. При первом знакомстве у новоявленных партнеров возникает сильнейшая аллергия друг на друга, но - лиха беда начало...Жанр: Боевик, ФантастикаРежиссер: Ричард Спенс /Richard Spence/Актеры: Рутгер Хауэр /Rutger Hauer/, Брэнуэлл Донахи /Branwell Donaghey/, Хари Охиллон /Hari Ohillon/, Тара Фицджералд /Tara Fitzgerald/, Эндрю МакКарти /Andrew McCarthy/Перевод: Многоголосый закадровыйЯзык субтитров: Продолжительность: 01:29:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517334   (647383) от 01.07.2012
 
 Красавица из трущоб / Trishna (2011) [H.264] DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647383.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647382.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647378.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647275.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647273.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647272.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647266.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647259.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647255.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647247.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647178.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647170.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647169.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647168.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647167.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647165.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647159.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647155.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647122.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647101.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647097.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647094.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647083.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647064.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C9E8D1931178C5E92611C69B8D222240BBDBA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905909   (647062) от 07.06.2015
+
+Отбор / The Culling (2015) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятеро молодых людей выезжают за город чтобы посетить концерт. Однако их планы меняются кардинальным образом когда друзья находят на парковке семилетнюю девочку, которая по непонятным причинам осталась одна. Проводив девочку к одиноко стоящему дому они оказываются вынуждены остаться там на ночь, что вовсе не предусмотрело некое зло, обитающее в доме, зло, с которым (   Читать дальше...   )Производство: США, Safady EntertainmentЖанр: Триллер, УжасыРежиссер: Растем БренеменАктеры: Джереми Самптер, Элизабет Дипринсио, Бретт Даверн, Крис Кой, Линси Годфри, Вирджиния Уильямс, Джонатон Шек, Харли Грэхэм, Дженнифер Боуман, Челси БрюлендПеревод: anton1Озвучка: Одноголосый закадровый, любительский (datynet)Продолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433D4715089831C6C41413E2E694D77FF189E628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905711   (647059) от 07.06.2015
+
+Маленькая смерть / The Little Death (2014) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш герой никак не может построить свою личную жизнь а все потому, что когда-то он услышал нелепую информацию, о том что мужчина занимаясь с женщиной любовью, причиняет ей немыслимые страдания. Он с тех самых пор живет в воздержании, но вот странность, все его друзья давно женаты и кажется, женщины, живущие с ними рядом, счастливы. Однажды близкий приятель вызывает (   Читать дальше...   )Производство: Австралия, Entertainment OneЖанр: КомедияРежиссер: Джошуа ЛосонАктеры: Бояна Новакович, Джошуа Лосон, Дэймон Херриман, Бен Лосон, Тэсним Рок, Лиза МакКьюн, Лейчи Халм, Кейт Малвэйни, Патрик Браммалль, Т.Дж. ПауэрПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2C710C782D644A1FE57C181558A11FE192C6C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

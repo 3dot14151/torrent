@@ -6,7 +6,7 @@ Flamekeeper - We Who Light The Fire (2019) [FLAC|Lossless|image + .cue] <Epic He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939699.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Red Chord - Clients (2005) [APE|Lossless|image + .cue] <Technical Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939698.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Blasphemy - Desecration Of Belo Horizonte - Live In Brazilian Ritual - Fifth Att
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939697.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Neaera - Neaera (2020) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939614.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Earth - Full Upon Her Burning Lips (2019) [FLAC|Lossless|tracks + .cue] <Drone M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939613.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Machinemade God - 2 Albums (2006 - 2007) Discography [FLAC|Lossless]<Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939398.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mundanus Imperium - The Spectral Spheres Coronation (1998) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939343.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Five Finger Death Punch - F8 (2020) [FLAC|Lossless|image + .cue] <Groove Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939178.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Machine Head - The Blackening (2007) [FLAC|Lossless|image + .cue] <Groove Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939154.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 15 Песен Для Вашей Девушки (2004) [FLAC|Lossless|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938853.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sepultura - Machine Messiah (2017) Limited Edition [FLAC|Lossless|tracks]<Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938416.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ozzy Osbourne - Ordinary Man (2020) Japan Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937657.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Accept - Restless And Live (2017) [FLAC|Lossless|WEB|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937227.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Frangar - Trincerocrazia (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935564.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Rotting Christ - Rituals (2016) [FLAC|tracks|WEB-DL]<Dark Metal, Black Metal, Et
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935533.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Aeon Of Horus - Existence (2014) [FLAC|Lossless|image + .cue] <Progressive, Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935439.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Night Demon - Curse Of The Damned (2015) [FLAC|Lossless] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934806.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Accept - Restless And Live (2017) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934692.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Arizmenda - Despairs Depths Descended (2016) [FLAC|Lossless|tracks + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934025.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ SAOR - Guardians (2016) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934016.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Concerto Moon - Rise From Ashes (2008) Japanese Ed. [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933956.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Powerwolf - Blessed & Possessed (2017) 2CD, Tour Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933614.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dark Fortress - Spectres from the Old World (2020) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933569.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ U.D.O. - Timebomb (1991) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932527.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Kalmah - The Black Waltz (2006) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932348.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Crematory - Unbroken (2020) [FLAC|Lossless|Web-DL|tracks] <Industrial Metal, Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932231.jpg" />
 </div>
 
 

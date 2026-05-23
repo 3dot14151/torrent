@@ -6,7 +6,7 @@
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133987.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TweakTimeSaver 1.1.0 [Ru/En] (Авторская раздача)
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123885.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 Pro 22H2 build 19045.4651 x64 by LaK [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42796.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Nerv Rescue Disk UEFix64\Legacy v1.0 [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39418.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Windows 11 Pro 24H2 10.0.26100.1742 by Lak [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39151.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29949.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Windows 10 Enterprise LTSC x64 21H2 (19044.5371) by Hawksoft [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29559.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Windows 11 Pro 24H2 (v.26100.2605) with AtlasOS Игровая сборка  [Ru
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18068.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15118.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Windows 11 home x64 24H2 DiskExpansion by Alexandr1235 07.2025 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10550.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Draftable Desktop 25.9.0 Repack [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4552.jpg" />
 </div>
 
 

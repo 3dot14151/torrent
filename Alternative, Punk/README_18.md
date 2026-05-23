@@ -6,7 +6,7 @@ Tiger Lou - Trouble And Desire And B-Sides (2019) [MP3|320 Kbps] <Indie Rock, Al
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555822.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Silversun Pickups - Widow's Weeds (2019) [MP3|320 Kbps] <Alternative Rock, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552872.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bad Omens - Bad Omens (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore, Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552846.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blue Stahli - Premonitions (2016) [MP3|320 Kbps] <Industrial Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552792.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Blue Stahli - Blue Stahli Instrumentals (2012) [MP3|320 Kbps] <Alternative Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551929.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mars Argo - Discography (2009 - 2017) [MP3|128-320 Kbps] <Alternative, Indie, Po
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551419.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Furykane - 2 альбома (2011-2014) [MP3|320 Kbps] <Alternative, Nu-metal, R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551106.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dirty Dishes - Guilty (2015) [MP3|320 Kbps] <Indie, grunge, post-punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551098.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Beyond the Fade - Welcome to the Pain (2016) [MP3|320 Kbps] <Alternative Rock, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548346.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Unwritten Rulz - Filter Thru the Static (2012) [MP3|256 Kbps] <Alternative Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546583.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Unwritten Rulz - Burn It Down (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546532.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Unwritten Rulz - Life of the Party (2014) [MP3|256 Kbps] <Alternative Rock, Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546531.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rise Against - The Ghost Note Symphonies, Vol 1 (2018) [MP3|320 Kbps] <Punk Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546183.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ New Model Army - Winter (2016) [MP3|320 Kbps] <Alternative Rock, Folk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544795.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544609.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Anzi - Black Dog Bias (2015) [MP3|192 кб/с]<Alternative, Industrial>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543080.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Doomsday Dementia - Mass Graves And System Slaves (2022) [MP3|320 Kbps] <Crust P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542705.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Red Hot Chili Peppers - Rock and Roll Hall of Fame Covers  (2012) (EP) [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542025.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Oceans Ate Alaska - 2 LP + 1 EP (2012-2017) [MP3| 320 кб/с]<Progressive Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540635.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ The Casualties - Written in Blood (2018) [MP3|320 Kbps] <Rock, Punk, Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540054.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Vatican - Ultra (2022) [MP3|320 Kbps] <Chaotic Metalcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539271.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Valoria - Dead Languages (2022) EP [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539266.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Rings of Saturn - Rings of Saturn (2022) EP [MP3|320 Kbps] <Technical Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539265.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Senna - A Moment Of Quiet (2022) EP [MP3|320 Kbps] <Post-Hardcore, Progressive R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539264.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Sudden Waves - Courtside (2022) EP [MP3|320 Kbps] <Melodic Hardcore, Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539263.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ The Casualties (1992-2018) [MP3|128-320 кб/с] <Rock, Punk, Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537804.jpg" />
 </div>
 
 

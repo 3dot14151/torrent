@@ -1,108 +1,3 @@
-###  Публикация: 1286504   (706685) от 05.03.2019
-
-Alan Wake (2010) [Xbox360] [RegionFree] FreeBoot [Repack] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой игры — писатель Алан Уэйк, признанный мастер триллеров, переживает творческий кризис. В поисках вдохновения он отправляется вместе с невестой в тихий городок Брайт Фоллз. Однако там возлюбленная Алана таинственным образом исчезает, и начинается череда леденящих кровь кошмаров. Реальность и фантазии перемешались, и чтобы выжить, Алану придется использовать (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Action, Adventure, Horror, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95D1C747EEC7800280725573AF42D6FD218EAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439591   (706577) от 23.02.2022
-
-SnowRunner (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.28 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-SnowRunner, ранее носивший название MudRunner 2, представляет собой непревзойденный внедорожный опыт с потрясающими визуальными эффектами, продвинутой физикой, огромными картами, разнообразными транспортными средствам и, конечно… снегом и льдом. Встречайте новое поколение гонок по бездорожью! Вас ждут мощные машины известных марок и суровые просторы с реалистичной (   Читать дальше...   )Тип издания: LicenseРазработчик: Saber InteractiveЖанр: SimulatorЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C957AD66F5FD2EF057942E5CF9737036235965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220074   (703865) от 19.04.2018
-
-Bayonetta (2010) [PS3] [EUR] 4.82 [HAN] [Repack] [Ru]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Скорость, драйв, сердце, бьющееся в бешеном ритме сражения — все это Bayonetta. Феноменальный 3D-боевик от авторов Devil May Cry и Resident Evil. Чистый, незамутненный адреналин, который выплескивается вместе с кровью поверженных врагов. И, конечно, сексуальность — такой обаятельной и привлекательной воительницы не было еще ни в одном боевике.
-Байонетта — сногсшибательно (   Читать дальше...   )Тип издания: RepackРазработчик: Platinum GamesЖанр: СлэшерЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690C3B3F13A34072B2546B06EEB76F3835D767A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132162   (702297) от 08.05.2017
-
-Shovel Knight: Treasure Trove (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Shovel Knight: Treasure Trove - это полноценное и завершенное издание Shovel Knight, классической приключенческой игры с невероятным геймплеем, оригинальными персонажами и графикой в стиле старых 8-битных хитов! Вам предстоит вооружиться лопатным клинком и бегать, прыгать и сражаться в роли Лопатного рыцаря, стараясь спасти любимую! Сокрушите гнусных рыцарей Ордена (   Читать дальше...   )Тип издания: UnofficialРазработчик: Yacht Club GamesЖанр: Action, Platformer, 2DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7448DBF9003DBE00E0235B3AA79E070DAA02E6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287753   (700921) от 08.03.2019
 
 Kirby's Extra Epic Yarn (2019) [3DS] [JPN] 11.9 [CIA] [Unofficial] [En]
@@ -111,7 +6,7 @@ Kirby's Extra Epic Yarn (2019) [3DS] [JPN] 11.9 [CIA] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700921.jpg" />
 </div>
 
 
@@ -138,7 +33,7 @@ Resident Evil: HD Remaster (2014) [PS3] [JP] 4.82 OFW [HAN] [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700045.jpg" />
 </div>
 
 
@@ -165,7 +60,7 @@ Teslagrad (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699843.jpg" />
 </div>
 
 
@@ -193,7 +88,7 @@ Chariot (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699841.jpg" />
 </div>
 
 
@@ -221,7 +116,7 @@ Marvel Avengers: Battle for Earth (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Lice
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699727.jpg" />
 </div>
 
 
@@ -247,7 +142,7 @@ Terraria (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699724.jpg" />
 </div>
 
 
@@ -275,7 +170,7 @@ Dragon Quest IV - Chapters of the Chosen (2008) [NDS] [USA] [Unofficial] [Ru]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697688.jpg" />
 </div>
 
 
@@ -301,7 +196,7 @@ Deepak Chopra's Leela [Wii] [PAL] [Multi 3] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696515.jpg" />
 </div>
 
 
@@ -329,7 +224,7 @@ God of War II HD (2010) [PS3] [EUR] [PSN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695514.jpg" />
 </div>
 
 
@@ -355,7 +250,7 @@ Super Mario Galaxy 2 [Wii] [PAL] [Multi 5] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694415.jpg" />
 </div>
 
 
@@ -381,7 +276,7 @@ Batman: Arkham Origins (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru/Mul
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694036.jpg" />
 </div>
 
 
@@ -407,7 +302,7 @@ WWE 2K16 (2015) [PS3] [EUR] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693904.jpg" />
 </div>
 
 
@@ -433,7 +328,7 @@ LittleBigPlanet Karting / Little Big Planet Karting [PS3] [EUR] [Ru] [4.25] [Cob
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693494.jpg" />
 </div>
 
 
@@ -462,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690942.jpg" />
 </div>
 
 
@@ -488,7 +383,7 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690258.jpg" />
 </div>
 
 
@@ -514,7 +409,7 @@ Back to Bed (2014) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01] [R
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690103.jpg" />
 </div>
 
 
@@ -540,7 +435,7 @@ Sniper Elite V2 (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690100.jpg" />
 </div>
 
 
@@ -568,7 +463,7 @@ Dance Dance Revolution - Hottest Party 4 [Wii] [PAL] [Multi 5] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686972.jpg" />
 </div>
 
 
@@ -596,7 +491,7 @@ LEGO Dimensions (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686600.jpg" />
 </div>
 
 
@@ -623,7 +518,7 @@ Mighty No. 9 (2016) [PS3] [USA] 4.21 [Repack / 3 DLC] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685936.jpg" />
 </div>
 
 
@@ -649,7 +544,7 @@ Mario & Sonic at the Rio 2016 Olympic Games (2016) [WiiU] [EUR] 5.3.2 [Loadiine 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685934.jpg" />
 </div>
 
 
@@ -675,7 +570,7 @@ Devil May Cry 5 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685897.jpg" />
 </div>
 
 
@@ -687,6 +582,113 @@ Devil May Cry 5 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D66578B0CB9B9407570CD77345F66A6F496C1E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507031   (684878) от 07.06.2012
+
+[Wii] Madagascar 3 [Eng][NTSC][2012]
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые герои возвращаются в новой игре Madagascar 3: The Videogame  Wii и теперь хотят вернуться обратно в свой любимый зоопарк в Нью-Йорке. Единственное решение к которому они пришли – примкнуть к бродячему цирку, в надежде
+что он когда-нибудь доедет и до Нью-Йорка. Масса веселых заданий, увлекательные мини-игры и
+совместное прохождение заданий любимыми героями – что еще нужно?Разработчик: Monkey Bar GamesЖанр: action, adventureЯзык интерфейса: EngФормат: Образ в формате WBFS инструкция здесь!!!.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14205D20CD4A78307A4679F928287B7F7BE3157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134990   (684487) от 17.05.2017
+
+Handball 16, Handball 17 (2015-2016) [PS3] [EUR] 4.76, 4.80 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте реальные гандбольные движения и тактики в Handball 17, лучшем гандбольном симуляторе из когда-либо созданных. В игре представлены 82 официальных команды самых престижных лиг Европы: LIDL STARLIGUE и PROLIGUE во Франции, DKB Handball Bundesliga и 2. Handball-Bundesliga в Германии и Liga ASOBAL в Испании. Handball 17 включает полностью переработанное управление, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eko SoftwareЖанр: Sport, HandballЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615BC5F15042C05362BDC58EC797DDC86D651DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404100   (683872) от 23.08.2020
+
+Skullgirls: 2nd Encore (2019) [Switch] [USA] 9.1.0 [NSZ] [Unofficial / 1.0.3] [Ru/En]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданный небольшой командой разработчиков файтинг Skullgirls отсылает к различным проектам прошлого и настоящего. Фанаты жанра легко увидят здесь некоторые идеи Marvel vs Capcom и BlazeBlue, BioShock. Студии Lab Zero Games удалось достичь главного - создать доступную, но при этом глубокую игровую механику. Нарисованные от руки герои и декорации наделяют Skullgirls (   Читать дальше...   )Тип издания: UnofficialРазработчик: Reverge LabsЖанр: Файтинг, АркадаЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B113FAC308AA9FEBBD85647A770E39AA884C3DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403986   (683871) от 23.08.2020
+
+Samurai Jack: Battle Through Time (2020) [Switch] [USA] 10.1.0 [NSP] [License / 1.0.3] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте самураем Джеком — воином всех времен. Путешествуйте во времени в этом новом приключении от создателей мультсериала «Самурай Джек», посещайте знакомые места, овладейте различными видами оружия и навыками, улучшайте свои боевые умения, а также объединяйтесь с верными союзниками, сражайтесь со знакомыми врагами и положите конец злому правлению Аку.
+Samurai Jack: (   Читать дальше...   )Тип издания: LicenseРазработчик: Soleil LtdЖанр: Экшн, 3D-платформер, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0259BC78255270D7208E7BD1CB3AF086612B20
 ```
 
 https://mybot314.ru/tekegram_catalog/

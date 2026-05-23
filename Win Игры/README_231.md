@@ -1,31 +1,3 @@
-###  Публикация: 538330   (509308) от 23.08.2012
-
-Mad Riders + DLC [Multi5] (Steam-Rip/1.0.1.0) 2012 | R.G. Игроманы
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Игрокам предстоит промчаться по 45 трассам самой различной сложности. Однако, эти состязания ничем не будут напоминать обычный заезд «по кругу». Для победы в гонке по бездорожью придется искать самый короткий путь к финишу. Нужно будет также исполнять и разные трюки в воздухе, чтобы получить ускорение и увеличить свои шансы на триумф.
-
-Mad Raiders обладает также предельной простотой геймплея, что позволяет принимать участие в виртуальных заездах даже тем, кто столкнулся с играми такого рода впервые. Добавляет остроты в игровой процесс и наличие мультиплеера, благодаря которому бороться за звание сильнейшего смогут до 12 человек одновременно.(   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Жанр: Arcade / Racing (Motorcycles) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Multi4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773043D0243DFADB4358769BAF6C807E4C077D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538217   (509300) от 23.08.2012
 
 The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePack) 2012 | R.G. Origami
@@ -34,7 +6,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509300.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ Combat Arms [Ru] (RePack/1.0) 2012
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509204.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ Pesterquest (2019) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508872.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ Gothic 3: Forsaken Gods / Gothic 3: Отвергнутые боги (2011) [Mult
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508765.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Прокл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508727.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ VANE (2019) [Multi] (1.0/dlc) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508660.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ VANE (2019) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508625.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508619.jpg" />
 </div>
 
 
@@ -245,7 +217,7 @@ Transformers: Fall of Cybertron (NoDVD/1.0) 2012 | SKiDROW
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508297.jpg" />
 </div>
 
 
@@ -271,7 +243,7 @@ Grave Mania:Undead Fever / Зомби-Лихорадка (2012) [Ru] Unofficial
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507842.jpg" />
 </div>
 
 
@@ -297,7 +269,7 @@ Aaru's Awakening (2015) [Ru/Multi] (2.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507823.jpg" />
 </div>
 
 
@@ -323,7 +295,7 @@ Big Pharma (2015) [En] (1.00.04) Unofficial
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507775.jpg" />
 </div>
 
 
@@ -349,7 +321,7 @@ Mega Man Legacy Collection (2015) [Ru/Multi] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507767.jpg" />
 </div>
 
 
@@ -375,7 +347,7 @@ The Man with the Ivory Cane (2019) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507743.jpg" />
 </div>
 
 
@@ -401,7 +373,7 @@ I Shall Remain (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507739.jpg" />
 </div>
 
 
@@ -427,7 +399,7 @@ X-Men Origins: Wolverine (2010) [Ru] (1.0.0.1) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507737.jpg" />
 </div>
 
 
@@ -453,7 +425,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6/upd6/4dlc) Repack xatab [Apocalypse Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507736.jpg" />
 </div>
 
 
@@ -479,7 +451,7 @@ Haunted Hotel 9: Phoenix (2015) [En] Unofficial [Collector's Edition / Колл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507165.jpg" />
 </div>
 
 
@@ -505,7 +477,7 @@ X-Men Origins: Wolverine / Люди Икс: Начало: Росомаха [RuEn
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507142.jpg" />
 </div>
 
 
@@ -532,7 +504,7 @@ Dark Tales 16: Edgar Allan Poe's. Ligeia (2019) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506855.jpg" />
 </div>
 
 
@@ -558,7 +530,7 @@ Dead In Bermuda (2015) [En/Fr] (1.01) Repack ALIAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506847.jpg" />
 </div>
 
 
@@ -584,7 +556,7 @@ Beware Planet Earth! (2012) [En] (1.3.0) Repack R.G. Механики
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506846.jpg" />
 </div>
 
 
@@ -610,7 +582,7 @@ Cast of the Seven Godsends (2015) [Ru/Multi] (1.0/upd10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506840.jpg" />
 </div>
 
 
@@ -636,7 +608,7 @@ Mad Riders (2012) [Ru/En] (1.0.1.0/dlc) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506838.jpg" />
 </div>
 
 
@@ -662,7 +634,7 @@ Ninja Blade (2009) [Ru/En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506836.jpg" />
 </div>
 
 
@@ -673,6 +645,32 @@ Ninja Blade (2009) [Ru/En] (1.0) Repack =nemos=
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97B17CD483651ADE07692B00936AB209EB564A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933176   (506788) от 31.08.2015
+
+Hegemony III: Clash of the Ancients (2015) [En] (1.0.0) License CODEX
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битва за древний мир началась! И только одна фракция сможет основать величайшую империю Средиземья. Выбирайте Этрусков, Галлов или Греков и установите гегемонию.Тип издания: ЛицензияРазработчик: Longbow GamesЖанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05BFCA0E248427D05E26128F57C281939E09888
 ```
 
 https://mybot314.ru/tekegram_catalog/

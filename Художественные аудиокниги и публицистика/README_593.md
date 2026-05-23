@@ -1,81 +1,3 @@
-###  Публикация: 1069908   (371166) от 05.11.2016
-
-Макс Фрай | Первая линия. Рассказы и истории разных лет [сборник] (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что за линии такие? – спросит дотошный слушатель. Сюжетные? Поведения? Защиты? Линии жизни на двух авторских руках – левой и правой? Или же в честь питерских улиц, что на Васильевском острове, такое название? Да ну нет же. Просто линии. Вероятно, прямые. Так, во всяком случае, подсказывает автору его внутренний взор, который всегда прав. И у вас в руках сейчас одна (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 07:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BF8465384C8952F5D7DD65338FD06AD2771C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069761   (371089) от 05.11.2016
-
-Виталий Каплан | Масть (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Конец XVIII века, Россия. У ставшего Тёмным Иным гвардейского поручика Андрея Полынского не задалась служба в Дневном Дозоре Санкт-Петербурга, и он переводится в Тверь. Казалось бы – сонная провинция, но ведь известно, что в тихой воде… Юноша не сразу осознает, что новый начальник использует его в качестве пешки в тонкой игре, причем пешки, способной превратиться (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиПродолжительность: 14:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AAF6B01C0E23A3F37876E006CFB1022CA3882B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576151   (370836) от 12.09.2022
-
-Исабель Альенде | Зорро (2022) [MP3, Нона Трояновская]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Исабель Альенде называют королевой магического реализма и достойной продолжательницей традиций Маркеса. В романе 2005 года главным героем становится неожиданный персонаж – красавец и авантюрист, герой многочисленных книг, фильмов и комиксов: дон Диего де ла Вега по прозвищу Зорро. Писательница создает настоящую литературную биографию вымышленного персонажа, погружая (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD19931D64E2C8FFC5FA8B1BA84D7B6BEF6A80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576110   (370835) от 12.09.2022
 
 Антон Павлович Чехов | Чайка (аудиоспектакль) (2020) [MP3, Максим Суслов и др.]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370835.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370834.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370830.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370817.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370704.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370703.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370691.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370685.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370591.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370506.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370385.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370284.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370283.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370277.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370265.jpg" />
 </div>
 
 
@@ -486,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370232.jpg" />
 </div>
 
 
@@ -513,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370195.jpg" />
 </div>
 
 
@@ -539,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370086.jpg" />
 </div>
 
 
@@ -568,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370046.jpg" />
 </div>
 
 
@@ -595,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369914.jpg" />
 </div>
 
 
@@ -621,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369897.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369798.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369792.jpg" />
 </div>
 
 
@@ -685,6 +607,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E913DC42F398BF99FB1383D66704DF9441E5CAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416188   (369667) от 15.10.2020
+
+Рекс Стаут | Ниро Вульф. Снова убивать (2020) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ниро Вулф, страстный коллекционер орхидей, большой гурман, любитель пива и великий сыщик, практически никогда не выходит из дому. Все преступления он распутывает на основе тех фактов, которые собирает Арчи Гудвин, его обаятельный, ироничный помощник с отличной памятью.
+Прелестную молодую женщину подозревают в краже казенных денег, но это заурядное на первый взгляд (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E9819684C830198C34F6D3DAF1B6019A3DC264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176442   (369641) от 22.10.2017
+
+Энн Перри | Инспектор Томас Питт (Книга 13). Невидимка с Фэрриерс-лейн (2017) [MP3, Татьяна Ненарокомова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время посещения театра Томас и Шарлотта Питт стали свидетелями трагедии – на их глазах скоропостижно скончался судья Апелляционного суда Стаффорд. При умершем была найдена фляжка, в которой плескался виски… с лошадиной дозой опиумной настойки. Сразу исключив возможность самоубийства, Питт начал расследование обстоятельств смерти судьи. И выяснил, что на днях Стаффорд (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 21:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916419768E70A3BAD17D3C5CFCE5B2DF448F2DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416168   (369545) от 15.10.2020
+
+Джастин Ларбалестьер | Моя сестра Роза (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369545.jpg" />
+</div>
+
+
+###  Подробнее
+
+В планах у Че Тейлора всего 4 вещи: 1. Найти партнера для занятий боксом. 2. Влюбиться. 3. Привыкнуть к новому дому после переезда в Нью-Йорк. 4. Держать младшую сестру под контролем. Младшую сестру Че зовут Роза. Умненькая белокурая девочка похожа на ангела. Так думают окружающие. Но Че знает, что Роза – психопатка. Она жестока. Ей нравится причинять людям боль (   Читать дальше...   )Жанр: ТриллерЯзык озвучки: РусскийПродолжительность: 11:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779783E84E65EBF9800A2C62CC43B049AFD813B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

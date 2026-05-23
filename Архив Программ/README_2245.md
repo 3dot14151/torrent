@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.0.8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36348.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blender 4.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36345.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ uTorrent Pro 3.6.0 Build 47168 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36341.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ SoftMaker Office Professional 2024 rev. S1220.1116 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36313.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v22 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36309.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Adobe Photoshop 2025 26.1.0.121 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36308.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Free Hex Editor Neo 7.50.02.8795 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36244.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Polyverse Music - Filterverse 1.0.1 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36237.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Adobe Photoshop 2025 26.1.0.121 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36232.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Adobe Photoshop 2025 26.1.0.121 Full (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36226.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ XnView Classic 2.52 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36206.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Foobar2000 2.2.4 include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36189.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows Manager 2.0.8.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36186.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ HWiNFO 8.16 Build 5600 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36181.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Karing 1.0.35.467 + Portable [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36179.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ WinSCP 6.3.6 Build 15073  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36170.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ FanControl V209 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36168.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Process Lasso Pro 15.0.3.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36167.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Qalculate! 5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36162.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PotPlayer 241120 (1.7.22370) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36110.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Office Installer & Office Installer+ 1.20 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36100.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ YT Downloader 9.11.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36089.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.8.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36088.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36085.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ RustDesk 1.3.3 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36083.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Diamond Cut Forensics Audio Laboratory 11.04 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36077.jpg" />
 </div>
 
 

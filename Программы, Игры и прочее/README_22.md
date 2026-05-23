@@ -1,55 +1,3 @@
-###  Публикация: 1440170   (1038958) от 16.01.2021
-
-Мой Говорящий Том 2 v2.4.0.544 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Мой Говорящий Том 2 - знаменитый кот Том возвращается на экраны мобильных Андроид-устройств с новыми приключениями. Игрокам вновь предстоит развлекать героя и развлекаться самому. Для этого необходимо покупать одежду и аксессуары для персонажа, а также участвовать вместе с ним в различных мини-играх.Тип издания: Пиратка (Мод) Много денег!Релиз состоялся: 3 декабря 2020 г.Разработчик: Outfit7 LimitedПоддерживаемая ОС: Android 4.4 и вышеЖанр: КазуальныеЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F8408E6DB821C040DF7ED3CFC09178467CA0F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278127   (1038934) от 16.01.2021
-
-Скорочтение 1.3.8 [Ru/En] - Техника быстрого чтения
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Это приложение - лучшая тренировка памяти и мозга. Техника быстрого чтения позволит узнавать больше и работать быстрее. Бесплатно используй таблицы Шульте, выполняй упражнения для глаз и прокачивай концентрацию. В нашей программе для скорочтения собраны уникальные методики, благодаря которым вы научитесь читать быстро сами и пройдете курс скорочтения для детей вместе (   Читать дальше...   )Тип издания: Пиратка (удалена реклама) + ModРелиз состоялся: 25.01.2020Разработчик: SpeedreadingPROПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02205198A63C78BD3265A30AC361BB54CD219EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037876   (1038908) от 16.01.2021
 
 Planner 5D Interior Design v1.26.4 [Ru/Multi] - Планировщик домов и интерьера (обновляемая)
@@ -58,7 +6,7 @@ Planner 5D Interior Design v1.26.4 [Ru/Multi] - Планировщик домо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038908.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Denoise it v1.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038755.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038707.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Dub Music Player Premium v5.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038703.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038440.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038413.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038405.jpg" />
 </div>
 
 
@@ -249,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038220.jpg" />
 </div>
 
 
@@ -277,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038212.jpg" />
 </div>
 
 
@@ -303,7 +251,7 @@ Dark Days: Zombie Survival v1.5.12 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038177.jpg" />
 </div>
 
 
@@ -329,7 +277,7 @@ Angry Birds Journey v1.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038165.jpg" />
 </div>
 
 
@@ -355,7 +303,7 @@ AR Plan 3D v4.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037967.jpg" />
 </div>
 
 
@@ -381,7 +329,7 @@ OTT Navigator IPTV v1.6.3.8 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037621.jpg" />
 </div>
 
 
@@ -408,7 +356,7 @@ Carmin v4.1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037424.jpg" />
 </div>
 
 
@@ -434,7 +382,7 @@ Another World v1.2.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037392.jpg" />
 </div>
 
 
@@ -460,7 +408,7 @@ Crimsonland v1.3.8 + Mod [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037338.jpg" />
 </div>
 
 
@@ -486,7 +434,7 @@ VPN Private v1.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037318.jpg" />
 </div>
 
 
@@ -512,7 +460,7 @@ Ski Tracker v2.3.01 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037173.jpg" />
 </div>
 
 
@@ -538,7 +486,7 @@ Adobe Master Collection For Android [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037030.jpg" />
 </div>
 
 
@@ -564,7 +512,7 @@ ePSXe for Android v2.0.14 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037023.jpg" />
 </div>
 
 
@@ -592,7 +540,7 @@ RuStore 1.3.6 (159) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036921.jpg" />
 </div>
 
 
@@ -618,7 +566,7 @@ FPse для Android v11.212 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036781.jpg" />
 </div>
 
 
@@ -645,7 +593,7 @@ Baldur's Gate: Enhanced Edition v2.5.17.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036773.jpg" />
 </div>
 
 
@@ -671,7 +619,7 @@ Constellation Eleven v1.28 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036521.jpg" />
 </div>
 
 
@@ -682,6 +630,58 @@ Constellation Eleven – выбирайте персонажа и отправл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4720E686608B7BF9E3795C98CA8F6DC69577FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442430   (1036517) от 25.01.2021
+
+LocalCast v33.1.2.8 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036517.jpg" />
+</div>
+
+
+###  Подробнее
+
+LocalCast - приложение №1 для видеопотока на Android, которым пользуются больше 10млн. человек! Отправляйте видео, музыку или картинки. С вашего телефона/планшета, других приложений, NAS (DLNA/UPnP or Samba), Google Drive, Google+, Dropbox или сайтов. Напрямую в Chromecast, SmartTV, Roku, Nexus Player, Apple TV, Amazon Fire TV или Stick, Sony Bravia, Samsung, LG, (   Читать дальше...   )Тип издания: Пиратка (купленная Pro)Релиз состоялся: 19.01.2021Разработчик: Stefan PledlПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297142300D9240A32DA2F0479908E7A05F2F1D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367939   (1036510) от 25.01.2021
+
+Drive Ahead! v3.2.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Drive Ahead! – экстремальные гонки, основанные на физике, где вам предстоит ездить по арене и таранить машину соперника. В этой игре сделанной в пиксельной графике вам предстоит управлять различными автомобилями начиная от гоночных авто и заканчивая грузовиками и экскаваторами. Садитесь за руль машины и сделайте все возможное, чтобы нанести своей машиной непоправимый (   Читать дальше...   )Тип издания: Original + Mod (Меню разработчика)Релиз состоялся: 25.01.2021Разработчик: Dodreams Ltd.Поддерживаемая ОС: Android 4.4+Жанр: АркадыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9011BE2D89C2CAD90F416217E5BB7A4376A5298
 ```
 
 https://mybot314.ru/tekegram_catalog/

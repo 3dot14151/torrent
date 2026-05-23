@@ -6,7 +6,7 @@ CoolUtils Total Audio Converter 5.3.0.242 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042518.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Simple Sticky Notes 4.9.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042485.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Your Universal MultiBoot Installer UEFI 0.0.3.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042484.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Your Universal MultiBoot Installer (YUMI) 2.0.8.2a Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042482.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WinExt Pro 13.0 b.062 (ключ COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042474.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wondershare Filmora 10.1.0.19 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042448.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Volume2 1.1.6.428 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042419.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Telegram Desktop 4.6.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042404.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VueScan Pro 9.7.98 (06.02.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042397.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Atrise Lutcurve 4.0.2 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042383.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ O&O DiskImage Professional 18.3 Build 268 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042366.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ K-Lite Codec Pack Update 17.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042365.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Telegram Desktop 4.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042363.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Topaz Photo AI 1.2.0 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042361.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ PC Cleaner Pro 9.1.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042360.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ IObit Uninstaller Pro 12.3.0.9 Portable by  FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042356.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Bulk Image Downloader 6.20.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042352.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Windows 11 Manager 1.2.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042341.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ PotPlayer 230207 (1.7.21873) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042336.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Hard Disk Sentinel Pro 6.10 Build 12918 Final Portable) by FC Portables [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042331.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ K-Lite Codec Pack Update 15.9.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042289.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DirPrintOK 4.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042276.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ HDCleaner 1.323 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042274.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Exif Pilot 5.22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042271.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ HiBit Uninstaller 2.5.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042269.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ CherryTree 0.99.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042267.jpg" />
 </div>
 
 

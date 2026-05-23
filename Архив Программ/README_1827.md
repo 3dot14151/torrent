@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2811) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179253.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinSnap 5.3.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179250.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ K-Lite Codec Pack Update 17.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179243.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.33126.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179240.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft  Visual C++ Runtimes AIO v0.76.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179235.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinSCP 5.21.6 Build 12913 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179233.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ save2pc Ultimate 5.6.2.1609 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179231.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Snappy Driver Installer Origin R758 | Драйверпаки 23.09.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179230.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Glary Utilities Pro 5.198.0.227 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179229.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Auslogics BoostSpeed 13.0.0.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179212.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ W10 Digital Activation v1.4.9 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179210.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Tipard Video Converter Ultimate 10.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179197.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ SUMo Pro 5.16.3.528 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179178.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Firefox Browser 107.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179174.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Microsoft Edge 107.0.1418.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179166.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ KMSAuto++ Portable 1.8.5 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179149.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Pale Moon 31.4.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179140.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ GOM Mix Pro 2.0.5.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179139.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MediBang Paint Pro 26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179138.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Uninstall Tool 3.7.1 Build 5699 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179130.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FurMark 1.24.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179127.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Windows 11 Manager 1.1.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179096.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Office 2013-2021 C2R Install 7.4.9 b03 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179077.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ StopUpdates10 3.8.2022.1129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179061.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Desktop Calendar 2.3.84.5303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179054.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ OnionFruit Connect 2022.1123 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179053.jpg" />
 </div>
 
 

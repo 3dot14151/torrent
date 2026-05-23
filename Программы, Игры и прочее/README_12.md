@@ -6,7 +6,7 @@ Night clock / Ночные часы v2.11.21 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051328.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Solid Explorer File Manager v3.2.12 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051327.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tricky Words / Хитрое слово: слова из букв v10.2.0 Mod by 
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051324.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vanced Tube v5.5.80.342 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051323.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Win 11 Launcher v9.32 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051318.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ LazyMedia Deluxe v3.426 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051317.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AyuGram - неофициальный клиент Telegram 12.2.10 Mod by NURIK 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051252.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Eatr・Здоровые рецепты v2.11.0 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050942.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Solid Explorer File Manager v3.2.11 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050941.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nerd AI - Решатель Математики v4.0.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050937.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.10.5 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050892.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ PixelLab Pro - Text on pictures 2.1.6 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050891.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050823.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Real Fishing / Настоящая Рыбалка v0.1.2.0 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050822.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050821.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Genius Art: Image AI Generator v1.5.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050775.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Picsart AI Photo Editor, Video v29.1.4 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050739.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ IPTV Pro v9.1.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050738.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Broken Sword: Reforged v1.1.9.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050708.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Exo Player - Видеоплеер и IPTV v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050693.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Device Info / Информация об устройстве v3.4.1.3 Mod by Bal
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050692.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VK Музыка: песни и подкасты v8.7 Mod by VK Equals [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050691.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Night clock / Ночные часы v2.11.17 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050690.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Grok - ИИ ассистент v1.0.96-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050689.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Seven / 7 Минут Упражнение v9.24.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050683.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ STEEZY Studio - Learn To Dance v5.19.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050682.jpg" />
 </div>
 
 

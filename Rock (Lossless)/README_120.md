@@ -6,7 +6,7 @@ Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270352.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SuperHeavy - SuperHeavy (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_270120.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Doors - Waiting For The Sun (1968) 2CD + LP Box Set, Remastered, Elektra, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269994.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Def Leppard - The Story So Far: The Best Of Def Leppard (2018) Deluxe Edition [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269937.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Creedence Clearwater Revival Featuring John Fogerty - Chronicle (The 20 Greatest
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269111.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Deep Purple - Soldier Of Fortune: The Greatest Hits (1994) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269101.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268417.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Hits Album: The Rock Album (2019) Box Set, 4CD [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267981.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ U2 - Songs of Experience (2017) Japan Release [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266903.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ U2 - U218 Singles (Vol.1,2) (2006) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265091.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Chris Rea - Dancing With Strangers (1987) 2CD, Deluxe Edition, Reissue, 2019, Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264629.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Terra Lightfoot - New Mistakes (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264515.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264256.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chris Rea - Auberge (1991) 2CD, Deluxe Edition, Remastered 2019 [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264246.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Marc Bolan - Electronic Musik (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264003.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Birtha - Birtha / Can't Stop The Madness (1997) [FLAC|Lossless|image + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263611.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Taproban - Per Aspera Ad Astra (2017) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263486.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Yes - Close To The Edge (1972) Reissue, Remastered, 1998, Atlantic [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263447.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Bryan Adams - Ultimate (2017) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263394.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Spirit - Spirit (1968) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262804.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Spirit - The Family That Plays Together (1969) remaster, 2017, Audio Fidelity [W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262797.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Parlour Band ‎ - Is A Friend? (1972) [FLAC|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262632.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Pillbugs - Happy Birthday (2004) [FLAC|Lossless|image + .cue] <Rock, Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_262629.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Alannah Myles - Alannah Myles (1989) [FLAC|Lossless|image + .cue] <Rock, Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262110.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Queen - Queen On Fire (Live At The Bowl) (2004) 2 x CD, SHM-CD, Reissue, 2024, E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261628.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Queen - Live Magic (1986) Japanese Edition, SHM-CD, Reissue, 2024, EMI, Limited 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261299.jpg" />
 </div>
 
 

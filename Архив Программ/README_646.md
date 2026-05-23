@@ -6,7 +6,7 @@ ExamDiff Pro Master Edition 10.0.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724612.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Master PDF Editor 5.3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724606.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Avast Secure Browser 72.0.1151.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724605.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Sandboxie 5.55.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724573.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ RegCool 1.311 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724571.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Glary Utilities Pro 5.182.0.211 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724565.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Allavsoft Video Downloader Converter 3.14.4.6325 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724530.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Internet Download Manager 6.38 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724529.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ JetBrains Rider 2018.3.3 Build #RD-183.5619.41 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724468.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ u-he - Hive 1.2.1.8296 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724465.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ PDF Shaper Professional 8.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724464.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ScreenToGif 2.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724435.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FileZilla Server 1.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724432.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Waterfox Current G4.0.7 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724424.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Internet Download Manager 6.28 Build 7 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724364.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Macrium Reflect v 7.2.4063 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724326.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ JetBrains ReSharper Ultimate 2018.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724324.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Ventoy 1.0.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724268.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Soft4Boost Any Audio Record 4.9.7.399 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724257.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Soft4Boost Any Audio Grabber 5.9.7.399 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724256.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Soft4Boost AMPlayer 3.8.3.295 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724252.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ ZD Soft Screen Recorder 9.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724246.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ GreenCloud Printer Pro 7.8.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724234.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ StartIsBack++ 2.8.2 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_724185.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ R-Studio Network 9.0 Build 190295 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724127.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 Final RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724105.jpg" />
 </div>
 
 

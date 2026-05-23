@@ -1,55 +1,3 @@
-###  Публикация: 1339721   (265309) от 20.11.2019
-
-МППСС - Огни и знаки судов v3.7 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Приложение содержит визуальную поисковую систему огней и знаков, ссылку на тематическое правило и предоставляет проверочные тесты, а также 3D-визуализацию для правил МППСС с 20 по 31. Также представлены карточки для самообучения. Для каждого правила вы можете изменить точку наблюдения на 3D-изображении с помощью действия касания/перетаскивания. Система визуального (   Читать дальше...   )Тип издания: Пиратка (Разблокирован Premium)Релиз состоялся: 18.08.2019Разработчик: madeof.blueПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A7D9CC1C5C016B9171BA4061E390C918C04F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193395   (262048) от 21.12.2017
-
-Радиотехник 2.1 Full [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Основы Радиотехники,Мастерская Радиолюбителя,Курс Радиотехники,Пайка и Монтаж,Измерения И Аппаратура ,LabVIEW Для Радиоинженера,Акустические Системы,Конструкции И Схемы,Ремонт Радиомастеру,Справочник Радиолюбителя,Приложения-Дополнения;Подробно рассмотрены Радиолюбительские схемы и конструкции различных стабилизаторов напряжения собранных своими руками такие например (   Читать дальше...   )Тип издания: Пиратка (Полная с Маркета)Релиз состоялся: 17 октября 2017 г.Разработчик: Progressiv Digital Inc.Поддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BC21BEEEF29E9D984D9184098C56F11A93CDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193402   (262035) от 21.12.2017
 
 Электроника Это просто 2 v2.1 Full [Ru]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262035.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v3.1.38 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261722.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ ProShot v8.32.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261721.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Smart AudioBook Player Pro v11.6.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261720.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ AI Photo Editor Pro - Polish v1.693.239 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261717.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ FacePic - AI Face App v3.2.4 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261715.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Grok - ИИ ассистент v1.0.79-release Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261714.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Photo Sherlock v1.131 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261607.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Photo Lab PRO v3.13.76 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261019.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Shazam v16.19.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260992.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Talksy: Навык общения v0.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260991.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Smart AudioBook Player Pro v11.6.1 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260966.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Smart AudioBook Player Pro v11.6.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260965.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ AirBrush: ИИ Фоторедактор v7.20.1 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260954.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ FacePic - AI Face App v3.2.3 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260952.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Taskito v1.1.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260804.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260547.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.0.58388 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260544.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ Grok - ИИ ассистент v1.0.78-release.01 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260542.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260076.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ CPU-Z v1.54 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260037.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ Background Eraser (InShot Inc.) v2.30.91 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260036.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258628.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257953.jpg" />
 </div>
 
 
@@ -678,6 +626,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CAA8E4448469E7D66FD6C643FD84D5093CB42C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837607   (257951) от 17.11.2025
+
+TapScanner v3.0.89 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257951.jpg" />
+</div>
+
+
+###  Подробнее
+
+TapScanner — сканер документов, это простой сканер с камеры с высоким качеством вывода в PDF. Упростите сканирование и подпись документов, добавив пользовательские поля в документы.
+1. Сканирование документов, квитанций и визиток.
+2. Сканер документов автоматически определяет границы!
+3. Точная настройка изображения с множеством фильтров для улучшения(   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 17.11.2025Разработчик: Tap-MobileПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BE36AED5A354B04D493AB5212EEC9F051D2DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837606   (257950) от 17.11.2025
+
+Коммуналочка v2.5.17 Mod by Alex.Strannik [Ru/En/Pl/Ua]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа позволяет вести статистику за показаниями счетчиков воды, электроэнергии, газа и любыми другими коммунальными расходами, отслеживать и анализировать динамику расходов по счётчикам.Тип издания: ProРелиз состоялся: 17.11.2025Разработчик: Artem KrutПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Польский, Украинский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E16849CF2B7ECFF01FDB74D31B022336382C507
 ```
 
 https://mybot314.ru/tekegram_catalog/

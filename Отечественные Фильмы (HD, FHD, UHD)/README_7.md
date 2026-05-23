@@ -1,30 +1,3 @@
-###  Публикация: 1449154   (1030209) от 20.02.2021
-
-Буревестники сжирают Марс (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Павел является посредственным поэтом, и не находит признания у публики. Его строки встречают непонимание и гул толпы. Но все кардинально меняется, когда он узнает, что смертельно болен. Появляется и широкая аудитория, и даже любовь...Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Валерий РубанАктеры: Алексей Синицин, Анастасия РайгородскаяСубтитры: Отсутствуют
-Внимание! Присутствует ненормативная лексика.Продолжительность: 00:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FEC705BA9F099DD044640B37EC90413110B0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449212   (1030203) от 20.02.2021
 
 Прорвемся (2018) WEBRip [H.264/1080p-LQ]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030203.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030199.jpg" />
 </div>
 
 
@@ -77,58 +50,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449152   (1029983) от 21.02.2021
-
-«Аджика» экстремальный клуб (2019) WEB-DL [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Группа юных экстремалов мечтает о славе. Для этого они каждый день снимают на видео опасные трюки и выкладывают их в сеть. Все меняется, когда на пороге тренировочной базы экстрим-клуба «Аджика» появляется странный тип. Он говорит, что знает быстрый способ прославиться и обещает спонсорский контракт и миллионы просмотров на «Ютуб». Для этого от парней требуется совсем (   Читать дальше...   )Производство: Россия / Студия «Лето»Жанр: Драма, короткометражныйРежиссер: Сергей ЦеликовАктеры: Дмитрий Трусов, Александр Городиский, Александр Пурис, Иван Орлов, Сергей Базаров, Юрий Гумиров, Сергей ИванюкСубтитры: Русские, английскиеПродолжительность: 00:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18F74A99C5E5764EAD7EA5898F158195AD33723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449155   (1029977) от 21.02.2021
-
-«Аджика» экстремальный клуб (2019) WEB-DL [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Группа юных экстремалов мечтает о славе. Для этого они каждый день снимают на видео опасные трюки и выкладывают их в сеть. Все меняется, когда на пороге тренировочной базы экстрим-клуба «Аджика» появляется странный тип. Он говорит, что знает быстрый способ прославиться и обещает спонсорский контракт и миллионы просмотров на «Ютуб». Для этого от парней требуется совсем (   Читать дальше...   )Производство: Россия / Студия «Лето»Жанр: Драма, короткометражныйРежиссер: Сергей ЦеликовАктеры: Дмитрий Трусов, Александр Городиский, Александр Пурис, Иван Орлов, Сергей Базаров, Юрий Гумиров, Сергей ИванюкСубтитры: Русские, английскиеПродолжительность: 00:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75138E1E23E2C58201DCD6244D8CBB2BCF7EC636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449236   (1029869) от 21.02.2021
 
 Я подарю тебе победу (2019) WEB-DL [H.264/1080p]
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029869.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029762.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029719.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029705.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029704.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029652.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029494.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029454.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029453.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029353.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029311.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029184.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028999.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028853.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028615.jpg" />
 </div>
 
 
@@ -529,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028471.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028351.jpg" />
 </div>
 
 
@@ -582,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028190.jpg" />
 </div>
 
 
@@ -608,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028125.jpg" />
 </div>
 
 
@@ -634,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028041.jpg" />
 </div>
 
 
@@ -661,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027926.jpg" />
 </div>
 
 
@@ -672,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CCF7ECB2DB52D3BC424FF6C8E5B4443C3DB181F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451854   (1027892) от 05.03.2021
+
+Война (2002) HDTV [H.264/1080i]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аслан Гугаев, командир отряда чеченских боевиков, отпускает троих пленников: двух русских солдат, сержанта Ивана Ермакова и рядового Кулика — потому что они не контрактники, а призывники, и англичанина Джона Бойла — потому что он должен собрать два миллиона фунтов стерлингов и привезти деньги Гугаеву в качестве выкупа за свою невесту Маргарет. Маргарет остается у (   Читать дальше...   )Производство: Россия, Кинокомпания CTBЖанр: боевик, драма, военныйРежиссер: Алексей БалабановАктеры: Алексей Чадов, Иэн Келли, Ингеборга Дапкунайте, Сергей Бодров мл., Эвклид Кюрдзидис, Георгий Гургулия, Владимир Гостюхин, Бен Фостер, Юрий Степанов, Дэвид МакАллистерСубтитры: Русские, Английские (DVD), АнглийскиеПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E713E08D0009AD310489AAC746FB4005D298125F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452146   (1027881) от 05.03.2021
+
+Черновик (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все по-разному воспринимаем реальность. Один и тот же романтический вечер мужчина увидит совсем не так, как увидит его женщина. Она — романтичная барышня, которая приходит в гости к своему бывшему начальнику, в которого до сих влюблена, и надеется, что именно этот вечер станет началом большой красивой истории любви. И она же — хитренькая деваха, каких сотни, которую (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Ольга АликбероваАктеры: Орит Блейзер, Сергей Давыдов, Юлия Егерева, Тимофей ХабибуллинСубтитры: ОтсутствуютПродолжительность: 00:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C92071A8668E6B2B5D49BC72EA5702EB348F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452436   (1027673) от 06.03.2021
+
+Разжалованный (2009) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое бойцов комендантской роты получают приказ — доставить в тыл, в распоряжение военного трибунала разжалованного лейтенанта, обвиненного в трусости. Конвой ведет его пешком по району недавних боев. В ходе своих странствий они наталкиваются на медсанбат, обосновавшийся в лесу. На этот же госпиталь выходит и группа немцев, прорывающаяся из окружения. Троица вынуждена (   Читать дальше...   )Производство: Россия / Феникс-ФильмЖанр: Драма, военныйРежиссер: Владимир ТумаевАктеры: Александр Михайлов, Никита Тезин, Филипп Бажин, Ольга Лапшина, Марина Куделинская, Андрей Межулис, Денис Карасёв, Михаил Солодко, Иван Мамонов, Николай КозакСубтитры: РусскиеПродолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DFB187512ECB7EB8C0B73D1074FC9A06882CAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

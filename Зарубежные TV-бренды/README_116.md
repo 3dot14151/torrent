@@ -1,29 +1,3 @@
-###  Публикация: 1270953   (153378) от 21.12.2018
-
-Остров бунтарей (Непокорный остров) / Lawless Island (2015) HDTVRip (серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Эта передача о людях, решивших уйти из обычного общества и поселиться в отдалённой аляскинской коммуне. Вы увидите истории о выживании как волков-одиночек, так и коммуны в целом. Один не может существовать без другого. По большому счёту, люди просто стараются выжить, но эти истории затронут и то, как они охотятся, рыбачат, выращивают овощи и фрукты, а также занимаются (   Читать дальше...   )Производство: Adjacent Productions, National Geographic ChannelЖанр: Документальный, природа, выживание экстримПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE68504C58EE7C44BD2B7005682D74DAE707081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270946   (153324) от 21.12.2018
 
 NG: Суперсооружения: Саграда Фамилья / Megastructures. Sagrada Familia (2018) DVB
@@ -32,7 +6,7 @@ NG: Суперсооружения: Саграда Фамилья / Megastructur
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153324.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG: Доисторические монстры Гитлера / Hitler's Jurass
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153250.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG: Дикая природа России / Wild Russia (2009) HDTVRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152773.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152735.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Animal Planet: Беловежская пуща: первозданный лес 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152642.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152360.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152218.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Animal Planet: Летающие челюсти. Прогулка с белыми
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152151.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151871.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151630.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ NG: Службы безопасности портов: Гамбург / Port Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151507.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ NGW: Дикая Аляска: Арктическое лето / Wild Alaska. Arc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151460.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ NG: История Эмиратов / History of the Emirates (2019) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151334.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151247.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Discovery: Мятеж: / Mutiny: Survival On The Oceans (2017) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151185.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151177.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151059.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150383.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Discovery: Чикаго времен Аль Капоне / Al Capone's Chicago (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150118.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149790.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Animal Planet: Спасение слонов с Яо Мином / Saving Africa'
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149785.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ NG. Затерянная гробница царя Ирода / Herod's Lost Tom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149334.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149113.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ NG. Королевство белых медведей / Kingdom of the Polar Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148974.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Nat Geo Wild: По следам мифических чудовищ: Кошма�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148546.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Nat Geo Wild: По следам мифических чудовищ: Кошма�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D73A5B8B4FE6B39583457AF2C3B9CFB554D14F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271766   (148541) от 24.12.2018
+
+NGW: Динорыба / Dinofish (2011) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148541.jpg" />
+</div>
+
+
+###  Подробнее
+
+2001 год, Содвана Бей, Южная Африка. Команда дайверов охотится за живым динозавром. У них ровно 15 минут чтобы найти его. Эта мрачная преисподняя - место легенд. Но здесь, по-близости есть нечто реальное. В этой экспедиции один из дайверов погиб. Спустя десятилетие после трагедии в Содване элитное подразделение возвращается на южно-африканское побережье. Их задание (   Читать дальше...   )Производство: США, Earth Touch, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Грэм ДуэйнПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D81F49EFEB37A2B05C15932AD21C99300958921
 ```
 
 https://mybot314.ru/tekegram_catalog/

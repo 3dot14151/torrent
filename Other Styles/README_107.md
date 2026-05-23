@@ -6,7 +6,7 @@ Heidi Feek - The Only (2013) [MP3|320 Kbps] <Country, World, Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479488.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rome - The Lone Furrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Post-indus
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479142.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479130.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Kitaro - Final Call (2013) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478385.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Sarah Darling - Dream Country (2016) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478121.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477967.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blu
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477917.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Blue Rodeo - In Our Nature (2013) [MP3|320 Kbps] <Folk Rock, World, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477505.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477356.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SPA & Wellness Massage Masters, Beauty Spa Music Collection, Zen Spa Music Exper
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477341.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ The Soundtrack Studio Stars - Sounds of Tarantino (2014) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477192.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476306.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475882.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Diamond Best Mood Tenor Sax Best (2CD)(2006) [FLAC|Lossless|image + .cue] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475788.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475071.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Loss
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474910.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474325.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474277.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ The BBC Concert Orchestra - Cinema Silver Screen Classic (2012) [FLAC|Lossless]<
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473930.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ The Romantic Strings Orchestra - The Greatest Love Of All (1998) [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473914.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Sax Is The Best! Showa Kayo Listening At Sax (2012) 5CD [FLAC|Lossless|imag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473890.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473564.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473558.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473540.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitl
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472067.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Loss
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472014.jpg" />
 </div>
 
 

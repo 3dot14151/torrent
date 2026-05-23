@@ -6,7 +6,7 @@ Nevertales 10: Faryon / Несказки 10: Фарион (2021) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021907.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mystery Trackers 19. Forgotten Voices (2021) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021890.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Scarlet Hood and the Wicked Wood (2021) [Ru/Multi] (1.0.0c) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021845.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Children of Morta (2019) [Ru/Multi] (1.2.55/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021838.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Crisis in the Kremlin / Кризис в Кремле (2017) [Ru/En] (1.0/dlc) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021679.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Serious Sam 4 (2020) [Ru] (1.01) Unofficial [Русификатор]
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021672.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Farm Frenzy Refreshed / Весёлая Ферма: Возвращение (2021)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021656.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cozy Grove (2021) [Ru/Multi] (1.5.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021655.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.16-20.12.11/dlc) License GOG [Slayer E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021652.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Vacation Adventures. Park Ranger 11 (2021) [En] (1.0.0.1) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021559.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021491.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ADD (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021476.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021243.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Empire of Sin (2020) [Ru/Multi] (1.04/dlc) Repack Other s [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021237.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mundaun (2021) [Ru/Multi] (1.0.207) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021068.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Demon Skin (2021) [Ru/Multi] (0.9031) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021062.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Secret City 6: Sacred Fire (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020810.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Arcana: Sands of Destiny / Аркана: Пески Судьбы (2020) [Ru/Mult
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020776.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sea of Lies 4: Tide of Treachery / Море лжи 4: Волны предате�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020622.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Christmas Stories 6: A Little Prince Collector's Edition / Рождествен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020621.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Secret Government (2021) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020532.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Relicta (2020) [Ru/En] (1.10) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020361.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Twin Mind. Murderous Jealousy / Двуединое сознание. Убийс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020256.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Don't Be Afraid (2020) [Ru/Multi] (1.002) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020230.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ WarriOrb (2020) [Ru/Multi] (1.3) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020069.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Bridge to Another World 8: Endless Game (2021) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019777.jpg" />
 </div>
 
 

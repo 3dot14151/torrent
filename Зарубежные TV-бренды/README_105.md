@@ -1,29 +1,3 @@
-###  Публикация: 1266033   (226088) от 11.12.2018
-
-Брэд Мельцер: расшифровка / Brad Meltzer: Decoded (2011) HDTVRip (2 сезон: 11 серий из 13) (Обновляемая)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Известный писатель Брэд Мельцер рассматривает древние и современные вещи, которые передают нам секретные послания, закодированные в кодах и символах.Производство: США, A&E Television NetworksЖанр: Документальный, история, расследованиеПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 11 x ~ 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822C68F67036EADE32736AA7A0D75F42D9A01D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261230   (226054) от 11.12.2018
 
 Шон Бин при Ватерлоо / Sean Bean on Waterloo (2015) HDTVRip (2 серии из 2)
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226054.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG: Злоключения за границей / Banged up Abroad (2020) IPTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224964.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224939.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ NGW: Медвежья школа / Bearhood (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224819.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ NGW: Самые странные в мире: ползучие целители 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224750.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ NGW: Дикие места Африки. Рожденные выживать / A
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224721.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезон�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224683.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223524.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223506.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ BBC: Горизонт. Как построить машину времени / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223497.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223452.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223097.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222409.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ BBC: Биологические часы - как они работают? / Bod
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222343.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222022.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221992.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ NGW. Странная природа: сумасброды / Stranger than Natur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220981.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220854.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ NG: Осушить океан: Подводные лодки-убийцы / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220832.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220809.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220650.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220273.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219969.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219715.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219602.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0BEA54B8F29EA0253F04909F7185B8ADB62D7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341609   (219451) от 05.12.2019
+
+Затерянные города с Альбертом Лином / Lost Cities with Albert Lin (2019) HDTV [H.264/1080i-LQ] (серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя проникающий в землю радар, LiDar и 3D-сканирование, Альберт Лин будет работать с археологами, чтобы обнаружить и воссоздать неизведанные миры, все еще скрытые под землей.Производство: США, Arrow Media, Blakeway Productions, National Geographic ChannelЖанр: Документальный, история, исследованияРежиссер: Ренни БарлеттПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FD5BBF706E85A9A2B037E334C38F0D804CAC52
 ```
 
 https://mybot314.ru/tekegram_catalog/

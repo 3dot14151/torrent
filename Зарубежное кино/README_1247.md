@@ -1,58 +1,3 @@
-###  Публикация: 1572883   (416093) от 29.08.2022
-
-Нет / Nope (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Через полгода после смерти отца в результате нелепого несчастного случая брат с сестрой, Оджей и Эмеральд, пытаются удержать на плаву семейный бизнес — ранчо с лошадьми для съёмок в кино и рекламе. Дела идут из рук вон плохо, часть животных пришлось продать, и Оджей уже подумывает избавиться и от ранчо, когда вдруг замечает в окрестностях НЛО. Ребята видят в этом (   Читать дальше...   )Производство: США, Dentsu, Monkeypaw Prodctions, Universal PicturesЖанр: фантастика, ужасыРежиссер: Джордан ПилАктеры: Дэниэл Калуя, Кеке Палмер, Брэндон Переа, Стивен Ян, Майкл Уинкотт, Ренн Шмидт, Кит Дэвид, Девон Грайе, Терри Нотари, Барби ФеррейраПеревод: многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)
-
-Присутствует ненормативная лексика!Продолжительность: 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B12E2D3FCDE9BCA45DD7EBEF2ED1844CBB8F47B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325052   (416087) от 13.09.2019
-
-Драйв (Непобедимый) / Drive (1997) WEB-DL [H.264/1080p-LQ] [Open Matte] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сан-Франциско. Недалекое будущее. Грузовое судно возвращается из Гонконга с загадочным пассажиром по имени Тоби Уонг. Он сбежал от подпольной корпорации Леунга в поисках свободы на Западе.
-Однако Тоби попадает в лапы банды хладнокровного Вика Мэдисона. Вырвавшись из банды Мэдисона, он берет в заложники пьяницу Малика Броунди и едет в Лос-Анджелес. В дороге они становятся (   Читать дальше...   )Производство: США / Overseas FilmGroup, NEO Motion PicturesЖанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: Стив ВангАктеры: Марк Дакаскос, Кадим Хардисон, Джон Пайпер-Фергюсон, Бриттани Мерфи, Трейси Уолтер, Джеймс Шигета, Масая Като, Дом Магуили, Рон Юань, Клайв РозенгренПеревод: Многоголосый профессиональный (ОРТ)Субтитры: Английские (SDH)Продолжительность: 01:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B385DA06D03DEC584C736850D44608795CA8C917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324975   (416081) от 13.09.2019
 
 Плюс один / Plus One (2019) BDRemux [H.264/1080p]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416081.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416066.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416065.jpg" />
 </div>
 
 
@@ -140,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416010.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416006.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415973.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415964.jpg" />
 </div>
 
 
@@ -245,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415928.jpg" />
 </div>
 
 
@@ -272,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415922.jpg" />
 </div>
 
 
@@ -298,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415920.jpg" />
 </div>
 
 
@@ -324,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415917.jpg" />
 </div>
 
 
@@ -351,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415912.jpg" />
 </div>
 
 
@@ -377,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415899.jpg" />
 </div>
 
 
@@ -403,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415871.jpg" />
 </div>
 
 
@@ -430,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415760.jpg" />
 </div>
 
 
@@ -456,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_415735.jpg" />
 </div>
 
 
@@ -482,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415709.jpg" />
 </div>
 
 
@@ -508,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415697.jpg" />
 </div>
 
 
@@ -534,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415682.jpg" />
 </div>
 
 
@@ -560,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415661.jpg" />
 </div>
 
 
@@ -587,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415657.jpg" />
 </div>
 
 
@@ -614,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415651.jpg" />
 </div>
 
 
@@ -641,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415650.jpg" />
 </div>
 
 
@@ -667,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415615.jpg" />
 </div>
 
 
@@ -678,6 +623,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AF34D076DB94EF9F4134FF5BB4BB0EB00EF93E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947934   (415605) от 18.10.2015
+
+Месть обманутой женщины / Ek Hasina Thi (2004) DVDRip
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финансист Каран и простая независимая девушка Сарика бросаются «в омут с головой» и планируют совместное будущее. Все хорошо, пока Сарику не обвиняют в пособничестве террористам. Ее не отпускают на свободу под залог, и она узнает все «прелести» тюрьмы.
+Поможет ей в этом офицер женской колонии, превративший жизнь Сарики в ад. Каран клянется помочь ей выйти на свободу, (   Читать дальше...   )Производство: ИндияЖанр: Драма, триллер, криминал, мелодрамаРежиссер: Шрирам РагхаванАктеры: Саиф Али Кхан, Урмила Матондкар, Сима Бисвас, Адитья Шривастав, Мадан Джоши, Закир Хуссэйн, Абхай Бхаргав, Сима АдхикариПеревод: Профессиональный многоголосыйПродолжительность: 02:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3838CC26F1CD5E4B78C20391B6AA82E1328138C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407195   (415601) от 30.09.2020
+
+Майки / Mikey (1992) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сирота Майки вроде бы самый обычный мальчик, но вот со всеми, кто его окружает, в первую очередь с приёмными родителями, постоянно происходят самые ненормальные происшествия, зачастую со смертельным исходом. Эта череда инцидентов конечно может показаться кому-то подозрительной, но разве можно винить в них ребёнка?Производство: США / Tapestry FilmsЖанр: ужасы, триллерРежиссер: Деннис ДимстерАктеры: Брайан Бонсалл, Джози Биссет, Эшли Лоуренс, Мими Крэйвен, Джон Дил, Уайтби Хертфорд, Лаймен Уорд, Дэвид Рогге, Марк Вентурини, Лора РобинсонПеревод: одноголосый авторскийСубтитры: английские (полные)Продолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EE1F74253C3A4A1E35DD37052DD410277AA447
 ```
 
 https://mybot314.ru/tekegram_catalog/

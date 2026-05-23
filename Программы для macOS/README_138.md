@@ -6,7 +6,7 @@ Focusplan Pro - Mind Map 1.6.17 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202839.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ImageRanger Pro Edition 1.9.4.1875 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202797.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EaseUS Todo Backup for Mac 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200905.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nitro PDF Pro 13.3.1 fix [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200738.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Planner 5D Premium 4.14 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200715.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NTFS Disk by Omi NTFS 1.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200516.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Substance 3D Painter 8.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200489.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MathWorks MATLAB R2023a 9.14.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200404.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ iZotope RX 10 Audio Editor Advanced AU, VST3, AAX, STANDALONE 10.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200383.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ McAfee Endpoint Security for Mac 10.7.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200382.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vidmore Video Converter 2.3.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200280.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Substance 3D Sampler 4.1.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199677.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ LAN Scan - Network Scanner 1.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199362.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ABBYY FineReader PDF for Mac 15.2.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198946.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Logic Pro X 10.7.8 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198047.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Final Cut Pro 10.6.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197976.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Grids for Instagram 8.5.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197319.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Nik Complete Collection by DxO 6.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197297.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ ON1 Portrait AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197286.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ ON1 Resize AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197152.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ PDF Expert 3.2. [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196852.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14079 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196711.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Native Instruments Traktor Pro Plus 3 v.3.9.0.90 Rev2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196707.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Photo Mechanic 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195318.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Maxon App for Mac 2023.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195238.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Adobe Audition 23.5 U2B [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195055.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1125554   (556480) от 14.07.2018
-
-The Signal From Tölva (2017) [En] (1.0.65) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит на неизвестной планете, откуда идет мистический сигнал. Сама планета населена роботами, которых можно без проблем взломать из укромного места и потом управлять ими. Если же робот умирает, то вы можете подключиться без особых проблем к другому. В игре вы можете исследовать планету, свободно по ней перемещаться и пытаться понять, что это за (   Читать дальше...   )Тип издания: LicenseРазработчик: Big RobotЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E647C262E41F9546137069671553A859EAD9B6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557095   (556386) от 12.06.2022
 
 Twin Mind 3: Ghost Hunter / Близнецы-детективы 3: Призрачный охотник (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Twin Mind 3: Ghost Hunter / Близнецы-детективы 3: Призра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556386.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556342.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Trek to Yomi (2022) [Ru/Multi] (1.007) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556321.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Constructor Plus (2019) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556314.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0) License PLAZA [The Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556304.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Deep Sky Derelicts (2018) [Ru/En] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556297.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Infectonator 3: Apocalypse (2018) [Multi] (1.3.2.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556170.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Men of War / В тылу врага 2: Лис пустыни (2009) [Ru/En/Fr] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556165.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Void Bastards (2019) [Ru/Multi] (v1.0) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555989.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ RIDE 3 (2018) [Multi] (1.0/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555706.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Forgotton Anne (2018) [Ru/Multi] (5.5.3) License GOG [Collector's Upgrade]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555629.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Iron Heart (2019) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555603.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Katana ZERO (2019) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555591.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Spirit Legends 2: Solar Eclipse (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555464.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Golden Trails 3: The Guardians Creed / Золотые истории 3: Хран
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555443.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Tridents Wake (2019) [Ru/Multi] (1.01) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555389.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Hidden Fears: Moonlight Edition/Тайные страхи: Moonlight Edition (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555333.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Distance (2018) [En] (1.3) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555277.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ RDS - The Official Drift Videogame (2019) [Ru/En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555275.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Blame Him (2019) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555270.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Ms. Holmes: The Monster of the Baskervilles / Мисс Холмс: Монстр 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555167.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554963.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Immortal Love 6: Bitter Awakening / Бессмертная любовь 6: Го�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554824.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554785.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ PuppetShow 14: Faith in the Future / Шоу марионеток 14: Верит�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554704.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ PuppetShow 14: Faith in the Future / Шоу марионеток 14: Верит�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C493A95B7CA132076F81217FD533624702E0B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306790   (554543) от 11.06.2019
+
+RIDE 3 (2018) [Multi] (1.0upd10/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ощутите прилив адреналина от максимально реалистичных гонок в RIDE 3! Погрузитесь в игровой мир с передовой 3D-графикой, где вы будете состязаться с сильнейшими соперниками на своем мотоцикле, настроив его технические характеристики и придумав свой уникальный дизайн в новом редакторе раскрасок. Воплотите в жизнь ваши самые безумные мечты — и не забудьте подобрать (   Читать дальше...   )Тип издания: RepackРазработчик: Milestone S.r.l.Жанр: Гонки, Симуляторы, Спортивные игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7C7384854F49376EA5457270B042C3E54C8B30
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ CCleaner 5.68.7820 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770290.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vivaldi 1.1.453.59 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770261.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Anvir Task Manager 8.1.1 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770236.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Instagiffer 1.73 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770229.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cyberfox 46.0.3 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770222.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ qBittorrent 3.3.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770196.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cyberfox 46.0.3 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770191.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Process Lasso Pro 8.9.8.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770184.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ant Download Manager 0.3.5 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770154.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Replay Video Capture 8.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770150.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Acrobat Pro DC 2015.016.20039 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770104.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Process Lasso Pro 8.9.8.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770103.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Daum PotPlayer 1.6.60136 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770070.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ JetBrains WebStorm 2016.1.2 Build #WS-145.971 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770069.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ TeamViewer 11.0.59518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770033.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe Acrobat XI Pro 11.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770009.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ PowerISO 6.2 DC 08.04.2015 RePacK by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769969.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ CoolUtils Total Image Converter 5.1.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769962.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ PowerISO 6.2 DC 08.04.2015 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769934.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PowerISO 6.2 DC 08.04.2015 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769932.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NXPowerLite Desktop 6.2.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769929.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Icecream PDF Split and Merge Pro 2.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769899.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Privacy Eraser Free 5.0 Build 3532 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769882.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ HyperSnap 8.05.01 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769859.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ R-Drive Image 6.3 Build 6304 + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769850.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Vivaldi 3.1.1929.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769838.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ DreamBreak (2016) [Ru/En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614880.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cast of the Seven Godsends - Redux (2015) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613245.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Semblance (2018) [Ru/Multi] (1.0.3b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613192.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Toki Tori (ENG) [L] (2010)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612873.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Blueberry Garden v.1.1 (Eng) [P] (2009)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612871.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ The Shadowland (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611519.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ World of One (2017) [Ru/Multi] (1.2.2 B9) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610898.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609776.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Headlander (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609772.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Shantae Anthology (2014-2018) [En] (1.0.1.5/1.04g/1.0hf21245) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608310.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Terraria (2011) [Ru/Multi] (1.3.2.1) Repack NIK220V
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607792.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ ITORAH (2022) [Ru/Multi] (1.1.0.0) License GOG [Save the World Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607307.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tom vs. The Armies of Hell (2016) [En] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606459.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Tom vs. The Armies of Hell (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606195.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606173.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Supraland (2019) [Ru/Multi] (1.2b) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606156.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ SEUM: Speedrunners from Hell (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604387.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Cuphead (2017) [Ru/Multi] (1.2) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604010.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Pinstripe (2017) [Ru/Multi] (2.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603617.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Candle (2016) [Ru/Multi] (1.1.17) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602310.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Cuphead (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602063.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Deputy Dangle (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599179.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Deputy Dangle (2016) [En] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599176.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Pinstripe (2017) [Ru/Multi] (2.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597784.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Vive le Roi / Vive le Roi 2 (2017-2018) [Ru/Multi] (1.0.10/1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597616.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Fly and Destroy (2016) [En] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597164.jpg" />
 </div>
 
 

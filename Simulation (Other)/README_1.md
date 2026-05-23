@@ -6,7 +6,7 @@ Discounty (2025) [Multi] (1.0.16/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050734.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Potion Craft: Alchemist Simulator (2022) [Ru/Multi] (2.0.2.0) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049726.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PlateUp! (2022) [Ru/Multi] (1.4.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049436.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Candy Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049410.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Supercar Collection Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049408.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.003.28253.87380/dlc) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049276.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Store Wars: Multiplayer Shop Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049231.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Xenopurge (2025) [Ru/Multi] (Build 20880157) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049227.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Star Ores Inc. (2025) [Ru/Multi] (1.0.23) License GOG [Book Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049099.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Star Ores Inc. (2025) [Ru/Multi] (1.0.23) Repack FitGirl [Book Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049098.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.132/dlc) Scene Rune [Digital Collect
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049093.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ MyVoiceZoo (2025) [Ru/Multi] (build 20860342) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048623.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Driving Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048517.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Driving Life (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048511.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Barotrauma (2023) [Ru/Multi] (1.11.4.1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048055.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.10.0.12/dlc) Repack FitGirl [Ultimate
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047928.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (build 20948151/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047790.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Restaurats (2025) [Ru/Multi] (0.19.0.19/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047671.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Crime Simulator (2025) [Ru/Multi] (1.21 HF) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046922.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046641.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Bridge Constructor Studio (2025) [Ru/Multi] (1.0r11-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046504.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Shortest Trip to Earth (2019) [En] (1.3.7/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046378.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Workshop Simulator (2022) [Ru/Multi] (1.3.13977) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046072.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Atomicrops (2020) [Ru/Multi] (1.6.1f1-g/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045782.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Moonshine Inc (2022) [Multi] (1.0.5) License GOG [Supporter Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044780.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tortuga - A Pirate's Tale (2023) [Ru/Multi] (1.0.1.46268) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044263.jpg" />
 </div>
 
 

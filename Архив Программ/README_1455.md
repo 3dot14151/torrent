@@ -6,7 +6,7 @@ PDF-XChange Viewer Pro 2.5.319.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297942.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Athentech Perfectly Clear Complete 3.11.0.1887 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297872.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Athentech Perfectly Clear WorkBench 3.11.0.1887 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297861.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Wise Care 365 Pro 5.5.9.554 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297857.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adguard Премиум 6.1.296.1549 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297807.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Google Chrome 55.0.2883.75 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297796.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ IObit Uninstaller Pro 6.1.0.26 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297792.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Visual Studio 2019 Professional 16.7.6 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297750.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WhatsApp 2.2045.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297745.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ant Download Manager Pro 2.0.1 Build 75447 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297740.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ R-Drive Image Technician 6.1 Build 6102 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297672.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ GridinSoft Anti-Malware 3.0.65 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297670.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Google Chrome 55.0.2883.75 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297667.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ExperienceIndexOK 1.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297666.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ NVIDIA PhysX System Software 9.16.0318 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297657.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The Bat! Professional 9.3.0.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297607.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ The Bat! Professional 9.3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297599.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Visual Studio 2019 Enterprise 16.7.6 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297596.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Windows 10 Manager 2.0.2 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297564.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe Audition CC 2017.0.1 10.0.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297560.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ R-Drive Image Technician 6.3 Build 6308 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297484.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BELOFF [dp] 2020.11.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297479.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ R-Drive Image 6.3.Build.6308 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297470.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VK Messenger 1.0.0 (203) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297424.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Topaz Labs Photoshop Plugins Bundle 2016 (01.12.2016) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297420.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Adguard 6.1.296.1549 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297418.jpg" />
 </div>
 
 

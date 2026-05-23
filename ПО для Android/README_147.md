@@ -1,55 +1,3 @@
-###  Публикация: 1808046   (10679) от 22.07.2025
-
-VK Музыка: песни и подкасты v8.0 Mod by VK Equals [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В VK Музыке можно слушать треки из ВКонтакте и ОК, найти интересные подкасты на русском языке и аудиокниги, включить любимое радио. Музыка без интернета: оформите подписку, скачайте песни прямо в приложении и слушайте офлайн.Тип издания: ModРелиз состоялся: 20.07.2025Разработчик: VK.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163DEC0A24CD5907CA924C75FAF104AB8D38F492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808210   (10618) от 23.07.2025
-
-Калькулятор Плюс v8.0.1 Pro Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я - Калькулятор Плюс, идеальный калькулятор для Android. Я прост в использовании, и благодаря оригинальному дизайну, я более удобен, чем классический калькулятор. Мне нравится экономить Вам время и работу. Я помню все Ваши вычисления, и всегда могу показать всю историю, что делает меня идеальным для суммирования квитанций, сведения балансов, и даже для подсчета налогов. (   Читать дальше...   )Тип издания: Pro / Paid / AntiSplitРелиз состоялся: 22.07.2025Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75A2F834DDE21AF6AB5920AA287929961753931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808351   (10513) от 24.07.2025
 
 BitTorrent®- Torrent Downloads v8.2.38 Mod by PieMods [En]
@@ -58,7 +6,7 @@ BitTorrent®- Torrent Downloads v8.2.38 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10513.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Photo Sherlock v1.129 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10495.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Enhance it v4.2.2 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10272.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10271.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10264.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10254.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Purvpn 8.4 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10107.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9982.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.2_2 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9967.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ Cat Scanner / Сканер породы кошек v19.9.0-G Mod by vadj [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9959.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ Flud v1.11.6.10 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9887.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ Moon+ Reader Pro v10.1 (b1001001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9881.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ MultiTimer: МультиТаймер v1.9.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9836.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ TeraBox: 1TB Облако & AI v4.3.4 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9558.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9548.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ AI Photo Editor Pro - Polish v1.662.224 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9532.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ Face Swap - AI Photo Editor v1.4.7 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9435.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ Heart Rate Plus: Pulse Monitor v2.9.5 Mod by FeralFox [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9420.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ Proton VPN 5.12.48.0 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9264.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8847.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ NewPipe v0.28.0 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8837.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8833.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ PPlayer v1.32 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8815.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ Moon+ Reader Pro v10.1 (b1001001) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8814.jpg" />
 </div>
 
 
@@ -673,6 +621,59 @@ Moon+reader относится к категории универсальных 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EE14D7C629AC54A08F8BAEED03CA9F9FC8D62A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810219   (8790) от 09.08.2025
+
+Blur Text - скрыть данные v3.0.2 Mod by FeralFox [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный Редактор Скриншотов и Инструмент Конфиденциальности в Одном Приложении!
+Blur Text App - Преобразуйте свои скриншоты с помощью универсального редактора, который сочетает функции конфиденциальности, инструменты аннотаций и великолепные фоновые эффекты. Идеально для создания туториалов, скрытия конфиденциальной информации и улучшения изображений.Тип издания: PremiumРелиз состоялся: 02.08.2025Разработчик: Adrian KajdaПоддерживаемая ОС: Android 12.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599D2CD97DC01EDB508641759AA4D6BBD25CD85E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811387   (8785) от 09.08.2025
+
+Кегель тренажер v10.1.6 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплекс несложных упражнений и ежедневные напоминания - вот простой способ укрепить мышцы тазового дна! Вам надоело выполнять одни и те же упражнения и чувствовать, что результаты не улучшаются? В этом приложении 10 различных тренировок, это означает, что у вас всегда есть возможность выбрать новый комплекс. Быстро и легко - все упражнения длятся от 30 секунд до (   Читать дальше...   )Тип издания: ProРелиз состоялся: 09.08.2025Разработчик: Olson Applications LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1663D5FBC8AE73D2FD53B15F8020DA9C8AA59C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

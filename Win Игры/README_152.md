@@ -1,29 +1,3 @@
-###  Публикация: 1020367   (744860) от 26.05.2016
-
-Love Chronicles 5: Beyond the Shadows / История любви 5: По ту сторону теней (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное Издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Принцесса Лерио, наследница королевы Алуры, достигла совершеннолетия. Однако радость быстро сменяется страхом и ужасом - темное прошлое матери может стать будущим для принцессы. Наставник Лерио, мудрый волшебник Лусио, передает принцессе артефакт, который можно использовать как во имя добра, так и во зло. Сможет ли принцесса остаться со светлой душой или падет жертвой (   Читать дальше...   )Тип издания: UnofficialРазработчик: Vendel GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334B3B6CC64CD0A6BD60E78195BB1F88F14A1DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282533   (744836) от 12.02.2019
 
 Jump Force (2019) [Ru/Multi] (1.0) License CODEX
@@ -32,7 +6,7 @@ Jump Force (2019) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744836.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Crashday (2017) [Ru/Multi] (1.5.30.911) Repack ivandubskoj [Redline Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744833.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BATTLETECH (2018) [Ru/Multi] (1.4.0/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744828.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Shadows on the Vatican Act I: Greed (2014) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744733.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Raptors: Be A Dinosaur (2014) [En] (Beta) Repack John2s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744509.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Excubitor (2016) [En/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744507.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ghrian (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744504.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Shadows on the Vatican Act II: Wrath (2015) [Ru/Multi] (1.0 u2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744502.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Table Top Racing: World Tour (2016) [Ru/Multi] (1.0/dlc) License RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744501.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Medium Detective: Fright from the Past / Детектив Медиум: Ужас
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744449.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Bear With Me (2016) [Ru/Multi] (1.1.0) Repack alivedeath
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744442.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Crowntakers - Undead Undertakings (2015) [Ru/Multi] (1.0) SteamRip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744430.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [En/Multi] (1.0/upd1) 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744422.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Getting Over It with Bennett Foddy (2017) [Ru/Multi] (1.5762) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744358.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Assassin’s Creed (2008) [Ru/En] (1.02) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744347.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Worlds Align 2: Deadly Dream (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744005.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Family Mysteries 3: Criminal Mindset / Семейные тайны 3: Прест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743965.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Maze 5: Sinister Play / Лабиринт 5: Зловещая игра (2020) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743964.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Spirits of Mystery 8: Illusions (2017) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743732.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Surface 11: Strings of Fate (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743621.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ NASCAR Heat 3 (2018) [En] (1.0/upd4/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743168.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ JUMP FORCE (2019) [Ru/Multi] (1.00) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743165.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ HEVN (2018) [En] (1.0.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743163.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Moto Racing 3D (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743055.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Drift Tuner 2019 (2018) [En] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743041.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Drift Tuner 2019 – гонки, созданные для любителей д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DAF0C4BE55DDF2205E0B51A11F1697335CFC6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217398   (742962) от 04.04.2018
+
+Welcome to the Game II (2018) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Welcome to the Game II - атмосферный ужас, стратегия, головоломка, которая погружает Вас в мир всемирной паутины в поисках сети Deep Web. Вы играете как Клинт Эдвардс (Clint Edwards), журналист пытающийся помочь женщине по имени Амалия (Amalea), которой угрожают люди из теневой сети.Тип издания: LicenseРазработчик: Reflect StudiosЖанр: Adventure (Horror), Strategy, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C447EB1AA4614D9035BD803BAA1939571088EDF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

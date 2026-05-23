@@ -6,7 +6,7 @@ MInstAll Lite Release by StartSoft 09-2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779425.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Reader DC 2018.011.20038 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779419.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat Pro DC 2018.011.20038 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779414.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ save2pc Ultimate 5.5.3 Build 1574 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779384.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Q-Dir 6.89 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779363.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Soft Organizer 7.00 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779355.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Total Uninstall 6.22.0.500 (x64) Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779347.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MyDraw 2.0.3 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779344.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Alcohol 120% 2.0.3 Build 10221 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779330.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Alcohol 120% 2.0.3.10221 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779317.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vivaldi 1.14.1077.55 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779280.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Maxthon Browser 5.2.0.900 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779258.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BluffTitler Ultimate 13.7.0.2 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779252.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ K-Lite Codec Pack Update 14.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779243.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Opera 51.0.2830.40 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779242.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ CoolUtils Total Audio Converter 5.3.0.162 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779237.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ YouTube By Click Premium 2.2.79 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779233.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ PDF Eraser Pro 1.9.0.4 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779226.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779219.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Soft Organizer 7.0 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779217.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ MKVToolNix 21.0.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779214.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Notepad++ 7.5.5 Final + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779208.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Red Giant Universe 2.2.2 RePack by Team V.R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779160.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ USDownloader 1.3.5.9 Portable (28.02.2018)  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779113.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779093.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Avira Free Antivirus 15.0.34.27 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779084.jpg" />
 </div>
 
 

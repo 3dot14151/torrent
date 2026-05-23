@@ -6,7 +6,7 @@ Might and Magic 7: For Blood and Honor / Меч и магия 7 (1999) [Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800934.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800808.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Risen 3 (2014) [Ru/En/Ge] (3.0.30/dlc) Repack R.G. Механики [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800802.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avenging Angel (2018) [En] (1.0.5) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800742.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Repack R.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800536.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Defend the Rook (2021) [Ru/Multi] (1.062) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799829.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) Repack Other s [Final Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799789.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/En] (1.0.0.0/upd3) SteamRip Let
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799423.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Eschalon: Book (2007-2014) [En] (1.06/1.05/1.021) License GOG [Trilogy]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798355.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Swords and Fairy 7 (2021) [Multi] (1.0.8.7586889) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798334.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Prison Simulator (2021) [Ru/Multi] (1.0.1.1v04.11) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798039.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dungeon Souls (2016) [En] (1.0.5.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797842.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.1) License GOG [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797836.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (2021.11.01/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797264.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Legend of Tianding (2021) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797186.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797085.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Elder Scrolls III: Morrowind (2002) [Ru] (1.6.1820/dlc) License [Game of the
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797064.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Hyperdevotion Noire: Goddess Black Heart (2016) [En/Jp] (1.0/dlc) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796605.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Celestian Tales: Realms Beyond (2020) [En] (1.0.14) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796491.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795820.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Tale of Wuxia (2016) [En/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795815.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795294.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794695.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Yaga (2021) [Ru/Multi] (1.3.23/dlc) License GOG [Armful Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794525.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Krai Mira: Extended Cut (2017) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794138.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793654.jpg" />
 </div>
 
 

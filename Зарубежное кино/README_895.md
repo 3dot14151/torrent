@@ -1,57 +1,3 @@
-###  Публикация: 1034253   (633811) от 13.07.2016
-
-Человек из стали / Man of Steel (2013) BDRip [H.265/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кларк Кент/Кал-Эл — молодой человек, который чувствует себя чужаком из-за своей невероятной силы. Много лет назад он был отправлен на Землю с развитой планеты Криптон, и теперь задается вопросом: зачем?
-Воспитанный приемными родителями Мартой и Джонатаном Кентами, Кларк знает: обладать сверхспособностями — значит принимать сложные решения. Но когда человечество более (   Читать дальше...   )Производство: США, Канада, ВеликобританияЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Зак СнайдерАктеры: Генри Кавилл, Эми Адамс, Майкл Шеннон, Рассел Кроу, Дайан Лэйн, Кевин Костнер, Антье Трауэ, Лоренс Фишбёрн, Кристофер Мелони, Гарри Дж. ЛенниксПеревод: Дублированный (Blu-Ray EUR)Язык субтитров: Русские (форсированные, полные), Английские (полные, SDH)Продолжительность: 02:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8319FD3751E4676ECC2757DE58C6503053225DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031864   (633807) от 13.07.2016
-
-Странные дни / Strange Days (1995) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1999 год. Огромной популярностью пользуется новое изобретение, разработанное ФБР в целях слежки и попавшее на «черный» рынок. Надев на голову небольшое приспособление с датчиками, можно записать ощущения и «пережить» их через проигрыватель, причем с абсолютной достоверностью.
-Можно принять душ в теле 16-летней девушки, можно... Кто-то записывает ощущения людей, погибающих (   Читать дальше...   )Производство: США / Lightstorm EntertainmentЖанр: Фантастика, Боевик, Триллер, КриминалРежиссер: Кэтрин БигелоуАктеры: Рэйф Файнс, Анджела Бассетт, Джульетт Льюис, Том Сайзмор, Майкл Уинкотт, Винсент Д"Онофрио, Гленн Пламмер, Брижит Бако, Ричард Эдсон, Уильям ФихтнерПеревод: Многоголосый закадровый, профессиональный, Авторский одноголосыйСубтитры: Русские, Английские (вшитые, отключаемые)Продолжительность: 02:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC01FC54ED9B8EB13F7AF47069DE5531105E6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033927   (633796) от 13.07.2016
 
 Роковое влечение / Eperdument (2016) WEB-DL [H.264/720p-LQ]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633796.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633792.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_633708.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_633701.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_633695.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633586.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633516.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633480.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633474.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633468.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633429.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633428.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633353.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633329.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633324.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633282.jpg" />
 </div>
 
 
@@ -481,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633281.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633238.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633224.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633217.jpg" />
 </div>
 
 
@@ -585,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633209.jpg" />
 </div>
 
 
@@ -611,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633203.jpg" />
 </div>
 
 
@@ -637,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633177.jpg" />
 </div>
 
 
@@ -663,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633171.jpg" />
 </div>
 
 
@@ -674,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAADB9CC301C90406E71563D3AB4451416D703BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543006   (633162) от 09.04.2022
+
+Уличный боец: Кулак убийцы / Street Fighter: Assassin's Fist (2014) BDRip [H.265/1080p] [10-bit] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о периоде становления бойцами Рю и Кена, когда они жили традиционной жизнью воинов в Японии. Парни и не подозревали, что являются последними людьми, познавшими древний боевой стиль, известный как «Ансацукен» (Кулак убийцы)…Производство: Великобритания / Assassin's Fist Limited, Evropa Films, Gloucester Place Films, Lonely Rock ProductionsЖанр: фэнтези, боевик, триллер, драма, приключенияРежиссер: Джои АнсаАктеры: Того Игава, Крис Ховард, Майк Мо, Сёгэн, Гаку Спэйс, Акира Коиэяма, Джои Анса, Хюнри, Хал Яманоути, Марк КиллинПеревод: Авторский (Андрей Дольский)Субтитры: русские (форсированные), английские (форсированные, полные)Продолжительность: 02:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D691E01FF7BF08C6059D5F2E9DDC5F101B32CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542997   (633155) от 09.04.2022
+
+Бедное сердце / Dil Bechara (2020) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычная история двух влюблённых и неизлечимо больных девушки и юноши Кизи и Мэнни, снятая по мотивам романа Дж. Грина «Виноваты звёзды». У Кизи диагностирован рак щитовидной железы. Милая и скромная девушка все силы вкладывает в борьбу с болезнью. Однажды она встречается с симпатичным и жизнерадостным парнем Мэнни, у которого начался период ремиссии (ранее он страдал (   Читать дальше...   )Производство: Индия, Fox STAR StudiosЖанр: драма, мелодрама, комедияРежиссер: Мукеш ЧхабраАктеры: Сушант Сингх Раджпут, Санджана Сангхи, Свастика Мукхерджи, Сасвата Чаттерджи, Сахил Ваид, Саиф Али Кхан, Ракеш Крушна Джоши, Дургеш Кумар, Саурав ХуранаПеревод: любительский многоголосый (Honey&Haseena. Перевод и редакция Honey&Haseena), любительский двухголосый (OnisFilms)Субтитры: английскиеПродолжительность: 01:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3D94CCD06FE1C7D083F77E59C6A5ED3652A22F
 ```
 
 https://mybot314.ru/tekegram_catalog/

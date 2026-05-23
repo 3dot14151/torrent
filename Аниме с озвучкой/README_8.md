@@ -6,7 +6,7 @@ Hyper Police | Гиперполиция [1997, TV, 25 из 25] DVDRip 478p 10-bi
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006577.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Boys Be... | Мальчишки есть мальчишки [2000, TV, 13 + 1] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006572.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сил�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005975.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kamisama ni Natta hi | The Day I Became a God | День, когда я стал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004661.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Ima, Soko ni Iru Boku | Now and Then, Here and There | Здесь и сейча�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004252.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004248.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Hikari to Mizu no Daphne | Daphne in the Brilliant Blue | Дафна: Тайна
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003634.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Zoku Natsume Yuujinchou | Тетрадь дружбы Нацумэ [ТВ-2] [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003510.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Мастер Муси: Тень, погл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003509.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tales of Vesperia: The First Strike | Сказания Весперии: Пер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001102.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001077.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / Beyond
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999206.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 из 23] HDTVrip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996554.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blade | Блэйд [2011, TV, 12] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991250.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Nazo no Kanojo X / Mysterious Girlfriend X / Загадочная девушка
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987957.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Gokukoku no Brynhildr / Brynhildr in the Darkness / Брюнхильда во т
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984366.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984294.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Kaze no tani no Naushika / Nausicaa from the Valley of the Wind / Навсика
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982610.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Yuru Yuri 2 / Yuruyuri 2 / Cвободу Лесбиянкам 2 [2012, TV, 12] H
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979731.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Burn Up | Burn Up! | Разгон! [1991, OVA] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979603.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Burn Up W | Burn-Up W - On the Case & In your Face | Разгон! Дубль-в
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979601.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Burn Up Scramble | Burn Up Scramble | Спецотряд Burn Up [2004, TV] DVDR
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979599.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972799.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Teizokurei Daydream | Ghost Talker's Daydream | Мечты вульгарног�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968331.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Bougyaku Sareta Tamashii no Jukyou | Corpse Party: Tortured Souls | Вечери
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966920.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война танук�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965824.jpg" />
 </div>
 
 

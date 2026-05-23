@@ -1,55 +1,3 @@
-###  Публикация: 1660336   (189571) от 12.09.2023
-
-Форсаж 10 / Fast X (2023) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Семья Доминика Торетто вновь попадает под удар. Сайфер объединяет усилия с Данте, который желает отомстить.Производство: США / Universal Pictures, One Race Films, Original FilmЖанр: боевик, криминалРежиссер: Луи ЛетерьеАктеры: Вин Дизель, Мишель Родригес, Джейсон Стэйтем, Джордана Брюстер, Тайриз Гибсон, Лудакрис, Натали Эммануэль, Шарлиз Терон, Джон Сина, Сон ГанПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: руссские (forced, full), английские (full, SDH)Продолжительность: 02:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED59C71F3252852386F32C05F287C99D4C348A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589815   (189570) от 11.11.2022
-
-Спайдерхед / Spiderhead (2022) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [Hybrid] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Ближайшее будущее. В расположенном на острове исправительном учреждении «Спайдерхед» учёный Стив Абнести испытывает психоделики на согласившихся на эксперимент заключённых. Джефф уже не раз получал дозу препарата, вызывающего сильную любовь, но его чувство к другой заключённой, Лиззи, кажется реальным.Производство: Netflix, Conde Nast Entertainment, Grand Electric, Reese Wernick Productions, Screen Arcade, The New YorkerЖанр: фантастика, драмаРежиссер: Джозеф КосинскиАктеры: Крис Хемсворт, Майлз Теллер, Джерни Смоллетт, Mark Paguio, Тесс Хобрич, Ben Knight, Daniel Reader, Sam Delich, Рональд Смик, Бебе БеттенкуртПеревод: Многоголосый профессиональный (Jaskier, NewComers)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские, украинские (forced, full), английские (full, SDH)Продолжительность: 01:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4C47735D38B39C4898688735942691901BC792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589840   (189567) от 11.11.2022
 
 Быстрее пули / Bullet Train (2022) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189567.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189561.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189559.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189555.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189553.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189544.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189543.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189537.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189535.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189528.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189524.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189523.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189521.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189516.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189508.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189337.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189334.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189322.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189312.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189301.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189300.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189276.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189256.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189251.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B5BBC3B2C2A6F62801EEF789DE104C59767561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590032   (189250) от 12.11.2022
+
+Джиджи и Нэйт / Gigi & Nate (2022) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189250.jpg" />
+</div>
+
+
+###  Подробнее
+
+cюжет картины рассказывает о Нейте Гибсоне, жизнь которого переворачивается с ног на голову после того, как он переносит серьезную болезнь и остается парализованным. Герой находится в отчаянии и не видит впереди просвета для себя, пока не встречает Джиджи — любопытную и умную обезьяну-капуцина, которая помогает Нейту обрести надежду.Производство: Швейцария, Великобритания, США / Free Turn, Tempo Productions LimitedЖанр: драма, семейныйРежиссер: Ник ХэммАктеры: Марша Гей Харден, Зои Маргарет Коллетти, Джозефина Лэнгфорд, Джеймс Белуши, Дайан Лэдд, Тара Саммерс, Ханна Аллигуд, Брент Секстон, Чарли Роу, Сара СтафферПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: английские (Full), (SDH)Продолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98C78AF66EE23A906CF6661A7AFE8FE419492A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590118   (189247) от 12.11.2022
+
+Пэрл / Pearl (2022) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189247.jpg" />
+</div>
+
+
+###  Подробнее
+
+1918 год. В мире бушует Первая мировая война и пандемия «испанки», а на техасской ферме мается девушка Пэрл. Она мечтает вырваться из этой глухомани и стать танцовщицей, но вместо этого вынуждена подчиняться строгой матери, ухаживать за парализованным отцом и покорно дожидаться мужа с фронта. Когда Пэрл узнаёт, что в ближайшем городке будет проходить прослушивание (   Читать дальше...   )Производство: США, Канада / A24, Bron Creative, Little LambЖанр: ужасы, драмаРежиссер: Тай УэстАктеры: Миа Гот, Тэнди Райт, Эмма Дженкинс-Пурро, Алистэр Сьюэлл, Amelia Reid, Gabe McDonnell, Лорен Стюарт, Тодд Риппон, Grace Acheson, Дэвид КоренсветПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: русские, английские (Full), (SDH)Продолжительность: 01:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9385D91D27B5D8169A38C90F403E7033360C6D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

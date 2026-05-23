@@ -6,7 +6,7 @@ Adobe Type Manager Deluxe 4.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407901.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vertus Fluid Mask 3.3.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407689.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Sketch 58 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407282.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Passport Photo 1.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401329.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ DxO OpticsPro Elite 11.4.3 (build 71) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399361.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Priime Styles 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391957.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Intaglio 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381772.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Color Finale Pro 2 v2.2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380458.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Watercolor Studio Pro 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379527.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Icon Plus - Icon & Logo Design 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379404.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Red Giant Shooter Suite 13.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375000.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ PictureCode Photo Ninja 1.3.8b [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374511.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373974.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Capture One Pro 8.3.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367219.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Photo Size Optimizer (was IMAGEmini) 1.71 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366777.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Adobe Photoshop CC 2018 v19.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364685.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ MyBrushes - Sketch, Paint, Design 2.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361187.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Image2Icon Pro 2.9.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361040.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Topaz Sharpen AI 1.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360658.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Super Eraser Pro 2.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359033.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Vector Magic Desktop Edition 1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357566.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Vector Magic Desktop Edition 1.20 (+fix for macOS 10.12) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356222.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ GraphicConverter 11 v.11.6.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354822.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Magic Retouch Pro 4.3 - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353570.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ DesiGN Brochures Templates 2.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353556.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Artstudio Pro 4.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352321.jpg" />
 </div>
 
 

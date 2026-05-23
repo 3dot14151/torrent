@@ -6,7 +6,7 @@ WSUS Offline Update 7.5.0 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407027.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Wondershare Filmora 9.6.1.8 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407022.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ ICQ 8.0 Build 5745 Final [Multi/Rus] Portable by Baltagy & KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407006.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Advanced SystemCare Pro 6.0.7.160 Final Portable by Baltagy [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406956.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Realtek High Definition Audio Driver (3.55) 6.0.1.6722 (неофициальны
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406949.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ SpeedFan 4.48 Beta 2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406940.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ImTOO iTransfer Platinum 5.4.3.20121010 + Portable by p2000s [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406914.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Themes Windows7 LightSabre 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406891.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Daum PotPlayer 1.5.34115 Stable + Update 1.5.34321 Full & Lite by 7sh3 [Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406887.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Audio Transcoder 2.8.14.1310 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406874.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Adobe Reader XI 11.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406873.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Maxprog eMail Extractor 3.6.1 [Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406858.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Adobe Flash Professional CS6 12.0.0.481 + Update 12.0.2.529 [MULTi / Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406844.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MediaHuman YouTube Downloader 3.9.9.46 (0510) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406825.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ K-Lite Codec Pack Update 15.7.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406824.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ CherryPlayer 3.1.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406821.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Telegram Desktop 2.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406817.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ HiBit Uninstaller 2.5.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406815.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Kinza Browser 6.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406813.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ R-Studio Network Edition 8.14 Build 179675 RePack (& Portable) by Dodakaedr [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406803.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Freeplane 1.8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406798.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ doPDF 10.9.130 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406782.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Aiseesoft Video Converter Ultimate 10.1.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406780.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Internet Download Manager 6.38 Build 3 + Retail + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406777.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Viber 13.9.1.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406776.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Wise JetSearch 4.1.1.216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406774.jpg" />
 </div>
 
 

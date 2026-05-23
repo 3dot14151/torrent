@@ -1,84 +1,3 @@
-###  Публикация: 1868997   (1067904) от 03.05.2026
-
-Hex Editor Neo Ultimate 8.05.00.9372 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Hex Editor Neo – Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
-Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8482AD73FAE380D62246DE940BD5D26476D339A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868745   (1067763) от 02.05.2026
-
-Master Packager Professional 26.2.9601 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Всё необходимое для создания профессиональных, современных установочных пакетов Windows.
-
-Создавайте пакеты приложений для Windows, которые нравятся конечным пользователям, востребованы предприятиями и необходимы операционной системе Windows.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39AEF0CF1B08B873EBF5BB44891BF1CB74B1EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868489   (1067614) от 01.05.2026
-
-LDPlayer 9.5.11.1 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-LDPlayer 9 — мощный бесплатный эмулятор устройства с операционной системой Android для ПК Windows. Это приложение позволяет запускать на вашем компьютере почти все популярные мобильные игры и приложения созданные для ОС Android. Игры можно устанавливать из магазина LD Store, Google Play или с помощью APK-файла и управлять ими с помощью мыши и клавиатуры. Этот эмулятор (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE94AED7011A0170E2597F5C53F05F84DF1956E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868493   (1067612) от 01.05.2026
 
 MEmu 9.5.2.0 [Multi/Ru]
@@ -87,7 +6,7 @@ MEmu 9.5.2.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067612.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ NVIDIA GeForce Desktop Studio 596.36 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067330.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.31 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066821.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ Microsoft Visual Studio 2026 Enterprise 18.5.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066820.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ KiCad 10.0.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066798.jpg" />
 </div>
 
 
@@ -210,32 +129,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867203   (1066787) от 24.04.2026
-
-Visual Studio Code 1.117.0 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1685D9A30F3CFAD36CBB1A203A0D3E75BC41DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867264   (1066749) от 24.04.2026
 
 VMware Workstation Pro 25H2u1 25.0.1.25219725 [Ru/En]
@@ -244,7 +137,7 @@ VMware Workstation Pro 25H2u1 25.0.1.25219725 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066749.jpg" />
 </div>
 
 
@@ -270,7 +163,7 @@ MInstAll v.24.04.2026 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066720.jpg" />
 </div>
 
 
@@ -296,7 +189,7 @@ MInstAll SPECIAL v.24.04.2026 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066712.jpg" />
 </div>
 
 
@@ -322,7 +215,7 @@ MInstAll SPECIAL v.24.04.2026 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066711.jpg" />
 </div>
 
 
@@ -348,7 +241,7 @@ Microsoft .NET 10.0.7 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066704.jpg" />
 </div>
 
 
@@ -375,7 +268,7 @@ MInstAll v.24.04.2026 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066658.jpg" />
 </div>
 
 
@@ -401,7 +294,7 @@ FontViewOK 9.31 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066592.jpg" />
 </div>
 
 
@@ -427,7 +320,7 @@ VirtualBox 7.2.8 Build 173730 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066311.jpg" />
 </div>
 
 
@@ -453,7 +346,7 @@ Turbo Studio 26.4.4.515 Portable by 7997 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066180.jpg" />
 </div>
 
 
@@ -479,7 +372,7 @@ Turbo Studio 26.4.4.515 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066179.jpg" />
 </div>
 
 
@@ -505,7 +398,7 @@ Valentina Studio Pro 17.3.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065766.jpg" />
 </div>
 
 
@@ -531,7 +424,7 @@ Microsoft Visual Studio 2026 Enterprise 18.5.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065742.jpg" />
 </div>
 
 
@@ -557,7 +450,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.55 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065736.jpg" />
 </div>
 
 
@@ -583,7 +476,7 @@ Microsoft Visual Studio 2022 Professional 17.14.30 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065733.jpg" />
 </div>
 
 
@@ -609,7 +502,7 @@ Microsoft Visual Studio 2026 Professional 18.5.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065732.jpg" />
 </div>
 
 
@@ -635,7 +528,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.30 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065731.jpg" />
 </div>
 
 
@@ -653,25 +546,134 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865587   (1065676) от 16.04.2026
+###  Публикация: 1865708   (1065598) от 17.04.2026
 
-Microsoft  Visual C++ Runtimes AIO v0.104.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
+Autodesk AutoCAD Mechanical 2027 [En]
 
 >>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
+>>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+Специализированный инструментальный набор AutoCAD Mechanical
+предназначен для промышленного машиностроительного проектирования в
+привычной рабочей среде AutoCAD.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A54180A533CF594A7A228D8FB6D164427871CB31
+magnet:?xt=urn:btih:1151702E4604BA84EC02534212B177F6F3170E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865171   (1065284) от 14.04.2026
+
+WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2026.04.14 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7071EBBC30828726734BF44F01F39C815CF25A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865391   (1065238) от 15.04.2026
+
+Microsoft .NET 8.0.26 Runtime [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4115D287DB5A0CF4778E842AE0C5E027368F6193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865395   (1065236) от 15.04.2026
+
+Microsoft .NET 9.0.15 Runtime [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01A250C86D371E2A7116C0599C022EFE00C7B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865397   (1065234) от 15.04.2026
+
+Microsoft .NET 10.0.6 Runtime [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F2B8F18F5AFE160D1CC3ECD7AA8B4C1A4183EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

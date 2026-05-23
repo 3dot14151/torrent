@@ -1,29 +1,3 @@
-###  Публикация: 1278370   (771839) от 25.01.2019
-
-Maze 4: Stolen Minds (2018) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После долгого рабочего дня вы едете в машине - и вдруг как будто из ниоткуда на дороге появляется незнакомец. Так в одно мгновение вы стали пленницей. Какие эксперименты провел над вами незнакомец, что вы стали видеть призраков? Сможете ли вы отличить иллюзию от реальности и сбежать от безумца, пока не стало слишком поздно?Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA38B62C874DC1D8ED1517E880637AC5A2826573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278377   (771723) от 25.01.2019
 
 Vacation Adventures: Cruise Director 5 (2018) [En] (1.0) Unofficial
@@ -32,7 +6,7 @@ Vacation Adventures: Cruise Director 5 (2018) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771723.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Grim Tales 13: The White Lady / Мрачные истории 13: Белая л�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771714.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Redemption Cemetery 13: The Cursed Mark / Кладбище искупления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771581.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Curio Society 2: New Order (2016) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771456.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Terrible Beast from the East (2019) [En/Ch] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771317.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Crookz - The Big Heist (2015) [Ru/En] (1.0.0.24360) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771310.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Bloom: Labyrinth (2019) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771209.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771199.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ AVICII Invector (2019) [Ru/Multi] (1.4.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771189.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Green Moon 2: Children of the Moon (2016) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771163.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Chicku (2016) [En] (1.05) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771057.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Summer in Mara (2020) [Ru/Multi] (1.5) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770298.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Dark Romance 4: Kingdom Of Death (2016) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770235.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Kronville: Stolen Dreams / Кронвилль: Украденные Сны (2015
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770112.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.1/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770102.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Haunted Hotel 11: The Axiom Butcher / Проклятый отель 11: Мань
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770067.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ad Exitum (2016) [En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770045.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Warhammer 40,000: Armageddon (2014) [En] (1.05/dlc) License SKIDROW [Untold Batt
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769679.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Disintegration (2020) [Ru/Multi] (1.0.0.6) Repack от xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769602.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Hunting Unlimited 2010 (2009) [En] License
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769480.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ The Last Dream (2015) [Ru/Multi] (1.0) Repack Other s [Developer's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769460.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.0/dlc) License PROPER - P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769445.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ TASTEE: Lethal Tactics (2016) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769441.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Désiré (2016) [Ru/Multi] (1.0.1) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769435.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769433.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ Shadow Complex Remastered - это переиздание игры Shadow Comple
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E2F1E7F056F92C955C72B1B2F87080684FC1DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016829   (769422) от 15.05.2016
+
+Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack R.G. Механики
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Fantasy рассказывает историю героя по имени Tidus, звезды невероятного спорта Blitzball, который встречает обаятельную юную чародейку по имени Yuna и отправляется вместе с ней в долгое путешествие. Им предстоит спасти мир Spira от бесконечного цикла гибели и перерождения, причиной которого является колоссальное чудовище Sin.Тип издания: RepackРазработчик: SQUARE ENIXЖанр: RPG (Japanese-style), 3D, 3rd Person, CompilationЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C83155E834CF765BCF00F1D4652E7C9C0E1C01
 ```
 
 https://mybot314.ru/tekegram_catalog/

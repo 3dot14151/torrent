@@ -1,55 +1,3 @@
-###  Публикация: 269644   (291056) от 12.12.2010
-
-Сумерки. Сага. Затмение / The Twilight Saga: Eclipse (2010) [1080p] Blu-Ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сиэтл охвачен чередой таинственных убийств, а обуреваемая жаждой мести вампирша продолжает поиски Беллы, снова оказавшейся в смертельной опасности. Кроме того, находясь в эпицентре всех событий, Белла вынуждена делать выбор между любовью к Эдварду и дружбой с Джейкобом, зная что ее решение может послужить толчком к возобновлению давнего противостояния между вампирами (   Читать дальше...   )Жанр: Фэнтези, Триллер, МелодрамаРежиссер: Дэвид Слэйд / David SladeАктеры: Кристен Стюарт, Роберт Паттинсон, Тэйлор Лотнер, Ксавьер Сэмюэл, Брайс Даллас Ховард, Анна Кендрик, Майкл Уэлш, Кристиан Серратос, Джексон Рэтбоун, Эшли ГринПеревод: ДублированныйСубтитры: Русский,УкраинскийПродолжительность: 02:03:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422081   (290999) от 12.12.2011
-
-Красный Дракон / Red Dragon (2002) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После того как Ганнибал Лектор оказывается за решеткой, агент ФБР Уилл Грэм, который задержал Лектора, уходит со службы. Грэм специализировался на поимке особо опасных маньяков, но теперь он ушел со службы, и занимается обычными житейскими проблемами. Но появляется новый маньяк, которого пресса прозвала «Зубной феей», этот маньяк убивает целые семьи. Грэм решает (   Читать дальше...   )Жанр: Триллер, Драма, ДетективРежиссер: Бретт РэтнерАктеры: Эдвард Нортон, Энтони Хилд, Филип Сеймур Хоффман, Рэйф Файнс, Энтони Хопкинс, Эмили Уотсон, Харви Кейтель, Мэри-Луиз Паркер, Кен Леун, Том ВерикаПеревод: ДублированныйЯзык субтитров: Продолжительность: 02:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F003EFB3114F838CD34D8FB6E40B36009A4FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334835   (290968) от 31.10.2019
 
 Искусство обмана / Lying and Stealing (2019) BDRip [H.265/1080p] [10-bit] [PR]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290968.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Yesterday / Yesterday (2019) Blu-ray [H.264/1080p] [EUR]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290962.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290956.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290954.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290953.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290855.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290846.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290840.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290838.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290828.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290812.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290807.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290803.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290801.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290769.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290725.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290719.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290713.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290707.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290703.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290596.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290588.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290527.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290489.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3D6BBAF06CE24569CDDC379E20D2A3EBE5DB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962557   (290473) от 06.12.2015
+
+Рики и Флэш / Ricki and the Flash (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще в детстве Линда мечтала стать известной рок-звездой и ей удалось добиться своей цели. Ее группа «Рики и Флеш» пользовалась огромной популярностью, однако женщине пришлось пожертвовать своей семьей ради карьеры. Пока она занималась любимым делом, ее детей воспитывал бывший супруг Пит. Но теперь былая слава угасла, концерты прекратились, и Линда вынуждена подрабатывать (   Читать дальше...   )Производство: США / Clinica Estetico, LStar Capital, TriStar PicturesЖанр: Драма, комедия, музыкаРежиссер: Джонатан ДеммеАктеры: Мэрил Стрип, Мэми Гаммер, Кевин Клайн, Одра МакДональд, Себастьян Стэн, Рик Спрингфилд, Рик Росас, Джо Витале, Берни Уоррелл, Бен ПлаттПеревод: Профессиональный (полное дублирование)Язык субтитров: Русский, украинский, английскийПродолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1D43D5EA6D7F72B4DBC3F88540714C2C56F3A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961745   (290467) от 06.12.2015
+
+Выхода нет / No Escape (2015) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американец вместе со своей семьей переезжает в Юго-Восточную Азию, но мирно пожить там не удается: вокруг разгорается жестокий военный переворот.Производство: США / Bold Films, Brothers Dowdle Productions, Living FilmsЖанр: боевик, триллерРежиссер: Джон Эрик ДаудлАктеры: Оуэн Уилсон, Лэйк Белл, Пирс Броснан, Стерлинг Джеринс, Чатчаваи Камонсакпитак, Сахайак Бунсанакит, Танапол Чуксрида, Нопханд Буньяй, Канарпат Финтиянг, Джон Голдни, Дуанг Мэйдорк, Супхорнапхат Энни Дженселиус, Бартелеми Сон, Микайла Френд, Стэйси Чбоски, Байрон Гибсон, Мэтт Олиник, Стефан Кинг, Тханават Каеваркорн, Спенсер ГарретПеревод: Профессиональный (полное дублирование) (звук с IPTV)Язык субтитров: Русский, АнглийскийПродолжительность: 01:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10526CBDFAB06F7E191B6A4F58F914EC55ADBDA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

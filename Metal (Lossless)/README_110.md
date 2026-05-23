@@ -6,7 +6,7 @@ Devlsy - A Parade Of States (2013) [FLAC|Lossless|image + .cue] <Post-Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657000.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Judas Priest - '98 Live Meltdown (1998) 2CD [FLAC|tracks + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656775.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Judas Priest - Screaming For Vengence & Turbo (1982, 1986) [FLAC|tracks + .cue]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656568.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Judas Priest - British Steel & Painkiller (1980 , 1990) [FLAC|tracks + .cue]<Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656439.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Angantyr - Sejr (2004) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656033.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Armaggedon - I.N.R.I. (I, Nazarene, Recognize My Impurity) (2009) [APE|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656032.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Armaggedon - Imperium wird durch das Blut wieder aufleben (2005) [APE|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656031.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Axe Minister - Comatose (2000) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655955.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Traumer - History (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655953.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blitzkrieg - Judge Not! (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655952.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bucovina - Nestramutat (2015) [FLAC|Lossless|image + .cue] <Folk Metal, Pagan Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655949.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Veil Of Maya - [Id] (2010) [FLAC|Lossless|image + .cue] <Progressive Metalcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655947.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Edenian - Winter Shades (2012) [FLAC|Lossless]<Gothic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655934.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Praying Mantis - Gravity (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655844.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Lords of Black - Icons of the New Days (2018) Japan [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655841.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Kvaen - The Great Below (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Pag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655048.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Deceptionist - Initializing Irreversible Procces (2016) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654876.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Engel - Abandon All Hope (2018) Japan [FLAC|Lossless|image + .cue] <Modern Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654866.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Skelator - Agents Of Power (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654820.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Five Finger Death Punch - And Justice For None (2018) Limited Deluxe Edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654606.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Burning Point - The Ignitor [Japanese Edition] (2012) [WavPack|Lossless]<Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654590.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Paradise Lost - The Plague Within (2015) Limited Mediabook [FLAC|image+.cue]<Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654261.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Oceans of Slumber - The Banished Heart (2018) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653865.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Stahlmann - Kinder der Sehnsucht (2019) Limited Edition [FLAC|lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652661.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Vivaldi Metal Project - EpiClassica (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652634.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Martyr - You Are Next (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652157.jpg" />
 </div>
 
 

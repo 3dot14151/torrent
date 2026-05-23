@@ -6,7 +6,7 @@ VA - Walking On The Mountain Paths (2008) [MP3|320 кб/с]<New age, Instrumenta
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431700.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Yuyoyuppe - 13 альбомов, 30 компиляций, 1 сингл (2009-201
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430030.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Chuantong Orchestra - China: Traditional Music (2015) [OGG| 422-484 кб/с]<Wor
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428822.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Dir En Grey - The Insulated World (2018) [MP3|320 Kbps] <Alt-Metal>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428572.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Joji - Nectar (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425463.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Let's Visit The Lands And Waters (2010) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424784.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - National Park Music (2000-2008) 6 albums [MP3|320 кб/с]<Instrumental, Et
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424519.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Shoujo Byou — Tenjun Merkmal (2016) /Doujin/ [FLAC|Lossless|image+.cue] <J-Roc
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423620.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ SYU - Crying Stars - Stand Proud! (2010) Korean Edition [FLAC|Lossless|image + .
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420945.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Anthem - Blazing Faith - revisited (2015) Deluxe Edition - Blu-Ray + SHM CD [Wav
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420836.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Kinema 106 - 2 альбома (2014-2015) KanColle Vocal /Doujin/ [FLAC|tracks] 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417871.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Cocktail M49 - 5 albums (2008-2010) [FLAC|Lossless]<Doujin  ongaku,touhou,rock>
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_416592.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Concerto Moon - Tears Of Messiah (2017) Japanese Edition [FLAC|Lossless|image + 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410479.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ZERO SOUNDS - 4 альбома (2013-2014) KanColle Vocal /Doujin/ [FLAC|tracks]
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409450.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ GUNFIRE - 11 альбомов (2009-2015) Touhou Instrumental /Doujin/ [FLAC|tra
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409438.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Eryps - 9 альбомов (2012-2014) /Doujin/ [FLAC|tracks] <J-Rock, J-Pop>
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409358.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Hiroshi Nagashima - Oasis Road (2007) [MP3|320 кб/с]<New age, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407760.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Ma-Ka - Apsaras (2002) [MP3|320 кб/с]<New age, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407260.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Galneryus - Ultimate Sacrifice (2017) [MP3|320 Kbps] <Neo-Classical Metal, Power
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403017.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rekka Katakiri - 13 albums (2004-2011) Selected discography [FLAC|Lossless]<Douj
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398230.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Piano In The Movie (3CD) (2012) [MP3|320 кб/с]<Instrumental, New age, Pi
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395943.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ R Shitei - 6 альбомов, 2 компиляции, 16 синглов (2006-2
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394904.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393590.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Arc - 4 альбома, 4 компиляции, 12 синглов (2005-2011) [M
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389995.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - Time And Tide (1995) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387867.jpg" />
 </div>
 
 
@@ -765,7 +765,7 @@ EdelSounds - 2 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387167.jpg" />
 </div>
 
 

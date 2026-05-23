@@ -6,7 +6,7 @@ Nat Geo Wild: Фантастические существа Мадагаскар
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778065.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Инстинкт выживания. Моря-убийцы / Primal survivor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776716.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Инстинкт выживания / Primal Survivor (2017) WEBRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776343.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Инстинкт выживания / Primal Survivor (2015) SATRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776339.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Тайны корабля-сокровищницы династии Тан /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775733.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Спасение слонёнка / Baby Elephant Rescue (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775088.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774937.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Рожденные в Африке. Опасная игровая площ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774233.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG: C точки зрения науки: Вымирание человечес�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774226.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NGW: Дикая Корея. За границей / Wild Korea. Voice of nature 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774150.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772812.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_771148.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771113.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG. Комета века / Comet of the century (2013) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770114.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG: Королевство белого волка / Kingdom of The White Wolf (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769659.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768738.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG. Тайны истории: Бостонский душитель / The Hunt 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768355.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NG. Тайны истории. Эксперименты ЦРУ / CIA Secret Expe
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768326.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG. Тайны истории: Ди Би Купер. Сбежавший терр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768316.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG: Затерянные сокровища змеиных царей майя /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767301.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NG: Джейн / Jane (2017) IPTVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767228.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Nat Geo Wild: Потерянные миры Индии / India's Lost Worlds (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766148.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NG. Тайны истории: Джордж Вашингтон / The Real George
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766128.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NG: Откуда берутся диктаторы / Making a Dictator (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766108.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765965.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765961.jpg" />
 </div>
 
 

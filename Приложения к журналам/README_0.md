@@ -6,7 +6,7 @@ DVD - приложение к журналу Hard' n' Soft №5 (214) Май 201
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664611.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DVD приложение к журналу "Хакер" №07 (162), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644673.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ CHIP | DVD приложение к журналу CHIP №6 июнь (2018) [unp
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644499.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644224.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ CHIP | DVD приложение к журналу CHIP №07 Июль 2017 [unpa
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634664.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CHIP | DVD приложение к журналу CHIP №8 (Август 2016) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604567.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ CHIP | DVD приложение к журналу CHIP №7 июль (2018) [unp
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593678.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589195.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584981.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP № 8 (авгус�
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581363.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580453.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576513.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №7 (июль 201
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573355.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №6 (июнь) (2
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567983.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ DVD приложение к журналу "Хакер" №08 (163), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566343.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №8 (август
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562451.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553110.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №9 (сентяб
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509839.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DVD Приложение к журналу Хакер № 9 (164) Сентябр
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506280.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ ComputerBild | DVD приложение к журналу ComputerBild № 13 и
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505868.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495221.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №9 (сентяб
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485365.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP № 10 (октяб
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479261.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ CHIP | DVD приложение к журналу CHIP №8 август (2018) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473530.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455387.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447719.jpg" />
 </div>
 
 

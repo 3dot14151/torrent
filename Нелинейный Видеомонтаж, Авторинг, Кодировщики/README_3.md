@@ -1,55 +1,3 @@
-###  Публикация: 1858532   (1060414) от 11.03.2026
-
-CompressO 2.1.0 [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-CompressO (произносится как "Эспрессо") — это бесплатное кроссплатформенное приложение для сжатия видео с открытым исходным кодом, работающее на основе FFmpeg.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F31593ED5A8842A4AAE8AF80C9B2BAFECDBD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858580   (1060368) от 11.03.2026
-
-Adobe Premiere Pro 2026 26.0.2.2 RePack by KpoJIuK [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro 2026 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C6060ACD3D9D56347BFFA6A45829BE191E1655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858577   (1060364) от 11.03.2026
 
 Adobe Premiere Pro 2026 26.0.2.2 Light Portable by 7997 [Multi/Ru]
@@ -58,7 +6,7 @@ Adobe Premiere Pro 2026 26.0.2.2 Light Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060364.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Adobe Media Encoder 2026 26.0.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060363.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Adobe Premiere Pro 2026 26.0.2.2 Full Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060362.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Topaz Video 1.2.1 RePack (& Portable) by elchupacabra [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060300.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Wondershare UniConverter 17.2.2.505 RePack (& Portable) by elchupacabra [Multi/R
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060276.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Wondershare UniConverter 17.2.2.505 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060238.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ BeeConverter Pro 2025 3.3.0 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059600.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ StaxRip 2.52.0 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059571.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ Winxvideo AI 4.7 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059494.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ Shotcut 26.2.26 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059309.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ Fast Video Cutter Joiner 7.0.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059238.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ Fast Video Cutter Joiner 7.0.2 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058718.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Fast Video Cutter Joiner 7.0.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058641.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ Kdenlive 25.12.2 + Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057033.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ Adobe Premiere Pro 2026 26.0.1.3 Light Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056789.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ Adobe Premiere Pro 2026 26.0.1.3 Full Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056788.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ Adobe Premiere Pro 2026 26.0.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056641.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ Fast Video Cutter Joiner 7.0.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056497.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ Wondershare Filmora 15.2.5.17803 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056493.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ Blackmagic Design DaVinci Resolve Studio 20.3.2 Build 9 RePack by KpoJIuK [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056478.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ Icecream Video Converter Pro 1.49 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056401.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ Shotcut 26.1.30 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056004.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ StaxRip 2.50.7 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055975.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ Subtitle Edit 4.0.15 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055741.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ Subtitle Edit - редактор субтитров. При помощи это�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5F8296498EC4BCAFF58915BAF7A6089381B08B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852093   (1055719) от 05.02.2026
+
+Icecream Video Editor 3.25 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Video Editor - простой редактор видео для Windows. Наша программа для монтажа видео позволит редактировать и создавать новые ролики из фото и видео. Добавляйте переходы, обрезайте видео, объединяйте видео и фото, добавляйте заголовки, фоновое аудио и визуальные эффекты.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E089B758A6206A49C7799D43B16405B417C101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851806   (1055432) от 04.02.2026
+
+Fast Video Cutter Joiner 6.9.8.0 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и други
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F05151520DB9FE1BFBE5CF0F31A8B34DF742E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

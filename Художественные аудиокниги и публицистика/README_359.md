@@ -1,82 +1,3 @@
-###  Публикация: 1284455   (727413) от 22.02.2019
-
-Михаил Ланцов | Игра за престол (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Наш современник проваливается в прошлое, за пару лет до начала Смутного времени. Внешнее сходство с покойным Иваном Грозным играет с ним злую шутку – все принимают его за царевича Дмитрия. Но «чудом спасенный» Дмитрий Иванович не желает вступать в игру за престол. Он готов подружиться с Борисом Годуновым, чтобы совместно отбить польскую интервенцию. Однако судьба (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 08:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BF46742E06A785E5395C742B4FBDA8B1B62A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022603   (727241) от 03.06.2016
-
-Павел  Мельников | В лесах. [Книга 1] (2001) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эпопея П.И.Мельникова (Андрея Печерского) "В Лесах" и "На Горах" - его главный литературный труд, которому писатель отдал около двадцати лет жизни. Эти книги открыли читателю целую область русской действительности, до того не освещенную и не исследованную. Мельников рассказал о Заволжье и Нагорье, какими они были в середине XIX века, о старообрядческом (   Читать дальше...   )Жанр: Историческя. ЭпопеяПродолжительность: 22:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A720D7B9726EE1B87F0AFFE42B87E3E82E9D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022660   (727234) от 03.06.2016
-
-Чарльз Уильям Гекерторн | Тайные общества всех веков и всех стран. [В 2-х частях] (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кто управляет миром? Что происходит на самом деле? Они всегда были среди нас!
-Книга, которую вы держите в руках, методично и последовательно описывает все тайные общества, ордены и организации, существовавшие на земле с незапамятных времен. Масоны, тамплиеры, каббалисты - многие из них существуют и по сей день. Их члены обязаны скрывать и отрицать свое участие в (   Читать дальше...   )Жанр: научно-популярная литератураПродолжительность: 26:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2977FE6504DEDD5402C00B6D35B7F9EF3D2C5F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022683   (727106) от 03.06.2016
 
 Аркадий и Борис Стругацкие | Хромая судьба (2013) [MP3, Владимир Левашёв]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727106.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727074.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727002.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726881.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726771.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726731.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726711.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726673.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726618.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726577.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726573.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726568.jpg" />
 </div>
 
 
@@ -400,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726567.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726487.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726472.jpg" />
 </div>
 
 
@@ -478,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726449.jpg" />
 </div>
 
 
@@ -504,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726423.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726418.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726370.jpg" />
 </div>
 
 
@@ -582,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726363.jpg" />
 </div>
 
 
@@ -608,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726335.jpg" />
 </div>
 
 
@@ -634,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726222.jpg" />
 </div>
 
 
@@ -660,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726211.jpg" />
 </div>
 
 
@@ -671,6 +592,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99352FAEF7DB24ABFA6492E0CBCA517A9D234E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284822   (726206) от 23.02.2019
+
+Кирилл Шарапов | Брошенная колония (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошенная колония – это мир техномагии, мир, в котором есть место волшебству, оно двигает транспорт, обогревает дома, на его основе создается оружие. В мире Интерры есть место могучим волшебницам и пришедшим из другой реальности нелюдям, на которых охотятся егеря. Игнат – егерь. Выполняя совершенно обычный заказ на нелюдь, он находит незнакомую руну, и эта находка (   Читать дальше...   )Жанр: Боевое фэнтези,приключенияПродолжительность: 11:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB17B1887E2FEA6ABEF58B506523C1D63A5A06F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022994   (726199) от 04.06.2016
+
+Алексей Ксендзюк | После Кастанеды: дальнейшее исследование (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая читателю книга посвящена уникальному магическому знанию американских индейцев - наследников древней толтекской традиции, - которое стало доступным благодаря книгам всемирно известного антрополога и оккультиста Карлоса Кастанеды.
+Используя мировоззренческие подходы, установки и методы дона Хуана Матуса, проводника Кастанеды в мир толтекской магии, автор (   Читать дальше...   )Жанр: Философия, эзотерикаПродолжительность: 15:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F123EFF7D5C127D4AA938B7CFFC3A136E437BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326156   (725969) от 21.04.2011
+
+Михаил Салтыков-Щедрин | Пошехонская старина (2005) [MP3, Алексей Казаков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиокнига. Литературные чтения.
+«Пошехонская старина» – последнее произведение великого русского писателя М. Е. Салтыкова-Щедрина (1826—1889) – представляет собой грандиозное историческое полотно целой эпохи. По словам самого Салтыкова, его задачей было восстановление «характеристических черт» жизни помещичьей усадьбы эпохи крепостного права.
+
+ Михаил (   Читать дальше...   )Жанр: Русская литература, классика, исторический очеркИздательство: МедиаКнигаПродолжительность: 23:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F168F2449CC862D659A1E4AA673046D444DE2A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

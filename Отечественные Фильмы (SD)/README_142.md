@@ -1,109 +1,3 @@
-###  Публикация: 441613   (64307) от 25.01.2012
-
-Ёлки 2 (2011) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Производство: Bazelevs, РоссияЖанр: КомедияРежиссер: Дмитрий Киселёв, Александр Баранов, Александр Котт, ...Актеры: Сергей Светлаков, Иван Ургант, Вера Брежнева, Сергей Безруков, Владимир Меньшов, Гоша Куценко, Александр Головин, Виктор Вержбицкий, Алексей Петренко, Петр ФедоровПеревод: ОригиналСубтитры: ОтсутствуютПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D967CD34F5B25670C6112062DFDF8B3480B4420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441906   (64289) от 25.01.2012
-
-Серп и молот (1994) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-30-е годы. Вождь одобряет проведение медицинского эксперимента по перемене пола: «Родине нужны солдаты — будут солдаты. Родине нужны матери — сделаем матерей». Так колхозница Евдокия Кузнецова становится метростроевцем Евдокимом Кузнецовым.
-
-Невидимые руки лепят его судьбу по своему желанию: Кузнецов становится стахановцем, депутатом, гордостью страны Советов, наконец, (   Читать дальше...   )Производство: РоссияЖанр: Драма, ИсторическийРежиссер: Сергей ЛивневАктеры: Алексей Серебряков, Авангард Леонтьев, Даниил Спиваковский, Владимир Стеклов, Алла Клюка, Юрий Рогунов, Иван Мартынов, Евдокия Германова, Дмитрий Медведев, Ирэна КокрятскаяСубтитры: ОтсутствуютПродолжительность: 01:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF53831497544B249F39D82F0D49321F2D3620E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441440   (64203) от 24.01.2012
-
-Ёлки 2 (2011) [H.264] DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия / Базелевс ПродакшнЖанр: КомедияРежиссер: Дмитрий Киселёв, Александр Баранов, Александр КоттАктеры: Сергей Светлаков, Иван Ургант, Вера Брежнева, Сергей Безруков, Владимир Меньшов, Гоша Куценко, Александр Головин, Виктор Вержбицкий, Алексей Петренко, Петр ФедоровПеревод: ОригинальныйСубтитры: ОтсутствуютПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56932DFC4ABE74782499F0197BD5AD44FBF7ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440675   (64142) от 23.01.2012
-
-Очкарик (2012) SATRip
-
->>След.
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Производство: РоссияЖанр: КриминалРежиссер: Игорь КопыловАктеры: Ян Цапник, Игорь Черневич, Алексей Осипов, Юрий Ермаков, Сергей ПанюшкинПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F36EACCC9FA21478A94781C6072B8735D22DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705395   (63650) от 08.03.2024
 
 Холоп 2 (2023) WEBRip [H.264]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63650.jpg" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63643.jpg" />
 </div>
 
 
@@ -164,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63355.jpg" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62994.jpg" />
 </div>
 
 
@@ -216,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62936.jpg" />
 </div>
 
 
@@ -242,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62293.jpg" />
 </div>
 
 
@@ -268,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62201.jpg" />
 </div>
 
 
@@ -294,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61161.jpg" />
 </div>
 
 
@@ -320,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61150.jpg" />
 </div>
 
 
@@ -346,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60965.jpg" />
 </div>
 
 
@@ -373,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60629.jpg" />
 </div>
 
 
@@ -399,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60606.jpg" />
 </div>
 
 
@@ -425,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60528.jpg" />
 </div>
 
 
@@ -451,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60109.jpg" />
 </div>
 
 
@@ -478,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60090.jpg" />
 </div>
 
 
@@ -504,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60085.jpg" />
 </div>
 
 
@@ -530,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59826.jpg" />
 </div>
 
 
@@ -556,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59805.jpg" />
 </div>
 
 
@@ -582,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59772.jpg" />
 </div>
 
 
@@ -608,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59131.jpg" />
 </div>
 
 
@@ -634,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59080.jpg" />
 </div>
 
 
@@ -660,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58861.jpg" />
 </div>
 
 
@@ -671,6 +565,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA5BC7BE89FF058A8BFBD50F862C2EAC3029BC3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442331   (58300) от 28.04.2024
+
+Антикиллер (2002) DVDRip [H.264] (серии 1-3 из 3)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майор Коренев, более известный под прозвищем Лис, когда–то бывший сотрудник уголовного розыска, выходит из тюрьмы, в которой он отсидел срок по ложному обвинению. Немалую роль в этом деле сыграл один из криминальных авторитетов города по прозвищу Шаман. Выйдя из тюрьмы, Лис не собирался мстить Шаману и его дружкам, но перед взором Лиса предстает его родной город, (   Читать дальше...   )Производство: Россия / Централ Партнершип, Golden Key EntertainmentЖанр: боевик, криминалРежиссер: Егор КончаловскийАктеры: Гоша Куценко, Михаил Ульянов, Виктор Сухоруков, Евгений Сидихин, Сергей Векслер, Виктория Толстоганова, Александр Белявский, Валентин Голубенко, Иван Бортник, Вячеслав Разбегаев и др.Субтитры: ОтсутствуютПродолжительность: ~00:50:33 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550AAC59213250325E8BF3918035B018BDA4FD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720399   (57794) от 03.05.2024
+
+Адам и Ева (2024) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модная актриса и молодой учёный остаются одни в опустевшей Москве. У них мало общего, но и выбора нет – нужно вместе отправиться на поиски других людей. Дмитрий Чеботарёв и Полина Максимова в ярком фантастическом ромкоме о том, что любовь спасёт мир. Однажды утром Марина вышла на улицу и поняла, что вокруг ни души. Кажется, человечество просто испарилось. За исключением, (   Читать дальше...   )Производство: Россия | «Централ Партнершип», Продюсерский центр «ГОРАД»Жанр: Комедия, мелодрама, фантастикаРежиссер: Илья ФарфельАктеры: Дмитрий Чеботарёв, Полина Максимова, Николай Добрынин, Валентина МазунинаСубтитры: ОтсутствуютПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DE94301AAD23A3BF1FD27327288680C4510A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564064   (57141) от 09.05.2024
+
+Панчер (2021) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель физкультуры Андрей Тихонов из сельской глубинки едет в столицу, чтобы принять участие в турнире по боксу среди профессионалов и заработать деньги на операцию для своей старшей сестры Полины.Производство: Россия | "Three M Production"Жанр: драма, спортРежиссер: Михаил МузалевскийАктеры: Иван Быков, Макс Мако, Виктория Мамяшева, Алексей Адамович, Виталий Корнилов, Дарья Омельченко, Светлана Печёрина, Алексей Сергеев, Владимир Лаптев, Богдан ЗасухаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 02:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B7BECA1723EF987DBAEDD62AB3BAF42B1F29DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722489   (56934) от 11.05.2024
+
+Я хочу тебе помочь (2024) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна - обычная девушка со своими проблемами и не хорошей зависимостью, у неё есть долги перед банками, плохие отношения с матерью, сложные отношения со своим мужчиной, она нуждается в работе чтобы рассчитаться с долгами, в один день внезапно раздается звонок от неизвестного мужчины, который предлагает ей высокооплачиваемую работу.Производство: Россия, Stan ProductionЖанр: ужасы, триллер, драмаРежиссер: Алексей Роговой, Игорь МалиновскийАктеры: Светлана Василенко, Игорь Малиновский, Виктор Баранов, Евгений Кабардинцев, Анатолий СяськоПеревод: Не требуется (русский)Субтитры: английские (hardsub)Продолжительность: 01:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72147EE37B67EC0B117BD0E660745C780B770D6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

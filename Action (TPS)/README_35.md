@@ -6,7 +6,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) License GOG [Ultimate 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262962.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Stranglehold (2007) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262539.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Friday the 13th: The Game (2017) [Ru/Multi] (B9162/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262024.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Resident Evil: Operation Raccoon City + 6 DLC (Rip/1.2.1803.132u2] [Ru/En] 2012 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261372.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sniper Elite Дилогия [Ru/En]  (RePack) 2005-2012 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261063.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Tomb Raider Трилогия [En] (L) 1996-1998 | GOG {Tomb Raider + Tomb Raider
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261034.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Onimusha 2 (2025) [Ru/Multi] (1.0.0.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260063.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Collapse Дилогия [Ru] (Lossless RePack/1.1/1.0) 2008-2010 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259228.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Tomb Raider: Legend / Tomb Raider: Легенда [Multi6/+] (RePack/1.2) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258210.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257625.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Resident Evil: Operation Raccoon City + 6 DLC [Ru] (RePack/1.2.1803.128u1) 2012 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257081.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Silent Hill Антология [Ru] (RePack) 1999-2009 | !Sagat!
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256252.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ The Punisher / Каратель (2005) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255352.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Cynthia: Hidden in the Moonshadow (2023) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254726.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Marvel’s Avengers (2020) [Ru/Multi] (2.8.1/dlc) Repack DjDI [Definitive Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254685.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Resident Evil 4 (2023) [Ru/Multi] (11025382/dlc) Repack DjDI [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252240.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252222.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.0/dlc) Repack Decepticon [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252204.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Resident Evil 4 (2023) [Ru/Multi] (11025382/dlc) Scene EMPRESS [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252162.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (2.209.0.0/dlc) Repack Dj
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252083.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251579.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ KIBORG (2025) [Ru/Multi] (2025.11.05:1:83) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250887.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Vellum (2025) [En] (1.2.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250465.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Shade: Wrath Of Angels / Гнев Ангелов (2004) [Ru/En] (1.2) Repack Vas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249974.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Resident Evil: Operation Raccoon City [Multi8\+] (L) 2012 | SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248104.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Orcs Must Die / Бей орков + 5 DLC [Ru] (RePack/r14) 2011 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248086.jpg" />
 </div>
 
 

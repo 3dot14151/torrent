@@ -1,136 +1,3 @@
-###  Публикация: 1869932   (1068581) от 
-
-Я иду искать 2 / Ready or Not 2: Here I Come (2026) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Едва пережив кровавую атаку семьи Ле Домас, Грейс понимает: кошмарная игра не окончена — она лишь выходит на новый, ещё более опасный уровень. На этот раз рядом с ней оказывается её сестра Фэйт. У Грейс есть всего один шанс выжить, сохранить сестре жизнь и завладеть Высшим креслом Совета, который управляет всем миром. За трон охотятся четыре враждующих семьи, и победитель (   Читать дальше...   )Производство: США, Канада / Searchlight Pictures, Vinson Films, Ontario CreatesЖанр: ужасы, триллер, комедияРежиссер: Мэтт Беттинелли-Олпин, Тайлер ДжиллеттАктеры: Самара Уивинг, Кэтрин Ньютон, Элайджа Вуд, Сара Мишель Геллар, Шон Хэтоси, Дэвид Кроненберг, Нестор Карбонелл, Кевин Дюран, Оливия Ченг, Варун СарангаПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Forced, Full, SDH) и др.Продолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289137C3C76F8E984ACE01F66E31C27F8BE89BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 27937   (1068580) от 
-
-Немецкое танго 1930-1940 гг.
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Turnier Tango (R. Gaden Und. Orc.)
-02. Tango Bolero (B. Ette Und Orc.)
-03. Blauer Himmel (Tangoorc. B. Von Geczy)
-04. Man Kann Beim Tango Sich So Schone Dinge Sagen (Tangoorc. W. Schmidt-boelcke, Voc. H. Sohnker)(   Читать дальше...   )Жанр: Taнцевальное тангоПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C39B8239C4D23CF9AE011617567FEE90D9AA605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869876   (1068579) от 
-
-Windows 11 Pro х64 Version 25H2 Build 26200.8246 by Igors_VL [RU]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Настроенная авторская сборка Windows 11 Pro с автоматизированной установкой, запускаемой с установочного носителя через UEFI (BIOS).Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25605A1754C9C04B2A334D0FFD81ECB9B952DF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869861   (1068578) от 
-
-Ритуал Нагуаля / El Ritual del Nahual (2026) Telecine [H.264/1080p] [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Раненый бандит Габриэль находит убежище в странной деревне. В это же время туда прибывает федеральный агент, преследующий серийного убийцу, который оставляет после себя изувеченные тела детей. Но в глухих лесах Мексики своя правда и справедливость, которая приходит вместе с беспощадным судьёй - Текенчу.Производство: Мексика / Alta TensionKi Visual S.A. de C.V.Жанр: ужасы, триллерРежиссер: Карлос Матиенцо СерментАктеры: Херардо Оньяте, Алехандра Эррера, Херардо Трехолуна, Карали Санчес, Серхио Гава, Эстанислао МаринПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1BEFCA849DE6C6673F6C60800505D5DCBE22B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869863   (1068577) от 
-
-Ритуал Нагуаля / El Ritual del Nahual (2026) Telecine [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Раненый бандит Габриэль находит убежище в странной деревне. В это же время туда прибывает федеральный агент, преследующий серийного убийцу, который оставляет после себя изувеченные тела детей. Но в глухих лесах Мексики своя правда и справедливость, которая приходит вместе с беспощадным судьёй - Текенчу.Производство: Мексика / Alta TensionKi Visual S.A. de C.V.Жанр: ужасы, триллерРежиссер: Карлос Матиенцо СерментАктеры: Херардо Оньяте, Алехандра Эррера, Херардо Трехолуна, Карали Санчес, Серхио Гава, Эстанислао МаринПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1244D8C238A1F81A2B0A0FA6CAE486B8ADD4623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869919   (1068576) от 
 
 Адмирал Кузнецов (2024) WEBRip [AV1/1080p] (сезон 1, серии 1-8 из 8)
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068576.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ Firefox Browser ESR 115.35.2 (Win 7-8) / 140.10.2 (Win 10-11)  Portable by Porta
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068575.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068574.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ VA - Poolside Lounge 2026 (Deep Strips 5/8/26 ) [FLAC|Lossless|WEB-DL|tracks] <H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068573.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068572.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068571.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ X Drive Writer 1.1 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068570.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068569.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068568.jpg" />
 </div>
 
 
@@ -380,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068567.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068566.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068565.jpg" />
 </div>
 
 
@@ -458,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068564.jpg" />
 </div>
 
 
@@ -484,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068563.jpg" />
 </div>
 
 
@@ -511,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068562.jpg" />
 </div>
 
 
@@ -537,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068561.jpg" />
 </div>
 
 
@@ -565,7 +432,7 @@ HELLBREAK (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068559.jpg" />
 </div>
 
 
@@ -591,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068558.jpg" />
 </div>
 
 
@@ -617,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068557.jpg" />
 </div>
 
 
@@ -643,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068556.jpg" />
 </div>
 
 
@@ -669,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068555.jpg" />
 </div>
 
 
@@ -680,6 +547,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896502577A2DB018921AE946EF3017E83F934128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869972   (1068554) от 
+
+Lazesoft Recovery Suite Pro / Server / Tech / Unlimited 5.2.0.1 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Lazesoft Recovery Suite полезна, когда вам нужно восстановить данные, файлы или операционную систему Windows, или когда ваш компьютер не загружается в обычном режиме.
+
+Большинство компьютерных проблем можно легко и быстро устранить, создав загрузочный аварийный CD или USB-диск Lazesoft, а затем перезагрузив компьютер с его помощью.Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89904EBE60B1330C6FCB195FB26DFC2BFB685FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869974   (1068553) от 
+
+Duplicate Cleaner Pro 5.27.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Cleaner - инструмент, который поможет вам систематизировать содержимое домашнего жесткого диска или корпоративной сети. Вы будете удивлены, узнав, сколько лишних или повторяющихся файлов вы можете найти забытыми в непонятной папке с документами.
+Duplicate Cleaner выполнит глубокое сканирование всех типов файлов — фотографий, музыки, фильмов, видео, документов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E945A884F8038415F2DF0D24D51869171D6506F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869963   (1068552) от 
+
+Зеркальце (1967) 35mm Film Scan [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм о девочке, которая любила смотреться в зеркальце и слушать, как её хвалят. Однажды она пришла в лес и объявила, что тому, кто её лучше похвалит, она даст конфету. Но лесные звери решили её проучить ...Производство: СССР / СоюзмультфильмЖанр: рисованная анимацияРежиссер: Петр НосовАктеры: Александра Панова, Георгий Вицин, Юлия Юльская, Михаил Яншин, Тамара ДмитриеваСубтитры: отсутствуютПродолжительность: 00:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E415BF9A80C9F420F45BBE8B5CC593D66A2F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869940   (1068551) от 
+
+Семь верст до рассвета (2026) TS [H.264/1080p] [Звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Отечественная война. Города и села Псковской области оккупированы фашистской армией. Враги мучают и истязают местных жителей, морят их голодом и расстреливают. С августа 1941 года захвачено и село Куракино. Комендант поселяется в самом респектабельном доме крестьянина Матвея Кузьмина, а хозяева вынуждены ютиться в холодном сарае. Снежной и морозной зимой (   Читать дальше...   )Производство: Россия / РекаЖанр: драма, военный, историяРежиссер: Александр АндреевАктеры: Фёдор Добронравов, Мария Шукшина, Виктор Добронравов, Тимофей Кочнев, Артём Быстров, Олег Гаас, Вячеслав Чепурченко, Сергей Кемпо, Наталья Суркова, Юлия ШубареваПеревод: Не требуется (Русский, звук с TS)Субтитры: ОтсутствуютПродолжительность: 01:36:54Реклама: Присутствуют аудио и видео вставки рекламы, баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9A8C6DAF94C851C11D735B9068A9FEFC78895D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869980   (1068549) от 
+
+Неоспоримый 4 / Boyka: Undisputed IV (2016) BDRip [H.265/1080p] [10-bit] [hand made AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бойка пробует свои силы в высшей лиге, но случайная смерть на ринге заставляет его подвергнуть сомнению всё, во что он верит.Производство: Болгария, США / Millennium Films, Nu Boyana ViburnoЖанр: боевик, драма, спортРежиссер: Тодор ЧапкановАктеры: Скотт Эдкинс, Теодора Духовникова, Алон Абутбул, Юлиан Вергов, Брахим Чаб, Пол Чахиди, Петио Петков, Валентин Ганев, Владимир Михайлов, Мартин ФордПеревод: Многоголосый (iTunes, Sevimli)Язык озвучки: Русский, узбекский, английскийСубтитры: отсутствуютПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80330AF2224822C4A64977ABBD8F4CD8772EF80F
 ```
 
 https://mybot314.ru/tekegram_catalog/

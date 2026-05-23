@@ -6,7 +6,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.92.4300 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614118.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LC Technology RescuePRO Deluxe 5.2.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614025.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TeamViewer 10.0.43879 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614019.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DJ Mixer Professional 3.6.6 NFR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614016.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AVG Internet Security 2015 15.0.6037 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614008.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ K-Meleon 75.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614007.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TechSmith Snagit 12.4.0 Build 2992 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613934.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Opera@USB 30.0.1835.55453 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613928.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Techsmith Snagit 12.4.0 Build 2992 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613846.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TeamViewer 10.0.43879 Free | Corporate | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613842.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WYSIWYG Web Builder 10.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613837.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.5031.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613759.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Microsoft Office 2013 SP1 Standard 15.0.5031.1000 (2018.06) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613758.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NextLimit RealFlow 2.5.3.0083 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613752.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613750.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Malwarebytes Anti-Malware Premium 2.1.8.1057 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613736.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Nero Burning ROM & Nero Express 2015 16.0.24000 Portable by PortableWares (24.06
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613732.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Stellarium 0.14.90.8566 Test [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613680.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6798.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613654.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7208.5000 (2018.06) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613649.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Microsoft Office 2016 Standard 16.0.4705.1000 (2018.06) RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613550.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4705.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613545.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Hiren's BootCD 14.0 [ENG/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_613498.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Privacy Eraser Free 4.49.3 Build 2869 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613381.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PrivaZer 3.0.68 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613374.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Ashampoo Photo Commander 14.0.6 Portable by speedzodiac [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613361.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 796111   (683409) от 15.06.2014
-
-Космические братья / Space Brothers / Uchuu Kyoudai (2012) HDTVrip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История повествует о двух братьях, Мутта и Хибито, которые будучи еще детьми пообещали себе отправиться в космическое путешествие. Младший брат Хибито в скором времени готовится воплотить свою мечту в жизнь, в то время как Мутта совсем позабыл о ней. Однако, однажды, Мутта вспоминает о своем обещании и это полностью вновь изменяет его жизнь.Производство: Япония, Toho CompanyЖанр: комедия, научная фантастикаРежиссер: Ёситака МориАктеры: Базз Алдрин, Шун Огури, Николас Вульф, Кумико Асо, Масаки Окада, Лукас Мартин, Мелисса Гогганс, Грегори Пекарь, Синъити Цуцуми, Майк ГусманПеревод: Любительский одноголосыйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 02:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54566D3BCD5E9DBB5C3292014F62CBC7987C7F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796624   (683345) от 15.06.2014
-
-Власть страха / The Bone Collector (1999) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Линкольн Райм — знаменитый криминалист, автор множества книг, навсегда прикованный к больничной постели. Амелия Донаги — начинающий полицейский, делающий первые неуверенные шаги по кровавым мостовым. Когда в городе появляется страшный маньяк, она становится глазами и ушами Райма на обезумевших от ужаса улицах.
-С ее помощью гений криминалистики пытается разгадать (   Читать дальше...   )Жанр: Триллер, Драма, Криминал, ДетективРежиссер: Филлип НойсАктеры: Дензел Вашингтон, Анджелина Джоли, Куин Латифа, Майкл Рукер, Майк МакГлоун, Луис Гузман, Лиленд Орсер, Джон Бенжамин Хикки, Бобби Каннавале, Эд О’НилПеревод: Профессиональный (дублированный), Профессиональный (многоголосый, закадровый), Авторский (одноголосый закадровый)x2Язык субтитров: Русский, АнглийскийПродолжительность: 01:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6793BE7FA72D4734BA3CF487D568AEBA3D9DF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796673   (683257) от 15.06.2014
 
 Расплата / Payback (1999) BDRip [Extended Cut] [H.264/720p-LQ] [10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683257.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683181.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_683000.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682995.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682936.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682881.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682879.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682856.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682851.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682850.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682831.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682805.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682784.jpg" />
 </div>
 
 
@@ -403,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682753.jpg" />
 </div>
 
 
@@ -429,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682708.jpg" />
 </div>
 
 
@@ -455,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682707.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682643.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682641.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682602.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682592.jpg" />
 </div>
 
 
@@ -590,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682591.jpg" />
 </div>
 
 
@@ -616,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682583.jpg" />
 </div>
 
 
@@ -642,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682581.jpg" />
 </div>
 
 
@@ -668,13 +615,66 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682578.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Три школьника получают супер способности после обнаружения упавшего метеорита. Скоро они попадут в водоворот событий, в котором откроются их темные стороны.Жанр: Фантастика, боевик, триллер, драмаРежиссер: Джошуа ТранкАктеры: Дэйн ДеХаан, Алекс Расселл, Майкл Б. Джордан, Майкл Келли, Эшли Хиншоу, Бо Петерсен, Анна Вуд, Руди Малкольм, Люк Тайлер, Кристал-Донна РобертсПеревод: ДублированныйЯзык субтитров: Русский, английский, арабский, болгарский, иврит, чешский, эстонский, португальский, исландский,  сербский, латышский, литовский, украинскийПродолжительность: 01:20:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221981   (682570) от 30.04.2018
+
+Подъем с глубины / Deep Rising (1998) WEB-DLRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банда наемников отправляется на перехват океанского пассажирского лайнера с целью захвата драгоценностей и денег. Вооруженные до зубов, они рассчитывают на успех этой тщательно спланированной операции.
+Но боевая уверенность захватчиков сменяется ужасом перед небывалыми чудовищами, устроившими пир на корабле! У этих монстров здесь не было противников! И кровь тысяч (   Читать дальше...   )Производство: США, Канада / Calimari Productions, Cinergi Pictures Entertainment Inc., Hollywood PicturesЖанр: Фантастика, Боевик, УжасыРежиссер: Стивен СоммерсАктеры: Трит Уильямс (John Finnegan), Фамке Янссен (Trillian St. James), Энтони Хилд (Simon Canton), Кевин Дж. О’Коннор (Joey Pantucci), Уэс Стьюди (Hanover), Деррик О’Коннор (Captain Atherton)Перевод: Профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5565318ECA0176ED9860C420061453F7B8FD2884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335641   (682553) от 12.05.2011
+
+Как выйти замуж за миллиардера / Chalet Girl (2011) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким, юная скромница английского городка, получает работу на фешенебельном горнолыжном курорте в Альпах. Ей сложно привыкнуть к новому миру роскоши, раскованности и снежных рекордов. Но вскоре Ким обнаруживает в себе талант к спуску на сноуборде и, кажется, влюбляется в симпатичного сына владельца курорта, отдыхающего здесь с подругой… Сможет ли Ким пробиться на Кубок (   Читать дальше...   )Производство: UK Film Council / Metropolis International Sales / Cine Tirol / Kaleidoscope Films (Великобритания, Германия, Австрия)Жанр: мелодрама / комедияРежиссер: Фил ТрэйлАктеры: Фелисити Джонс, Эд Вествик, Билл Найи, Брук Шилдс, Тэмсин Эгертон, Билл Бэйли, София Буш, Грегор Блоеб, Адам Боусдукс, Николас Браун и др.Перевод: ДублированныйСубтитры: Вшитые, отключаемыеЯзык субтитров: РусскиеПродолжительность: 01:32:37
 
 ## Скачать торент
 ```bash

@@ -1,55 +1,3 @@
-###  Публикация: 1459473   (1023088) от 02.04.2021
-
-Клуб холостяков / Divorce Club (2020) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После пяти лет брака Бен, по-прежнему влюбленный в жену, узнаёт, что она ему изменяет. Он оскорблён и подавлен. Но Бен встречает старого приятеля Патрика, разведённого собрата по несчастью. Тот, в отличие от Бена, пользуется полной свободой, которой ему так не хватало в браке. К ним присоединяется всё больше и больше холостяков, которые организовывают «Клуб холостяков» (   Читать дальше...   )Производство: Франция / Radar Films, SND Films, M6 FilmsЖанр: КомедияРежиссер: Микаэль ЮнАктеры: Арно Дюкре, Франсуа-Ксавье Демезон, Одри Флеро, Каролин Англад, Юсеф Хаджди, Грегуар Бонне, Микаэль Юн, Орнелла Флёри, Маттео Саламоне, Шарлотта ГабрисПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, французскийСубтитры: Английские (Full)Продолжительность: 01:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1A0E938E785CFEC341FBD1DB741CDCF2FFCDF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459485   (1023072) от 02.04.2021
-
-Клуб холостяков / Divorce Club (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После пяти лет брака Бен, по-прежнему влюбленный в жену, узнаёт, что она ему изменяет. Он оскорблён и подавлен. Но Бен встречает старого приятеля Патрика, разведённого собрата по несчастью. Тот, в отличие от Бена, пользуется полной свободой, которой ему так не хватало в браке. К ним присоединяется всё больше и больше холостяков, которые организовывают «Клуб холостяков» (   Читать дальше...   )Производство: Франция / Radar Films, SND Films, M6 FilmsЖанр: КомедияРежиссер: Микаэль ЮнАктеры: Арно Дюкре, Франсуа-Ксавье Демезон, Одри Флеро, Каролин Англад, Юсеф Хаджди, Грегуар Бонне, Микаэль Юн, Орнелла Флёри, Маттео Саламоне, Шарлотта ГабрисПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, французскийСубтитры: Английские (Full)Продолжительность: 01:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399A9E49EB6149EDCF80B63E9B5A4745202CCBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456927   (1023067) от 02.04.2021
 
 Один день / One Day (2011) BDRip [H.264/1080p] [FRA Transfer]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023067.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023064.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023059.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023058.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023052.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023049.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023042.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022961.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022951.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022936.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022928.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022927.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022914.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022902.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022901.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022897.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022896.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022872.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022871.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022868.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022867.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022864.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022858.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022770.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63213E5C29141EA4D68064A3AC2C77EC103AE11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454210   (1022764) от 04.04.2021
+
+Книжная неделя / Book Week (2018) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель литературы Николас Катлер – циничный алкоголик, который презирает своих учеников, современные технологии и работу в школе. В прошлом Катлер опубликовал бестселлер, но с тех пор прошло много времени, а других успехов в писательстве он так и не добился. Жизнь Николаса неожиданно меняется, когда он получает от крупного издательства предложение о публикации его (   Читать дальше...   )Производство: Австралия / Albert Street FilmsЖанр: КомедияРежиссер: Хит ДэвисАктеры: Алан Дьюкс, Тоби Шмитц, Джолин Андерсон, Эйрли Доддс, Пиппа Грэндисон, Мая Стенж, Сьюзэн Прайор, Николас Хоуп, Роуз Райли, Риз Малдун, Кхан ЧиттенденПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FCCA495744AF50A8B7D441FEF325FC57448A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460095   (1022759) от 04.04.2021
+
+Мозг Гиммлера зовется Гейдрихом / HHhH (2017) BDRemux [H.264/1080p] [CAN Transfer] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022759.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о стремительном восхождении Рейнхарда Гейдриха - государственного и политического деятеля нацистской Германии, одного из инициаторов «окончательного решения еврейского вопроса», который был убит Яном Кубишем и Йозефом Габчиком - чехословацкими диверсантами, агентами, специально подготовленными англичанами.Производство: США, Франция, Великобритания, Бельгия, Германия / Cutting Edge Group, Lgende FilmsЖанр: Боевик, триллер, военный, биографияРежиссер: Седрик ЖименесАктеры: Джейсон Кларк, Розамунд Пайк, Джек О’Коннелл, Джек Рейнор, Миа Васиковска, Стивен Грэм, Томас М. Райт, Барри Атсма, Джофф Белл, Энцо ЧилентиПеревод: Профессиональный (многоголосый закадровый) (HDRezka Studio)Субтитры: Английские (SDH)Продолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E8B4A501FF1CC9BC1BAE690DD1DDD12227D8F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

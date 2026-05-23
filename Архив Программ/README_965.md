@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560587.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560584.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560544.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ R-Studio 6.1 Build 152029 Network Edition [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560523.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ USB Device Tree Viewer 2.5.5.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560516.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Bitdefender Internet Security 2015 19.2.0.142 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560514.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ qBittorrent 3.2.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560500.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ JetBrains Rider 2018.1.3 Build #RD-181.4952.311 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560438.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PicPick 5.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560437.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Photodex ProShow Producer 5.0.3276 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560426.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ EditPlus 4.0.395 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560410.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ DSP pack 1.42 (Winamp / Aimp3) RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560401.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Photodex ProShow Producer 5.0.3276 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560327.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ WebcamMax 7.9.3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560316.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Viber 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560312.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Adobe Muse CC 2015.0.2 Multilingual Update 2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560296.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ GreenCloud Printer Pro 7.8.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560251.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ W10Privacy 3.1.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560234.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Veritas System Recovery 2018 18.0.1.56582 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560232.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Total Commander 8.01 Final ExtremePack & PowerPack & LitePack + Portable 2012.8 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_560221.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Adobe Flash Player 30.0.0.134 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560166.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Internet Download Manager 6.31 Build 3 Final RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560165.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Microsoft Visual Studio 2017 Enterprise 15.7.5 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560160.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ ReNamer Pro 6.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560145.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Macrium Reflect v7.1.3317 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560141.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Panda Cloud Antivirus Pro 2.0 Final [русский / английский] [Onl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_560121.jpg" />
 </div>
 
 

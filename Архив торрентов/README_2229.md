@@ -6,7 +6,7 @@ Animal Planet: Рыба или смерть. Австралия / Fish or Die (2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558179.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Krita 4.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558178.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ u-he - Hive 2.0.0.8676 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558172.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ IObit Smart Defrag Pro 6.2.5.129 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558171.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558164.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ BBEdit 11.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558156.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ News Explorer 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558154.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cashew 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558152.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Templates for Pages 4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558151.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Francesco Giannico & Giulio Aldinucci - Agoraphonia (2016) [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558148.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ SSH Config Editor 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558147.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Firefox Browser 101.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558105.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Wise Auto Shutdown 2.0.2.103 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558101.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Telegram Desktop 1.1.18 RePack by SPecialiST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558085.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Telegram Desktop 1.1.17 RePack by SPecialiST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558080.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Monster Jinx Beat Camp #01 (2017) [FLAC|Lossless|Web-DL|tracks] <Future Bea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558078.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Soft Organizer 6.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558076.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Free Download Manager 5.1.32 build 6573  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558075.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Telegram Desktop 1.1.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558069.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ FastStone Image Viewer v7.1 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558065.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ FastStone Image Viewer 7.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558061.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ YouTube By Click Premium 2.2.103 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558060.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ WinToUSB Technician 4.9.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558049.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558043.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Verizon IndyCar Series. ABС Supply 500. Pocono raceway. (2016.08.22) HDTVRip [H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558042.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Typinator 6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558041.jpg" />
 </div>
 
 

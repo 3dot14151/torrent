@@ -1,55 +1,3 @@
-###  Публикация: 1603142   (1045808) от 08.01.2023
-
-MobileSheets Music Viewer v3.6.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-MobileSheets - это лучшая программа для просмотра нот для планшетов Android. Установите эту пробную версию, чтобы избавиться от необходимости таскать с собой книги и папки, а также получить доступ к любой партитуре в вашей библиотеке за секунды. Он также имеет ряд мощных функций для музыкантов, в том числе:Тип издания: FullРелиз состоялся: 07.01.2023Разработчик: ZubersoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7019177FEE67B06D6080EF88DE796DB4ADCB770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604675   (1045271) от 14.01.2023
-
-SUXOV v2.2.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для постобработки фотографий и видеороликов. Немало мощных фильтров. Имитация пыли. Возможность менять экспозициию и насыщенность.Тип издания: ProРелиз состоялся: 13.01.2023Разработчик: Sergey SukhovПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC788686908137C31F1171C0E5FD999377AEB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 672425   (1044176) от 24.01.2023
 
 Мобильный электрик v5.0 [Ru/Multi]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044176.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043385.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043026.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042860.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ Solar System Scope v3.2.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042730.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ Free Guitar Tuner v4.0.0 Premium [En] - Fender Tune
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042261.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ MobiDic Guitar Chords v2.6 Pro [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042250.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042236.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ Folio v3.6.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042006.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ GnaCAD v2.8.48 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041995.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041987.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041704.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041697.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041308.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ VPN Russia - VPN сервера в России 1.158 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041219.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ Bike Computer v1.8.4.2 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041041.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040467.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ AGAMA Car Launcher v2.7.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040452.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ AI Translate v3.1.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040290.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ Old Movies v1.13.09 Premium [En] - Oldies but Goldies
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040289.jpg" />
 </div>
 
 
@@ -588,7 +536,7 @@ ICQ New Мессенджер v9.20.1(824739) [Ru/Multi] - Общение, чат
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040221.jpg" />
 </div>
 
 
@@ -614,7 +562,7 @@ Tody v1.9.4 Premium [Ru] - уборка по-умному
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040076.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040071.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ Weather XL PRO v1.4.7.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040042.jpg" />
 </div>
 
 
@@ -679,6 +627,60 @@ Weather XL PRO - погодное приложение, что по факту �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D7F15BF42E0929DB945DFDD657D51F49746607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613149   (1039831) от 17.02.2023
+
+Медпомощь При ДТП v1.1.7 [Ru/Ua]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение представляет собой пособие по оказанию экстренной медицинской помощи при ДТП. Содержит в себе алгоритм действий в первые минуты после аварии, особенности оказания первой помощи в тяжелых условиях, а также:Тип издания: ProРелиз состоялся: 12.08.2022Разработчик: Monolith publisherПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2E28D2E01E7B84D34BF42E176B3511B83BB237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439510   (1039779) от 13.01.2021
+
+Славяно-Арийский Календарь v31 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний Славяно-Арийский Календарь-Часы (Коляды Дар) с конвертером: нумерология, славянский гороскоп и многое другое.
+Гой еси! Представляем Вашему вниманию приложение Славяно-Арийский Календарь (Коляды Дар, Даарийский Круголет Числобога) - древний календарь наших предков староверов.
+Календарь-Часы содержит конвертер времени и настройки, интерфейс календаря кликабельный. (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 21 сентября 2020 г.Разработчик: VodiaПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2915CE1FD0830A64AE682E2069FE41EE4048C2E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

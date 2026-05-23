@@ -6,7 +6,7 @@ Gumroad, Nika Zautashvili | Blender Video - WHALE-1 (2022) Blu-ray [Realtime pro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241852.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FlippedNormals, Henning Sanden | Introduction to Sculpting in Blender 2.92 (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241803.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FlippedNormals | Sculpting the Facial Features in Zbrush (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241771.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Udemy, Nexttut, Abraham Leal | Hair Creation for Game Character in Maya XGen and
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241719.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ TimePad, Ксения Голубович | Предмет искусства: о
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241678.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Institute-art, Игорь Сахаров | Солнечный лес + Цвет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241664.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Uartsy, Daniel Orchard | Building Perceptive AI in Unreal Engine (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241571.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 1 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241433.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Udemy, Art Studio | Complete Blender Course: Creating Game Assets for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241380.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ SideFX, Adrien Lambert | Ultimate Terrain Workflow (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241304.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241283.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Zenja Gammer, Zenzcourses | Photoshop Digital Art Bundle By Zenja Gammer (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241089.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Substance Academy, Nikola Damjanov | Tree Bark with Nikola Damjanov (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240752.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Yiihuu, Mrousix | Product Animation. Design 3D Product (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240649.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Wingfox, Job Menting | Creating a Cyberpunk City with C4D and PS (2021) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240616.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Yiihuu, Yang Fan | Super Dynamic Designer (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240414.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Artstation Learning, Javier Perez | Substance Designer: 10 Most Useful Nodes (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240403.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Schoolism, Scott Robertson | Rendering Reflective Surfaces (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240385.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Rebelway, JAMES HODGART | Mastering Environment creation in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239575.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239567.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239473.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ SideFX, Arise.Works | Houdini Clouds with VOPs (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239290.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ The Gnomon Workshop, Patrick Przybyla | Creating a Combat Finishing Takedown Wit
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239018.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Udemy, Jose Moreno | Substance Designer 2020: Stylized Material Creation PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238902.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238640.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 3 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238634.jpg" />
 </div>
 
 

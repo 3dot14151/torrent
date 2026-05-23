@@ -6,7 +6,7 @@ Skype 8.109.0.209 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134224.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pale Moon 32.5.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134213.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GeoGebra 4.2.12 + Portable [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134210.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ashampoo Photo Optimizer 10.0.0.19 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134205.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Google Chrome 119.0.6045.200 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134202.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Topaz Video AI 4.0.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134197.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BitComet 2.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134186.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Chromium-Gost 119.0.6045.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134177.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Light Image Resizer 4.3.4.2 + by PortableAppZ [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134170.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ WinTools.net 23.12.1 Classic / Professional / Premium RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134161.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sumatra PDF 2.2 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134158.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ FlashFXP 4.2.5 Build 1813 Stable + Portable [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134148.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Zentimo xStorage Manager 3.0.4.1298 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134144.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Google Chrome 119.0.6045.200 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134141.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ YT Downloader 9.6.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134139.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ GIMP 2.10.36 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134119.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ RAM Saver Professional 23.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134117.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Win7codecs 3.9.3 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134116.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ CyberLink PhotoDirector Ultra 15.0.11.1123 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134103.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Chromium-Gost 119.0.6045.199 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134091.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Nik Collection by DxO 6.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134089.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Midori Browser 11.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134087.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ qBittorrent 4.6.2 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134077.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SlimPDF Reader 1.0.1.12 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134076.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Windows 8 Codecs 1.35 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134054.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ DefenderKiller 11.0.4 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134013.jpg" />
 </div>
 
 

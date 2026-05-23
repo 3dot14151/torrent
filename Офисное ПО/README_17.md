@@ -6,7 +6,7 @@ Batch Text Replacer 2.13.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371441.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Print Conductor Free 7.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360095.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NAPS2 (+MSI+Potrable) 6.1.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359864.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ HomeWiki 4.0.2 Portable [Ru/En] (Авторская раздача)
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357772.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ DjVuLibre DjView 4.10.4 RePack (& Portable) by Trovel [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353856.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ORPALIS PDF Reducer Professional 2.0.4 + Portable [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346480.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Lizardtech DjVu Document Express Editor Pro 6.0.1 build 1320 Portable by punsh [
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337472.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Promt 12 Dictionaries Collection RePack by MKN [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337336.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Foxit PhantomPDF Business 7.2.5.930 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333185.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Scanitto Pro 3.9 Portable by DJFenix [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328967.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ CHM Editor 3.0.8 Full [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327325.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windows Word 2020.10.0 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323688.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows Excel 2020.9 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323687.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Windows Office 2020.9 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321409.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MyDraw 4.1.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320466.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ DjVuLibre DjView 4.10.4 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316441.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Draftable Compare 1.1.3.2 [En] [Web Installer]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314000.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ MyTetra 1.44.31 + Portable [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312634.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311061.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe Reader XI 11.0.23 RePack by KpoJIuK  [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306772.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Adobe Reader XI 11.0.23 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306762.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ CoolUtils Total PDF Converter 6.1.162 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300974.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MaxProfit 3.0.0.41 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300627.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SoftMaker FlexiPDF 2017 Pro 1.01 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297569.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4771.1000
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296490.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ WinPDFEditor 3.6.3.4 RePack by вовава [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291571.jpg" />
 </div>
 
 

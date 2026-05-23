@@ -1,29 +1,3 @@
-###  Публикация: 1131600   (26224) от 28.02.2025
-
-World to the West (2017) [Multi] (1.6.0) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Юная девочка - Тесламансер, маленький аутсайдер-оптимист, закалëнная путешественница и самоуверенный силач-аристократ по стечению обстоятельств оказались в центре чужой авантюры. Теперь им предстоит задействовать свои уникальные способности чтобы выжить на континенте, хранящем древние секреты и опасности. Кто-то ищет славу, кто-то желает отомстить, а кто-то (   Читать дальше...   )Тип издания: LicenseРазработчик: Rain GamesЖанр: Action, Adventure, PlatformerЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF382403359D4DAC7ED6B951E12372F34792554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643561   (26223) от 28.02.2025
 
 FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
@@ -32,7 +6,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26223.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Tennis Manager 2024 (2024) [Multi] (4.4.1357b) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26215.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Repack seleZen [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26207.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ FRONT MISSION 1: Remake (2023) [Ru/Multi] (3.0.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26201.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Techno Banter (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26191.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26188.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.05) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26186.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26171.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Palworld (2024) [Ru/Multi] (0.4.15.66880) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26155.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ms. Holmes 7: The Death of Peter Blackheart (2025) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26154.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26136.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (1.0.0) License GOG [Darkness Tri
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26130.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru] (08.12.2024) Unofficial SynthVo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26113.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Trinity Fusion (2023) [Multi] (2.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26100.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26019.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26011.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Nunholy (2025) [Ru/Multi] (1.0.01) Repack Let'sРlay [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26010.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25992.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Might and Magic: Heroes VI / Might & Magic: Heroes VI / Герои меча и �
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25988.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25978.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Imperiums: Greek Wars (2020) [Ru/Multi] (1.422/dlc) Repack Let'sРlay [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25976.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25958.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Secrets of Salem: Shadow of the Witch / Секреты Салема: Тень в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25939.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25933.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Terra Memoria (2024) [Multi] (2024.6.10a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25932.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Terra Memoria - ролевая игра с фантастическим миро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39E229E0150EB7BEB604BFF9C357B636563F8C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782715   (25924) от 02.03.2025
+
+Overcooked! 2 (2018) [Ru/Multi] (#1034.799570/dlc) Repack Pioneer
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Overcooked возвращается с новой порцией безумной кулинарии! Вы снова отправитесь в Луковое королевство и соберете команду поваров для классической локальной или сетевой совместной игры, в которую могут играть до 4 человек. Хватайтесь за фартуки - пришло время (снова) спасать мир! Из огня да в полымя... Вы спасли мир от вечно голодного монстра. Но теперь возникла (   Читать дальше...   )Тип издания: RepackРазработчик: Ghost Town Games Ltd., Team17 Digital LtdЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32ADEB7F6E1519579FE674229DFFA0FFD066594
 ```
 
 https://mybot314.ru/tekegram_catalog/

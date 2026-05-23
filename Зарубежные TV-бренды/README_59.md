@@ -1,29 +1,3 @@
-###  Публикация: 1296333   (613301) от 16.04.2019
-
-Animal Planet. Человек и львы (История одного сафари) / The Lion Man: One World African Safari (2013) HDTVRip [H.264/720p-LQ] (серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Крейг Буш вырос на ферме и сам научился всем премудростям общения с большими кошками. Крейг помогает ловить браконьеров и бороться с лесными пожарами. В заповеднике под Йоханнесбургом он создал рай для редких представителей кошачьих: белых бенгальских тигров, барбарийских львов и белых львов. Крейг Буш вместе с группой энтузиастов, посвятивших свою жизнь животным, (   Читать дальше...   )Производство: США, One World Pictures, New Visions Pictures, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Грэм СвейнполПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: серии x ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6A506DCE1993F3DDE4FC3AA71F59CF5D1CB26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524491   (613064) от 18.07.2012
 
 NG: Explorer (Исследование). Наука о кошках / Explorer. Science of Cats (2008) SATRip
@@ -32,7 +6,7 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613064.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery. Гаражное золото / Garage Gold (2013) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612511.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612432.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612354.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC. История Жизни / Life Story (1-6 серии из 6)  (2014) BDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612350.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Discovery: Скрытое - Самые страшные темницы / Hidden 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611427.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ History Channel: Военная машина Гитлера / Hilter's War Machi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610939.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NG: Секретные материалы древности: Загадка М�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610862.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest A
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610837.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ History Channel: Вселенная. Глубокая заморозка / The U
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610829.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610681.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BBC. В краю муссонов: Потоп / Wonders of the Monsoon: Deluge (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610563.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610436.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610433.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610028.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609930.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Animal Planet: 100 миль в неизвестность / 100 Miles from Nowhe
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609182.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ NG: Суперсооружения: Мегазаводы. Грузовики М�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609051.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608823.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608610.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608494.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608492.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608489.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608361.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Animal Planet: Живой или вымерший. Яванский тигр / E
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608279.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Animal Planet: Живой или вымерший. Яванский тигр / E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42DE3B3D47B4CAC72D7A5E9D0881D87D7D3955EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296920   (608274) от 19.04.2019
+
+NG: Египет с высоты птичьего полета / Egypt from Above (2019) HDTVRip (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет - древняя страна, знаменитая своими пирамидами, храмами и гробницами. В свое время, на месте современного Египта располагалась одна из самых мощных и передовых империй в мире. Сериал расскажет вам во время восхитительного воздушного путешествия по этой стране историю развития современного динамичного Египта из его столь драматичного прошлого.Производство: Великобритания, Windfall Films LTD, National GeographicЖанр: Документальный, путешествия, историяРежиссер: Мэтт КеррингтонПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 2 x ~00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B4D000444CDD9D68F92112D47EBB26F158013C
 ```
 
 https://mybot314.ru/tekegram_catalog/

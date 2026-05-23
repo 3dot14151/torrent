@@ -1,30 +1,3 @@
-###  Публикация: 462192   (80049) от 04.03.2012
-
-Зенитка (L) [Ru] 2011
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В этой мини игре вы командуете зенитным расчетом и уничтожаете вражеские самолеты и десант. Ваша задача сохранить зенитку и ее охранение. В игре пять уровней разной сложности. Сразу мимо вас пролетят двухмоторные Ju-88, которые направляются к своим целям и не будут бомбить вашу зенитку. Затем в бой вступят Ju-87, их основная цель - уничтожить вас! Если вы отобьете и эту атаку, в бой пойдут транспортные самолёты Ju-52, с которых выпрыгнут диверсанты...
-Ваша задача правильно выбрать цель и стрелять, стрелять и стрелять! Самые меткие и ловкие запишут свои имена в онлан таблицу рекордов.Тип издания: ЛицензияЖанр: ArcadeЯзык озвучки: n/aЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C57FD6002DE8F4A9784EA2F1E3B96D0BC14C6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461506   (80031) от 04.03.2012
 
 Billiards Pyramid (L) [En] (2011)
@@ -33,7 +6,7 @@ Billiards Pyramid (L) [En] (2011)
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80031.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80008.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79658.jpg" />
 </div>
 
 
@@ -113,7 +86,7 @@ Turtle Odyssey 2 / Одиссея Черепашки 2 (P) [Ru] 2007
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79639.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ My Diary / Мой дневник (L) [Ru/En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79599.jpg" />
 </div>
 
 
@@ -166,7 +139,7 @@ Space Lines (L) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79566.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ The Sims Carnival BumperBlast (L) [En] 2008
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79555.jpg" />
 </div>
 
 
@@ -218,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79515.jpg" />
 </div>
 
 
@@ -244,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79273.jpg" />
 </div>
 
 
@@ -270,7 +243,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78868.jpg" />
 </div>
 
 
@@ -296,7 +269,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78455.jpg" />
 </div>
 
 
@@ -322,7 +295,7 @@ Mafia II: Digital Deluxe / Mafia 2: Город грехов + 8 DLC [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77236.jpg" />
 </div>
 
 
@@ -349,7 +322,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74563.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ City of Stories 3: The Hunter's Heart (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71677.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.00.73217/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71364.jpg" />
 </div>
 
 
@@ -430,7 +403,7 @@ Mind Echoes: The Lost Mysteries (2025) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71337.jpg" />
 </div>
 
 
@@ -456,7 +429,7 @@ Saleblazers (2023) [Ru/Multi] (0.14.9.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71287.jpg" />
 </div>
 
 
@@ -482,7 +455,7 @@ Living Legends 12: Frozen Destiny (2025) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71281.jpg" />
 </div>
 
 
@@ -508,7 +481,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1 b5457/dlc) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71039.jpg" />
 </div>
 
 
@@ -534,7 +507,7 @@ Reflections of Life 13: Sleep's Embrace (2025) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70969.jpg" />
 </div>
 
 
@@ -560,7 +533,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70786.jpg" />
 </div>
 
 
@@ -586,7 +559,7 @@ Bridge to Another World Remastered: Burnt Dreams (2025) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70653.jpg" />
 </div>
 
 
@@ -612,7 +585,7 @@ Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70609.jpg" />
 </div>
 
 
@@ -638,7 +611,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70313.jpg" />
 </div>
 
 
@@ -664,7 +637,7 @@ Panic In The Woods (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70303.jpg" />
 </div>
 
 
@@ -675,6 +648,32 @@ Panic In The Woods - это одиночная или кооперативная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA7A77111555000AB4F5CC6FBC2D8F701E028A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784109   (69655) от 09.03.2025
+
+Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения в Nine Sols переносят игроков в сеттинг восточного фэнтези, где предстоит сразиться против 9 Солов. Игра представляет собой двухмерный платформер с элементами соулслайк, где приходится сталкиваться с уникальными боссами. События происходят на территории Нового Куньлунь, что является убежищем для выживших. Древни боги оставили смертных, вынуждая их противостоять (   Читать дальше...   )Тип издания: RepackРазработчик: RedCandleGamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3437ED7E76B8A18A9E868B9B5755587B9E627D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

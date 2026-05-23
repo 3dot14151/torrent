@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53807.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iZotope - RX 11 Audio Editor Advanced 11.1.0 STANDALONE, VST 3, AAX (x64) RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53787.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GoodbyeDPI 0.2.2 Launcher 7.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53786.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ ShareX 16.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53760.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ TechSmith Snagit 2024.1.4 build 2756 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53754.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ PilotEdit Lite & Pro 18.8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53752.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ TechSmith Camtasia 2024 24.0.0 (Build 1041) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53737.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ LibreOffice 24.2.4.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53686.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PingPlotter Pro 5.24.3.8913 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53680.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ NVIDIA GeForce Desktop Game Ready 555.99 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53679.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ O&O AppBuster 1.4.1344 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53678.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Q-Dir 11.68 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53666.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ JetBrains GoLand 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53662.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.0 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53661.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53658.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Firefox Browser 127.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53657.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Firefox Browser ESR 115.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53655.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53650.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ GeoGebra 6.0.845.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53637.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ PrivaZer Pro 4.0.86 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53635.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ NetLimiter 5.3.14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53631.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4529]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53602.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3737]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53598.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Topaz Photo AI 3.0.5 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53585.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ uTorrent Pro 3.6.0 Build 47116 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53579.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Tor Browser Bundle 13.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53558.jpg" />
 </div>
 
 

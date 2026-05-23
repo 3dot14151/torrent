@@ -1,29 +1,3 @@
-###  Публикация: 1012653   (793212) от 01.05.2016
-
-Prison Architect (2015) [Ru/Multi] (1.0/upd 6b/dlc) Repack Other s
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Prison Architect - симулятор тюремного магната, с полным контролем всех аспектов жизни заключенных! Вашей задачей будет постройка и развитие самой настоящей тюрьмы. Создатели игры вдохновлялись такими хитами прошлых лет как Dwarf Fortress и Dungeon Keeper. Причём надо будет организовывать не только камеры для заключённых, но и заниматься постройкой различных служб, (   Читать дальше...   )Тип издания: RepackРазработчик: Introversion SoftwareЖанр: Strategy (Manage/Busin), Top-downЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7EF7A1E79E8957930D5ABE6C75F3B1BDE97046B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122819   (793171) от 06.04.2017
 
 Dark Romance 6: Romeo And Juliet / Мрачная история 6: Ромео и Джульетта (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Dark Romance 6: Romeo And Juliet / Мрачная история 6: Ромео �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793171.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Skin Witch (2020) [Ru/Multi] (1.0.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793160.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ PREY (2017) [Ru/Multi] (10966486/dlc) Repack Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793124.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Paradigm / Парадигма (2017) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793026.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792961.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Pro Fishing Simulator (2018) [Ru/Multi] (1.1) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792799.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.61.03/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792796.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Alpha Protocol (2010) [Ru] (1.1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792744.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.60.22/dlc) License GOG [Legendary Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792724.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru] (1.07) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792705.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Borderlands 2 (2013) [Ru] (1.8.4/dlc) License PLAZA [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792649.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Epic Chef (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792625.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Assetto Corsa (2014) [Ru/En] (1.16.2/dlc) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792605.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Subnautica (2018) [Ru/Multi] (59783) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792594.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Quiet Apocalypse (2021) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792560.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Beyond Enemy Lines (2021) [En] (2.1.0) License SKIDROW [Remastered Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792557.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ E.Y.E: Divine Cybermancy (2021) [En] (1.01) License GOG [Single-Player Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792555.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Binding of Isaac: Rebirth (2014) [Ru/Multi] (1.75/dlc) License PLAZA [Comple
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792551.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Shantae and the Seven Sirens (2020) [Ru/Multi] (701355) License GOG (обнов�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792298.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_792289.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ COLINA: Legacy (2018) [Ru/Multi] (1.0/upd3) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791996.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (1.0/upd3/dlc) Repack Other s [Dig
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791995.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Zwei: The Arges Adventure (2018) [En/Jp] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791940.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791936.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (23636) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791935.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Battle Chasers: Nightwar — это ролевая игра в духе лучш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C5DC3EF0A976AD0874DCF4BCFA3D13349696F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201525   (791897) от 25.01.2018
+
+Thief (2014) [Ru/Multi] (1.7.4158.21/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам позарез нужно что-то украсть – вы обратились по адресу. В Городе, полном опасностей, есть лишь один человек, способный выполнить самый сложный заказ. По сравнению с ним бледнеют жестокий барон Норткрест и его алчная стража, таинственная Королева попрошаек, пламенные революционеры и обитатели уличного «дна». Его зовут Гарретт, и он в совершенстве владеет (   Читать дальше...   )Тип издания: RepackРазработчик: Eidos-Montréal, Nixxes Software BV, Feral InteractiveЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64C3173FA772DD0F36308E15F82E82070F61440
 ```
 
 https://mybot314.ru/tekegram_catalog/

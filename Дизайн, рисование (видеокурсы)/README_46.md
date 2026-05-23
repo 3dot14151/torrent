@@ -6,7 +6,7 @@ Max Twain | Global Wedding (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386822.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Max Twain | Джоконда (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386821.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Max Twain | Workshop (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386816.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Max Twain | Daz3D (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386814.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Max Twain | Pro Retoucher. Fatalism NEON (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386812.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Max Twain | Fatalism ART (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386808.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Max Twain | Pro Retoucher. Fatalism START 2020 PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386704.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Alkis Escobedo | Освещение и рендеринг с помощью V-Ra
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385384.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ ArtistHunt School | 25 курсов по рисованию (2020) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384724.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Gnomon Workshop, Maxime Deleris | Visual FX for Games (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383548.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383155.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Udemy, Nikolay Naydenov | Demon Huntress in Blender Course (2022) PCRec [EN / EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383147.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382883.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Chris Thomas | Particle Flow Fundamentals 4: Tests, Forces & Collisions (2004) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381422.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Chris Thomas | Particle Flow Fundamentals 3: Operators 2 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381418.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Chris Thomas | Particle Flow Fundamentals 5: Practical Examples (2004) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381325.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Chris Thomas | Particle Flow Fundamentals 2: Operators 1 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381267.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Chris Thomas | Particle Flow Fundamentals 1: Principles and Workflow (2004) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381023.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Wayne Hollingsworth | Введение в Maya Fluid Effects. Часть 2 /  In
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380896.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380603.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hristo Velev | Thinking Particles. Часть 2 - Промежуточные к�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378589.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Skillshare, 3D Tudor | Unreal Engine 5 Beginners Guide to Building an Environmen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378586.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Joshua Kinney | Map Baking Techniques for Games in 3ds Max (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378414.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378412.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378408.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378246.jpg" />
 </div>
 
 

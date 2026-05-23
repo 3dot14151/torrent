@@ -1,55 +1,3 @@
-###  Публикация: 1287640   (701076) от 08.03.2019
-
-Magnus Trainer PREMIUM v1.4.17 [Ru/Мульти]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Можно изучить много шахматной литературы, а можно установить Magnus Trainer и быстро продвинуться в шахматах. Попробуй лучший и более увлекательный способ учиться и тренироваться играть в шахматы! Совершенствуйся проходя увлекательные задания и игры. Погрузись глубже в шахматы через интерактивные уроки! Учись и тренируйся бесплатно с чемпионом мира по шахматам Магнусом (   Читать дальше...   )Тип издания: ПремиумРелиз состоялся: 2018Разработчик: Play Magnus ASПоддерживаемая ОС: минимум Android 4.4Жанр: ОбучениеЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760B9BD1E0AC9976117403EE32FC7210F52423F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402426   (701029) от 14.08.2020
-
-Карты для iGo 2020.Q2 HERE (NQ, NavTeq) Европа [14.06.2020]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-iGO R3 Here (NavTeq) Европа 2020.Q2 (.fbl, .fda, fds, .fjw, .fjv (Russia), .fpa, .fsp, .ftr, .hnr, .poi, .3dl, .3dc, .ph, .dem, .spc)Релиз состоялся: 14.06.2020Разработчик: HEREПоддерживаемая ОС: iGO8/Primo/MyWay/Amigo (Android, WinCE, WM)Язык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EEFB1E94DE89EA5B9EC5E8EB04CD5C48F8879F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301816   (700886) от 26.02.2022
 
 Lumii v1.483.106 Mod by Mixroot [Ru/Multi]
@@ -58,7 +6,7 @@ Lumii v1.483.106 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700886.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ BitVPN - Fast VPN Proxy Master v1.3.2 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699248.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ LocalAPK 2.1.1 RePack by Alex Zaguzin [Ru]
 >>Вспомогательное ПО для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698400.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698398.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Rom Helper 18.0.1711.01 RePack by Alex Zaguzin [Ru/Cn]
 >>Вспомогательное ПО для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698282.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698273.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Stupid Zombies 3 2.2 Mod [Money] [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696196.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ GTA: Chinatown Wars 1.01 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693156.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691800.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ VMP - ВК Музыка v4.5.0 AdFree [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691793.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_691708.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ Cut the Rope [Ru] Сборник всех игр этой серии 5
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691510.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО и Игры на Java
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689218.jpg" />
 </div>
 
 
@@ -405,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687053.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686388.jpg" />
 </div>
 
 
@@ -459,7 +407,7 @@ Knights of Pen & Paper 2 v2.5.30 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685964.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ Any Balance v3.9.808 [Ru/En] - баланс телефона на экране
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678882.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ Smart Compass Pro 2.6.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678579.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ Microsoft Outlook 2.1.209 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678301.jpg" />
 </div>
 
 
@@ -564,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678216.jpg" />
 </div>
 
 
@@ -592,7 +540,7 @@ CalcKit v2.4.2 Premium [Ru/Multi] - Калькулятор Всё-в-одном
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677928.jpg" />
 </div>
 
 
@@ -619,7 +567,7 @@ TIDAL Music v2.56.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676297.jpg" />
 </div>
 
 
@@ -645,7 +593,7 @@ Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676148.jpg" />
 </div>
 
 
@@ -671,7 +619,7 @@ HTC Sync 3.2.20 - синхронизация для HTC Android-устройст
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_673740.jpg" />
 </div>
 
 
@@ -683,6 +631,59 @@ HTC Sync 3.2.20 - синхронизация для HTC Android-устройст
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510210   (669845) от 14.06.2012
+
+AndroiTS Compass Pro 1.01 - Компас (2012) <En>
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный взгляд!
+Не обычного компаса!Разработчик: Alessandro BonettiЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537385   (667712) от 16.03.2022
+
+Mobi Calculator PRO 1.4.0 Mod by Kirhe [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mobi Калькулятор PRO приложение, которое будет полезно для всех, кто занимается математикой, инженерным делом и прочими работами связанными с вычислительными действиями. Приложение также будет полезно для студентов и преподавателей ВУЗов, которое значительно облегчит выполнение расчётов. Данный калькулятор работает с полными выражениями на основе RPN-алгоритмов. (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.07.2015Разработчик: IPПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7451792F2ED556877E0C4897F84D09A5F8A6FE77
 ```
 
 https://mybot314.ru/tekegram_catalog/

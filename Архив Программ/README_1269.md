@@ -6,7 +6,7 @@ DVD Audio Extractor 7.5.1 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398553.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paint.NET 4.0.18 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398551.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 Manager 2.1.6 Final RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398451.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ jv16 PowerTools 2017 4.1.0.1758 Final RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398334.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.35.6210 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398271.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Textify 1.6.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398258.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Pythagoras CAD + GIS 11.33 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398106.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ CPU-Z 1.62 Final + portable  [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398086.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Win7codecs 3.8.2 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398079.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AnyToISO Professional 3.4.2 Build 450 [Multi/Rus] Portable by Baltagy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397986.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dropbox 1.5.41 Experimental Build [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397979.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Xrecode II 1.0.0.196 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397933.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Aiseesoft Audio Converter 6.2.52 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397918.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Ashampoo Snap 6.0.1 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397914.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ DU Meter 6.02 Build 3706 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397868.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Nvidia GeForce/Desktop 310.33 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397866.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Hetman Partition Recovery 1.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397755.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Efficient Diary Pro 3.10 Build 324 [Multi/Rus] + Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397754.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Themes Windows 7 Green Gaian 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397744.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Atoll 3.1.0.3730 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397743.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Paint.NET 4.0.19 Portable by Baltagy  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397603.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Flashpuh v2 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397599.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Norton Antivirus 2013 20.2.0.19 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397589.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Windows 7 Firewall Control Plus 5.1.14.79 x64 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397583.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VueScan Pro 9.5.87 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397540.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Kinza Browser 4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397523.jpg" />
 </div>
 
 

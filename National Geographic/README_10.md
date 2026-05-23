@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755731.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755079.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Последствия: Перенаселенная планета / Afterm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755024.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Дикая природа. Южная Африка / Wild South Africa (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754952.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Реальность или фантастика? Привидения / Is 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752110.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750937.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Спасти Титаник с Бобом Баллардом / Save the Tita
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748459.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748187.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG: Китайская мегагробница. Секреты терракот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748126.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748068.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746250.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW: Смертоносная Африка. Побережья / Africa's Deadly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745230.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743873.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743238.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739593.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739515.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG: Дьяволы морских глубин / Devils of the Deep (2003) DVD5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739410.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: Реальность или фантастика / NG: Is it Real? [19 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739399.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2021) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736333.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732859.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG: Вторжение на Землю / Invasion Earth (2014) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732468.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732306.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732045.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732044.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731832.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731769.jpg" />
 </div>
 
 

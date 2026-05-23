@@ -6,7 +6,7 @@ Concept Samples - Interface Vol.2 [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433679.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Spitfire Audio - BML Mural Symphonic Strings Vol. 1&2 RePack Андрей650071 
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433560.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_427435.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ProjectSam - Symphobia 3 Lumina v1.5 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427321.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NNM-Club Sound Cleaner Collection - andgelo12 - Album 5 [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427261.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ SoundMorph - MODULAR UI [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423012.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Soniccouture - The Hammersmith Professional Edition v2.3 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421145.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ NNM-Club Sound Cleaner Collection - WetY - Album 1
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420801.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Native Instruments - Abbey Road Modern Drums [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418664.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Native Instruments - Alicia`s Keys [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418471.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Boom Library - BABY BOOM [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414338.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Native Instruments - The Gentleman [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414332.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Native Instruments - The Maverick v1.2  [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414196.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Boom Library - CINEMATIC ELEMENTS: FIRE & WATER [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414193.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Boom Library - DOGS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412455.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_411598.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Soniccouture - The Canterbury Suitcase [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410230.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Orchestral Tools - TIME Macro [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407358.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Native Instruments - Studio Drummer 1.1 [English]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406862.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Boom Library - HARBOR & INDUSTRIAL [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385072.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Boom Library - URBAN & SUBURBAN [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384826.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Native Instruments - SESSION GUITARIST – PICKED ACOUSTIC [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384814.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Ilya Efimov - Bayan - RePack Андрей650071 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383113.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Spitfire Audio - ALBION ONE [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382800.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382719.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Boom Library - MODERN UI [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380634.jpg" />
 </div>
 
 

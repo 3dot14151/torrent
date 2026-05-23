@@ -1,56 +1,3 @@
-###  Публикация: 476753   (554551) от 11.06.2019
-
-В поисках приключений / The Quest (1996) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений.
-Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего. Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Производство: США, Канада / MDP Worldwide, Selima Films AVV, Signature PicturesЖанр: Боевик, Триллер, ПриключенияРежиссер: Жан-Клод Ван ДаммАктеры: Жан-Клод Ван Дамм, Роджер Мур, Джеймс Римар, Джанет Ганн, Джек МакГи, Аки Алеонг, Абдель Кисси, Луис Мэндилор, Чанг Чинг Пенг Чаплин, Райан КутронаПеревод: профессиональный двухголосый, 4 x профессиональный многоголосый, 3 x авторскийЯзык озвучки: русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A1CC95336617108962AC4DCE513942970E3FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236072   (554361) от 17.07.2018
-
-Фокстрот / Foxtrot (2017) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На пороге фешенебельной квартиры Михаэля и Дафны появляется военный эскорт с трагическим известием — их сын погиб, исполняя свой воинский долг. Супруги опустошены ужасной вестью. Михаэль пытается совладать с приступами ярости, боли, отчаяния и дурноты, жена находится под воздействием снотворного. А в это время на отдаленном КПП юные солдаты борются со скукой армейской (   Читать дальше...   )Производство: Израиль, Швейцария, Германия, Франция, Bord Cadre FilmsЖанр: ДрамаРежиссер: Самуэль МаозАктеры: Лиор Ашкенази, Сара Адлер, Йонатан Ширай, Шира Хаас, Декел Эйден, Йехуда Альмагор, Шол Амир, Гефен Баркай, Ран Буксенбаум, Рами Бузагло, Арье Шернер, Иден Дэниэл, Яэль Эйзенберг, Итай Экслроад, Эден Гмлиль, Илья Гроц, Сабина Хельсторф, Дэнни Иссерлес, Ирит КапланПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: Русские, ивритПродолжительность: 01:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9215F523F68D7D44580676E287089D242A9B4AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236117   (554360) от 17.07.2018
 
 Убийца / Sicario (2015) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554360.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554296.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554293.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554186.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553970.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553965.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553960.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553903.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553882.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553868.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553866.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553850.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ The Man Inside / Человек внутри (2012) DVB [H.264/1080i-LQ] [AD]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553817.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553767.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553750.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553680.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553672.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553664.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553662.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553649.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553644.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553640.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553639.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553634.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD77396CDCEBB5E3DE1627C61E4CE6AC608BDF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308708   (553629) от 15.06.2019
+
+Пираньи Неаполя / La paranza dei bambini (2019) BDRip [H.264/720p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они еще очень молоды, но уже смертельно опасны, ведь только самые дерзкие могут стать новыми королями преступного мира Неаполя. Их легко заметить по дорогой одежде, татуировкам и холодному взгляду, когда они прорезают плотный поток машин на скутерах. Их дружба и честь проверяется в уличных перестрелках. Они живут на полную, но готовы убивать и умирать за свою мечту (   Читать дальше...   )Производство: Италия / Palomar, Sky Cinema, TIMvision, Vision DistributionЖанр: Драма, криминалРежиссер: Клаудио ДжованнезиАктеры: Франческо Ди Наполи, Вивиана Апреа, Маттиа Пиано Дель Бальцо, Чиро Веккьоне, Чиро Пеллекиа, Ар Тем, Альфредо Туритто, Паскуале Маротта, Лука Накарло, Кармине ПиццоПеревод: Дублированный (iTunes)Субтитры: Русский (полные)Продолжительность: 01:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637E430521CD859D2EF95C7040C15D2B7742D693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308695   (553628) от 15.06.2019
+
+Загадочное убийство / Murder Mystery (2019) WEB-DLRip [H.265/1080p-LQ] [HDR, 10-bit] [PR]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы оживить семейные отношения полицейский из Нью-Йорка вместе со своей женой отправляются в путешествие по Европе. В самолете они знакомятся с богатым пожилым мужчиной, который приглашает их на свою роскошную яхту. Но там его убивают, а они становятся главными подозреваемыми...Производство: США / Endgame Entertainment, Happy Madison Productions, Tower Hill Entertainment, Vinson FilmsЖанр: Комедия, детективРежиссер: Кайл НьюачекАктеры: Адам Сэндлер, Дженнифер Энистон, Люк Эванс, Джемма Артертон, Джеки Сэндлер, Оулавюр Дарри Оулафссон, Джон Кани, Теренс Стэмп, Сиори Куцуна, Элен КардонаПеревод: Дублированный (Пифагор)Субтитры: Русские (форс., полные), Английские (SDH) и др.Продолжительность: 01:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DD09F4DA847421FAFD5EA8D86E1DA2FC05952D
 ```
 
 https://mybot314.ru/tekegram_catalog/

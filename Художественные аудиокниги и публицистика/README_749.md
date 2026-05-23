@@ -1,82 +1,3 @@
-###  Публикация: 1655352   (204416) от 25.08.2023
-
-Марина Серова | Частный детектив Татьяна Иванова. Код знали двое (2023) [MP3, Борис Павлюков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Частному детективу Татьяне Ивановой не понять коллекционерских страстей. Тем более ей трудно поверить, что из-за какого-то клочка бумаги под названием «марка» можно хладнокровно уничтожать людей. Однако в ходе раскрытия кражи редкой марки 1951 года выпуска Иванова вынуждена признать: такое бывает. Мало того, довольно быстро она догадывается, что ее собираются использовать (   Читать дальше...   )Жанр: ДетективИздательство: ЛитРесПродолжительность: 07:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728B540631F3CA3019F08D1910BDCD41462327CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655220   (204392) от 25.08.2023
-
-Чингиз Абдуллаев | Дронго (Книга 27). Тоннель призраков (2023) [MP3, Светлана Сенчева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Четвертый вагон поезда, мчащегося в тоннеле под Ла-Маншем. Группа русских туристов, и среди них убийца. Двадцать минут в гигантской трубе Евротоннеля, и «беретта» делает свое дело. Подозреваются все, но вычислить надо одного. Эксперт – аналитик Дронго берется за эту головоломку…Жанр: ДетективИздательство: ЛитРес: чтецПродолжительность: 03:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F810C1A8A4BA4EE7DF05E09F05F6B93396A13FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655346   (204370) от 25.08.2023
-
-Евгения Михайлова | Разбитое небо (2023) [MP3, Елена Калиниченко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Лара сама растила любимого младшего братишку Артура и впала в глубокую депрессию, когда мальчик погиб. Год спустя, с огромным трудом выбравшись из трясины своего горя, Лара решила, что расследование дела, которое так и осталось нераскрытым, необходимо довести до конца…
-В этом ей помогают неравнодушные люди – старые и новые друзья, а также частный детектив Сергей (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 07:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CAA3B5ED4D32588DF51818AEEA9B5024FA1A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603121   (204336) от 08.01.2023
 
 Александр Мазин | Варяг (Книга 14). Сквозь огонь (2022) [MP3, Валерий Кухарешин]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204336.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204324.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204317.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204273.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204262.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204240.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204232.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204150.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204140.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204122.jpg" />
 </div>
 
 
@@ -351,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204118.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204088.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204083.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203986.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203937.jpg" />
 </div>
 
 
@@ -482,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203887.jpg" />
 </div>
 
 
@@ -509,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203878.jpg" />
 </div>
 
 
@@ -535,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203867.jpg" />
 </div>
 
 
@@ -561,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203791.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203695.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203639.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203634.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203622.jpg" />
 </div>
 
 
@@ -678,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E61861098CB139B7DAEA03289F52E104F60609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656201   (203611) от 29.08.2023
+
+Алекс Бредвик | Изгой (Книга 2). Откровение (2023) [MP3, Денис Любомирский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир снова начал сходить с ума. А был ли он когда-нибудь в своем уме? Сложный вопрос, на который я с группой отличных бойцов выдвинулся искать ответ. Впереди нас ждут руины, много битв с металлическими демонами, осенние холода и бесконечное напряжение. Но игра стоит свеч, нас могут ждать ответы на те вопросы, о которых даже Изгои не подозревали. Прошлое нас ждет. (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛитРес, АвторПродолжительность: 09:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9627C552E81C200D0AB1E73D079D9FEC7CB6D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607189   (203558) от 25.01.2023
+
+Макс Вальтер | Антиген (Книга 1). Жажда (2023) [MP3, Дмитрий Хазанович]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда всё вокруг катится к чертям, не остаётся времени на сантименты. Человек человеку — враг и борьба за выживание становится профессией.
+Жестокий, безжалостный, беспринципный мир, который заполонили кровожадные твари. Здесь выживает далеко не каждый. Но пока бьётся сердце, значит есть ещё шанс и остаётся только молиться, чтобы оно не стало чёрным.Жанр: Постапокалипсис, Боевая фантастикаПродолжительность: 07:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F768FD641448EC5D873BC74D286044B0A661AB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607647   (203496) от 27.01.2023
+
+Дмитрий Найденов | Разлом (Книга 4). Оружейный магнат (2022) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение романа Разлом. Попаданец магический мир, пытается выжить, в то время, как на него начали охоту сразу несколько принцесс, которые не остановятся ни перед чем, ибо провал для каждой из них будет означать смерть.Жанр: фантастика, фэнтезиПродолжительность: 07:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831CFFA1AF16FB01C7920160CA1B80E0C625EEAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

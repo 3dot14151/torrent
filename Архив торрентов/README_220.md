@@ -6,7 +6,7 @@ TreeSize Professional 8.1.4.1581 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005701.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.0 RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005695.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GOM Player Plus 2.3.67.5331 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005694.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.0 RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005682.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MAGIX Video Pro X13 19.0.1.107 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005678.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005672.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ YTD Video Downloader PRO 5.9.18.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005665.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kryder - Kryteria Radio 300 (Metaverse Special) (2021-07-21) [MP3|320 Kbps] <Pro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005618.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005586.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Hetman Partition Recovery 4.0 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005542.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Metadatics 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005519.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Sync Folders Pro 4.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005518.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Keep It 1.10.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005517.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ URL Manager Pro 5.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005516.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ TinkerTool System 7 v7.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005515.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Bootstrap Studio 5.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005513.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Downie 4 v4.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005512.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Things 3 v3.13.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005511.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Blocs 4.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005510.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Hype 4 Pro v4.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005509.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ DaisyDisk 4.20.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005508.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ TechSmith Snagit 2021.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005504.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ WiFi Explorer Pro 3 v3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005503.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Nevercenter CameraBag 2021.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005502.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ A Better Finder Attributes 7 v7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005501.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ BusyContacts 1.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005500.jpg" />
 </div>
 
 

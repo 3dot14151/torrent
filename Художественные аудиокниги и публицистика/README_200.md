@@ -1,60 +1,3 @@
-###  Публикация: 985736   (934045) от 12.02.2016
-
-Джон Гришэм | Признание (2015) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Потрясающая книга, только первый тираж которой составил 2 500 000 экземпляров!
-Казалось бы, о таком писали не раз.
-Признание, выбитое на допросе…
-Приговор, состряпанный прокурором вместе с судьей…(   Читать дальше...   )Жанр: Юридический триллерИздательство: Нигде не купишьПродолжительность: 14:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BC0EEF412DBB6772818343AE122B5C8C7DD970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985656   (933999) от 12.02.2016
-
-Владимир Малик | Посол Урус-Шайтана (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Остросюжетный приключенческий исторический роман об освободительной борьбе украинского народа против иноземных захватчиков.
-Год 1676 от Рождества Христового. Запорожская Сечь.
-Кошевой атаман Иван Сирко посылает молодого казака Арсена Звенигору с двойной тайной миссией в Болгарию — выкупить из неволи своего брата, Нестора и разведать, правдивы ли слухи о готовящемся (   Читать дальше...   )Жанр: История, приключенияПродолжительность: 09:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA41F6DEB65E5DA235ECA4C38EB14724E58549FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985946   (933938) от 12.02.2016
 
 Генри Лайон Олди | Призраки Ойкумены (2016) [MP3]
@@ -63,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933938.jpg" />
 </div>
 
 
@@ -90,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933910.jpg" />
 </div>
 
 
@@ -116,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933754.jpg" />
 </div>
 
 
@@ -143,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933728.jpg" />
 </div>
 
 
@@ -169,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933680.jpg" />
 </div>
 
 
@@ -196,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933611.jpg" />
 </div>
 
 
@@ -222,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933482.jpg" />
 </div>
 
 
@@ -248,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933479.jpg" />
 </div>
 
 
@@ -274,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933420.jpg" />
 </div>
 
 
@@ -300,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933336.jpg" />
 </div>
 
 
@@ -326,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933096.jpg" />
 </div>
 
 
@@ -352,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933090.jpg" />
 </div>
 
 
@@ -378,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933085.jpg" />
 </div>
 
 
@@ -404,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932635.jpg" />
 </div>
 
 
@@ -431,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932630.jpg" />
 </div>
 
 
@@ -458,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932587.jpg" />
 </div>
 
 
@@ -484,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932580.jpg" />
 </div>
 
 
@@ -510,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932533.jpg" />
 </div>
 
 
@@ -537,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932530.jpg" />
 </div>
 
 
@@ -563,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932425.jpg" />
 </div>
 
 
@@ -589,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932424.jpg" />
 </div>
 
 
@@ -617,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932406.jpg" />
 </div>
 
 
@@ -643,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932217.jpg" />
 </div>
 
 
@@ -669,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932196.jpg" />
 </div>
 
 
@@ -680,6 +623,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29CC69CCF704C1B3104BEF11D779C412E3FB58DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093136   (932090) от 16.01.2017
+
+Марина Кистяева | Моя. Никому не отдам (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир, где правят мужчины, жесток к женщинам. Особенно к красивым и…беззащитным. Императору Ведану хватило одного взгляда на Арию, чтобы сойти с ума от желания. Сгореть в огне страсти. Проникнуться мыслью, что она должна стать его… Таинственная красотка, пришедшая с севера, не спешила отвечать на ухаживания императора. Её поведение, стиль одежды… всё, казалось, говорило (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 09:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A4DC39186489EBFDF33EC08DA60928149C0942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364672   (931958) от 06.03.2020
+
+Линч Скотт | Хитрости Локка Ламоры (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931958.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Свежо, оригинально, крайне занимательно – и великолепно исполнено» (Джордж Мартин)
+Одажды Воровской наставник явился к отцу Цеппи, Безглазому священнику храма Переландро, чтобы сбыть с рук несносного мальчишку Локка Ламору. Ведь Ламора, хоть и прирожденный вор, был воистину несносен, и для его исключительных талантов город-государство Каморр – прорезанное десятками (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC848B0E2E17D8D0D2045372A9B9B99B2B9F1AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

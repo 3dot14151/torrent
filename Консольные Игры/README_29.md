@@ -1,111 +1,3 @@
-###  Публикация: 806476   (590439) от 26.07.2014
-
-Free MC Boot [Английский] (2010) [PS2]
-
->>Консольные Игры
->>Тех. раздел Консолей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Free McBoot это метод запуска приложений напрямую с карты памяти в виде самостоятельного загрузчика. После установки не требуется ни загрузочный диск, ни какие-либо чипы. Вам нужно только выбрать метод установки FMCB на свою карту памяти.
-
-Этот гид подразумевает, что вы уже определились с методом установки, если это не так, то прочитайте еще раз How-to guides и вернитесь когда будете готовы для установки FMCB.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6947ECF5B54DA52A927B6C3A06C9704910ED5F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916452   (590264) от 09.07.2015
-
-The Chronicles of Riddick: Assault on Dark Athena (2009) [PS3] [USA] 2.60 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Данный сборник содержит как оригинальную «The Chronicles of Riddick: Escape From Butcher Bay», так и продолжение этого потрясающего стелс-экшена «Chronicles of Riddick: Assault on Dark Athena»!
-В «Escape From Butcher Bay» вы оказываетесь в тюрьме максимально строго режима «Бухта Мясника» (Butcher Bay), расположенной на удаленной внеземной уголовной колонии. Ни одному (   Читать дальше...   )Тип издания: UnofficialРазработчик: Starbreeze Studios / Tigon StudiosЖанр: Action/Shooter/Stealth/1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9413D43D8E15B9758C4A97C1E2A1B4ECC1D9124C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916260   (589813) от 10.07.2015
-
-Steins;Gate (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En/Jp]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История начинается 28 июля 2010 года в Акихабаре, когда студент Токийского университета Ринтаро Окабэ находит в здании Radio Kaikan, где проходила конференция по вопросам путешествия во времени, тело Курису Макисэ, одной из участниц, в луже крови. В панике он отсылает своему другу электронное письмо о произошедшем. Однако уже через несколько часов он сталкивается (   Читать дальше...   )Тип издания: UnofficialРазработчик: 5PBЖанр: Adventure, Visual Novel, Interactive AdventureЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046567CC6B124EE161F22E9A5C72F455F10B25BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917081   (589442) от 11.07.2015
-
-[PSP] Kuroko no Basuke: Kiseki no Shiai [Repack] [Jp] (2012)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Kuroko no Basuke: Kiseki no Shiai» - игра для PSP, основанная на серии «Kuroko no Basuke» и сфокусированная на развитии баскетбольной команды.
-«Kuroko no Basuke: Kiseki no Shiai» - традиционный симулятор баскетбольной игры. Во время матчей игроки представлены в виде чиби-версий. Создается такое впечатление, что игра имитирует каждый матч до финала отборочных соревнований (   Читать дальше...   )Тип издания: RepackРазработчик: Bandai Namco GamesЖанр: Sport Game, Simulation GamesЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1CBFDF609662F2E9F2E959D80FC16F685DBD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551835   (588884) от 18.05.2022
 
 Car Mechanic Simulator (2019) [PS4] [USA] 5.05 [HEN] [License / 1.07 / DLC] [Ru/Multi]
@@ -114,7 +6,7 @@ Car Mechanic Simulator (2019) [PS4] [USA] 5.05 [HEN] [License / 1.07 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588884.jpg" />
 </div>
 
 
@@ -140,7 +32,7 @@ ARK: Survival Evolved (2017) [PS4] [EUR] 6.72 [HEN] [License / 2.77 / DLC] [Ru/M
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585616.jpg" />
 </div>
 
 
@@ -166,7 +58,7 @@ SAW II: Flesh and Blood (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO] [Unoffi
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584591.jpg" />
 </div>
 
 
@@ -192,7 +84,7 @@ A Plague Tale: Innocence (2019) [PS4] [EUR] 9.0 [HEN] [License / 1.09 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584506.jpg" />
 </div>
 
 
@@ -218,7 +110,7 @@ Majin and the Forsaken Kingdom / Мадзин. Забытое королевст
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583892.jpg" />
 </div>
 
 
@@ -244,7 +136,7 @@ My Friend Pedro (2020) [PS4] [USA] 5.05  [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583692.jpg" />
 </div>
 
 
@@ -270,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583658.jpg" />
 </div>
 
 
@@ -300,7 +192,7 @@ Your Shape: Fitness Evolved 2013 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Licen
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583259.jpg" />
 </div>
 
 
@@ -328,7 +220,7 @@ Just Dance 4 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583242.jpg" />
 </div>
 
 
@@ -354,7 +246,7 @@ Sports Connection (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583182.jpg" />
 </div>
 
 
@@ -380,7 +272,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [PS3] [EUR] 4.53 [HEN] [Repack] [Ru/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582908.jpg" />
 </div>
 
 
@@ -406,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582603.jpg" />
 </div>
 
 
@@ -436,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582591.jpg" />
 </div>
 
 
@@ -462,7 +354,7 @@ Disney Universe / Disney: Мир Героев (2011) [PS3] [EUR] 3.70 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582553.jpg" />
 </div>
 
 
@@ -488,7 +380,7 @@ Spider-Man: Friend or Foe [Wii] [NTSC] [ENG] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581597.jpg" />
 </div>
 
 
@@ -514,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581539.jpg" />
 </div>
 
 
@@ -540,7 +432,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [PS3] [EUR] 4.60 [HEN] [Repack] [Ru/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580999.jpg" />
 </div>
 
 
@@ -566,7 +458,7 @@ Grand Theft Auto V (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.38] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580777.jpg" />
 </div>
 
 
@@ -592,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580492.jpg" />
 </div>
 
 
@@ -618,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578430.jpg" />
 </div>
 
 
@@ -645,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578300.jpg" />
 </div>
 
 
@@ -671,7 +563,7 @@ Vancouver 2010 (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO]  [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577976.jpg" />
 </div>
 
 
@@ -682,6 +574,112 @@ Vancouver 2010 (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO]  [Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49F9C38D66CB6A5CDDD812FBEA3D032FF2040BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042546   (577838) от 13.08.2016
+
+Wangan Midnight (2007) [PS3] [JAP] 1.08 [Cobra ODE / E3 ODE PRO ISO]  [License] [En/Jp]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра, создана по мотивам легендарной серии манги и аниме "Ванганская Полночь", предшественницы Initial D ! Сюжет игры происходит в наше время, в Токио. Парень по имени Акио бредит скоростными ночными гонками по городским хайвеям.
+В игре присутствуют режимы Story Mode, Time Attack, Match и режим Free Run. В режиме Story Mode, игрок следует сюжету манги. (   Читать дальше...   )Тип издания: LicenseРазработчик: GenkiЖанр: RacingЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CD04456C9EC4C901135426ECE1B278FE6C56BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042527   (577829) от 13.08.2016
+
+Toukiden 2 (2016) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial / 1.0.1] [Jp]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в период эпохи Мэйдзи. Мир находится на грани уничтожения во время так называемого "Пробуждения", когда полотно истории начинает разрушаться под натиском злых демонов рек и гор.
+Большие "Они" сначала появились в землях далекого севера и устремились на юг, уничтожая всё на своем пути, в том числе и поселения людей. В город (   Читать дальше...   )Тип издания: UnofficialРазработчик: Omega ForceЖанр: ActionЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539A044069FB5DDC5154A600011349FEEB106399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150511   (577277) от 16.07.2017
+
+Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0451-0600)
+
+>>Консольные Игры
+>>Ромы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник расшифрованных игр для Nintendo 3DS. Может использоваться для эмуляторов или CFW.Тип издания: UnofficialРазработчик: Nintendo и другиеЯзык интерфейса: разные
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3037C3DB59C2A92F00C2E5F7FB37B3FA5CDF4FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361685   (576096) от 10.07.2011
+
+Sid Meier's Pirates! [Wii] [PAL] [Multi 5] (2010)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sid Meier's Pirates! позволит геймерам встать за штурвал судна XVII века (всего в игре будет 27 видов кораблей). На нем они отправятся в путешествие по Карибскому морю в поисках сокровищ. Принимая участие в морских баталиях с помощью Wii Remote, игроки смогут улучшать боевое снаряжение своих кораблей. Помимо боя между кораблями и сражениям на мечах разработчики добавят (   Читать дальше...   )Разработчик: 2K Shanghai / VirtuosЖанр: ПриключенияЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: wbfs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26654E0ED4B21171366EB782003A2E15C4BBFC4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

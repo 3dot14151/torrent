@@ -6,7 +6,7 @@ Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599618.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|3
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599532.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599531.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North Ameri
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599521.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599354.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, F
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599338.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native Ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599217.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598375.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598045.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Levin Minnemann Rudess - From the Law Offices Of (2016) [FLAC|Lossless|tracks + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597487.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acous
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597373.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597056.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596889.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596610.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596358.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Muddy Waters - Folk Singer (2013) 1964 [FLAC 2.0|192/24|tracks|WEB-DL]<Blues, Fo
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595971.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Shine Dion - два альбома (1998, 2002) [MP3|192 Kbps, 320 kbps] <folk r
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595959.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595919.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - 100 Hits The Midnight Special (2004) [MP3|256 кб/с]<Country, Folk , West
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595585.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595584.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595523.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Pu
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594731.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594560.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593937.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593906.jpg" />
 </div>
 
 
@@ -776,7 +776,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593903.jpg" />
 </div>
 
 

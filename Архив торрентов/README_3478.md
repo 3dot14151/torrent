@@ -6,7 +6,7 @@ File Cabinet Pro 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277390.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Ice Fox (aka Baridi Baridi) - The Ice Fox (2015) EP [FLAC|Lossless|Web-DL|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277387.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sound Studio 4.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277384.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Mozilla Firefox 51.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277383.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Ulysses 2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277381.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VA - Grotesque Essentials Autumn 2016 Edition (Mixed by Daniel Skyver & Amir Hus
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277378.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sogou Explorer 7.0.6.22932 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277377.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ DockShelf 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277373.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Dash 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277371.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Auslogics Disk Defrag Pro 9.2.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277343.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Entropy Zero - Discography 7 Releases (2017-2019) [MP3|320 Kbps] <Industrial Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277342.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Memory Clean 3 v1.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277341.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Calibre 4.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277335.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Auslogics Duplicate File Finder 8.2.0.2 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277334.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Auslogics File Recovery 9.2.0.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277331.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Lyn 1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277327.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ DxO PhotoLab Elite 3.0.1 build 4247 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277326.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277322.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Best Of Discoteque Euro (2010) [MP3|192 kbps]<Dance/Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277321.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ AI RoboForm Pro Enterprise v 7.1.1.0 Final [ML/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277318.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277316.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277315.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ SSClock.XP 1.1.0.9x.ru [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277314.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Client for Google Translate 5.0.517 [Eng] Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277312.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Dash 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277294.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ A Better Finder Attributes 6 v6.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277293.jpg" />
 </div>
 
 

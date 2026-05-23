@@ -6,7 +6,7 @@ One Piece Movie 2 - Nejimaki Tou no Daibouken / Ван-Пис: Фильм вто
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229547.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Fuyu ni Saku, Kiseki no Sakura / One Piece Movie 9 - Episode of Chopper Plus / �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229542.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ One Piece Movie 5 - Norowareta Seiken / One Piece - The Curse of the Sacred Swor
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229535.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ One Piece Movie 6 - Omatsuri Danshaku to Himitsu no Shima / One Piece: Baron Oma
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229529.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Love Live! Superstar!! 2 / Живая любовь! Суперзвёзды!! 2 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229525.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ One Piece Movie 1 / Ван-Пис: Фильм первый [2000] raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229485.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ xxxHOLIC Kei | Триплексоголик (второй сезон) [2008 , TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228913.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Healer Girl | Девушка-целитель [2022, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228893.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou / Touhou: A Summer Day's Dream / 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228430.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ One Piece TV Special 3:Mamore! Saigo no Daibutai / One Piece: Protect! The Last 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228099.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ One Piece TV Special: Umi no Heso Daiboken hen / One Piece Special: Adventure in
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228067.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ One Piece Jidaigeki Special: Luffy Oyabun Torimonocho / One Piece: The Detective
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228056.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ One Piece: Taose! Kaizoku Ganzack / One Piece: Defeat the Pirate Ganzack! / Ва
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228033.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ One Piece TV Special 2:Oounabara ni hirake! Dekkai Dekkai Chichi no Yume / One P
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228008.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Muteking the Dancing Hero | Герой-танцор Мутэкинг [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227935.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ One Piece: Strong World / Ван Пис: Фильм десятый [2009] BDrip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227900.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ One Piece: Romance Dawn Story / Ван Пис: Рассвет романтиче
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227870.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Deji Meets Girl | Девушка встречает дэдзи [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227653.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Lupin Sansei vs. Meitantei Conan The Movie | Lupin III vs. Detective Conan The M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227286.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [2022, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226525.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Slap Up Party: Arad Senki | Крутая компания: Арадские пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225374.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Nanatsu no Taizai Movie 2 Hikari ni Norowareshi Mono-tachi | The Seven Deadly Si
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225262.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Shakugan no Shana II / Жгучий взор Шаны [ТВ-2] [2007, TV, 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224781.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Shakugan no Shana III Final / Жгучий взор Шаны III Финал [TV3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224639.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Shakugan no Shana Special: Love and Outdoor Hot Spring Tutorial! / Жгучий 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224590.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224390.jpg" />
 </div>
 
 

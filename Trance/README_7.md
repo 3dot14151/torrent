@@ -6,7 +6,7 @@ VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [MP3|320 Kbps] <Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944857.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Global DJ Broadcast Top 20 January 2016 (With Markus Schulz) (2016) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943745.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kai Tracid - In Da Club: Back to School (2010)[MP3|320 kbps]<Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943516.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Suanda Winter Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943234.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Trance Euphoria Vol.7 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Elec
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940843.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Global DJ Broadcast: Top 20 January (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937421.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Suanda Music Radio Top 10 January 2016 (Mixed by Roman Messer) (2016) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935557.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Total Trance Selections Vol.01 (2016) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932492.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Total Trance Selections  Vol.02 (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932431.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Trance Inside, Vol. 4 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932240.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Jonas Stenberg - Overworld (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926944.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922879.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922878.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Aria Selections Class Of 2016 (Mixed by David Forbes) (2017) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922764.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Markus Schulz - City Series Collection (2016) [MP3|320 кб/с] <Progressive Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922718.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Redux Presents : The Progressive Selection Vol. 1 (2016) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921090.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifti
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919395.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917144.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915509.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ferry Corsten - Hello World (2016) [MP3|320 кб/с] <Progressive Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908019.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Black Hole Trance Music 03-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907418.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Trance Flight Vol. 5 (2016) [MP3|320 кб/с] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906432.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Dj Бинокль - Rafinad (2007) [MP3|320 Kbps] <Trance, Techno, Electro>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905698.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905627.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Robbie van Doe - 16 Singles, 11 Remixes, 1 Tracks (2007 - 2016) [MP3|320 кб/с
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902434.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ VA - Best of Uplifting Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901596.jpg" />
 </div>
 
 

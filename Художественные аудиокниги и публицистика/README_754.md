@@ -1,85 +1,3 @@
-###  Публикация: 1620629   (201057) от 21.03.2023
-
-Максим Зарецкий | Небесный шаг (Книга 10) (2023) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Пустота. Одушевлённый воид, нарушение всех мыслимых законов реальности, неба и земли. Его рождение ознаменовало начало конца. Тень нависла над атоллом человеческого влияния и всей известной людям вселенной.Жанр: фантастика, фэнтезиПродолжительность: 10:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB82F311D889653FA7A175BC702B8B09BEF326A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620628   (201045) от 21.03.2023
-
-Серг Усов | Превозмоганец-прогрессор (Книга 7) (2023) [MP3, Евгений Лебедев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Оказавшись в средневековом магическом мире, не получив при этом полагающихся любому нормальному попаданцу плюшек и роялей, наш современник не растерялся и смог устроить свою жизнь, найти друзей и любимую женщину.
-Игорь стал владетелем графства, другом и советником правительницы Гирфеля, получил необычные для этого мира магические способности. Одержав победу над врагами, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 08:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5486E5D305912D5ADD59350B3405D9FF2A47F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620886   (201008) от 22.03.2023
-
-Борис Романовский | Дельта (Книга 3). Создающий будущее (2023) [MP3, Вадим Пугачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-«Создающий будущее» – фантастический роман Бориса Романовского, третья книга цикла «Дельта», жанр попаданцы, бояръ-аниме, РеалРПГ.
-
-Я – Владислав Ли-Вавилонский, потомок двух родов из разных стран – Азиатского Содружества и Руси. И я вернулся на двадцать два года в прошлое, чтобы изменить будущее.
-Изначальный Мир – место, в котором каждый человек может начать эволюцию (   Читать дальше...   )Жанр: Попаданцы, РеалРПГ, Бояръ-анимеПродолжительность: 08:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29434A8DF40B9C6440F722A7BB3BFA244F51F6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620811   (201007) от 22.03.2023
 
 Дмитрий Казаков | Оружейник (Книга 4). Карьера мятежника (2023) [MP3, Олег Троицкий]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201007.jpg" />
 </div>
 
 
@@ -116,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200998.jpg" />
 </div>
 
 
@@ -142,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200986.jpg" />
 </div>
 
 
@@ -169,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200979.jpg" />
 </div>
 
 
@@ -197,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200968.jpg" />
 </div>
 
 
@@ -226,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200960.jpg" />
 </div>
 
 
@@ -253,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200950.jpg" />
 </div>
 
 
@@ -281,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200946.jpg" />
 </div>
 
 
@@ -307,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200926.jpg" />
 </div>
 
 
@@ -333,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200918.jpg" />
 </div>
 
 
@@ -359,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200911.jpg" />
 </div>
 
 
@@ -385,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200908.jpg" />
 </div>
 
 
@@ -411,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200906.jpg" />
 </div>
 
 
@@ -438,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200902.jpg" />
 </div>
 
 
@@ -465,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200899.jpg" />
 </div>
 
 
@@ -491,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200829.jpg" />
 </div>
 
 
@@ -517,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200826.jpg" />
 </div>
 
 
@@ -545,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200794.jpg" />
 </div>
 
 
@@ -571,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200716.jpg" />
 </div>
 
 
@@ -597,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200712.jpg" />
 </div>
 
 
@@ -625,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200652.jpg" />
 </div>
 
 
@@ -652,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200643.jpg" />
 </div>
 
 
@@ -679,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200638.jpg" />
 </div>
 
 
@@ -690,6 +608,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD19F484ECBFF2605F78A01DA9891B8FA0D2238A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622842   (200635) от 30.03.2023
+
+Григорий Володин | Возрождение Феникса (Книга 3) (2023) [MP3, Никита Петров (Петроник)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200635.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Возрождение Феникса» – фантастический роман Григория Володина, третья книга одноименного цикла, жанр попаданцы, бояръ-аниме, альтернативная история.
+– Что мы завтра скажем перед алтарем?! – вскинув руку, спрашивает княжна Лиза у своей армии.
+– Да, лишь бы за Сеню! – отвечают ей тысячи глоток.
+Позже эти сборы войдут в историю как Самый Большой Девичник в Российской (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыПродолжительность: 09:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFAB6D29FB077CB17CB16E51343A12A74CD85F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829157   (200571) от 25.10.2025
+
+Екатерина Лесина | Саломея Кейн и Илья Далматов (Книга 2). Алмазы Джека Потрошителя (2024) [MP3, Анастасия Толк]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он убивает – убивает бессмысленно и беспощадно, наслаждаясь агонией и мучениями своих жертв. Во сне к Джеку Потрошителю приходит сама Смерть. Она плачет кровавыми слезами, которые превращаются в изысканные драгоценные камни. Но Старуха с косой не в силах смириться с потерей такого сокровища и до сих пор преследует всех владельцев проклятых алмазов, забирая их с собой… (   Читать дальше...   )Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 11:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9146F73A835C252CC2076FC9F9ED4BCB50F27307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829171   (200568) от 25.10.2025
+
+Екатерина Лесина | Саломея Кейн и Илья Далматов (Книга 3). Серп языческой богини (2023) [MP3, Нина Медникова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много сотен лет пролежала в глубокой пещере под землей прекрасная девушка. Кроме великолепных украшений из золота и серебра и драгоценнейших монет в этом захоронении, месте погребения незнакомки эпохи неолита, археологов ожидала не менее значимая находка. Белый, гладкий, изысканный и очень острый серп с красивейшим орнаментом на рукоятке. Но вывезти исторические (   Читать дальше...   )Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 12:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52FA2ED8FAD5144FB5757657968B5F115E42FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

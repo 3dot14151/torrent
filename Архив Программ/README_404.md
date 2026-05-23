@@ -6,7 +6,7 @@ FurMark 1.28.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837871.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NetBalancer 10.3.4.2834 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837868.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Rainlendar Lite 2.17.1 Build 170 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837867.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Rainmeter 4.5.4 Build 3550 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837866.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Google Chrome Enterprise 94.0.4606.81 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837865.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ WinTools.net Premium 21.9.0 RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837863.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Adobe Animate CC 2017.1 16.1.0.86 RePack by KpoJIuK (09.03.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837846.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Icecream Ebook Reader Pro 2.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837833.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Display Driver Uninstaller 15.7.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837831.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VSDC Free Video Editor 3.3.5.411 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837825.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WindowsPlayer 3.2.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837823.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Skype 7.22.32.108 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837815.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Sisulizer 2010 build 311 Enterprise Edition [многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837807.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ SaveGameBackup Version:1.0.3.0 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837795.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ WinNTSetup 5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837770.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Windows 10 Manager 3.5.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837765.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ KMSAuto Lite 1.5.9 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837760.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Stardock Groupy 1.50 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837756.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ UC Browser 5.6.11651.1011 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837749.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Icecream Ebook Reader 3.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837746.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ xrecode II 1.0.0.231 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837736.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ DVDFab 8.0.8.3 Final [Multi/Rus] + Portable "PortableAppz"
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837698.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Universal Media Creation Tool 05.10.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837649.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Office 2013-2021 C2R Install + Lite 7.3.4 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837645.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Auslogics BoostSpeed 12.2.0.0 (DC 04.10.2021) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837638.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ W10 Digital Activation 1.4.2 by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837636.jpg" />
 </div>
 
 

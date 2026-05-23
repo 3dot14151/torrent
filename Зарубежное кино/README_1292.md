@@ -1,55 +1,3 @@
-###  Публикация: 1253188   (383316) от 09.10.2018
-
-Дневник пастыря / First Reformed (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Толлер, страдающий от потери сына в Ираке и последовавшего развода, ищет утешения под сводами церкви и в алкоголе. Молодая прихожанка Мэри обращается к нему с просьбой поговорить с её мужем, экологом-активистом. А когда тот кончает жизнь самоубийством, Толлер никак не может выкинуть из головы беседу с ним и начинает читать в интернете про загрязнение (   Читать дальше...   )Производство: США / Killer Films, Fibonacci Films, Arclight FilmsЖанр: Триллер, ДрамаРежиссер: Пол ШредерАктеры: Аманда Сайфред, Итэн Хоук, Седрик «Развлекатель», Виктория Хилл, Майкл Гэстон, Филип Эттинджер, Ван Хэнсис, Кристина Алабадо, Билл Хоаг, Иланна УайтПеревод: ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C83D161F5565863E7A2E5F4DC06A5B0CCC4C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253332   (383315) от 09.10.2018
-
-Недруги / Hostiles (2017) BDRemux [H.264/1080p] [NOR Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда на твоих глазах льется кровь, когда ты вынужден убивать, ты превращаешься в зверя… После долгих лет войны он дышал злобой, проклинал краснокожих, в каждом из них он видел врага. На исходе войны капитан Блокер получает приказ доставить на родину в Монтану умирающего вождя по кличке Желтый Ястреб. В цепях и кандалах он ведет семью индейцев через земли, где обитают (   Читать дальше...   )Производство: США, Grisbi Productions, Le, Waypoint EntertainmentЖанр: Драма, Приключения, ВестернРежиссер: Скотт КуперАктеры: Кристиан Бэйл, Розамунд Пайк, Уэс Стьюди, Рори Кокрейн, Джесси Племонс, Джонатан Мэйджерс, Бен Фостер, Адам Бич, К`Орианка Килчер, Тимоти Шаламе, Скотт Шеперд, Ава Купер, Стелла Купер, Дэвид Мидфандер, Стэффорд Дуглас, Стивен Лэнг, Билл КэмпПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full), английские (full)Продолжительность: 02:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7639B6108D518B2186EF30A91AF5F7C55969CBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572784   (383209) от 09.11.2012
 
 Моя часть пирога/ Ma part du gâteau (2011) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383209.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383175.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383173.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383157.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383153.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383149.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383111.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383083.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383036.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383035.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383031.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383029.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383018.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ CTRL Z / CTRL Z (2017) UHD WEB-DLRip [VP9/2160p-LQ] [4K] [MVO]
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382980.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382974.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382966.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382964.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382954.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ CTRL Z / CTRL Z (2017) WEB-DLRip [VP9/1440p-LQ] [2K] [MVO]
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382949.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382885.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382879.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382877.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382873.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382863.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E589E960386A955775519B46B5F66F56ED276D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414471   (382859) от 09.10.2020
+
+Королева сердец / Dronningen (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна – успешный юрист, идеальная жена, заботливая мать. Однажды в дом приезжает Густав - сын мужа от первого брака. Между Анной и Густавом вспыхивает запретная страсть. Искушение становится наваждением. Ничто уже не будет прежним.Производство: Дания, Швеция / Nordisk Film Production, Det Danske Filminstitut, Svenska FilminstitutetЖанр: Триллер, мелодрамаРежиссер: Май эль-ТукиАктеры: Трине Дюрхольм, Густав Линд, Магнус Креппер, Лив Эсмор Даннеманн, Силья Эсмор Даннеманн, Стине Гюльденкерне, Пребен Кристенсен, Фредерикке Даль Хансен, Элла Солгор, Карла Филип РодерПеревод: Многоголосый профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42F63964BB45B948E71AD72F0816DF28BED8A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326708   (382805) от 21.09.2019
+
+Тьма / The Dark (2018) BDRemux [MPEG-2/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разыскиваемый по всей стране преступник пытается скрыться в одиноко стоящем доме в лесу, но вместо тишины и покоя его настигает топор прямо в лоб и девушка-нежить. Её зовут Мина, и, перекусив убитым, в его машине она обнаруживает затюканного слепого парня, которого решает не убивать.Производство: Австрия, Dor Film Produktionsgesellschaft, First Love FilmsЖанр: Драма, ужасыРежиссер: Джастин П. ЛанжАктеры: Надя Александр, Тоби Николс, Карл Маркович, Сара Мерфи-Дайсон, Дэн Бирн, Маргарете Тизель, Дилан Троубридж, Скотт Боуден, Крис Фаркуар, Джон БлэквудПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E4651C1B72DC66BFAE42876B272C8F5B9C369F
 ```
 
 https://mybot314.ru/tekegram_catalog/

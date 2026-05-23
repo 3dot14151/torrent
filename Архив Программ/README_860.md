@@ -6,7 +6,7 @@ Adobe Photoshop Lightroom 6.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610174.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The KMPlayer 4.2.2.24 repack by cuta (build 3) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610128.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FlipBuilder Flip PDF 4.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610096.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TweakBit Driver Updater 1.7.1.4 DC 19.07.16 RePack (& Portable) by TryRooM [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610094.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Visual Studio 2019 Community 16.0.1 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610053.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PDF-XChange Editor Plus 8.0.330.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610052.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Opera 60.0.3255.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610047.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PDF-XChange PRO 7.0.328.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610041.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ K-Lite Codec Pack Update 12.2.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610036.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ DriverEasy Professional 5.0.9.40298 RePack (& Portable) by TryRooM [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610027.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Foxit PhantomPDF Business 9.5.0.20723 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609919.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Skype 7.26.0.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609902.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NirLauncher Package 1.19.95 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609900.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ashampoo Burning Studio 16.0.7.16 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609898.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Microsoft .NET Framework 4.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609784.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Altium Designer 16.1.11 Build 255 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609768.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WYSIWYG Web Builder 11.1.0 + Extensions [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609764.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Google Nik Software Complete Collection 1.2.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609572.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Auslogics Duplicate File Finder 3.5.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609570.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Java SE Development Kit 17.0.3 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609505.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ StressMyPC 4.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609488.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609483.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ ooVoo 3.5.1.71 Final [Multi/Rus] Portable by Baltagy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_609460.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Run-Command 5.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609366.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ IsMyLcdOK 4.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609365.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Windows and Office Genuine ISO Verifier 11.10.27.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609364.jpg" />
 </div>
 
 

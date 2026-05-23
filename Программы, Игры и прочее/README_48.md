@@ -1,55 +1,3 @@
-###  Публикация: 1007660   (819442) от 16.04.2016
-
-Garmin: TOPO Portugal Light v3 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Топографическая карта Португалии для навигаторов Гармин, составленная с использованием базы данных OpenStreetMap (OSM)Тип издания: карты не блокированыРелиз состоялся: июнь 2015Разработчик: Garmin / OSMПоддерживаемая ОС: GarminЯзык интерфейса: английскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450A062A6199472082C01ED10DDE19CBE0804486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007620   (819156) от 16.04.2016
-
-Garmin: TOPO Belarus v3 Light [Ru]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Топографическая карта Беларуси, составленная с использованием базы данных OpenStreetMap (OSM)Тип издания: карты не блокированыРелиз состоялся: август 2015Разработчик: Garmin / OSMПоддерживаемая ОС: GarminЯзык интерфейса: русскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632AC7C79417643E3CFF726C6F3E4F748BDCF5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007696   (819006) от 16.04.2016
 
 Garmin: TopoActive East+West Europe v3.00 [En]
@@ -58,7 +6,7 @@ Garmin: TopoActive East+West Europe v3.00 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819006.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ Garmin: City Navigator Middle East & N Africa NT 2018.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818764.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ Perfect Angle v1.6 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818720.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816884.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815723.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815389.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815293.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815289.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814940.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ Pool Break Pro 3D Billiards v2.7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814620.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ Comix Zone 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814554.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ Shortcut Maker Pro v3.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813988.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811530.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ Yandex.Maps / Мобильные Яндекс.Карты v3.20 (2013) <Ru>
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810994.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ Garmin: TOPO UK & Ireland v4 Light [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809661.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ Garmin: City Navigator Thailand NT 2016.20 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809550.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ Worms 3 v.2.04 + mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808565.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ Garmin: City Navigator Eastern Africa NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807710.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807430.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ Battletoads. Battletoads And Double Dragon. Антология (SEGA Genesis Gam
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806676.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ Golden Axe. Golden Axe 2. Golden Axe 3. Антология (SEGA Genesis Game) [
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804754.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ Pilzlexikon 2 PRO 1.0.17 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804173.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802867.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802363.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A23797ED7DD78F84D900F8C91636B9CE4EDD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505828   (802288) от 28.10.2021
+
+Судоку v3.24.0 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная игра-головоломка Судоку - это популярная игра-головоломка для мозгового судоку в Google Play. Вы можете скачать приложение Судоку для телефона и планшета Android. Вы ежедневно получаете более 5000 сложных головоломок Судоку, чтобы тренировать свой мозг, и мы добавляем 100 новых головоломок судоку каждую неделю. Мозг Судоку для начинающих и продвинутых (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 25.10.2021Разработчик: Beetles Games StudioПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46D9DB03FF8E5F0F9E6940A2B293312B97EB9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010301   (802132) от 25.04.2016
+
+Garmin: City Navigator Southern Africa NT 2017.10 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Передвигайтесь по улицам Южной Африки с уверенностью. Этот продукт содержит подробные карты дорог и достопримечательностей для вашего совместимого устройства, так что вы можете перемещаться с точными подсказками, от поворота к повороту на любой адрес или перекресток. Маршрут в рестораны, автозаправочные станции, жилье, достопримечательности и многое другое.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: апрель 2016Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB64FAD5A6BDD2962EBDCEC1745B4EBAE5BCBAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

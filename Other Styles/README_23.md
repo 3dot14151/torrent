@@ -6,7 +6,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922135.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Orig
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922133.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922127.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Klayton - The Dunes (Original Motion Picture Score) (2020) (2020) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922107.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Isaloc grammh (2008) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920939.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Electronic Medicine - Binaural Meditation, Relaxing Deep Yoga Flow and Heal
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920899.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920882.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920863.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Любимые песни индийского кино (1,2,3) (2004) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920564.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Back To The Future / Назад в будущее (1985) [FLAC|Lossless|tra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919267.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kimberly Haynes - Awaken Me (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919204.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Celtic Woman - Celebration (2020) [FLAC|Lossless|WEB-DL|tracks] <Celtic, New age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918981.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918934.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Гитарный карнавал. Музыка вокруг света (20
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918918.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Santiano - 3 альбома (2012 - 2015) [MP3|320 кб/с] <Pop, Rock, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918527.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918210.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917522.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917510.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Myrkur - Folkesange (2020) [MP3|320 Kbps] <Dark Folk, Female Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917235.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Jonn Serrie - Sunday Morning (2005) [FLAC|Lossless|image + .cue] <New Age, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916968.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Space – Just Blue (1978) [FLAC|Lossless|tracks] <Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916820.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ David Sun Productions - Звуки океана для ароматерапии 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916745.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Conjure One - 12 albums (2002-2011) [FLAC|Lossless] <Chillout, Ambient, New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916690.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Damien Dubois - Evasion (2015) [MP3|320 кб/с] <New Age, Relaxation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915802.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915701.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915692.jpg" />
 </div>
 
 

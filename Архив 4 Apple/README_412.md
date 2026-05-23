@@ -6,7 +6,7 @@ iExplorer 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374432.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ ProFind 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374405.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Invisor - Media File Inspector 3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374403.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Topaz Gigapixel AI 4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374381.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Sublime Text 3 (3152) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374342.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Separation Studio 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374324.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ iMazing 2.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374238.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VueScan Pro 9.5.90 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374227.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Alfred Powerpack 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374225.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ iStat Menus 6 v6.50 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374169.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374163.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Sublime Text 3.2.1 (Build 3210 Dev) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374001.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Adobe Illustrator CC 2019 v23.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373987.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ SnapNDrag Pro 4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373982.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ PDF Expert 2.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373910.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Contacts Journal CRM 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373868.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ iMazing 2.12.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373784.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373765.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Be Focused Pro (aka Pomodoro Time Pro) 1.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373764.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Waltr 2 v2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373675.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Magic Retouch Pro 4.2 - panel for Adobe Photoshop [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373581.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Moom 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373559.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ iStat Menus 6 v6.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373521.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Data Guardian 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373327.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Killswitch Engage - Studio Albums (2000 - 2009) [ALAC|Lossless]<Metalcore>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372942.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Audiobook Builder 1.5.4fc3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372728.jpg" />
 </div>
 
 

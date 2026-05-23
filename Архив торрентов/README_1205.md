@@ -6,7 +6,7 @@ Soft Organizer 7.00 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779355.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Uninstall 6.22.0.500 (x64) Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779347.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Raja Ram - Most Wanted Presents Raja Ram - The Godfather (2005) Phonokol [FLAC|L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779345.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MyDraw 2.0.3 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779344.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Alcohol 120% 2.0.3 Build 10221 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779330.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_779329.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Alcohol 120% 2.0.3.10221 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779317.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Phone Analyzer Pro v1.91.02 [Ru/Multi] - менеджер приложений �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779316.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ActRaiser & Tremah - Tipping Point (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779294.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ KeyKey 2.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779293.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Phil Tangent - Drawing You (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779292.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ AwakeFM - Interceptor (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779290.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Aperio - Nostalgia / Seasons Changing (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779284.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779283.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ HumaNature, Skeletone, Silence Groove - There's Delight (2016) EP [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779282.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Vivaldi 1.14.1077.55 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779280.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Polychrome Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779279.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Alaska - Venera (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779274.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Spirit - Seventh Heaven / Delirium (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779270.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Seba - Node 46 (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779266.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Maxthon Browser 5.2.0.900 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779258.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Pola & Bryson - Unsaid (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Intelligent, Dru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779253.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BluffTitler Ultimate 13.7.0.2 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779252.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ K-Lite Codec Pack Update 14.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779243.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Opera 51.0.2830.40 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779242.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ PhotoBulk: watermark in batch 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779239.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Madeleine Scott-Spencer | Introduction to Zbrush 2020 (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042127.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | The Hard Surface Handbook for Blender (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jonathan Rush | Photogrammetry for Games (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041951.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Udemy, Rocket Kids Tech education | 3D моделирование в Autodesk Ma
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041830.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Stephen Wells | Polypainting in ZBrush Volume 1-3 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041669.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tim Bergholz | MACE Tutorial – COMPLETE EDITION (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041625.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Brain Recktenwald | Environment Art Lookdev Using Unreal & Photogrammetry (2017)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041611.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Michael Pavlovich | Photogrammetry Basics (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041608.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ben Tate | An Introduction To UVMapping In 3d Studio Max Using The Unwrap UVW Mo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041459.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Joel Bradley | 3ds Max 2018: Mastering UVW Mapping (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041402.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041349.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Sean Fowler | Zbrush 4R8: Hard Surface Sculpting for all Levels (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041340.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eric keller | Introduction to the UV Toolkit in Autodesk Maya 2018 (2018) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041275.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ CGMA, Vidya Vinnakota др. | Intro to Production Modeling (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041267.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ John Lynch | Houdini 17 Masterclass: Advanced Vellum Workflows (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040821.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Joe Mandia | Animating with Maya for Games and More (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040542.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Victory 3D, Corazon Bryant | Полное руководство по созда
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040423.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Ari Danesh | Houdini Projects: Terrain Generation (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040323.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Delano Athias | Getting Started with MEL in Maya (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040083.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Nicolas Garilhe | Armor Creation in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040024.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ CG Cookie, Chunck Trafagander | Давайте создадим снеговик
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039782.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ CG Fast Track | Основы Blender 2.82 части 1-3 / Blender Fundamentals 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039753.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039709.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Michael Rigley | Design for Production: Animation (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039512.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Jonathan Lampel | Creating Plants in Blender (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039504.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Jonathan Hamilton | Painting with Ambient occlusion (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039492.jpg" />
 </div>
 
 

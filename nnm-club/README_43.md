@@ -1,61 +1,3 @@
-###  Публикация: 1870427   (1069073) от 
-
-Август Туманов | Джокер Чернобога (Книга 5) (2026) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В моём резюме было одно слово: «решала».
-Я решал проблемы. Окончательно.
-Пока одна из них не решила меня — предали, убили, закрыли вопрос.
-Открываю глаза — новый работодатель. Древнее божество. Контракт простой: моя жизнь в обмен на мою радость. Я посмеялся — какая ещё радость? Сделка идеальная.(   Читать дальше...   )Жанр: фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3FB1C7DAD8FB05382686F328A2440BB2BBC488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870425   (1069072) от 
-
-Август Туманов | Джокер Чернобога (Книга 4) (2026) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В моём резюме было одно слово: «решала».
-Я решал проблемы. Окончательно.
-Пока одна из них не решила меня — предали, убили, закрыли вопрос.
-Открываю глаза — новый работодатель. Древнее божество. Контракт простой: моя жизнь в обмен на мою радость. Я посмеялся — какая ещё радость? Сделка идеальная.(   Читать дальше...   )Жанр: фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A03666A65DEE4E21B1A0C590018293999BC0E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870523   (1069071) от 
 
 Как получить доступ ко всему: Реверс-инжиниринг (2026) WEBRip [H.264/2160p] [4K, SDR]
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069071.jpg" />
 </div>
 
 
@@ -90,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069070.jpg" />
 </div>
 
 
@@ -117,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069069.jpg" />
 </div>
 
 
@@ -143,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069068.jpg" />
 </div>
 
 
@@ -169,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069067.jpg" />
 </div>
 
 
@@ -195,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069066.jpg" />
 </div>
 
 
@@ -221,7 +163,7 @@ Exodus - Goliath (2026) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069065.jpg" />
 </div>
 
 
@@ -250,7 +192,7 @@ PDF Suite Pro 20.0.55.21555 + Modules [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069064.jpg" />
 </div>
 
 
@@ -268,32 +210,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870535   (1069063) от 
-
-Зоуносе | Энциклопедия по рисованию «Света и тени» в цифровой иллюстрации (2024) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В формате энциклопедии в этой книге рассказано обо всем: от основ света и тени в иллюстрациях до современных приемов освещения с использованием CLIP STUDIO PAINT PRO/EX. Вы получите полный набор техник для создания убедительных изображений с четким выражением теней. Хотя эти приемы и требуют большего мастерства, чем базовые навыки рисования линейных эскизов, в современных (   Читать дальше...   )Жанр: Компьютерная литература. Графический дизайн. Пособие.Издательство: Токио: SB CreativeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FDDA8DCBC442CB8DB7F4BB65F0AB0FD65008E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870542   (1069062) от 
 
 Проекты - VideoHive - Thriller Final Credits - 63033350 [AEP]
@@ -302,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры и текст (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069062.jpg" />
 </div>
 
 
@@ -328,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пресеты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069061.jpg" />
 </div>
 
 
@@ -356,7 +272,7 @@ Heaven & Hell - Breaking Out Of Heaven 2007-2009 (2026) Box Set, 4XCD, Reissue, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069060.jpg" />
 </div>
 
 
@@ -385,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069059.jpg" />
 </div>
 
 
@@ -411,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069058.jpg" />
 </div>
 
 
@@ -437,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069057.jpg" />
 </div>
 
 
@@ -463,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069056.jpg" />
 </div>
 
 
@@ -490,7 +406,7 @@ Disbelief - Studio Albums (12 releases) (1997-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069055.jpg" />
 </div>
 
 
@@ -519,7 +435,7 @@ VA - The Vintage Years Of Musical Comedy (year unknown) [FLAC 2.0|96/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069054.jpg" />
 </div>
 
 
@@ -548,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069053.jpg" />
 </div>
 
 
@@ -574,7 +490,7 @@ NTFS Permissions Reporter Enterprise 5.3.687 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069051.jpg" />
 </div>
 
 
@@ -602,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069050.jpg" />
 </div>
 
 
@@ -631,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069049.jpg" />
 </div>
 
 
@@ -657,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069048.jpg" />
 </div>
 
 
@@ -683,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069047.jpg" />
 </div>
 
 
@@ -694,6 +610,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9E64B1C7274CB7138D00F19D6351A2E92F34297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870573   (1069046) от 
+
+Revo Uninstaller Free 2.7.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A434B9EF6BA00A103E934B15F3B3204879EC08FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870572   (1069045) от 
+
+Проекты - VideoHive - War Opener - 63020103 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069045.jpg" />
+</div>
+
+
+###  Подробнее
+
+War Opener — это высококачественный проект After Effect. Хорошо организованный и легко настраиваемый шаблон. Проект включает видеоурок, поэтому даже если вы работаете с программой впервые, вы легко справитесь с задачей. Просто перетащите изображение или видео, отредактируйте текст, добавьте аудио и наслаждайтесь результатом!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528D5ACF61E657AB756981E7976DDA471880D295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870574   (1069044) от 
+
+Долина тени / Valley of the Shadow (2026) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда серийный убийца, выдающий себя за преподобного, уничтожает две семьи в Колорадо, выжившие члены обеих семей объединяют усилия, чтобы выследить преступника и совершить над ним собственный суд по законам Дикого Запада.Производство: СШАЖанр: боевик, вестернРежиссер: Том УайтусАктеры: Натан Тодаро, Джеймс Эдвард Холли, Логан Вэнс, Адам Джонс, Мелисса О. Боуэн, Кэт Скугор, Гибсон Крамли, Роберт Элсвик, Тадд МакКлунгПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:40Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5E8B7AB4D9709A5330063B206157A07EAD1879
 ```
 
 https://mybot314.ru/tekegram_catalog/

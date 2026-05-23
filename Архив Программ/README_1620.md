@@ -6,7 +6,7 @@ Balabolka 2.15.0.758 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227651.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ iZotope - Neutron 4 4.1.0 VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227637.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ StaxRip 2.24.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227627.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Run-Command 2.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227624.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ CrystalDiskInfo 6.6.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227613.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Image Uploader 1.3.2 Build 4664 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227585.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ HDCleaner 1.311 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227569.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Remote Desktop Manager Enterprise 14.0.9.0 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227566.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ IObit Smart Defrag Pro 8.2.0.197 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227554.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ YT Downloader 9.2.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227550.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Process Lasso Pro 6.0.1.96 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227522.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VueScan Pro 9.7.94 (DC 16.10.2022) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227507.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Q-Dir 11.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227505.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Q-Dir 7.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227495.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ ProcessKO 3.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227494.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Perfectly Clear WorkBench 4.6.0.2581 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227477.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Ant Download Manager Pro 2.8.2 Build 82965 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227475.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Macrorit Data Wiper 6.9.5 Pro / Unlimited / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227472.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Uninstall Tool 3.7.3 Build 5716 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227459.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ iZotope - Ozone 10 Advanced 10.1.1 VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227449.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Balabolka 2.15.0.828 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227442.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ TweakPower 1.163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227441.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ RogueKiller Anti-Malware 14.8.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227434.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Viber 14.2.0.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227426.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Process Hacker 2.36 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227423.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mozilla Firefox Quantum 64.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227398.jpg" />
 </div>
 
 

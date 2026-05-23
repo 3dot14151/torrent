@@ -6,7 +6,7 @@ RegCool 2.010 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sigil 2.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49194.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Balabolka 2.15.0.875 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49192.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Benvista PhotoZoom Pro 9.0.0 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49189.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Audacity 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49188.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NoMachine 8.12.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49186.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Blender 3.6.14 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49185.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ DLNow Video Downloader 1.54.2024.07.19 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49179.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ TweakPower 2.057 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49176.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ HDCleaner 2.077 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49174.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Illustrator 2024 28.6.0.709 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49166.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Adobe Illustrator 2024 28.6.0.709 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49146.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Veeam Backup & Replication 12.1.2.172 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49116.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ R-Studio Network 9.4 Build 191346 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49106.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Freemake Video Converter 4.1.13.180 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49100.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ IObit Driver Booster Pro 11.6.0.128 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49099.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ OBS Studio 30.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49092.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ R-Studio Network / Technician 9.4 Build 191346 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49091.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Winxvideo AI 3.1 (x64) RePack (& Portable) by elchupacabra (DC 18.07.2024) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49090.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49089.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Audacity 3.6.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49084.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Internet Download Manager 6.42 Build 16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49081.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ SupRemo 4.11.2.2629 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49079.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VideoProc Converter AI 7.1 (x64) RePack (& Portable) by elchupacabra (DC 18.07.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49073.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ ES File Explorer File Manager v4.4.2.12 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49072.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ HWiNFO 8.06 Build 5500 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49068.jpg" />
 </div>
 
 

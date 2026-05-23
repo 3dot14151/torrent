@@ -1,29 +1,3 @@
-###  Публикация: 266655   (305799) от 05.12.2010
-
-Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дилогия]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Осень 2008 года. Агент ФБР Виктория Макферсон отправляется в штат Мэн для расследования убийства Одри Данниген. Фотографии с места преступления не оставляют сомнений - маньяк, известный как «Палач Восточного побережья», вновь начал собирать кровавую жатву. Убийца не поленился тщательно вымыть труп, при вскрытии не было обнаружено никаких улик. Преступник снова не (   Читать дальше...   )Тип издания: RePackРазработчик: GameCo StudiosЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F769A18485D1112490DA92C6CF7C3F38BAC4F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333292   (304946) от 24.10.2019
 
 The Park (2015) [Ru/Multi] (1.0) Repack Other s
@@ -32,7 +6,7 @@ The Park (2015) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304946.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Moment Of Silence / Момент истины [Ru] (L) 2005
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304708.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303936.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Quern - Undying Thoughts (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303815.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303800.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303729.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302753.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301657.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300828.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Norman's Night In (2019) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300611.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ TSIOQUE (2018) [En/De/Pl] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300375.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295132.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294696.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Perception (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294690.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294470.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Centralia: Homecoming (2019) [Ru/Multi] (1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294344.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294340.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294334.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294321.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Колле
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293378.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292559.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Slender: The Arrival (2013) [Ru/En] (2.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292317.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Between Me and The Night (2016) [Ru/Multi] (1.12) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291405.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290939.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290638.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Tales from the Borderlands – эпизодическое приключение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4D3686255E79707F60803027BE0A3265E073D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 422133   (289344) от 13.12.2011
+
+A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на фюрера. Операция "Валькирия" [Ru] (RePack/1.02) 2009 | SxSxL
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операция "Валькирия" - знаменитый план Германского Сопротивления с целью убить Гитлера. Штандартенфюрер Майер, он же советский разведчик в управлении имперской безопасности, узнает о том, что гестапо вышло на след заговорщиков. Сделав все возможное, чтобы расследование дела поручили ему, он пытается пустить гестапо по ложному следу, переиграть самого группенфюрера (   Читать дальше...   )Тип издания: RePackРазработчик: SPLine GamesЖанр: Arcade / Adventure (Logic / Quest) / 3D / 3rd personЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0BEA85926BDDAAB174473690888BF02E3DDD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

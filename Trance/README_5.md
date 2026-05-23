@@ -6,7 +6,7 @@ VA - The Sound of 2023 Mix 5: Dubai (2023) [MP3|320 Kbps] <Trance, Progressive, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035578.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Best Of Last State (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035483.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Azura Trance Selections (2021) [MP3|320 Kbps] <Uplifting-Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035191.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Talla 2XLC - Carpe Diem (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035190.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021)
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035128.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - I Know This Track! Vol 1 (Best Of Trance Covers) (2021) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034915.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Silent Shore: Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034666.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Mhammed El Alami Vocal Trance Selections (2021) [MP3|320 Kbps] <Trance, Voc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034440.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2021) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033991.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Trance Anthems Vol 9 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033980.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Techno Club Vol 60 (Mixed by Talla 2XLC vs. Xijaro & Pitch) (2020) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033497.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Top 6 February 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033001.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Black Hole Recordings Presents Best Of Vocal Trance 2021 Vol 1 (2021) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032258.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Uplifting Only Top 15 (2016-2021) (Обновляемая) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031941.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Spirit of Trance, Vol. 2 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031904.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Victor Special & Elev8 - Cosmic Generation (2021) Singles [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031853.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 February (2021) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031850.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Magic Of Trance Vol 12 (Mixed by Vito Von Gert) (2021) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031657.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Techno Club Vol. 68 (Mixed by Talla 2XLC x Metta & Glyde) (2023) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031227.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Trance Reserve Music 2022 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030993.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Delhi Trance Festival (2023) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030988.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030986.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030701.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030481.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030475.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030473.jpg" />
 </div>
 
 

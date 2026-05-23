@@ -6,7 +6,7 @@ Solomon Burke - If You Need Me & Rock 'N Soul (1998) [FLAC|Lossless]<Blues, Funk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995597.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Terez Montcalm - Here's To You - Songs For Shirley Horn (2011) [FLAC|Lossless]<V
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994850.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Tumbledown House - 2 альбома (2009&2012) [FLAC|Lossless]<Blues,Saloon Jaz
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994139.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tin Pan - Underdogs and Thundercats (2011) [FLAC|Lossless]<Jazz, Blues Country R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993670.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Beth Hart & Joe Bonamassa - Don't Explain (2011) Limited Edition /2012, Provogue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992666.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991942.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Various Artists - Let There Be Funk (2001) [FLAC|Lossless]<Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991222.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Peter Lipa - Beatles in blue(s) (2002) [APE|Lossless]<Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986484.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Jonny Lang - Wander This World (1998) [FLAC|Lossless|image + .cue]<Blues, Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985865.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tom Waits - Glitter & Doom Live (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985430.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Marcus King (The Marcus King Band) - 4 albums (2015-2020) [FLAC|Lossless|image +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984869.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Sara K. - 2 альбома (1992, 1994) [FLAC|Lossless]<Blues, Jazz, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984201.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ DBA (Rick Derringer, Tim Bogert & Carmine Appice) - Doin' Business As... (2001) 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983524.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Various Artists - True Audiophile: Best Of Groove Note (2006) [FLAC|Lossless]<Ja
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982486.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Kim Simmonds & Savoy Brown - The Devil To Pay (2015) [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980243.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Patti Labelle - The Universal Masters Collection: Classic Patti Labelle (2001) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980146.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Dianne Reeves - 4 альбома (1989-2008) [FLAC|Lossless]<Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976255.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Nikki Hill - Heavy Hearts, Hard Fists (2015) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975731.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Bill Wyman's Rhythm Kings - Platinum (World Bestsellers) (2000) [FLAC|Lossless]<
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975018.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Motown 40 Forever (1998) [FLAC|Lossless]<Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968743.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Cow Cow Davenport - The Essential (1920-1930) 2003, 2CD, Classic Blues[FLAC|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967838.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Ray Charles - Original Motion Picture Soundtrack (2004) Rhino[FLAC|tracks+.cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967791.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Ray Charles - The Birth Of Soul (1952-1959) 2CD, 2004, Atlantic Records[FLAC|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965682.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Tino Gonzales - Nuke The World (2003) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960931.jpg" />
 </div>
 
 
@@ -765,7 +765,7 @@ Vargas Blues Band - From The Dark (2014) [FLAC|Lossless]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958982.jpg" />
 </div>
 
 
@@ -794,7 +794,7 @@ VA - Beatles Blues: The Blues Meets the Beatles (2001) [FLAC|Lossless|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958036.jpg" />
 </div>
 
 

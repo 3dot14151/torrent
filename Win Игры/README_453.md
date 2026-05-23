@@ -1,29 +1,3 @@
-###  Публикация: 1701549   (46789) от 15.08.2024
-
-Northgard (2018) [Ru/Multi] (3.5.15.38668/dlc) Scene Tenoke [The Viking Age Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Спустя годы неутомимых поисков отважные викинги обнаружили Нордгард – новую землю, полную тайн, опасностей и богатств. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам. Но для этого им придется отбиваться от диких зверей и мертвецов, (   Читать дальше...   )Тип издания: SceneРазработчик: Shiro GamesЖанр: 3D, Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B131D51C04EEC9E8E2669DBB05F2BF1B7EE18529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709048   (46785) от 15.08.2024
 
 Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-дола (2024) [Ru/Multi] (20240613/dlc) Scene Tenoke [Digital Deluxe Edition]
@@ -32,7 +6,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46785.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Old School RPG (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46753.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (20240621) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46737.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tale of Immortal (2021) [Multi] (1.1.103.259/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46731.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Strange Investigations 4: Truth Will Out (2024) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46695.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46644.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ MT Force Aliens Uprising (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46643.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Binary Domain (2012) [Ru] (1.0.0.1upd2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46631.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46626.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Diari (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46614.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46580.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Passpartout 2: The Lost Artist (2023) [Multi] (20240110) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46568.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46562.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46558.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Lullaby of Life (2024) [Ru/Multi] (1.0.7.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46557.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Last Case of Benedict Fox (2023) [Multi] (1.40.2.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46549.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46536.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46529.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46527.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Inversion (2012) [Ru] (5.48) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46522.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46514.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Welcome to Elk (2020) [Multi] (1.22.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46478.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.2D) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46437.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Meowsterpiece Museum (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46435.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46432.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:866E296D060DA07E4AC89558E68725B6FE3B89A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743830   (46424) от 18.08.2024
+
+Hidden Through Time 2: Discovery (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hidden Through Time 2: Discovery - спокойная приятная игра о поиске предметов, где вам предстоит найти тайные сокровища в интерактивных пейзажах, нарисованных вручную. Разожгите искру вдохновения, откройте в себе художника и поделитесь созданными в редакторе шедеврами со всем миром! Погрузитесь в захватывающую атмосферу трех ярких эпох: изящного века викторианской (   Читать дальше...   )Тип издания: SceneРазработчик: RoguesideЖанр: Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28596AD8019E4F93E14B0DE12914D6613133A386
 ```
 
 https://mybot314.ru/tekegram_catalog/

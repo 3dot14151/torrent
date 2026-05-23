@@ -6,7 +6,7 @@ FanControl V200 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44739.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera GX 112.0.5197.115 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44737.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wondershare UniConverter Ultimate 15.7.0.41 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44735.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (3008) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44733.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Firefox Browser 130.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44729.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ XMedia Recode 3.6.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44708.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44698.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Floorp Browser 11.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44696.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Bandicam 7.1.4.2458 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44690.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.1.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44685.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VMware Workstation 17 Pro 17.6.0 Build 24238078 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44682.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wondershare UniConverter Ultimate 15.7.1.42 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44675.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ JetBrains CLion 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44674.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ DLNow Video Downloader 1.54.2024.09.02 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44673.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ TechSmith Snagit 2024.2.2 build 3491 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44670.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Jetbrains WebStorm 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44669.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ R-Drive Image Technician 7.2 Build 7205 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44664.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ HopToDesk 1.42.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44663.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Kodi 21.1 (Omega) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44661.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ StartAllBack 3.8.7 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44655.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Rainmeter 4.5.20 Build 3803 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44650.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NIUBI Partition Editor 9.9.8 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44645.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ YT Downloader 9.10.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44643.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ JetBrains DataGrip 2024.2.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44642.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ JetBrains GoLand 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44641.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Aiseesoft Screen Recorder 3.0.56 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44636.jpg" />
 </div>
 
 

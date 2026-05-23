@@ -1,113 +1,3 @@
-###  Публикация: 1382661   (816596) от 12.05.2020
-
-Бит-квартет "Секрет" - Концерт на платформе МТС Live (2020) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-концерт группы «Секрет» который состоялся 3 мая 2020 года на площадке МТС Live. Группу «Секрет» часто называли русскими "Битлз". Пик популярности коллектива пришелся на конец 80-х годов. Песни «Алиса», «Именины у Кристины», «Моя любовь на пятом этаже» стали всенародными хитами. В 2014 году после продолжительной паузы группа «Секрет» выпустила новый (   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 02:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9DDBFD5762391784258E40D89F890EC874DBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754523   (815392) от 21.10.2021
-
-Легенды Ретро FM (2013) HDTV [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На Первом канале большая премьера - международный фестиваль "Легенды Ретро FM" 201301. Лариса Долина - Темп
-02. Лев Лещенко - До свидания, Москва
-03. Алёна Апина - Ксюша
-04. Алёна Апина - ЛёхаЖанр: Концерт, PopПродолжительность: 04:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC81F0ABE6C68996D988D587AC61373B709DE515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358646   (815142) от 13.05.2020
-
-Милый лжец (1976) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лирическая драма по одноименной пьесе Джерома Килти.
-В Основе сюжета - переписка Бернарда Шоу и известной актрисы Патрик Кэмпбелл Килти.
-МХАТовские «старики», последние из поколения настоящего МХАТа, — Анатолий Кторов и Ангелина Степанова принадлежат к тем артистам, имена которых навсегда останутся в летописи театральной истории страны. Их общей судьбой был МХАТ (   Читать дальше...   )Производство: СССР/МХАТ, Гостелерадио СССРЖанр: ДрамаРежиссер: Иосиф Раевский, Анатолий ЭфросАктеры: Анатолий Кторов, Ангелина СтепановаПродолжительность: 02:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD34FE015AB9FCB94CF258912A3720128F2208EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382842   (815132) от 13.05.2020
-
-"Несчастный случай" - Концерт на платформе МТС Live (2020) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-концерт группы «Несчастный Случай» который состоялся 26 апреля 2020 года на площадке МТС Live.
-Группа «Несчастный Случай» сегодня известна острыми сатирическими текстами. Коллектив существует с 1983 года и за это время выпустил одиннадцать студийных альбомов. Последний из них вышел минувшей зимой, он называется «В городе Лжедмитрове».Производство: РоссияЖанр: КонцертПродолжительность: 01:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BEF91F093C7CF5EE20769F04D8F7C5FAC35290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059274   (815005) от 07.01.2018
 
 Адриано Челентано / Adriano Celentano - Adriano Live (Rock Economy) (2012) DVD9
@@ -116,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815005.jpg" />
 </div>
 
 
@@ -145,7 +35,7 @@ Jean-Michel Jarre - Welcome to the Other Side (Live In Notre Dame VR) (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813680.jpg" />
 </div>
 
 
@@ -174,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813335.jpg" />
 </div>
 
 
@@ -200,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812889.jpg" />
 </div>
 
 
@@ -226,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812882.jpg" />
 </div>
 
 
@@ -253,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812801.jpg" />
 </div>
 
 
@@ -280,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812728.jpg" />
 </div>
 
 
@@ -309,7 +199,7 @@ Nightwish - Vehicle of Spirits (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812626.jpg" />
 </div>
 
 
@@ -338,7 +228,7 @@ Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812614.jpg" />
 </div>
 
 
@@ -367,7 +257,7 @@ Julies Massenet "Manon" (2008) - Netrebko, Villazon, Daza, Fischesser - 2DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811640.jpg" />
 </div>
 
 
@@ -394,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811459.jpg" />
 </div>
 
 
@@ -425,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811076.jpg" />
 </div>
 
 
@@ -451,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810968.jpg" />
 </div>
 
 
@@ -480,7 +370,7 @@ Led Zeppelin - Danmarks Radio (1969) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810859.jpg" />
 </div>
 
 
@@ -510,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810746.jpg" />
 </div>
 
 
@@ -536,7 +426,7 @@ Depeche mode-Devotional. Live In Barcelona (1993) DVDRip (MC GROM-Release)
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810628.jpg" />
 </div>
 
 
@@ -565,7 +455,7 @@ Mylene Farmer - Stade de France (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810587.jpg" />
 </div>
 
 
@@ -594,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810206.jpg" />
 </div>
 
 
@@ -620,7 +510,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809964.jpg" />
 </div>
 
 
@@ -650,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809931.jpg" />
 </div>
 
 
@@ -677,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809827.jpg" />
 </div>
 
 
@@ -703,7 +593,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809694.jpg" />
 </div>
 
 
@@ -718,6 +608,119 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32D3F69BB9D442082008EFBCAB5CC544734E2FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504614   (809615) от 24.10.2021
+
+Сборник  видеоклипов (2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.
+ 1.Alan Walker, Sabrina Carpenter & Farruko - On My Way.
+2.Alyosha - Капли Anton Kraynov REMIX
+3.Anitta - Paradinha
+4.Arash ft Sean Paul - She Makes Me Go.(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB1AFAB93B56B7FB1528B40CC7461DC5FC7F091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134615   (809386) от 16.05.2020
+
+Бенефис (2017) IPTVRip [H.264] (2 части) (Театр им. Е. Вахтангова)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Театра имени Евгения Вахтангова.
+В сценической версии театра пьеса получила не только новое название, но и несколько измененный сюжет. Легендарный артист пошёл на рискованный эксперимент - он сыграл главную роль, к тому же женскую, с блеском, без фальши, точно выдержав жанр в лучших традициях Театра имени Евгения Вахтангова.Производство: Россия, Театр имени Евгения Вахтангова, ГТРК "Культура"Жанр: Театр, драмаРежиссер: Владимир Иванов, Николай НеклюдовАктеры: Владимир Этуш, Ольга Тумайкина, Евгений Князев, Екатерина Симонова, Сергей Пинегин, Светлана ИозефийСубтитры: отсутствуютПродолжительность: 01:05:00 + 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C7C39828C7BA010822EE7E1F7780827C8F30BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317478   (809350) от 02.04.2011
+
+Музыкальный ринг на НТВ. Выпуск №17. Ранетки vs The MATRIXX  (01.04.2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: Концерт, ТВ-ШоуПродолжительность: ~ 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62494F0038E5B38C055691A865D556142C22963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657591   (809187) от 18.05.2013
+
+Михаил Шуфутинский. Концерт в День рождения - Love Story (2013.05.17) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809187.jpg" />
+</div>
+
+
+###  Подробнее
+
+На НТВ – телевизионная версия юбилейного концерта известного российского шансонье Михаила Шуфутинского.
+Юбиляр исполнил на сцене «Крокус Сити Холла» свои лучшие песни, накопившиеся за многолетнюю музыкальную деятельность: от самых первых, еще эмигрантского периода, до новых, рожденных совсем недавно.01. Я родился в Москве
+02. Мосты
+03. Наколочка
+04. Еврейский портной(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:49:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

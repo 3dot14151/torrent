@@ -6,7 +6,7 @@ GoodTask 6.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013085.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ A Better Finder Rename 11 v11.34 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013081.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Texpad 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013080.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Micromat Drive Scope 1.2.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013075.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013074.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Permute 3 v3.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013073.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Typeface 3 v3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013072.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Opera 76.0.4017.175 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013070.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PDF Squeezer – PDF Toolbox 6.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013069.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ SyncBird Pro 3.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013067.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ AnyMP4 iOS Toolkit 9.0.58 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013063.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Zee Timer 8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013062.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Serial Box & SerialSeeker 06.2021 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013058.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Firefox Browser 78.11.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013051.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Firefox Browser 89.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013050.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Q-Dir 9.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013049.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ TG Pro (Temperature Gauge Pro) 2.56 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013048.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ AnyMP4 Mac Video Converter Ultimate 9.0.12 [Rus/Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013046.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ DxO PhotoLab 4 ELITE Edition 4.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013044.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Privacy Eraser Free 5.12.0 Build 3912 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013043.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Carbon Copy Cloner 6 v6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013038.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Brigadier - Soldiers (2021) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013037.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Sketch 72.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013036.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ musicMath Touch 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013035.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Opera 76.0.4017.177 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013033.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013032.jpg" />
 </div>
 
 

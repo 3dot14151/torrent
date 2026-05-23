@@ -1,83 +1,3 @@
-###  Публикация: 1696023   (119972) от 31.01.2024
-
-Сергей Котов | Воспоминания о будущем (Книга 1). Свой в своей стране (2024) [MP3, Александр Макшанцев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Он появился из ниоткуда и проехал всю страну, чтобы навсегда исчезнуть. Никто не знает точно, кем он был – но его наследие продолжает жить среди людей спустя десятки лет и менять этот мир к лучшему.Для того, чтобы написать эту книгу, автор проехал на Книжном Поезде от Москвы до Владивостока, останавливаясь во многих городах, за что большое спасибо проекту «Книжные (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: ЛитРес: чтец, АвторПродолжительность: 06:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965F2361C8FEB9D5DBBD9FD538BA83E8F0ECF8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695891   (119971) от 31.01.2024
-
-Антон Кун | Ел я ваших демонов на завтрак! (Книга 2). Том 2 (2024) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мы возвращались с боевого задания. Это была мясорубка! Штабным крысам хари набить за такую подготовку операции! Но главное, парни остались живы, я вывел всех. И тут удар, белое марево, вращающаяся кабина Ми-8, перекошенные лица парней и желтоглазый демон… Демон? Что за чёрт? Какие нафиг демоны? В нашем мире демонов нет!Жанр: Фэнтези, попаданцыИздательство: ЛитРес, АвторПродолжительность: 07:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3EA9105C5340E9FB804F05989E0D2664EE9C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695878   (119956) от 31.01.2024
-
-Рэмси Кэмпбелл | Полуночное солнце (2023) [MP3, Андрей Финагин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Для поклонников Говарда Ф. Лавкрафта и Алджерона Блэквуда!
-Новая книга живой легенды жанра хоррор Рэмси Кэмпбелла – мрачная фэнтезийная история о призраках и колдовстве, далёком севере и таинственном доме в густом, сумрачном лесу…
-Бен Стерлинг наследует дом своих предков и решает переехать туда с семьей, не зная о странных историях, которые ходят в местном городке (   Читать дальше...   )Жанр: Ужасы, МистикаИздательство: Аудиокнига (АСТ)Продолжительность: 11:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FD4F95799EAC314A0C53775E9F70E0023874B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695980   (119954) от 31.01.2024
 
 Конрад Фиалковский | Воробьи Галактики (2023) [MP3, Червь Книжный]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119954.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119946.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119926.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119922.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119893.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119872.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119868.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119861.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119853.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119837.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119816.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119795.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119792.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119717.jpg" />
 </div>
 
 
@@ -458,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119705.jpg" />
 </div>
 
 
@@ -484,7 +404,7 @@ Ascold Flow | Вторжение (Книга 1). Академия магоуби
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119704.jpg" />
 </div>
 
 
@@ -510,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119700.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119699.jpg" />
 </div>
 
 
@@ -565,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119698.jpg" />
 </div>
 
 
@@ -592,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119694.jpg" />
 </div>
 
 
@@ -620,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119693.jpg" />
 </div>
 
 
@@ -647,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119683.jpg" />
 </div>
 
 
@@ -675,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119679.jpg" />
 </div>
 
 
@@ -689,6 +609,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22FF0ED61517592CC4D4DBED2EC373050F13B421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696462   (119678) от 02.02.2024
+
+Константин Демченко | Шагая в вечность (Книга 1) (2024) [MP3, Александр Сидоров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пусть небо и вода остались того же цвета, но мир перестал быть самим собой. Ничто не осталось неизменным. И в этом новом мире, среди разрушенных городов и неведомо откуда взявшихся тварей, выживает и эволюционирует Данила Звягинцев, в прошлом обычный историк, а в будущем… А кем он будет в будущем, не знает никто, даже он сам. Но он идёт.Жанр: Боевая фантастика, ПопаданцыИздательство: ЛитРес: чтец, АвторПродолжительность: 10:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6FD2CBF60E288607FEEFE9608E83D4FD5DD525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696508   (119675) от 02.02.2024
+
+Серж Винтеркей, Артём Шумилин | Цикл «Ревизор: Возвращение в СССР» (Книга 10-12) (2024) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключeния московского аудитора, попавшего из нашего времени в 1971 год, продолжаются. Павел Ивлев готовится к взрослой жизни, завоевывает себе авторитет, окружает близкими друзьями, которым искренне стремится помочь. Кроме того, необходимо распутать схему с хищениями на механическом заводе, отомстив за сотрудника ОБХСС, и разобраться с угрозами от криминального (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: ~23:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B992F51AACA24CA388967937728BE53A4109BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371957   (119674) от 02.02.2024
+
+Пантелеймон Романов | Актриса (2008) [MP3, Лидия Леликова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Архив мировой литературы. Классический реализм
+Произведения Пантелеймона Романова (1884–1938) не печатались в нашей стране с конца тридцатых годов прошлого века. И лишь с начала 70-х годов XX-го века стали появляться публикации его рассказов. 
+«Современность стремится сделать художника полным выразителем своих чувств, идей, интересующих ее образов и настроений. (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: АрМирПродолжительность: 05:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63ED36174502A8CAF8D99363BCAF04128DF73189
 ```
 
 https://mybot314.ru/tekegram_catalog/

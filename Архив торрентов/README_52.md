@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038308.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Topaz Video AI 3.1.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038305.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wolfram Mathematica 13.2.0 [x86_x64] (.sh)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038303.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AMD Radeon Software Adrenalin Edition 23.2.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038299.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Money Pro - Personal Finance 2.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038293.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ TourdeForce - Vargtimmar (2021) [MP3|320 Kbps] <Synthpop, Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038270.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ PureSync 6.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038261.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Opera GX 72.0.3815.473 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038254.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Brave Browser 1.19.86 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038253.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sandboxie 5.46.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038250.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DirPrintOK 4.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038249.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Java SE Development Kit 15.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038248.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Wondershare Filmora Х v10.1.8.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038243.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Slimjet 29.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038242.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ DesktopOK 8.41 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038234.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Adobe After Effects 2023 23.2.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038231.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Java SE Development Kit 11.0.10 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038211.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Cyberduck 7.8.1 Build 34119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038210.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ MediaHuman YouTube Downloader 3.9.9.52 (1801) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038204.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Jutoh 3.04 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038202.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Krita 4.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038196.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038187.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Teorex Inpaint 9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038180.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Kerish Doctor 2021 4.85 [DC 15.01.2021] (Repack & Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038169.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Levitated Trance: Winter (2023) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038123.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ BurnAware Professional 16.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038104.jpg" />
 </div>
 
 

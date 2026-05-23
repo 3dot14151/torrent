@@ -6,7 +6,7 @@ VA - Play Station (приложение Audio CD к журналу Play #08'06) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495291.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bobby Stoker - Everglow (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495010.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Smokie - Uncovered Too (2001) [APE|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494342.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Stereophonics - Keep The Village Alive (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<In
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494271.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chris Robinson Brotherhood - Barefoot In The Head (2017) [FLAC|Lossless|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493711.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Thank You Scientist - Maps of Non-Existent Places (2012) [FLAC|Lossless]<Crossov
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493592.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Black Night - Deep Purple Tribute According To New York (1996 (Reissue 2010
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493263.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Cat Power - Sun (2012) [FLAC|Lossless]<Indie Rock / Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493250.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Anathema - A Fine Day To Exit (2001) 2006, Music For Nations, Sony BMG Music Ent
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493104.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Bob Dylan - Tempest (2012) [FLAC (tracks+cue)|Lossless]<Folk-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493078.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Chris Spedding - Joyland (2015) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492598.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ John Orr Franklin - Lighthouse (2011) [FLAC|Lossless|image + .cue] <Prog Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492564.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ The Windmill - The Continuation (2013) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492477.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Stan Meissner - Undertow (1992) Japanese Edition, 1-st press [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492091.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - 18 Classic Rock Ballads (1995) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491881.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Crippled Black Phoenix - Great Escape (2018) 2xCD [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491478.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Linda Ronstadt - Original Album Series 5CD BoxSet (2009) [FLAC|Lossless]<Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491206.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Queen - A Day At The Races (1976) Japanese Edition, 2018 [FLAC|lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490769.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Queen - News Of The World (1977) Japanese Edition, 2018 [FLAC|lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490759.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Queen - The Game (1980) Japanese Edition, 2018 [FLAC|lossless|image + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490687.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Queen - A Night At The Opera (1975) Japanese Edition, 2018 [FLAC|lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490685.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ True Lilith - Celestopia (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490443.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Playhouse - Dancing At Funerals (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490434.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Kansas - The Prelude Implicit (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490286.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Pink Floyd - The Division Bell (1994/2011) EMI | Reissue, Remastered [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489820.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ Kaipa - Vittjar (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487531.jpg" />
 </div>
 
 

@@ -1,85 +1,3 @@
-###  Публикация: 1837952   (257884) от 20.11.2025
-
-Кир Булычёв | Подземелье ведьм (2025) [MP3, Алексей Арестович]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-– «Подземелье ведьм» продолжение дилогии Кира Булычева о бравом капитане космофлота (КФ) Андрее Брюсе.
-
-«Расставшись с Пэ-У, планетой, на которой он пережил в качестве агента КФ попытку государственного переворота и смерть любимой девушки, Андрей возвращается в Галактический Центр.
-По пути он выходит размять ноги на отдаленную планету, заодно доставив почту маленькой (   Читать дальше...   )Жанр: Русская литература, современная литература, фантастика.Издательство: ЭксмоПродолжительность: 04:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6426E30C2908468EA252C67718F8410E9CD9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837903   (257883) от 20.11.2025
-
-Андрей Рымин | К вершине (Книга 11). Бездушиш (2025) [MP3, Александр Мозгунов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В нашем мире важны лишь две вещи: сила и отмеренный до старости срок. И то и то наживное, но попробуй добудь семя жизни или боб троероста, когда ты малолетний бесправный безродыш, пнуть которого всякому в радость.
-Вот только Путь не разделяет людей на богатых и бедных, на сирот и с рождения имеющих всё сыновей благородных родителей. Каждый вправе ступить на дорогу (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, RealRPGИздательство: ЛитРес: Чтец, АвторПродолжительность: 09:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A8115B63E7715193B54DF4980727BC3FC7164D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837969   (257871) от 20.11.2025
-
-Вадим Денисов | Жестянка 2 (2025) [MP3, Станислав Федорчук]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет аудиокнигу современного популярного писателя фантаста Вадима Денисова – «Жестянка – 2», вторую в одноименной серии. Книга прочитана популярным артистом театра и кино, актером дубляжа Станиславом Федорчуком. Сколько можно мотаться по саванне без нормального питания, отдыха и тёплой постели… Разрушенные города Жестянки, заброшенные (   Читать дальше...   )Жанр: Фантастика, боевик, попаданцы, аудиокнигаИздательство: МедиаКнигаПродолжительность: 15:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F104F6EDCD1F5298FE432613D0E7DC995F5B297E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838061   (257768) от 20.11.2025
 
 Жорж Санд | Лелия (2023) [MP3, Юлия Тархова, Илья Акинтьев]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257768.jpg" />
 </div>
 
 
@@ -116,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257766.jpg" />
 </div>
 
 
@@ -144,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257733.jpg" />
 </div>
 
 
@@ -170,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257731.jpg" />
 </div>
 
 
@@ -196,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257724.jpg" />
 </div>
 
 
@@ -222,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257714.jpg" />
 </div>
 
 
@@ -250,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257713.jpg" />
 </div>
 
 
@@ -278,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257700.jpg" />
 </div>
 
 
@@ -304,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257678.jpg" />
 </div>
 
 
@@ -332,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257624.jpg" />
 </div>
 
 
@@ -359,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257622.jpg" />
 </div>
 
 
@@ -387,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257596.jpg" />
 </div>
 
 
@@ -413,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257547.jpg" />
 </div>
 
 
@@ -439,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257525.jpg" />
 </div>
 
 
@@ -465,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257502.jpg" />
 </div>
 
 
@@ -492,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257497.jpg" />
 </div>
 
 
@@ -518,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257186.jpg" />
 </div>
 
 
@@ -544,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256799.jpg" />
 </div>
 
 
@@ -571,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256771.jpg" />
 </div>
 
 
@@ -598,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256723.jpg" />
 </div>
 
 
@@ -625,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256687.jpg" />
 </div>
 
 
@@ -651,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256594.jpg" />
 </div>
 
 
@@ -680,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256593.jpg" />
 </div>
 
 
@@ -694,6 +612,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1F034B72CDF084CE25E2D255FAC6915364ED900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837177   (256592) от 15.11.2025
+
+Александр Изотов | Пробоина (Книга 3). Тень пса (2025) [MP3, Максим Ушаков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мой имплант сгорел, оставив дыру в затылке, и я умер.
+Умер? Тогда какого хрена меня бьют мордой об пол, а в рёбра втыкаются сапоги? Ладно, встаём, их всего четверо. Только почему они одеты странно?
+Как и я...
+Твою псину, я ещё и дрищ?!Жанр: Попаданцы в магические миры, Боевое фэнтезиИздательство: 1С-ПаблишингПродолжительность: 09:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340AA3393583A74A07B79406FB60EAF4F5A197C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837236   (256587) от 15.11.2025
+
+Дин Кунц | Мышка за стенкой скребётся всю ночь (2025) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256587.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Благодаря последнему изобретению общество перешло на следующую ступень развития - эмпатию. Как и каждый этап взросления, эмпатия оказалась не лишена детских болезней. Доживающие свой век Недоразвитые стали такой болезнью, о которой эмпаты предпочли полностью отдалиться." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3804D074751F84421DAD32806E2181D22E34BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837147   (256583) от 15.11.2025
+
+Андрей Дышев | Точка замерзания крови (2025) [MP3, Юлия Береговенко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа ветеранов немецкой дивизии «Эдельвейс» собирается совершить восхождение на Эльбрус. Для сопровождения они нанимают горноспасателя Стаса Ворохтин. Но планы пенсионеров вдруг рушатся: на канатной дороге на группу нападает банда. Оказывается, старики-ветераны не так просты, как кажется на первый взгляд. В подошвах их горных ботинок спрятаны сильнодействующие (   Читать дальше...   )Жанр: Боевики, Игры на выживаниеИздательство: ЛитРес: чтецПродолжительность: 14:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9A45894994AC7F111ADF3C4571BFC9913DCC9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

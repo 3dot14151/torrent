@@ -1,33 +1,3 @@
-###  Публикация: 1004351   (838058) от 06.04.2016
-
-Giuseppe Verdi - NABUCCO (Teatre alla Scala) (2004) DVD9
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Chapter 1   Introduction
-Chapter 2   Overture
-
-Act I - Inside the temle of Solomon(   Читать дальше...   )Жанр: Опера
-Сканы присутствуют (*.tif, *.jpg)Перевод: ОтсутствуетЯзык субтитров: English, Francais, Deutsch, Italiano, EspanolПродолжительность: 02:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727B18735CDBFD7A8B00533BDD567EC09D5182DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 325164   (837757) от 08.10.2021
 
 Принцесса Турандот (1971) DVDRip
@@ -36,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837757.jpg" />
 </div>
 
 
@@ -63,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837635.jpg" />
 </div>
 
 
@@ -90,7 +60,7 @@ Cirque du Soleil: Сказочный мир / Cirque du Soleil: Worlds Away (201
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834277.jpg" />
 </div>
 
 
@@ -116,7 +86,7 @@ G. BIZET - Carmen - Metropolitan Opera, Garanca, Alagna  (2010) 2DVD5
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834068.jpg" />
 </div>
 
 
@@ -145,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826618.jpg" />
 </div>
 
 
@@ -171,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826611.jpg" />
 </div>
 
 
@@ -197,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822506.jpg" />
 </div>
 
 
@@ -223,7 +193,7 @@ The War Of The Worlds - The New Generation (2013) BDRip [H.264/1080p] [EN / RU S
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820411.jpg" />
 </div>
 
 
@@ -250,7 +220,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) Blu-
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818151.jpg" />
 </div>
 
 
@@ -280,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812801.jpg" />
 </div>
 
 
@@ -307,7 +277,7 @@ Julies Massenet "Manon" (2008) - Netrebko, Villazon, Daza, Fischesser - 2DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811640.jpg" />
 </div>
 
 
@@ -334,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804737.jpg" />
 </div>
 
 
@@ -360,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800806.jpg" />
 </div>
 
 
@@ -388,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800371.jpg" />
 </div>
 
 
@@ -414,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792542.jpg" />
 </div>
 
 
@@ -441,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789178.jpg" />
 </div>
 
 
@@ -467,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785728.jpg" />
 </div>
 
 
@@ -493,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785261.jpg" />
 </div>
 
 
@@ -519,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785184.jpg" />
 </div>
 
 
@@ -548,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780639.jpg" />
 </div>
 
 
@@ -577,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777221.jpg" />
 </div>
 
 
@@ -603,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777219.jpg" />
 </div>
 
 
@@ -629,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777170.jpg" />
 </div>
 
 
@@ -655,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777147.jpg" />
 </div>
 
 
@@ -681,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770425.jpg" />
 </div>
 
 
@@ -692,6 +662,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0744ACCE9059399E4D60DD208A5CF9C7C2F2D0D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201921   (767015) от 20.05.2010
+
+Джузеппе Верди - Травиата (Анна Нетребко, Зальцбург) / G. Verdi - La Traviata. Premium Edition (Salzburg, Netrebko) (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия знаменитой постановки одной из самых популярных опер всех времен на Зальцбургском фестивале 2005 года, выпущенная легендарным германским лейблом Deutsche Grammophon GmbH, славящегося своими стандартами в области звукозаписи классической музыки.
+В главных ролях только наши современники - звезды мировой оперной сцены и дива Анна Нетребко, представшая здесь (   Читать дальше...   )Жанр: МузыкаРежиссер: Вилли Декер, Брайан ЛанджАктеры: Анна Нетребко (Anna Netrebko), Роландо Вилазон (Rolando Villazon), Томас Хэмпсон (Thomas Hampson), Сальваторе Корделла (Salvatore Cordella), Элен Шнейдерман (Helene Schneiderman)Перевод: ОригинальныйЯзык субтитров: Английские, Немецкие, Французские, Испанские, Итальянские, КитайскиеПродолжительность: 02^12^00 минуты (опера) +00^ 47^00 минут (бонусы)
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

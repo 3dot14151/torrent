@@ -6,7 +6,7 @@ Android Studio Flamingo 2022.2.1 Patch 1 Build #AI-222.4459.24.2221.9971841 + Po
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234924.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Default Folder X 6.0 a6 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234918.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft PowerToys 0.62.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234916.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MediaHuman YouTube Downloader 3.9.9.76 (1609) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234906.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Spotify 1.2.11.911 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234905.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CyberLink PowerDirector Ultimate 21.0.2031.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234897.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Notebooks – Write and Organize 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234892.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Privacy Eraser Free 5.37.0 Build 4501 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234884.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.6 Build 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234883.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ CloudMounter 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234847.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Glary Tracks Eraser 5.0.1.261 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234839.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Windows 7 (6.1.7601.25954) x64 (4in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234836.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Clipboard Manager 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234831.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ XtraTools Professional 23.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234812.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Viber 20.4.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234805.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Duolingo Plus: изучение иностранных языков 5.57.0 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234780.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Path Finder 2154 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234779.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ DropDMG 3.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234777.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ PotPlayer 220914 (1.7.21801) Stable RePack (& portable) by KpoJIuK (DC 15.09.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234775.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ FastStone Capture 10.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234774.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Adobe Photoshop Express 8.1.961 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234773.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Viper FTP 6.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234761.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft .Net Framework 14.09.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234754.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ GraphicConverter for Mac 12.0.4 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234752.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Araxis Merge Pro Edition 2023.5915 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234749.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Aiseesoft Mac FoneLab for Android 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234748.jpg" />
 </div>
 
 

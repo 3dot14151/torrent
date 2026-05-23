@@ -6,7 +6,7 @@ O&O ShutUp10 1.5.1389 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785719.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Flash Player 25.0.0.148 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785716.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785709.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sound Normalizer 7.6 RePack (& Portable) by elchupacabra (UPD 11.04.2017) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785708.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Acronis True Image 2017 Build 8041 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785707.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Acrobat XI Pro 11.0.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785693.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sprint-Layout 6.0 (06.06.2016) Repack by Lordar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785687.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785678.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Cookie 5.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785677.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Gadboa - Trance5x (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785676.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Cookie 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785675.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Uplifting Only Top 15 April (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785672.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Solarstone - .---- (2017) [MP3|~245 Kbps|image + .cue] <Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785664.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785657.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785656.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ SkyLab Studio 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785653.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Yep 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785652.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - edge 2 (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Hip Hop, Rap, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785649.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785644.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Espresso 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785641.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PhotoSweeper X 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785630.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785629.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Future Islands - The Far Field (2017) Japanese Edition [FLAC|Lossless|tracks + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785623.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Authentic Steyoyoke #009 (Mixed by Rauschhaus) (2017) [MP3|320 Kbps] <Techn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785619.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ K-Lite Codec Pack Update 13.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785612.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Yaroslav Kulikov - My Story (2017) [FLAC|Lossless|WEB|tracks] <Breaks>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785601.jpg" />
 </div>
 
 

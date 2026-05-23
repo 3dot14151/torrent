@@ -1,55 +1,3 @@
-###  Публикация: 1820225   (566) от 27.09.2025
-
-Специальное задание / The Shepherd (2008) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бывшие наемники спецподразделения американских войск разрабатывают план по ввозу на территорию США большой партии наркотиков. Воодушевленные быстрой наживой, они пытаются осуществить переправку героина через мексиканскую границу. Единственный, кто встает у них на пути - это патрульный государственной пограничной службы Джек. Бывший полицейский, работающий под прикрытием (   Читать дальше...   )Производство: США / Sony Pictures Home EntertainmentЖанр: боевик, триллер, криминалРежиссер: Айзек ФлорентайнАктеры: Жан-Клод Ван Дамм, Стивен Лорд, Натали Робб, Гари МакДональд, Дэниэль Перрон, Скотт Эдкинс, Андре Бернард, Дэн Дейвис, Майлз Андерсон, Луис АлгарПеревод: МногоголосыйЯзык озвучки: Русский, УзбекскийСубтитры: Английские (SDH)Продолжительность: 01:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2C0A8A02D7C06CBD809C7EF5BC186CFB874E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820309   (558) от 27.09.2025
-
-В спальне / In the Bedroom (2001) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сценарий основан на рассказе «Убийства» Андре Дюбюса (1979)... Студент приезжает на каникулы домой и влюбляется в женщину, которая намного старше его. Однако то, что начинается, как обычный летний роман, вскоре перерастает в трагедию... Название фильма отсылает к заднему отсеку ловушки для омаров, известному как «спальня».Производство: США / Good Machine, GreeneStreet Films Inc., Standard Film CompanyЖанр: драма, криминалРежиссер: Тодд ФилдАктеры: Том Уилкинсон, Сисси Спейсек, Ник Стал, Мариса Томей, Уильям Мапотер, Уильям Уайз, Селия Уэстон, Карен Аллен, Фрэнк Т. Уэллс, У. Клэпэм Мюррей, Джастин Эшфорт, Терри А. Бургесс, Камден Мансон, Кевин ЧэпменПеревод: профессиональный многоголосый (Парадиз ВС), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A35A1BDBA6D82A3F7DF42EACDB4220DED51BB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820386   (550) от 27.09.2025
 
 Водородный человек / Bijo to ekitai ningen / The H-man (1958) BDRip [H.264] [JP / RU Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_550.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_423.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_416.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_406.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_397.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_389.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_363.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_332.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_316.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_309.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_306.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_296.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_292.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_205.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_200.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_196.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.264/1080p] [3D]  
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB4B5FD8F752303D17041422732EFF3144EA450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216006   (146) от 29.09.2025
+
+Дневники мотоциклиста / Diarios de motocicleta / The Motorcycle Diaries (2004) [1080p] HD-DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о путешествии по странам Латинской Америки, совершенном в 1952 году Эрнесто Че Геварой и его другом Альберто Гранадосом. Он рассказывает о жизни простых латиноамериканцев и о том, как под воздействием увиденного у Че Гевары зарождаются основы его идеологии.Жанр: Биография, Драма, ПриключенияРежиссер: Уолтер СаллесАктеры: Гаэль Гарсиа Берналь, Родриго Де Ла Серна, Мерседес Моран, Жан Пьер Нойер, Лукас Оро, Marina Glezer, София Бертолотто, Franco Solazzi, Рикардо Диаз Морелль, Серджо БорисПеревод: Многоголосый закадровый (лицензия) + многоголосый закадровый (Tycoon)Язык субтитров: АнглийскиеФормат: MKVПродолжительность: 02:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B6081C827A07A285DD5DD64927006CD3390373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550948   (134) от 29.09.2025
+
+Море внутри / Mar adentro / The Sea Inside (2004) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальная история испанца Рамона Сампедро, который, будучи полностью парализованным, около тридцати лет боролся за право на добровольный уход из жизни. Фильм рассказывает о его отношениях с двумя женщинами: Джулией, его адвокатом, и подругой Розой, которая пытается убедить Рамона, что жизнь стоит того, чтобы жить. Сила любви Рамона вдохновляет женщин на поступки, (   Читать дальше...   )Производство: Испания, Франция, Италия / Sogepaq, Sogecine, Himenóptero, Union Générale Cinématographique, Eyescreen S.r.l., Televisión Española , Canal+, Televisión de Galicia, Filmanova, Eurimages, Ministerio de CulturaЖанр: драма, биографияРежиссер: Алехандро АменабарАктеры: Хавьер Бардем, Белен Руэда, Лола Дуэньяс, Мабель Ривера, Сельсо Бугальо, Клара Сегура, Хоан Дальмау, Альберто Хименес, Тамар Новас, Франсеск ГарридоПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, ИспанскийСубтитры: Русские (Full), Английские (Full), Испанские (Full)Продолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEB9BDA8C5232CE6C24ECA716051BA1D577E654
 ```
 
 https://mybot314.ru/tekegram_catalog/

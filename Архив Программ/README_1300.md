@@ -6,7 +6,7 @@ Internet Download Manager 6.38 Build 5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376540.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NirLauncher Package 1.23.33 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376537.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ID Photos Pro 8.6.3.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376536.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Maxon Cinema 4D Studio 2023.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376486.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Winamp 5.9.0 Build 9999 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376478.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FastStone Image Viewer 7.7 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376470.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Slimjet 15.1.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376461.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ YouTube By Click Premium 2.2.116 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376371.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Video Thumbnails Maker Platinum 15.1.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376335.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Zoner Photo Studio X 19.1710.2.40 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376264.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AMD Radeon Software Adrenalin 2019 Edition 19.9.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376216.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wondershare UniConverter 12.0.6.2 (64-bit) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376175.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Eraser 6.2.0.2991 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376171.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ EF Commander 20.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376168.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Icecream Screen Recorder PRO 6.23 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376159.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ O&O ShutUp10 1.6.1392 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376136.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ YouTube Video Downloader PRO 5.8.8 (20171006) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376135.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Windows 10 Manager 2.1.8 Final RePack (& portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376118.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ USDownloader 1.3.5.9 Portable (03.11.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376104.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AIDA64 Extreme/Engineer/Business Edition/Network Audit 6.10.5200 Final RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376067.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Adguard 7.2.2936.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376060.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MAGIX Vegas Pro 17.0 Build 321 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376059.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AIDA64 Extreme/Engineer/Business/Network Audit 6.10.5200 RePack (& Portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376057.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Total Commander 9.22а Extended 19.9 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376053.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Revo Uninstaller Pro 4.3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376024.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ WinToHDD 4.5 Technician Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376022.jpg" />
 </div>
 
 

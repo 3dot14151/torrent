@@ -6,7 +6,7 @@ AMD Radeon Software Crimson ReLive Edition 17.6.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652312.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Movavi Picverse 1.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652306.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EasyUEFI Technician 4.9 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652305.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Disk Cleaner 7.43 Build 497 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_652277.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ NVIDIA GeForce Desktop 419.67 WHQL+For Notebooks+DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652254.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Nvidia DriverPack v.419.67 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652244.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SMPlayer 18.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652197.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Internet Download Manager 6.28 Build 12 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652140.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Coolmuster Android Assistant 4.0.47 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652134.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ FolderSizes 8.4.155 Enterprise RePack by Kopejkin [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652130.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Edge 75.0.111.0 (Chromium) (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652086.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ SketchUp Pro 2019 19.0.685 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652077.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CCleaner 5.43.6520 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652030.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Opera 53.0.2907.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652028.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Adobe components: Flash Player 29.0.0.171 + AIR 29.0.0.112 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652023.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Skype 7.37.0.103 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651960.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Mozilla Firefox 14.0 Beta 10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651937.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Auslogics BoostSpeed 10.0.24.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651883.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Hard Disk Sentinel Pro 5.40 Build 10482 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651877.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651873.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ ReviverSoft Driver Reviver 5.25.9.12 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651828.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Avira Phantom VPN Free / Pro 2.13.1.30846 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651824.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CCleaner 5.43.6520 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651814.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ant Download Manager 0.3.9 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651799.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ W10Privacy 2.4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651787.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CyberLink PowerDVD Ultra 17.0.1806.60 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651783.jpg" />
 </div>
 
 

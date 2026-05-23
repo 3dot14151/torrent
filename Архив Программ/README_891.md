@@ -6,7 +6,7 @@ CCleaner 5.44.6575 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594632.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Perfectly Clear WorkBench 4.1.0.2279 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594623.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Apache OpenOffice 4.1.12 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594617.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kaspersky Lab Products Remover 1.0.2066.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594611.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Security Reviver 2.1.1100.26760 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594610.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ReviverSoft Driver Reviver 5.41.0.20 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594607.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594562.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WinX DVD Copy Pro 3.6.5 Re-Pack by FoXtrot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594553.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CoolUtils PDF Combine Pro 4.2.0.104 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594536.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Total Commander 10.50 beta 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594527.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ProgDVB 7.10.0 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594497.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Reg Organizer 7.15 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594484.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ ReviverSoft PC Reviver 3.7.0.26 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594446.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Auslogics BoostSpeed 9.0.0.0 DC 01.08.2016 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594420.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Mozilla Firefox ESR 45.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594419.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ REVision FX Plug-ins Pack for AE СС 2015 RePack by PooShock update 2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594411.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Rainmeter 3.3.0 Build 2416 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594410.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ The Bat! Professional Edition 6.8.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594404.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Windows 10 Manager 3.0.7 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594386.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Avira Phantom VPN Pro 2.24.1.25128 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594378.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Metro Style Icon Studio 2016.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594358.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Shadow Defender 1.4.0.647 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594355.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft WorldWide Telescope (WWT) 5.2.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594343.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.1.003 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594299.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Apowersoft Video Download Capture 6.0.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594268.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NirLauncher Package 1.19.96 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594265.jpg" />
 </div>
 
 

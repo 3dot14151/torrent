@@ -6,7 +6,7 @@ Adobe Photoshop 2026 27.3.0.13 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055230.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiarty Image Enhancer 3.9 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055151.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Krita 5.2.15 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055092.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Aiarty Image Enhancer 3.9 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054589.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ reaConverter Pro 8.0.188 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054587.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Krita 5.2.15 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054551.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Perfectly Clear WorkBench 5.0.1.3059 + AddonsPack [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054395.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Inkscape 1.4.3 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054372.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Adobe Photoshop 2026 27.3.0.13 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054364.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Adobe Photoshop 2026 27.3.0.13 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054363.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Topaz Gigapixel 1.1.1 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054313.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ GIMP 3.0.8 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054207.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Photo Pos Pro / Premium 4.18 Build 48 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054203.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Perfectly Clear WorkBench 5.0.1.3057 + AddonsPack [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054137.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Topaz Photo 1.2.0 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053929.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Topaz Gigapixel 1.1.1 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053893.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Perfectly Clear WorkBench 5.0.1.3055 + AddonsPack [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053881.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Topaz Photo 1.2.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053843.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ reaConverter Pro 8.0.186 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053736.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Aiarty Image Enhancer 3.8 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053661.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Perfectly Clear WorkBench 5.0.1.3052 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053412.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Affinity Studio 3.0.3.4027 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053375.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Aiarty Image Matting 2.6 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053372.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053259.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Adobe Photoshop Lightroom Classic 2026 15.1.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053255.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Perfectly Clear WorkBench 5.0.1.3049 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052740.jpg" />
 </div>
 
 

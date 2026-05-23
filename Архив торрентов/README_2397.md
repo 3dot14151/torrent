@@ -6,7 +6,7 @@ Glary Utilities Pro 5.104.0.128 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517100.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soft Organizer 7.28 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517098.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BluffTitler Ultimate 14.1.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517097.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Process Lasso Pro 9.0.0.478 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517093.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DJ Kocmoc - Electro Sensation vol.33 (2012) [MP3|320 кб/с]<Electro House, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517086.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ System Explorer 3.9.3 Bulid 4924 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517069.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Microsoft Office Communications Server 2007 R2 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517052.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Paragon Partition Manager 11 SE Personal build 9887
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517045.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Kaon - My Ambiguous Guest (2019) [MP3|320 Kbps] <Trip Hop, Downtempo, Abstract>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517036.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ CleanMyMac X 4.4.3.1 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517034.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ MAGIX Sound Forge Pro Suite 13.0 Build 95 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517032.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ AusLogics Disk Defrag Ultimate 4.10.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517026.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Auslogics Disk Defrag Ultimate 4.10.0.0 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517025.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ CCleaner 5.60.7307 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517023.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517018.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517016.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Shadowrun: Hong Kong (2015) [En] License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517014.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Emsisoft Internet Security 10.0.0.5641 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517009.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517007.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Corel PaintShop Pro X8 18.0.0.124 Special Edition RePack by -{A.L.E.X.}- [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517003.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Corel PaintShop Pro X8 18.0.0.124 Retail + Ultimate Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517002.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Loaris Trojan Remover 3.0.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517000.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ MAGIX Sound Forge Pro 12.1.0 Build 170 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516995.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ uTorrent 3.5.4 Build 44520 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516991.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Advanced Renamer 3.83 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516989.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ DJ Kocmoc - Russian Dance vol.10 (2012) [MP3|320 кб/с]<Club House, Electro Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516979.jpg" />
 </div>
 
 

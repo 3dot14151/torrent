@@ -1,245 +1,3 @@
-###  Публикация: 1758937   (38250) от 05.11.2024
-
-Ubuntu 24.10 Oracular Oriole [x86_64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ubuntu Desktop — это популярная операционная система с открытым исходным кодом, разработанная компанией Canonical Ltd. Она основана на дистрибутиве Debian GNU/Linux и предлагает удобный и интуитивно понятный графический интерфейс, а также широкий набор предустановленных программ. Основной фокус Ubuntu — предоставление лёгкого в использовании рабочего окружения как (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C9F3F74C16539822F222410F20F7577BCA8545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758932   (38226) от 05.11.2024
-
-Deepin 23 [x86_64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Deepin 23 — новый релиз популярного дистрибутива Linux с улучшенной стабильностью, поддержкой ARM64, интеграцией с ИИ, атомарными обновлениями и обновлённым интерфейсом DDE.
-
-Китайская компания Deepin Technology, разработчик одноимённого дистрибутива на базе Debian, представила новый релиз — Deepin 23. Этот дистрибутив давно завоевал популярность благодаря элегантному (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C2C75808FD76134DD624006D01DA96640935C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763184   (35676) от 30.11.2024
-
-Elementary OS 8 Circe [x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Elementary OS — это операционная система, основанная на Ubuntu, которая ориентирована на простоту и элегантность. Она разработана для пользователей, которые ценят эстетический дизайн и удобство в использовании. Elementary OS предлагает интуитивно понятный интерфейс, вдохновленный macOS, с акцентом на минимализм и функциональность.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707926186513360C28CCF62D19D3FE572B0E5369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764889   (34756) от 09.12.2024
-
-Red Hat Enterprise Linux 9.5 [x86_64, aarch64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Red Hat Enterprise Linux (RHEL) - популярная коммерческая операционная система на базе ядра Linux, имеющая открытый исходный код и предназначенная для развёртывания на предприятиях. RHEL можно использовать как серверную систему, а также как рабочую станцию или сервер с графическим окружением GNOME.
-
-Операционная система Red Hat Enterprise Linux ориентирована на стабильность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519D55C29EAD0E47B6A8884E37D90E91C4F7491D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765346   (34457) от 12.12.2024
-
-AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Свободный корпоративный дистрибутив Linux с открытым исходным кодом, управляемый сообществом и ориентированный на долгосрочную стабильность, обеспечивающий надежную платформу производственного уровня. ОС AlmaLinux бинарно совместима с RHEL®.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D051FE33EE5CC573C823D4A9FC186A01CABEE35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664818   (34050) от 16.12.2024
-
-Linux Mint Debian Edition 6 Faye (LMDE 6) [32-bit, 64-bit] 2xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Linux Mint Debian Edition 6 (LMDE 6) получил название "Faye", основан на дистрибутиве Debian 12 "Bookworm" и поставляется с долгосрочно поддерживаемой версией ядра Linux 6.1 LTS. Дистрибутив доступен только с новейшей версией рабочего окружения Cinnamon 5.8.
-Помимо базы Debian и нового ядра, Linux Mint Debian Edition 6 включает в себя все изменения (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2C40D3A7F754B59184F317CE4ACB6C6568CE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773638   (30712) от 17.01.2025
-
-Linux Mint 22.1 Xia (Cinnamon Edition, MATE Edition, Xfce Edition) [64-bit] 3xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Linux Mint предоставляют десктоп-окружение, соответствующее классическим канонам организации рабочего стола, которое является более привычным для пользователей.
-Дистрибутив Linux Mint 22.1, продолжает развитие ветки на основе пакетной базы Ubuntu 24.04 LTS. Дистрибутив полностью совместим с Ubuntu, но существенно отличается подходом к организации интерфейса (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175F698E3C465CC252E8AC637457BAEED52A76FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775647   (28955) от 02.02.2025
-
-Wubuntu 11.24.04.2 LTS 24.10 [amd64] 1xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Wubuntu, также известная как “Windows Ubuntu”, - это операционная система, которая имеет внешний вид и функциональность Microsoft Windows, но не требует для запуска TPM, безопасной загрузки или каких-либо других аппаратных требований. Он был разработан с использованием операционной системы Ubuntu в качестве базовой, поэтому у вас есть быстрая, безопасная и очень (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704573ED52046EB5735820093CC6FFE2946F751F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779437   (27809) от 13.02.2025
-
-GreenLinux 22.1.0 Novosibirsk [x86_64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Green Linux - операционная система на базе Linux Mint, адаптированная для российских пользователей и включающая российские репозитории, сертификат от Минцифры, а также настройки, позволяющие комфортно работать на территории России.
-
-Green Linux - это защищённая от санкций операционная система для настольных и портативных компьютеров. Она создана для работы "из (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD03D1A0D22B3C90B32B767074F5E021515ECF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785023   (24634) от 15.03.2025
 
 ALT Linux 8 СП C10F2 [amd64] 3xDVD
@@ -248,7 +6,7 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24634.jpg" />
 </div>
 
 
@@ -274,7 +32,7 @@ Astra Linux Special Edition 1.6.15 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24602.jpg" />
 </div>
 
 
@@ -302,7 +60,7 @@ Astra Linux Special Edition 1.8.1.UU2 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24100.jpg" />
 </div>
 
 
@@ -330,7 +88,7 @@ CentOS 10 Stream [x86_64 / aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21803.jpg" />
 </div>
 
 
@@ -357,7 +115,7 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20312.jpg" />
 </div>
 
 
@@ -385,7 +143,7 @@ Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20311.jpg" />
 </div>
 
 
@@ -413,7 +171,7 @@ Astra Linux Special Edition 1.8.2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20120.jpg" />
 </div>
 
 
@@ -441,7 +199,7 @@ Astra Linux Special Edition 1.7.7 UU2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18248.jpg" />
 </div>
 
 
@@ -469,7 +227,7 @@ Red Hat Enterprise Linux 10.0 [x86_64, aarch64] 4xDVD 1xZIP
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17722.jpg" />
 </div>
 
 
@@ -497,7 +255,7 @@ Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16901.jpg" />
 </div>
 
 
@@ -525,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15527.jpg" />
 </div>
 
 
@@ -551,7 +309,7 @@ MeeGo OS 1.2 cedartrail  [i386] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12569.jpg" />
 </div>
 
 
@@ -578,7 +336,7 @@ MeeGo OS 1.2 [i386] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12284.jpg" />
 </div>
 
 
@@ -605,7 +363,7 @@ Zorin OS 17.3 R3 Pro & Pro Lite [X86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11364.jpg" />
 </div>
 
 
@@ -633,7 +391,7 @@ Astra Linux Special Edition 1.8.3 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6532.jpg" />
 </div>
 
 
@@ -661,7 +419,7 @@ Linux Mint 22.2 Zara (Cinnamon Edition, MATE Edition, Xfce Edition) [x86_64] 3xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4593.jpg" />
 </div>
 
 
@@ -687,7 +445,7 @@ Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2390.jpg" />
 </div>
 
 

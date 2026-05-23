@@ -1,25 +1,25 @@
-###  Публикация: 1536094   (678658) от 10.03.2022
+###  Публикация: 1029654   (678332) от 28.06.2016
 
-Marga Sol - Soultalk (2020) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Best Body 2016 - Tribute to Pop Hits (2016) [MP3|320 Kbps] <Pop>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ocean Seagulls (Original Mix) (4:37)
-02. Soulheaven (Original Mix) (5:50)
-03. Starry Night (Original Mix) (5:47)
-04. Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:52:11
+01. Coldplay - A Sky Full of Stars (Hardwell Remix)
+02. Charli XCX - Break the Rules (Tiesto Remix)
+03. Melanie Martinez - Carousel (SNBRN Remix)
+04. Clean Bandit - Rather Be (feat. Jess Glynne)Жанр: PopПродолжительность: 03:15:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D42C9D2255B016E419B70CC2B6AB5E113FD945F9
+magnet:?xt=urn:btih:2D63C037FA2A03647225EC52BE1F397097B4EAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535889   (678656) от 10.03.2022
+###  Публикация: 1029742   (678331) от 28.06.2016
 
-VA - Underwater Oasis: Chillout Your Mind (2022) [AAC|~326 Kbps] <Lounge, Chill Out>
+Александр Володин | Пьесы для театра и кино (2016) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matt Sour - Honey for All (Original Mix) (4:27)
-02. Organic Patch - Vibes (4:08)
-03. G.Pantelidis - Sailing (5:19)
-04. Marga Sol - Bliss of Water (Original Mix) (6:00)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:28:46
+Имя Александра Володина прочно связано с театром и кинематографом. Его пьесы несколько десятилетий с успехом идут на лучших сценических площадках, фильмы по его сценариям снимали известнейшие кинорежиссеры - Э.Рязанов, Г.Данелия, Н.Михалков. В книгу вошло 6 произведений А. Володина. Среди них пьесы "Пять вечеров" и "Старшая сестра". По двум произведениям: (   Читать дальше...   )Жанр: Рассказы, запискиПродолжительность: 08:05:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FE6A023B50FB4DA40B1EDC546C1AFE955A2FA56
+magnet:?xt=urn:btih:5EEA9756C6F0240C46218CF70BE737B0B171F7A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535894   (678654) от 10.03.2022
+###  Публикация: 1029885   (678330) от 28.06.2016
 
-VA - Urban City Vibes 9: Urban Chillhop, Soul & Nu Jazz Music (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Nu Jazz, Soul, Chillhop>
+Dash 3.3.0 [En]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lennart Richter - Always Near (Original Mix) (6:21)
-02. sarosa - On the Run (Original Mix) (3:48)
-03. Matej Blanusa - Soulful (5:08)
-04. Digby Jones - Yes Please (Original Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, Nu Jazz, Soul, ChillhopПродолжительность: 01:04:15
+Dash  - браузер документации и примеров кода
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 июня 2016Разработчик: Bogdan PopescuПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53D1B46E80D8BAADA5A9F090FC0A584F8385A275
+magnet:?xt=urn:btih:F9A85F5260602A32A312D24B00238EDCEA00AEC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 508720   (678653) от 10.06.2012
+###  Публикация: 1029883   (678329) от 28.06.2016
 
-В. Надеждина | 130 домашних игр для детей и родителей [2007] [DOC]
+VA - Diskoteka Club Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <Dance>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-130 домашних игр для детей и родителей – это сборник разнообразных игр для детей дошкольного и младшего школьного возраста. В книге собраны игры, способствующие развитию детей и подготовке их к обучению в школе. Играть с малышами могут родители и воспитатели детского сада, некоторые игры рассчитаны на большое число участников, некоторые - на 2-3 человека. В книге представлены следующие основные игры: игры на развитие внимания, координации движений, развитие восприятия, мышления и речи, воображения и художественных способностей, памяти, просто подвижные игры и разные забавы.Формат: DOC
+01. 2Pac - California Love (Yastreb Radio Edit)
+02. Alan Walker vs Kyfra & Dastic - Sing Me To Sleep Magic (Fabien Jora Festival Mashup)
+03. Andrey Exx, Troitski feat. Diva Vocal - Touch me (No Hopes & Sharapoff Remix)
+04. Artelax vs. D.O.D, Afrojack - Acid Back (Night & Toni Aries Mashup)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:25:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:098B4B016879B5C7C5C04F5CB730D805C6063D99
+magnet:?xt=urn:btih:4569A7D976198CD92F7E7CBD76EFCB7D327BD3B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536085   (678652) от 10.03.2022
+###  Публикация: 1029736   (678328) от 28.06.2016
 
-Master - Vindictive Miscreant (2018) Reissue, 2021, Awakening Records [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+Psy Trance Workout Music - Top 100 Burn Remixes 6hr DJ Mix (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vindictive Miscreant 05:06
-02. Actions Speak Louder than Words 05:40
-03. Replaced 04:35
-04. The Inner Strength of the Demon 06:13(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:55:52
+001. Start Taking Tiny Steps, Feet Meet Hands (145bpm Psy Trance Burn Workout DJ Mix Edit) 3:05
+002. Inchworm (145bpm Psy Trance Burn Workout DJ Mix Edit) 3:26
+003. Stand up Tall (145bpm Psy Trance Burn Workout DJ Mix Edit) 3:12
+004. Legs Straight (145bpm Psy Trance Burn Workout DJ Mix Edit) 3:12(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 07:55:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EEB5A1CC542ACA287C7CEA7419469DFDF60E23B
+magnet:?xt=urn:btih:1B81B3D0571AE7DBCFEEE55B699BF903A9CA41F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535891   (678650) от 10.03.2022
+###  Публикация: 1029678   (678327) от 28.06.2016
 
-VA - Wellness, Spa & Meditation, Vol. 4 (2022) [AAC|~287 Kbps] <Chill Out, Lounge, Ambient, Relax>
+VA - Thank God Its Sunday - 25 Relaxing Mood Tunes Vol.3 (2016) [MP3|320 Kbps] <Lounge>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ganganesha - Mother Gea (3:25)
-02. Dharma - Pleasure and Bliss (2:13)
-03. Flavas - The Ability to Master Attention and Intention (2:13)
-04. Shivara - White Mother (3:29)(   Читать дальше...   )Жанр: Chill Out, Lounge, Ambient, RelaxПродолжительность: 01:14:41
+01. L Like Lounge - Bun
+02. Cut Velvet - Hair Look
+03. Joseph B - Spirit In The Sky
+04. Mamo - Kung Fu(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:37:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25ACC8BFB182495C8C78ED4AE6CFA4B111B0CE70
+magnet:?xt=urn:btih:42AFD49C974337107D49B32ED632F799D0CFE9D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +167,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536093   (678648) от 10.03.2022
+###  Публикация: 1029892   (678326) от 28.06.2016
 
-Marga Sol - Coastline (2019) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+Fantastical 2 - Calendar and Reminders 2.2.4 [Multi]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chillvibes (Original Mix) (4:28)
-02. Beautiful & Bitter (Original Mix) (4:28)
-03. My Baby (Original Mix) (5:50)
-04. Bossalova (Original Mix) (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:14
+Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
+Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.  Основным отличием от аналогичных программ такого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 июня 2016Разработчик: Flexibits Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Итальянский и др.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DFBA724FDEE03031C1AEFC5AF8D07979059E5DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +194,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536095   (678646) от 10.03.2022
+###  Публикация: 1029749   (678325) от 28.06.2016
 
-Marga Sol - Reflections (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+Журнал | Моя прекрасная дача №13 (Июль 2016) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Calma (5:28)
-02. Marga Sol, Duke B - Falling into Existence (Original Mix) (4:13)
-03. Marga Sol, Darles Flow - Andromeda (7:29)
-04. Mind Travel (Original Mix) (3:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:00:34
+Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59667198245CC80EBABB15BE5315F672533B0F88
+magnet:?xt=urn:btih:BF3220D53E61417655D104FC41688C2F5E5B3C2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,25 +220,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536210   (678645) от 10.03.2022
+###  Публикация: 1029722   (678324) от 28.06.2016
 
-Джон Банни. Медовый месяц Банни / Bunny's Honeymoon (1913) DVDRip
+VA - Nude Mix #4 (2016) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом фильме Джон Банни играет крёстного отца красавицы Валерии, которая хочет выйти замуж за торговца недвижимостью Кьюти. Но её отец против их свадьбы, потому что Кьюти злоупотребляет алкоголем, а если прямо сказать - пьянствует до свинского состояния. Банни решает помочь влюблённым и помочь Кьюти избавится от дурной привычки.Производство: США, Vitagraph Company of AmericaЖанр: Комедия, короткометражный, немое киноРежиссер: Вилфрид НортАктеры: Джон Банни, Дороти Келли, Уолли Ван, Чарльз Элдридж, Фрэнк Мэйсон, Роберт ГэллардПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:20
+01. Insomna - Memories (4:28)
+02. Sonicblast - Perfect Match (4:47)
+03. Voicians - Survival League (4:42)
+04. Echos - Tomorrow (3:21)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 00:44:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EEC7A3529BF55504DAF590605F3D9491DF1F796
+magnet:?xt=urn:btih:0934B339F826E98CA2FC1C9204CCAC551573D38B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,136 +249,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 508754   (678644) от 10.06.2012
+###  Публикация: 1029810   (678323) от 28.06.2016
 
-Sabayon 9.0 (GNOME, KDE, Xfce) [x86] (3xDVD)
-
->>След.
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 9 (редакции GNOME, KDE, Xfce, SpinBase, ServerBase, CoreCDX). «Из коробки» компонентами этой версии являются ядро 3.4, GNOME 3.2.3, KDE 4.8.3, Xfce 4.10, LibreOffice 3.5.3. Основные особенности релиза Sabayon 9: использование в экосистеме Sabayon профиля Gentoo Hardened; Rigo – новая минималистичная и простая концепция пользовательского интерфейса Application Browser; tech-preview реализация поддержки ZFS (ограничена в связи с лицензионными конфликтами); PAE-ядро для версий x86 (32-bit); значительное количество исправленных ошибок.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BA49CC851160471C388054A60A84B49BCA2172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535948   (678643) от 10.03.2022
-
-Marga Sol - Best of Marga Sol: 10 Years Anniversary Edition (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Dali Sonuvam (Ambient Chill Mix) (3:44)
-02. Around Me (3:36)
-03. Tocca Me (4:27)
-04. Prayer for Love (3:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:01:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535393   (678641) от 10.03.2022
-
-Balduin - Vintage Vibes (2022) [AAC|~300 Kbps] <Electro Swing, Neo Swing, Swing Hop, Pop>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Balduin, Kate Thomas - Hep Cat Boogie (3:23)
-02. Balduin, Masha Ray - Wabababa (3:04)
-03. Balduin, Wolfgang Lohr, J Fitz - New Ground (3:08)
-04. The Pink Cat (1:22)(   Читать дальше...   )Жанр: Electro Swing, Neo Swing, Swing Hop, PopПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508771   (678640) от 10.06.2012
-
-Беглец / The Fugitive (1993) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Убитая жена. Однорукий мужчина. Одержимый детектив. Преследование начинается. Доктор Ричард Кимбл, чикагский хирург, ложно обвинен в убийстве своей жены.
-Полный решимости доказать свою невиновность, доктор совершает побег из тюрьмы. Он хочет сам привести своих преследователей — служителей закона — к настоящему убийце…Жанр: Боевик, триллер, драма, криминал, приключенияРежиссер: Эндрю ДэвисАктеры: Харрисон Форд, Томми Ли Джонс, Села Уорд, Джулианна Мур, Джо Пантольяно, Андреас Катсулас, Ерун КраббПеревод: Профессиональный дублированныйПродолжительность: 02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7321216BDA7ECB71966C8F66657E7F519CF6A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535928   (678639) от 10.03.2022
-
-Иерей Владимир Соколов | На грани жизни (2008) [PDF, DJVU]
+В. А. Мезенцев (ред., сост.) | Мы порвали с религией [рассказы бывших верующих] (1963) [DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иерей Владимир Соколов знаком читателям как автор многих статей и книги о проблеме младостарчества. Новая книга отца Владимира - это не просто письма заключённым, это, скорее, ответы на вопросы, которые сама жизнь задаёт душе каждого человека. Отверженные обществом люди обращаются прежде всего к нашей совести. И главный вопрос, который читается между строк этих писем: (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+В сборнике «Мы порвали с религией» помещены рассказы служителей культа, рабочих, колхозников, служащих, учащихся, военнослужащих Советской Армии, Авиации и Флота, порвавших с религией. По просьбе авторов они были опубликованы в 1958—1963 годах в центральных, республиканских, областных, городских и районных газетах, а также в солдатских газетах военных округов, флотов, (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18D29C946E0DFEACA03038ED734DD7DBEC8EF066
+magnet:?xt=urn:btih:AEC23E2658120FE9CC1997BF6D7BA64B4A9711BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +275,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536214   (678637) от 10.03.2022
+###  Публикация: 1029676   (678322) от 28.06.2016
 
-Дыхание нации / The Breath of a Nation (1919) DVDRip
+Тацухико Такимото  | Добро пожаловать в NHK (2015) [MP3]
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Забавная история происшедшая в период продвижения и принятия в США так называемого "сухого закона". Все еще было впереди и американцам это пока что казалось смешным...Производство: США, International Film ServiceЖанр: Рисованная анимация, короткометражный, комедия, для взрослыхРежиссер: Грегори Ла КаваПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:06:01
+Знакомьтесь, Сато Тацухиро, 22 года. Этот человек может рассказать вам об одиночестве всё, ведь он хикикомори, затворник 21 века. Он не учится и не работает, его телефон всегда молчит, он не разговаривал ни с кем уже несколько лет, он спит по шестнадцать часов в день и выходит из дома только по ночам, чтобы купить еды. Однажды Сато поймет, что он стал жертвой заговора (   Читать дальше...   )Жанр: Социальная сатира, комедия, драмаПродолжительность: 06:35:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A68E000344E1C59AD118E99F58B24AEA9F99F7A5
+magnet:?xt=urn:btih:7EBA52C11EDED730472E2C9B0B341605302C3169
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,25 +301,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 508482   (678636) от 10.06.2012
+###  Публикация: 1029844   (678321) от 28.06.2016
 
-М.Г. Манизер | Школа изобразительного искусства [1962] [PDF]
+VA - Absolute Jazz (2016) [MP3|320 Kbps] <Jazz, Instrumental>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проверенное временем практическое руководство для начинающих и самодеятельных художников.1962Формат: PDF
+01. Sante Palumbo Trio - The Look of Love (06:10)
+02. Carlo Nicita Trio - Summertime (Take 2) (05:42)
+03. The Fantastic Jazz Quartet - Take Five (06:05)
+04. Urban Lovers Jazz Quartet - The Shadow of Your Smile (06:11)(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:07:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:054274B1A7D35ED49D5E3D123E25F9489C14CB19
+magnet:?xt=urn:btih:4C54B938D69E486CDB972165ADFDE467DB6755B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,88 +330,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536157   (678635) от 10.03.2022
+###  Публикация: 1029575   (678320) от 28.06.2016
 
-Ghost - Impera (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Шведские оккультные рокеры GHOST выпустят пятый альбом "Impera" 11 марта 2021 года на лейбле Loma Vista (в составе компании Concord).
-
-На "Impera" "GHOST путешествуют во времени на сотни лет из эпохи “Черной чумы” в Европе XIV века, во время которой происходило действие их предыдущего альбома "Prequelle" (2018). В результате получилась (   Читать дальше...   )01. Imperium (01:40)
-02. Kaisarion (05:02)
-03. Spillways (03:17)
-04. Call Me Little Sunshine (04:44)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290456   (678614) от 20.03.2019
-
-Masahiko Sato - All-In, All-Out (1979) 1991, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Sapajou Walk [6:19]
-02. Grama Grass [7:36]
-03. Salamander [6:28]
-04. Moth Ball [4:26](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A37E62DD7437882E283573FAA69E23CC2CF6FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029875   (678613) от 28.06.2016
-
-Волейбол. Мировая лига 2016.Мужчины. Предварительный этап.Группа B1. 2-й тур. США – Иран (17.06.2016) WEB-DLRip [H.264/1080p-LQ]
+Футбол. Чемпионат Европы 2016. 1/8 финала. Германия — Словакия (26.06.2016) HDTV [H.264/1080i]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 июня 2016, пятница. 23:15 МСК
- Первая игровая неделя. 1-й дивизион. Группа B1. 2-й тур
-Стадион:  Арена Кариока 1 (Рио-де-Жанейро, Бразилия) , 3530 зрителей (22 % при вместимости 16000)
-Судья 1:  Ибрахим Аль Наама (Катар)(   Читать дальше...   )Жанр: СпортЯзык озвучки: ИнтершумПродолжительность: 02:28:50
+26 июня 2016, воскресенье. 19:00 МСК
+ 1/8 финала
+Стадион:  Пьер-Моруа (Вильнёв-д'Аск, Франция) , 44312 зрителей (88 % при вместимости 50186)
+Главный судья:  Шимон Марциняк (Плоцк, Польша)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: русский (Станислав Минин (превью), Нобель Арустамян, Роман Трушечкин)Продолжительность: 02:26:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77E5662DFCC1D6780DD2F1FA29991723D9712276
+magnet:?xt=urn:btih:789321474B5F1B9226582E507BEFC7A5D9AE17A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,28 +359,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029831   (678612) от 28.06.2016
+###  Публикация: 1029891   (678319) от 28.06.2016
 
-VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, House>
+Эйс Аткинс | По закону плохих парней (2016) [FB2]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grigory Melikhov -  Tech Of Sentiment (Fanis & Emanuel Phaz remix) 7:25
-02. Digital Department -  Enzox 6:54
-03. Matteo Monero -  You Don't Fool Me (Ronny Ritt vs Shock Osugi remix) 6:11
-04. Hypnotic Duo -  Into the Deep 6:03(   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 02:36:05
+Армейский рейнджер Квин Колсон приезжает в родной город в штате Миссисипи, где не был вот уже шесть лет. Привел его на родину печальный повод: смерть дяди. Квин собирается отдать родственнику последний долг, разобраться с наследством и возвратиться на службу. Но прошедший горячие точки солдат понимает, что в родном городке слишком многое изменилось: власть вершат (   Читать дальше...   )Жанр: Современные детективы, Триллеры, Зарубежные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F868D54C6985A1C667676FFF1D2AD9CC36E9331D
+magnet:?xt=urn:btih:DE3A3723ECC598B52E2E4D981E89B92E3FAEE935
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,28 +385,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029816   (678611) от 28.06.2016
+###  Публикация: 1029867   (678318) от 28.06.2016
 
-VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Future House>
+Tony Foster - Project Paradiso: Tony Foster Plays Ennio Morricone And Henry Mancini (2016) [MP3|320 Kbps] <Jazz: Piano Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Axwell & Ingrosso -  Dream Bigger (Instrumental) 4:02
-02. Firebeatz & Jay Hardway -  Home (Edit) 3:17
-03. Juicy M feat. Endemix -  Skies (I Don't Wanna Come Down) (Radio Edit) 3:21
-04. Dimitri Vegas & Like Mike Feat. Ne-Yo -  Higher Place (Afrojack Extended Remix) 5:54(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 04:30:31
+1. A Flower Is All You Need (From L'ultimo Treno Della Notte) (4:09)
+ 2. Love Theme (From Cinema Paradiso) (4:46)
+ 3. Slow Hot Wind (From The Big Lebowski) (5:24)
+ 4. It Had Better Be Tonight (From The Pink Panther) (3:38)(   Читать дальше...   )Жанр: Jazz: Piano JazzПродолжительность: 00:48:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE3511755FC7DCEC457FC3205878086798EC8A22
+magnet:?xt=urn:btih:D4D923A092789950FDBF0C04A63EA1EC80DDC883
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,28 +414,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029747   (678610) от 28.06.2016
+###  Публикация: 1029843   (678317) от 28.06.2016
 
-VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbps] <House>
+VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rockhouse Crew - Love Extensions - Balearic Remix
-02. Patrick Blasa - Loose - Henrik Schwarz Remix
-03. Julia Messenger - Give This Up
-04. Christian Weiland - Tokyo Nights(   Читать дальше...   )Жанр: HouseПродолжительность: 03:16:17
+01. Subconscious Tales - Helligkeit [07:51]
+02. Praveen Achary, Vlada D'Shake - Public Secret (Praveen Achary Remix) [06:48]
+03. Matter, Jorgio Kioris - Pushin' (Matter's Pushin Too Hard Remix) [08:37]
+04. Rick Pier O'Neil, Dio S, Desaturate - Nonchalance (Rick Pier O'Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:334157F12F5EB5F774F495F8643895994B73C920
+magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,28 +443,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029953   (678609) от 28.06.2016
+###  Публикация: 1029464   (678316) от 28.06.2016
 
-Widow - Carved In Stone (2016) [MP3|320 Kbps] <Power Metal>
+Эдуард Володарский | У каждого своя война (2016) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Burning Star
-2. Carved In Stone
-3. Another Time And Place
-4. Wisdom(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:55
+Рассказ о московских подростках, которые родились и выросли в Замоскворечье. Это – первое послевоенное поколение подростков, на долю которых тоже пришлось немало испытаний – и, прежде всего, страшное время репрессий конца 40-х – начала 50-х годов. Весна 1956 года, из сталинских лагерей начинают возвращаться первые амнистированные. Где-то там, в местах не столь отдаленных, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 18:50:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C322BE181ED2853BD334CA8E7F22537598B67225
+magnet:?xt=urn:btih:6E82C22ACC9EF2969D6853CDBE06ED38108BD516
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,25 +469,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029544   (678608) от 28.06.2016
+###  Публикация: 1029884   (678315) от 28.06.2016
 
-VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
+Владислав Крапивин | Лётчик для особых поручений (2016) [MP3]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Laidback Luke - Bae (Feat. Gina Turner)Жанр: Club, HouseПродолжительность: 08:58:43
+Повесть написана в 1972 году. Ключевая фраза: Никакой дорогой, даже самой правильной, нельзя проходить
+мимо того, кому нужен друг.
+Из большой повести я намеренно сделал довольно короткую аудиопьесу. Возмущаться по этому поводу беспо-
+лезно.Жанр: повесть-сказкаПродолжительность: 01:29:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE0350C95819B587262A46C0C23D5D08E3E59148
+magnet:?xt=urn:btih:6D4AFDBC441F22C02ACECE001A58E24495C81483
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,28 +498,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029973   (678607) от 28.06.2016
+###  Публикация: 1135573   (678314) от 20.05.2017
 
-VA - Soft Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+Семейное ограбление / Mes trésors (2017) Blu-ray [H.264/1080p]
 
->>Electronic
->>Easy listening
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bessi B. - Do You Remember Me (4:11)
-02. La Brisa Del Mar - Session One (6:03)
-03. Elaphe Guttata - Eulalie (4:30)
-04. Didascalis feat. Wrong Experience - Rainfall (5:23)(   Читать дальше...   )Производство: Sound DesignerЖанр: Lounge, Downtempo, ChilloutПродолжительность: 00:52:43
+Анжела и Анжелика — две абсолютно разные девушки, которые не имеют ничего общего. Кроме, разве что, отца, которого они никогда не видели. И вот однажды он появился в их жизни. Вор международного масштаба решил наверстать упущенное, создав с дочерьми безумную команду, чтобы совершить ограбление века. И все бы ничего, только гениальный план Патрика дает сбой, и все (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Паскаль БурдьоАктеры: Жан Рено, Рем Кериси, Камиль Шаму, Бруно Санчес, Паскаль Демолон, Жан Ренес, Марион Брие, Юже Тьерри, Зина ЕсепчукПеревод: Дублированный (Лицензия)Субтитры: отсутствуют.Продолжительность: 01:30:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C4166AB32DC659121DB467D7A16B183E482C661
+magnet:?xt=urn:btih:66B88A5E6D56BF2F51B5429B48DC417096AE33B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,28 +524,182 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029767   (678606) от 28.06.2016
+###  Публикация: 1135869   (678313) от 20.05.2017
 
-VA - Suanda Summer Vol.3 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+Cities: Skylines (2015) [Ru/Multi] (1.7.0-f5/dlc) SteamRip R.G. Origins [Deluxe Edition]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Feel & Alexandra Badoi -  Did We Feel 5:20
-02. Aurosonic Ft. Nicol Cache -  Tell Me Why (Mhammed El Alami Remix) 6:05
-03. Kayat Ft. Clare Stagg -  The Calling 7:11
-04. Eximinds -  Archaea 5:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:06:55
+Cities: Skylines предлагает по-новому взглянуть на классический жанр градостроительного симулятора. Эта игра как нельзя лучше передает возникающие перед градоначальником трудности и позволяет создать настоящий мегаполис, одновременно привнося в игру приятные новшества. Создатели игры принимали участие в разработке серии Cities in Motion, поэтому игра отличается высокореалистичной (   Читать дальше...   )Тип издания: SteamRipРазработчик: Colossal Order Ltd.Жанр: Strategy (Manage, Busin., Real-time), 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F34F0942A9DC31CFB4EC4EEAAFC4693223CE965B
+magnet:?xt=urn:btih:01FC8445D0A752E5E3AE65B51F5CE160DBCE51A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135756   (678312) от 20.05.2017
+
+Крадущийся тигр, затаившийся дракон: Меч судьбы / Crouching Tiger, Hidden Dragon: Sword of Destiny (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя долгих восемнадцать лет после смерти возлюбленного, всё еще хранящая печаль в сердце Шулень решает прервать своё отшельничество и отправиться в Пекин, в тот самый дом, где начиналась предыдущая часть этого фильма. Во время поездки её карета была атакована воинами Западного Лотоса, сильнейшего боевого клана на территории Китая, с давних пор пытающегося расправиться (   Читать дальше...   )Производство: США, Китай / China Film Group Corporation, NetFlix, Pegasus Taihe EntertainmentЖанр: Фэнтези, боевик, драма, приключенияРежиссер: Юэнь Ву-пинАктеры: Донни Йен, Мишель Йео, Гарри Шам мл., Джейсон Скотт Ли, Евгения Йуан, Жужу Чан, Крис Пэнг, Дэррил Квон, Роджер Йуан ...Перевод: Любительский многоголосыйСубтитры: Русские, английские, итальянские, китайскиеПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F668E46F517BB67B560E08398281EDD21407428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135482   (678311) от 20.05.2017
+
+Рубильник (Передельщик) / Redivider / Kill Switch (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678311.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о пилоте, который пытается спасти свою семью и планету после провала эксперимента с использованием неограниченной энергии, проводимого, чтобы обуздать параллельные вселенные.Производство: Нидерланды, Германия, США / CTM Productions BV, FilmNation Entertainment, RainMaker FilmsЖанр: ФантастикаРежиссер: Тим СмитАктеры: Дэн Стивенс, Беренис Марло, Чарити Уэйкфилд, Тиго Гернандт, Хлоя-Мэй Катхилл, Гийс Шолтен ван Ашат, Бас Кейзер, Дон Альфонсо, Мике Либанон, Майк Реус ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8095C067E8A6519BEA5770131D0553B3DEA2C8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135143   (678310) от 20.05.2017
+
+Журнал | Chip [Россия] №6 (июнь 2017) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08F02A8E6A967E668A63B06C6578529585A4EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135948   (678309) от 20.05.2017
+
+IP-TV Player 0.28.1.8847 DC 20.05.2017 [Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678309.jpg" />
+</div>
+
+
+###  Подробнее
+
+IP-TV Player - это высококачественный проигрыватель для вещания эфирных каналов IP-телевидения. Индивидуальные настройки для каналов, возможность записи потока в файл. Поддерживаются телепрограммы в формате JTV, планировщик записи/просмотра, фоновая запись.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB2BB7D5564C51BC6A71818E519769F6A506C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113046   (678308) от 20.05.2017
+
+Мыслить как преступник: За границей / Criminal Minds: Beyond Borders (2017) WEB-DL / WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) OMSKBIRD [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф детективного сериала "Мыслить как преступник". Сериал рассказывает об элитной команде из ФБР, занимающейся расследованием преступлений за пределами США, в которые вовлечены американские граждане.Производство: США / Mark Gordon Company, CBS Television Studios, ABC StudiosЖанр: драма, криминал, детективРежиссер: Роб Бэйли, Мэтт Эрл Бисли, Лаура БелсиАктеры: Гэри Синиз, Энни Функе, Алана де ла Гарса, Дэниэл Хенни, Тайлер Джеймс Уильямс, Афшин Оляи и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: ~00:44:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB74B4EB136A9EACA1A69E9906D98CEBE1E40EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135779   (678307) от 20.05.2017
+
+Последствия / Aftermath (2017) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ожидающий прилета своей семьи Роман узнает, что случилось непоправимое. Произошла авиакатастрофа и его любимые — жена и беременная дочь — погибли.
+Потеряв тех, ради кого жил, он преследует единственную цель: посмотреть в глаза невольного убийцы и услышать слова сожаления. Более года поиска приводит Романа к авиадиспетчеру Джейку, управлявшему курсом самолета в момент (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, реальные событияРежиссер: Эллиотт ЛестерАктеры: Арнольд Шварценеггер, Мэгги Грэйс, Кевин Зегерс, Скут МакНэри, Ханна Уэр, Мариана Клавено, Гленн Моршауэр, Ларри Салливан, Мартин Донован, МоПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D924223ED928A789DF65171FC208230953C2B363
 ```
 
 https://mybot314.ru/tekegram_catalog/

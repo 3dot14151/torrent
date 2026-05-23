@@ -1,82 +1,3 @@
-###  Публикация: 1811076   (16566) от 08.08.2025
-
-INDIGO | Фортуна дама переменчивая (Книга 10). На границе империй. Том 7. Часть 4 (2025) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Ты выяснил, что за Наридо? - Мой запрос выдал несколько миллионов вариантов. Это популярное имя у оширцев. - Он сказал: «Полечу на Наридо». Это не имя. Скорей всего, это станция. - Я тоже так подумал, но в сети нет станций с таким названием. С таким названием есть бары, магазины, торговые центры на разных станциях и планетах. Кроме того, возможно, это военная станция, (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 07:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24675FB38D505BD483DF739B55549AE0B8C16E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811077   (16565) от 08.08.2025
-
-INDIGO | Фортуна дама переменчивая (Книга 11). На границе империй. Том 7. Часть 5 (2025) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Аграфы опять аграфы. Куда без них...Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 08:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B2D6D4E9980076D6FBA8F08D0EC48856466889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811079   (16564) от 08.08.2025
-
-Алексей Свадковский | Игра Хаоса (Книга 11). Кладбище миров (2025) [MP3, Сергей Дидок]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Судьбы миров, жизни народов порой так уязвимы и хрупки! И так зависят от героев, что готовы рискнуть всем, лишь бы пламя жизни не погасло… О героях создадут песни, сложат мифы и придумают легенды, но лишь боги и они сами знают, каково им пришлось на пути к цели.
-Эта книга не про героев, а про разумных, вынуждено ставших ими.Жанр: Фэнтези, Приключения, ЛитРПГИздательство: ИДДКПродолжительность: 14:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EA534FCB18AD4409C7DE05A0F27C02B98315B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811080   (16563) от 08.08.2025
 
 Алексей Свадковский | Игра Хаоса (Книга 12). Кладбище миров (2025) [MP3, Сергей Дидок]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16563.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16558.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16520.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16519.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16518.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16517.jpg" />
 </div>
 
 
@@ -246,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16516.jpg" />
 </div>
 
 
@@ -272,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16515.jpg" />
 </div>
 
 
@@ -298,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16514.jpg" />
 </div>
 
 
@@ -324,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16513.jpg" />
 </div>
 
 
@@ -350,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16512.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16511.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16510.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16509.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16508.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16507.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16506.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16505.jpg" />
 </div>
 
 
@@ -558,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16504.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16503.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16482.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16481.jpg" />
 </div>
 
 
@@ -665,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16480.jpg" />
 </div>
 
 
@@ -679,6 +600,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B82FEB3BEF54F4CB5CA89F340B48FFC73CDFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811167   (16479) от 08.08.2025
+
+Кирилл Довыдовский | Мастер Перемен (Книга 3). Спасти Род. Том 3 (2025) [MP3, Иван Глебов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи лет назад человечество переселилось на Девять Планет. С тех пор борьба за деньги и власть между Стихией и Системой, империями и корпорациями, кланами и гильдиями не останавливается ни на миг.
+
+Михаил Духов – безбашенный гений и культиватор - погибнув в своем мире, переносится на Девять Планет, где получает шанс на полноценную жизнь.
+Но он еще не знает, что (   Читать дальше...   )Жанр: Фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 10:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E5810EE53AB1791AF7A24814E24E4CB66E9D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811168   (16478) от 08.08.2025
+
+Кирилл Довыдовский | Мастер Перемен (Книга 4). Спасти Род. Том 4 (2025) [MP3, Иван Глебов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи лет назад человечество переселилось на Девять Планет. С тех пор борьба за деньги и власть между Стихией и Системой, империями и корпорациями, кланами и гильдиями не останавливается ни на миг.
+
+Михаил Духов – безбашенный гений и культиватор - погибнув в своем мире, переносится на Девять Планет, где получает шанс на полноценную жизнь.
+Но он еще не знает, что (   Читать дальше...   )Жанр: Фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 10:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0819D071218ED2449292DD1C195D7FC5AC6882B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811169   (16477) от 08.08.2025
+
+Кирилл Довыдовский | Мастер Перемен (Книга 5). Спасти Девять Планет. Том 1 (2025) [MP3, Иван Глебов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи лет назад человечество переселилось на Девять Планет. С тех пор борьба за деньги и власть между Стихией и Системой, империями и корпорациями, кланами и гильдиями не останавливается ни на миг.
+
+Михаил Духов – безбашенный гений и культиватор - погибнув в своем мире, переносится на Девять Планет, где получает шанс на полноценную жизнь.
+Но он еще не знает, что (   Читать дальше...   )Жанр: Фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 09:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FD4BDBEEFDB4BCABE252E3CB3DC56DB38E5371
 ```
 
 https://mybot314.ru/tekegram_catalog/

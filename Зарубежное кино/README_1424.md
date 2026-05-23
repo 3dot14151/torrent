@@ -1,55 +1,3 @@
-###  Публикация: 1422819   (303888) от 11.11.2020
-
-Ад по соседству (Девушка из первой квартиры) / 1BR (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рассорившись с отцом после смерти матери, Сара пытается начать самостоятельную жизнь и находит идеальную, как ей кажется, квартирку в одном из небольших жилых комплексов Лос-Анджелеса. Её новые соседи - всё сплошь доброжелательные милые люди, которые устраивают совместные вечеринки и заботятся друг о друге. Но по ночам Сара не может нормально спать из-за странных (   Читать дальше...   )Производство: США / 1BR Movie, Epicenter, Malevolent FIlmsЖанр: Триллер, драмаРежиссер: Дэвид МарморАктеры: Алан Блюменфилд, Андреа Гэбриел, Джиллз Мэттхи, Марк Креник, Наоми Гроссман, Николь Брайдон Блум, Сьюзэн Дэвис, Тейлор Николс, Селеста А. Салливан, Хейли ДжиллзПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302D68F3DA01892440960114DE01BE7C8C51797E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266993   (303866) от 06.12.2010
-
-Безумное свидание / Date Night (2010 ) [Расширенная версия / Extended Edition][H.264/720p-LQ]  BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Скучную жизнь супругов Фостер должен разнообразить ужин в модном нью-йоркском ресторане. Так и получилось, ведь стоило им представиться чужими именами, чтобы получить столик без очереди и безумные приключения тут же начались. Приняв их за других, в бешеную гонку по городу за семейной четой пустились коррумпированные копы и городские гангстеры.Жанр: Комедия, Детектив, МелодрамаРежиссер: Шон Леви / Shawn LevyВ ролях: Стив Карелл, Тина Фей, Марк Уолберг, Тараджи П. Хенсон, Джимми Симпсон,Перевод: Профессиональный (дублированный) + вставки VOФормат: MKVПродолжительность: 01:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891B9DE1BAC9B13C4AA3558AEDF56B2618D59B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846227   (303863) от 01.12.2014
 
 Макс Пэйн / Max Payne (2008) HDRip [Unrated Cut] [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303863.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303852.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303848.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303845.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303816.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303786.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303776.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303775.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303771.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303746.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303736.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303732.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303731.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303728.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303726.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303718.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303678.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303674.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303672.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303392.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303283.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303254.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303148.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303147.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83737B4BC17F0870936B7EF7F7E74F8AB72D0100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333561   (303141) от 25.10.2019
+
+Венеция зовет / Venise n'est pas en Italie (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмилю 14, он брюнет. Но его мама считает, что все блондины счастливы, поэтому каждый месяц позорно красит ему волосы. А его папа — чудаковатый торговый представитель — никак не может достроить дом, поэтому семья живет в фургончике. Ещё Эмиль влюблен в Полину, которая однажды пригласила его на концерт в Венецию, где ей предстояло выступать. Конечно, вместе с бедным (   Читать дальше...   )Производство: Франция, Бельгия, Asifilms, StudioCanal, France 2 CinémaЖанр: Драма, комедияРежиссер: Иван КальберакАктеры: Бенуа Пульворд, Валери Боннетон, Эли Тонна, Эжен Маркус, Колин Д’Инка, Луна Лу, Вероника Новак, Николя Бриансон, Давид Салль, Франсуа ДелирснайдерПеревод: Дублированный (iTunes)Субтитры: Французские (Full) SrtПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0962DE1F73B3AECA5279866EED57F028B54CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961187   (303093) от 30.11.2015
+
+Гринберг / Greenberg (2010) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роджер Гринберг стоит на перепутье. Потеряв работу, он не слишком торопится с поиском новой. Вместо этого Гринберг возвращается из Нью-Йорка в Лос-Анджелес, чтобы приглядывать за домом своего более успешного младшего брата. Так у него хотя бы будет бесплатное место для проживания. В родном городе он не находит понимания ни у старых друзей, ни у бывших коллег. Бездействие (   Читать дальше...   )Производство: СШАЖанр: Драма, мелодрама, комедияРежиссер: Ноа БаумбахАктеры: Бен Стиллер, Дженнифер Джейсон Ли, Рис Иванс, Грета Гервиг, Коби Рувьер, Сидни Рувьер, Крис Мессина, Сьюзен Трейлор, Мерритт Уивер, Эмили Лэси, Аарон Ринкл, Хезер Локи, Крис Кой, Зэк Чесслер, Мина Бэди, Блэр Тефкин, Марк Дюпласс, Джэйк Пэлтроу, Шарлотта Вида СилверманПеревод: ДублированныйПродолжительность: 01:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BEAE257141D68B7FD6F1EFD81BABFF9E309026
 ```
 
 https://mybot314.ru/tekegram_catalog/

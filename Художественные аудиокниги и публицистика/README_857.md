@@ -1,84 +1,3 @@
-###  Публикация: 1601158   (152478) от 30.12.2022
-
-Валентин Распутин | Уроки французского (сборник) (2022) [MP3, Екатерина Семенова, Татьяна Телегина]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Уроженец сибирского села Усть-Уда, выходец из крестьянской семьи Валентин Распутин благодаря таланту и трудолюбию стал одним из классиков русской литературы.
-
-Одно из самых известных его произведений – «Уроки французского». Это рассказ о детстве, о том, как мальчику, окончившему начальную школу в родной деревне, хотелось учиться дальше. «До того никто из нашей деревни (   Читать дальше...   )Жанр: русская классика, советская литератураПродолжительность: 10:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16517892F0CD507DDCAB086B59611181B53CD848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601180   (152472) от 30.12.2022
-
-Говард Лавкрафт | Ведьмин Лог (2022) [MP3, Владимир Коваленко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Учитель сельской школы сталкивается с семьей Поттеров — наследниками старого колдуна, призвавшего в свой дом чудовище из неведомых просторов космоса...Жанр: ужасы, мистикаПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9105CBE182D1F8CD907C18514A5EE8F0D94A6B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085690   (152454) от 24.12.2016
-
-Дональд Трамп | Былое величие Америки (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Самая известная фраза Дональда Трампа — «Вы уволены!» Эпатажный, харизматичный, неудержимый миллиардер всерьез собрался стать политическим лидером ведущей мировой державы.
-Ему неведома политкорректность. Он предлагает свои решения всех проблем, с которыми столкнулась Америка, — беспрецедентные по простоте и жесткости. У него есть свое, особое мнение по любому вопросу (   Читать дальше...   )Жанр: Биографии, мемуарыПродолжительность: 06:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16549036A1829F0E2DB6300AD999889295272BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677047   (152444) от 16.11.2023
 
 Сергей Котов | За звёздным горизонтом (2023) [MP3, Найт Юджин]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152444.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152435.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152392.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152375.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152374.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152367.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152349.jpg" />
 </div>
 
 
@@ -270,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152319.jpg" />
 </div>
 
 
@@ -296,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152316.jpg" />
 </div>
 
 
@@ -322,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152271.jpg" />
 </div>
 
 
@@ -348,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152262.jpg" />
 </div>
 
 
@@ -376,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152254.jpg" />
 </div>
 
 
@@ -402,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152226.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152217.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152181.jpg" />
 </div>
 
 
@@ -484,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152125.jpg" />
 </div>
 
 
@@ -510,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152113.jpg" />
 </div>
 
 
@@ -538,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152078.jpg" />
 </div>
 
 
@@ -564,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152001.jpg" />
 </div>
 
 
@@ -590,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151990.jpg" />
 </div>
 
 
@@ -617,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151920.jpg" />
 </div>
 
 
@@ -644,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151913.jpg" />
 </div>
 
 
@@ -671,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151885.jpg" />
 </div>
 
 
@@ -682,6 +601,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455AA6D6496747DC89B4CCC09585C3AE4B0D9E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 355856   (151855) от 16.11.2023
+
+Этель Лилиан Войнич | Овод (2005) [MP3, Владимир Рыбальченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман английской писательницы Этель Лилиан Войнич (1864–1960) «Овод» (1897), Рисующий образ пламенного революционера, борца за освобождение Италии от австрийского господства, был встречен очень по-разному: пуританская Англия отнеслась к нему сдержанно, в Америке он вызвал бурю возмущения своим антирелигиозным характером, в России его восторженно приветствовали. В (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 10:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4D11199188D95A38669CA78CB1C0C7D2185F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347415   (151823) от 23.12.2019
+
+Андрей Константинов | Бандитский Петербург. По счетам (2019) [MP3, Алексей Данков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151823.jpg" />
+</div>
+
+
+###  Подробнее
+
+История вора по прозвищу Юрка Барон.
+Всем, кто смотрел легендарный телесериал «Бандитский Петербург», небезынтересно будет узнать, что один из ключевых персонажей фильма – старый вор по прозвищу Юрка Барон, блестяще сыгранный Кириллом Лавровым,– в молодости прошел через невероятнейшие жизненные испытания, которые в итоге и предопределили его трагический конец. А (   Читать дальше...   )Жанр: БоевикПродолжительность: 09:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C29D95F1118E34B2F398104674080048314EDF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825762   (151777) от 17.10.2025
+
+Дмитрий Билик | Рубежники. Бедовый (Книга 4). Путешественник по Изнанке (2025) [MP3, Игорь Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывают люди, которые находят проблему за проблемой там, где это кажется почти невозможным. Именно им выпадает один шанс из ста, чтобы попасть в неприятности. Обычно таких людей зовут неудачниками. Или, деликатнее выражаясь, невезучими. Бабушка Матвея, героя книги, называла внука иначе – Бедовый. Однажды Матвей получил курьерский заказ на доставку еды и зашёл в странную (   Читать дальше...   )Жанр: Фэнтези, приключения, юморИздательство: 1С-ПаблишингПродолжительность: 09:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD566A266A37D04A0160B5F5F8C345F0B22D0C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

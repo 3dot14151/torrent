@@ -6,7 +6,7 @@ Mailbird Pro 2.5.43.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613303.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Active PKiller 1.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613302.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox 47.0.1 Portable by Kraimon [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613246.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2013-2016 C2R Install 5.8 Full | Lite by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613239.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Anvsoft Funny Photo Maker 1.16 + Portable by fisher3 [En/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_613199.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cockos REAPER 6.54 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613179.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MediaHuman YouTube Downloader 3.9.9.71 (1904) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613166.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BlueStacks App Player 2.3.41.6024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613129.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613123.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613120.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BELOFF MInstAll 2016.7.2 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613113.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mozilla Firefox 15.0 Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_613051.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Q-Dir 10.67 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613045.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Uninstall Tool 3.6.0 Build 5682 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613025.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Audition CC 2019 (12.1.0.182) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613020.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Bulk Crap Uninstaller 3.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612958.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ ooVoo 3.5.1.71 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612932.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Junkware Removal Tool 7.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612925.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ IObit Driver Booster Pro 9.3.0.209 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612906.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ DirPrintOK 6.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612899.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VueScan Pro 9.7.83 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612894.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Krita 5.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612886.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ PotPlayer 220420 (1.7.21625) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612790.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe Media Encoder 2022 22.3.0.64 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612775.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ DS 3DVIA Composer V6R2013 SP1 (build 6.10.1.2058) [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612711.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Apophysis 2.09 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612696.jpg" />
 </div>
 
 

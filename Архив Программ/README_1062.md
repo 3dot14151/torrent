@@ -6,7 +6,7 @@ Ditto 3.20.74.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MEGA Sync Client 2.1.2 (3acc3) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508039.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NETGATE Registry Cleaner 10.0.205.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508036.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Actual Multiple Monitors 8.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507971.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Password Vault Manager Enterprise 6.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507966.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NVIDIA GeForce Experience 2.5.14.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507965.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ProgDVB 7.10.7 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507961.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WhyNotWin11 2.5.0.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507905.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mentor Graphics Precision RTL 2013b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507884.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Save.Me 2.2.3 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507877.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ MetaProducts Offline Explorer Enterprise 6.9.4228 SR5 Portable by PortableAppZ [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507875.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tor Browser Bundle 5.5 Alpha 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507872.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Password Depot Professional 8.2.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507844.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 12172 (август 2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507830.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ ESET NOD32 | ESET Endpoint 7.0/6.x/5.x (x32 x64) Offline Update 12172 (авгу�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507817.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ OSToto Hotspot 4.1.9.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507809.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Acronis True Image 2016 19.0.5586 + Universal Restore + Media Add-ons [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507808.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Reg Organizer 7.20 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507779.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Acronis BootCD/DVD 2016 RePack By Elgujakviso (v30.08.15) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507774.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VMware Workstation 12 Pro 12.0.0 build 2985596 Lite  RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507762.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Recover Keys Enterprise 11.0.4.229 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507705.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Opera 62.0.3331.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507688.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Revo Uninstaller Pro 4.1.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507683.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Revo Uninstaller Pro 4.1.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507656.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Auslogics BoostSpeed 11.0.1.2 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507651.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ uTorrent 3.5.5 Build 45311 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507640.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 01: First Steps (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788795.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ctrl + Paint, Matt Kohr | House Design (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788793.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 2 Form and Design (2012) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788786.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 1 The Basics (2012) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788776.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ctrl + Paint, Matt Kohr | World Design (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788766.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Udemy, Motion Guru | Complete Curse of Blender version 2.93 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788762.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Ctrl + Paint, Matt Kohr | Basic Photoshop Rendering Volumes 1-4 (2014) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788756.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Ctrl + Paint, Мэтт Корр | Цифровая живопись от "Ctrl +
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788754.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Udemy, Motion Guru | Create and Animate Tank & Machine in Blender 2.93 (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788733.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ctrl + Paint, Matt Kohr | Design Basics 2: Shape (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788351.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ctrl + Paint, Matt Kohr | Boss Monster (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788332.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ctrl + Paint, Matt Kohr | Game Icons (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788322.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ctrl + Paint, Matt Kohr | Design Basics (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788321.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Udemy, CG Masters, Chris Plush, Erindale Woodford | Master Procedural Texturing 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788291.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788256.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Blender Market, Midge "Mantissa" Sinnaeve | Моушн графика в реа�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787753.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Lynda.com | Painter 2017 Essential Training (2016) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787527.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Digital Tutors | Motion-графика в After Effects (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787474.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ The Gnomon Workshop, Eric Keller | Modeling and Rendering a Realistic Jumping Sp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787303.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Blender Cloud | Создание морского чёрта в Blender 2.81 / A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786547.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Victory3D | Создание игрового стимпанк пистолет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786514.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Blender Cloud | Создание стилизованного персонажа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786505.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Blender Cloud | Создание фэнтезийного фургона в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784463.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Lynda.com | Up and Running with Plant Factory (2015) PCRec [H.264/720p-LQ] [RU/E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778651.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Lynda.com | Up and Running in VUE (2015) PCRec [H.264/720p-LQ] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778638.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ ITVDN | Видео курс Unity3D Essential (2015) PCRec [H.264/720p]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777801.jpg" />
 </div>
 
 

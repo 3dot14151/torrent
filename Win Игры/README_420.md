@@ -1,29 +1,3 @@
-###  Публикация: 1719121   (58272) от 28.04.2024
-
-Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в пустынный мир, где и люди, и демоны страдают от острой нехватки воды, - SAND LAND. Познакомьтесь с дьявольским принцем Вельзевулом, его сопровождающим Вором и бесстрашным шерифом Рао и отправляйтесь вслед за командой в необычное приключение на поиски легендарного источника, спрятанного в пустыне. Конец - это только начало, ведь за пределами этой засушливой (   Читать дальше...   )Тип издания: SceneРазработчик: ILCA, Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AD49D21378D05C98657A3F2F759BC88326A233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719167   (58271) от 28.04.2024
 
 Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
@@ -32,7 +6,7 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58271.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58256.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58242.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Scene Rune [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58221.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58192.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License GOG [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58171.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Staffer Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58165.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58117.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (275.957/dlc) Scene CODEX [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58113.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/En] (27042024/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58111.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58104.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dawn of Man (2019) [Multi] (1.8.2) License GOG (обновляемая)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58099.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58091.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58087.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Unholy Village (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58079.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58077.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Tad the Lost Explorer (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58068.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Oriental Valley (2024) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58066.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Bootleg Steamer (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58064.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719/dlc) Sc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58059.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ POOLS (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58008.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (8410_27382) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58002.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.8) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57988.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Wild Card Football (2023) [Multi] (20240423/dlc) Scene Tenoke [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57980.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Game of Sisyphus (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57676.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Game of Sisyphus - инди-игра из разряда тех, что ис
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A495D1258E91868CDCDA841D6984A44922C4935C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720570   (57643) от 04.05.2024
+
+Lunar Lander Beyond (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lunar Lander Beyond - насыщенный событиями космический симулятор, где вы отправитесь исследовать бескрайние просторы Вселенной. Компания «Пегас» назначила именно вас капитаном корабля, чтобы вы возглавили готовящуюся экспедицию. Суть проста: добраться до места назначения, выполнить ряд поручений и вернуться назад, но во время похождений вы то и дело будете сталкиваться (   Читать дальше...   )Тип издания: RepackРазработчик: Dreams UncorporatedЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405EFE8A9D5FB4F86A8200314C4EB1AB74C7FF88
 ```
 
 https://mybot314.ru/tekegram_catalog/

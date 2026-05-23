@@ -1,29 +1,3 @@
-###  Публикация: 1717852   (58873) от 22.04.2024
-
-Aron's Adventure (2021) [En] (1.05) Scene CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Aron's Adventure – ролевое приключение, разворачивающееся в вымышленном мире Элоре. На магических землях вновь возродилось зло. Судьба фантастической планеты находится в руках главного героя Арона. Ему предстоит объединить все фракции в сражении с противниками. Постепенно он учится пользоваться собственными способностями.Тип издания: SceneРазработчик: Tim van Kan, Tom RaudysЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43EACD63A7D2A0E6340FEC69504E9B4A0958F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648438   (58852) от 23.04.2024
 
 Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
@@ -32,7 +6,7 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58852.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ UFO Robot Grendizer - The Feast of the Wolves (2023) [Ru/Multi] (27.0.12191/dlc)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58851.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58844.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Aquamarine (2022) [En] (2.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58841.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Kingsgrave (2024) [Ru/Multi] (1.0.0.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58827.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sweet Transit (2022) [Ru/Multi] (1.0.38) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58826.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ FLAKE The Legend of Snowblind (2024) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58807.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Shinkansen 0 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58805.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Signal State (2021) [Ru/Multi] (1.33b) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58800.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58796.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Divine Journey 2: The Five Books of Moses (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58778.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Love Too Easily (2023) [Multi] (19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58777.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Lakeburg Legacies (2023) [Multi] (1.1.4.4/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58747.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Bloody Spell (2022) [Multi] (20240414/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58739.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58732.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58723.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58713.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58701.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Scott Whiskers in: the Search for Mr. Fumbleclaw (2024) [Multi] (1.0.155) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58697.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tamarak Trail (2024) [Ru/Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58695.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ ReMix (2024) [Ru/Multi] (1.01.07) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58689.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Eclipse: Echo of Dimension (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58623.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Nexus 5X (2024) [Multi] (1.0.6717) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58618.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58605.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Life Eater (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58601.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Life Eater - это симулятор культиста, сочетающий 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D8468084D3E2D60D31F59C495A3BB876DD774E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718435   (58598) от 25.04.2024
+
+Sweet Transit (2022) [Ru/Multi] (1.0.38) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sweet Transit – это градостроение, где все во многом будет зависеть от системы железнодорожных путей. Ведь только с их помощью можно продавать товары, которые создаются в городке и в обмен завозить новое продовольствие или необходимое жилье. Именно от начальника транспортной компании зависит благосостояние горожан, а также экономика всего города.Тип издания: RepackРазработчик: Ernestas NorvaišasЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7015EA57C33DB5E6EAD65164543F2A757FC939B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

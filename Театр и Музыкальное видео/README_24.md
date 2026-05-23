@@ -1,117 +1,3 @@
-###  Публикация: 1365837   (926989) от 09.03.2020
-
-Дискотека 80-х (полная версия) (2019) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Главная дискотека страны состоялась уже в 18-й раз и, как и прежде, подарила зрителям невероятные визуальные эффекты, качественный звук и, конечно же, выступления самых любимых российских и зарубежных звезд диско на одной сцене.01. Альянс - На Заре
-02. Bad Boys Blue - Come Back And Stay
-03. Bad Boys Blue - Pretty Young Girl
-04. Bad Boys Blue - You’re a Woman(   Читать дальше...   )Производство: РоссияЖанр: DiscoРежиссер: 1 каналПродолжительность: 03:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F940B091B4C2E35D70D4F2A439DE6B8512FCAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095230   (926028) от 20.01.2017
-
-Жан Батист Мольер - Тартюф, и нет ему конца (1989) VHSRip (2 части)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Телевизионная фантазия по пьесе Жана Батиста Мольера "Тартюф, или Обманщик".
-В доме почтенного Оргона по приглашению хозяина обосновался некий г-н Тартюф. Оргон души в нём не чаял, почитая несравненным образцом праведности и мудрости: речи Тартюфа были исключительно возвышенны, поучения - благодаря которым Оргон усвоил, что мир являет собой большую помойную (   Читать дальше...   )Производство: СССР, Телеспектакль Ленинградского телевиденияЖанр: ТелеспектакльРежиссер: Михаил ФалкинАктеры: Владимир Осипчук, Анатолий Равикович, Ирина Соколова (II), Мария Тхоржевская, Сергей Мигицко, Ирина Селезнёва, Мурад Султаниязов, Ольга Белявская, Юрий Журин, Георгий ШтильПродолжительность: 2 х ~ 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C76484040EB644D4796E4353D40DCD6D8B40379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986825   (925912) от 17.02.2016
-
-Праздник для всех влюбленных на МУЗ-ТВ (2015.02.14) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-День любви на МУЗ-ТВ. Звезды первой величины специально для тебя со сцены Кремля исполняют свои лучшие песни о любви в прямом эфире.Балет Аллы Духовой ТОДЕС - Русские народные танцы
-Бьянка - Кеды
-Бьянка и Мот - Абсолютно всё
-Мот - День и ночь(   Читать дальше...   )Телекомпания: МУЗЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC5C4F0F99916059856CF72208857EEACC79D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987294   (925843) от 17.02.2016
-
-10CC And Godley @ Creme. Greatest Hits And More. (2006) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1	Good Morning Judge
-2	An Englishman In New York
-3	I'm Mandy Fly Me
-4	The Wall Street Shuffle (Live)(   Читать дальше...   )Производство: Universal Music TV, ЗАО "Юниверсал Мьюзик"  – 460502601073, RUS.Жанр: Rock, Soft Rock.Продолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D95E63867FB23FEDBFD4F0CD12052AC9E190E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095142   (925801) от 20.01.2017
 
 Борис Асафьев - Казначейша (1980) DVDRip
@@ -120,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925801.jpg" />
 </div>
 
 
@@ -147,7 +33,7 @@ VA - Зимний марафон № 224: Зимняя Волна Новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925751.jpg" />
 </div>
 
 
@@ -176,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925674.jpg" />
 </div>
 
 
@@ -205,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925657.jpg" />
 </div>
 
 
@@ -234,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925067.jpg" />
 </div>
 
 
@@ -265,7 +151,7 @@ Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924873.jpg" />
 </div>
 
 
@@ -291,7 +177,7 @@ Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924846.jpg" />
 </div>
 
 
@@ -317,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924251.jpg" />
 </div>
 
 
@@ -344,7 +230,7 @@ Schiller: Zeitreise Live (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923977.jpg" />
 </div>
 
 
@@ -370,7 +256,7 @@ Blank & Jones - The Videos (2007) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923621.jpg" />
 </div>
 
 
@@ -398,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923176.jpg" />
 </div>
 
 
@@ -425,7 +311,7 @@ Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923002.jpg" />
 </div>
 
 
@@ -451,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922857.jpg" />
 </div>
 
 
@@ -480,7 +366,7 @@ Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Goth
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922344.jpg" />
 </div>
 
 
@@ -509,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921728.jpg" />
 </div>
 
 
@@ -538,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921577.jpg" />
 </div>
 
 
@@ -567,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920681.jpg" />
 </div>
 
 
@@ -593,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920566.jpg" />
 </div>
 
 
@@ -622,7 +508,7 @@ Billy's Band. Живые концерты. / Billy's Band Live (2006, 2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920318.jpg" />
 </div>
 
 
@@ -648,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920186.jpg" />
 </div>
 
 
@@ -674,7 +560,7 @@ Lasgo feat. Taylor Jones - Something (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920013.jpg" />
 </div>
 
 
@@ -700,7 +586,7 @@ Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919808.jpg" />
 </div>
 
 
@@ -711,6 +597,119 @@ Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07398776C2D6A22B33D6E76F9437C6BBFC40BA20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632787   (919480) от 20.03.2013
+
+Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AC95D15BDB86E412FEEE7614B712A83924C4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756997   (919358) от 15.02.2014
+
+The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_919358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am The Walrus
+02. Hello, Goodbye
+03. Across The Universe
+04. Lady Madonna(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E95DC2E835EBBCE6C180A9B67EB804B8CECF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756987   (919301) от 15.02.2014
+
+The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please, Please Me
+02. Twist And Shout
+03. From Me To You
+04. I Wont Belong(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590BAF711AB77AD4F637A3583953534F67B44013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490236   (918931) от 20.08.2021
+
+Beth Hart -  Live in Brezoi HIGH FIVE ROMANIA (2021) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последнее выступление непревзойдённой Бет Харт, в Венгрии 12 августа 2021г.01. Isolation
+02. Sugar Shack
+03. Fatman
+04. If I Tell You I Luv Ya (эта вещь заслуживает отдельного внимания!)Жанр: BluesПродолжительность: 00:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DF262E6769A92C6A1A7E080FA9620DC190CB0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

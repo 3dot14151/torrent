@@ -1,65 +1,3 @@
-###  Публикация: 94050   (138629) от 30.12.2019
-
-Куб Зеро / Cube Zero (2004) HDTVRip 720p
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приквел культового философско-фантастического фильма «Куб»! Любой кошмар имеет начало. Молодой человек, в чьи обязанности входит приглядывать за Кубом - чудовищным изобретением человечества, замечает невинную женщину, попавшую в ловушку в одной из комнат куба и, решает попытаться спасти ее, несмотря на смертельную опасность, поджидающую любого, кто окажется внутри...Производство: 1. 	Cube Forward Productions Corp.
-2. 	Lions Gate Entertainment
-3. 	Mad Circus Films
-4. 	Mr. X Inc.Жанр: ужасы, фантастика, триллер, детективРежиссер: Эрни БарбарашАктеры: 1. 	Захари Беннетт (Zachary Bennett) ... Eric Wynn
-2. 	Дэвид Хубанд (David Huband) ... Dodd
-3. 	Стефани Мур (Stephanie Moore) ... Cassandra Rains
-4. 	Мартин Роач (Martin Roach) ... Robert P. Haskell(   Читать дальше...   )Перевод: Русская дорожка: многоголосый закадровый (очень хороший)
-Английская дорожка №1: оригинал
-Английская дорожка №2: оригинал (звучит почище)Продолжительность: 01:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5165066BF869AD88365711CE976ECD1D380182A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740257   (138626) от 31.12.2013
-
-Пик Данте / Dante's Peak (1997) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ученый-вулканолог Гарри Далтон, потерявший жену во время извержения вулкана, отправляется на Пик Данте, в маленький городок, расположенный на северо-западном побережье, для того, чтобы заняться там рутинной работой — исследованием сейсмической ситуации.
-
-Ученый немедленно обнаруживает тревожные признаки надвигающейся катастрофы, грозящей обернуться концом света. (   Читать дальше...   )Жанр: Боевик, Триллер, ПриключенияРежиссер: Роджер ДональдсонАктеры: Пирс Броснан, Линда Хэмилтон, Джейми Рене Смит, Джереми Фоули, Элизабет Хоффман, Чарльз Хэллахан, Грант Хеслов, Кирк Тратнер, Арабелла Филд, Ци МаПеревод: Дублированный |Субтитры: Вшитые ОтключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 01:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1D29FCBB5B98FF2EF67F204CF105926DFD17EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088725   (138606) от 31.12.2016
 
 Шпана 3 / Brotherhood  (2016) BDRemux [H.264/1080p] [EN / EN Sub]
@@ -68,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138606.jpg" />
 </div>
 
 
@@ -94,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138603.jpg" />
 </div>
 
 
@@ -120,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138597.jpg" />
 </div>
 
 
@@ -146,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138595.jpg" />
 </div>
 
 
@@ -172,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138593.jpg" />
 </div>
 
 
@@ -198,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138591.jpg" />
 </div>
 
 
@@ -224,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138570.jpg" />
 </div>
 
 
@@ -250,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138563.jpg" />
 </div>
 
 
@@ -276,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138552.jpg" />
 </div>
 
 
@@ -302,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138509.jpg" />
 </div>
 
 
@@ -328,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138503.jpg" />
 </div>
 
 
@@ -354,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138492.jpg" />
 </div>
 
 
@@ -380,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138486.jpg" />
 </div>
 
 
@@ -406,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138462.jpg" />
 </div>
 
 
@@ -434,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138461.jpg" />
 </div>
 
 
@@ -460,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138436.jpg" />
 </div>
 
 
@@ -486,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138431.jpg" />
 </div>
 
 
@@ -512,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138401.jpg" />
 </div>
 
 
@@ -538,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138397.jpg" />
 </div>
 
 
@@ -564,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138393.jpg" />
 </div>
 
 
@@ -590,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138381.jpg" />
 </div>
 
 
@@ -617,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138375.jpg" />
 </div>
 
 
@@ -643,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138352.jpg" />
 </div>
 
 
@@ -669,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138327.jpg" />
 </div>
 
 
@@ -680,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:709FE1BF3D1998910D22C135921091343B51F847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436050   (138322) от 30.12.2020
+
+Довод / Tenet (2020) BDRip [H.264/1080p] [IMAX Edition] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138322.jpg" />
+</div>
+
+
+###  Подробнее
+
+После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени, заставляющую уже произошедшие события идти вспять.Производство: Великобритания, США / Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный, авторский (одноголосый)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A27C6413C01333AAFDD950BA9B77D340AF7F822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740576   (138312) от 31.12.2013
+
+Гражданин гангстер / Edwin Boyd / Citizen Gangster (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран второй мировой войны Эдвин Войд разрывается между обеспечением своей молодой семьи и нереализованной мечтой стать звездой Голливуда. Он находит способ совместить оба этих занятия, но этот способ ставит его на путь опасности и трагедии...Производство: КанадаЖанр: Драма, КриминалРежиссер: Нэйтан МорландоАктеры: Скотт Спидман, Келли Райлли, Кевин Дюран, Джозеф Кросс, Брендан Флетчер, Шарлотта Салливан, Мелани Скорфано, Брайан Кокс, Уильям Мапотер, Кристиан МартинПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0748E45B2343C663A40E4A66535323781A8C64
 ```
 
 https://mybot314.ru/tekegram_catalog/

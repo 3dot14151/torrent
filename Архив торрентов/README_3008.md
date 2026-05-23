@@ -6,7 +6,7 @@ Wondershare PDFelement 9.0.12.1830 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383639.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Indecent Noise - Everything Is Connected (2020) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383620.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 October (2020) [MP3|320 Kbps] <T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383618.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ HQ Wallpapers for a desktop (08.11.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383612.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383601.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Keep It 1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383591.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ X-Fusion - Demons of Hate (2005) [FLAC|Lossless|tracks + .cue] <EBM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383568.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ SRWare Iron 69.0.3600.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383564.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ SRWare Iron 69.0.3600.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383561.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Cockos - REAPER 5.96 (x86/x64) Portable by PortableAppZ [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383560.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Cockos - REAPER 5.96 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383556.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ DMG Audio – Plugins Bundle (09.10.2018) VST, VST3, AAX, RTAS (x86/x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383554.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ IObit Uninstaller Pro 8.1.0.12 Final Portable by FoxxApp [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383553.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Avidemux 2.8.1 Nightly(r220903) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383549.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ CherryPlayer 3.1.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383544.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Brave Browser 1.43.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383541.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Auslogics File Recovery 9.5.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383540.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ UninstallView 1.47 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383533.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Sketch 69 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383526.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Auslogics Duplicate File Finder 8.5.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383518.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Pure Trance: 50 Trance Classics (2020) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383516.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ SnippetsLab 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383509.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Dash 4.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383508.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Liquivid Video Improve 2.7.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383507.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383506.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Newsflow v 1.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383505.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Brymir - Wings of Fire (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624120.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Depression - Die Dunkle Dimension (2015) [FLAC|Lossless|image + .cue] <Grindcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624037.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rammstein - Live Aus Berlin (1999) Reissue, 2014, ООО «Юниверсал М
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623972.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mr. Mephisto - Abducted... They Come From Uranus (2021) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623925.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Old Season - Beyond the Black (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623912.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Odroerir - Das Erbe Unserer Ahnen (Limited Edition) (2017) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623910.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Apocalyptica - 7th Symphony (2010) Japanese Edition [FLAC|Lossless]<Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623818.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Primal Fear - Angels Of Mercy: Live In Germany (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623793.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Black Sabbath - Technical Ecstasy (1976) Reissue, Remastered, 2010, Vertigo [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623437.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Oddland - The Treachery of Senses (2012) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623214.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ahnengrab - Omen (2012) [FLAC|Lossless]<Melodic Black Metal/Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623139.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Katana - Storms Of War (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623136.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Holy Knights - Between Daylight and Pain (2012) [FLAC|Lossless]<Power Metal/Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623009.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Be'lakor - Vessels (2016) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622665.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Lordi - Sexorcism (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622621.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Eluveitie - Ategnatos (2019) Limited Bonus Edition [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622378.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Saints 'n' Sinners - Rise Of the Alchemist (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622215.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Luca Turilli's Rhapsody - Prometheus, Symphonia Ignis Divinus (2015) Limited Edi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621778.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Lindemann - Skills in Pills (2015) [FLAC|tracks +.cue]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621355.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Reverence - When Darkness Calls (2012) [WavPack|Lossless]<Heavy Metal/Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621150.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Black Breath - Sentenced To Life (2012) [FLAC|Lossless]<Death 'n' Roll/Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621141.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Periphery - Periphery II: This Time It's Personal (2012) Limited Edition [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_620819.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Absolva - Flames Of Justice (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620802.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Crystal Ball - Liferider (2015) Limited Edition [FLAC|image+.cue]<Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620535.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Creation from Crisis - Atrophy (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620466.jpg" />
 </div>
 
 
@@ -772,7 +772,7 @@ Luca Turilli's Dreamquest (ex.Rhapsody) - Lost Horizons (2006) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619980.jpg" />
 </div>
 
 

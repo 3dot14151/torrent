@@ -1,56 +1,3 @@
-###  Публикация: 1829265   (202015) от 25.10.2025
-
-Mathlab Graphing Calculator Pro v2025.10.167 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Если вы ищете инженерный графический калькулятор, который работает гладко и так как вам подсказывает интуиция, вы нашли его! Графический калькулятор от Mathlab это научный графический калькулятор с алгеброй, незаменимый инструмент для учеников в школе, колледже и аспирантуре, и просто для тех, кому нужен калькулятор с бОльшими возможностями, чем обычный. Он предназначен (   Читать дальше...   )Тип издания: ModРелиз состоялся: 24.10.2025Разработчик: Mathlab Apps, LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36815B50A690265936C6C5BF32EBD6FEE092681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829239   (201922) от 25.10.2025
-
-FFmpeg Медиа-кодер v6.0.015 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Простой и удобный графический интерфейс наипопулярнейшего и быстрого кодировщика медиа-данных ffmpeg. Работает без интернета. Поддерживает множество форматов.
-FFmpeg — набор библиотек с открытым исходным кодом, которые позволяют записывать, конвертировать цифровые аудио и видео записи в различных форматах. Он включает libavcodec — библиотеку кодирования и декодирования (   Читать дальше...   )Тип издания: ModРелиз состоялся: 23.10.2025Разработчик: SilentLexx UAПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4301444306C281E7044E755E5A7B84D9C9375A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829244   (201879) от 25.10.2025
 
 Persona: Бьюти-камера v1.7.32 Mod by ModExPro [Ru/Multi]
@@ -59,7 +6,7 @@ Persona: Бьюти-камера v1.7.32 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201879.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ PictureThis - Plant Identification v5.14.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201877.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ Poweramp Music Player build-1011-uni Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201867.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ Poweramp Эквалайзер build-1009-uni Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201865.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ WiFi Analyzer v6.7 (b105) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201844.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ Smart AudioBook Player Pro v11.5.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201839.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ Movily v1.5.1 / v1.1.1 ATV [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201661.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ Free Download Manager for Android 16.9.0.5156 (87037e22) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201323.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ Zaycev.net v8.3.0 Mod by Dymonyxx, Timozhai  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201303.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201184.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ LectureNotes v2.10.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200801.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ BikeComputer Pro v8.9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200734.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ Display Tester v4.56 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200616.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ Kiwi VPN Proxy: Safer & Faster 51.23.12 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200534.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ Enhance it v4.1.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200462.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ VPN.lat: Unlimited and Secure 3.8.3 7.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200433.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ SD Maid Pro v5.5.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200235.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ Smart Book / Параллельный перевод книг v3.2 Mod by Dymony
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200181.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200069.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ Rosetta Stone: Изучение языков 8.34.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199963.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ Dual Space - Multiple Accounts & App Cloner 4.2.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199127.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ Telegram for Android 9.6.3 (3344) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199119.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ Text Scanner [OCR] v9.9.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199069.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ Rock Identifier - Stone ID v2.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199062.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ Rock Identifier - Stone ID v2.3.9 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E0A0F89BE0A722BD95C11A21ACA2CCD9FB4940F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614765   (199042) от 30.04.2023
+
+Bikemap: велотрекер и маршруты v19.1.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните свое новое велосипедное приключение с Bikemap - идеальным компаньоном для планирования, навигации и отслеживания велосипедных поездок. С коллекцией из более чем 11 миллионов велосипедных маршрутов по всему миру, у Bikemap найдется что-то интересное для каждого велосипедиста. Используйте Bikemap, чтобы превратить свой телефон в велосипедный компьютер, планировщик (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 28.04.2023Разработчик: Bikemap GmbHПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B47BCCF113A5F4B15DF8B696A5CFF5F922687BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630473   (199025) от 01.05.2023
+
+BackCountry Navigator TOPO GPS v7.3.8 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите топографические карты для автономного навигатора на открытом воздухе! Используйте свой телефон или планшет в качестве портативного GPS-навигатора для топографической съемки бездорожья с самым продаваемым приложением для навигации на открытом воздухе для Android! Исследуйте за пределами покрытия сотовой связи для пеших прогулок и другого отдыха. Вполне конкурентоспособный (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 08.02.2023Разработчик: CritterMap Software LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FC4FBE30245973489AE580F726D8B1306842AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

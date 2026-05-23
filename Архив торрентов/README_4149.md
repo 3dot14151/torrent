@@ -6,7 +6,7 @@ Art Text 4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166944.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Open to Clo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166942.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Optimizer 16.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166917.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ MAMP PRO 6 v.6.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166913.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ FX Player Pro 3.7.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166909.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.0 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166906.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ TechSmith Camtasia 23.3.2 build 49471 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166900.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Room Arranger 9.8.1.641 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166894.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Floorp Browser 11.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166888.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Opera GX 82.0.4227.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166885.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ HDCleaner 1.320 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166875.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ K-Lite Codec Pack Update 16.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166873.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ WinRAR 5.80 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166868.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Serviio Pro 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166865.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Reallusion Cartoon Animator 4 v4.4 Pipeline macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166859.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Balabolka 2.15.0.764 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166851.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Hosts File Editor+ 1.5.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166846.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Wondershare UniConverter 12.5.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166843.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Total Commander 11.02 RC5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166841.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ TechSmith Snagit 2024.0.1 build 555 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166835.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166832.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ MusicBee 3.5.8698 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166815.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ JRiver Media Center 27.0.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166796.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Firefox Browser ESR 78.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166793.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Textify 1.8.9 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166776.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Free Download Manager 6.12.1.3374 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166773.jpg" />
 </div>
 
 

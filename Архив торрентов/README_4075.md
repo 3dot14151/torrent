@@ -6,7 +6,7 @@ Microsoft Edge 87.0.664.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177640.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StartAllBack 3.5.5 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177639.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FileMaker Pro 19 v19.1.3.315 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177638.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 11 Manager 1.1.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177629.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Brave Browser 1.17.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177627.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177620.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AOMEI Partition Assistant Technician Edition 9.13.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177617.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Emurasoft EmEditor Professional 20.3.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177604.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PrivaZer 4.0.15 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177599.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Office 2013-2021 C2R Install + Lite 7.4.9.1 b01 ++ Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177593.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ HWiNFO 7.63 Build 5230 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177544.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PDF Reader Pro Edition 2.7.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177519.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PIDKey Lite 1.64.4 b27 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177517.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Icecream Video Converter Pro 1.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177512.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Microsoft Visual Studio 2019 Community 16.8.1 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177511.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ RarmaRadio Pro 2.75.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177499.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ W10 Digital Activation v1.4.6 Portable Dark by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177497.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ ExamDiff Pro Master Edition 14.0.1.14 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177496.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Viber 21.1.0.6 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177489.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Icecream Screen Recorder PRO 7.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177483.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Principle 6 v.6.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177478.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Macgo Mac Blu-ray Player Pro 3.3.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177468.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Icecream Slideshow Maker PRO 5.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177467.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Perfectly Clear WorkBench 4.6.0.2606 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177451.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Dropzone 4 Pro v.4.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177447.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ DropDMG 3.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177432.jpg" />
 </div>
 
 

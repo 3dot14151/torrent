@@ -6,7 +6,7 @@ Macrium Reflect v 7.2.4230 x64 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602098.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Macrium Reflect v7.2.4228 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602097.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ SamDrivers 19.4 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602088.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Windows 10 (v1809) x64 LTSC by KulHanter v20.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602074.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ MAGIX Sound Forge Pro Suite 13.0 Build 48 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602064.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Wise Registry Cleaner Pro 10.7.3.700 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602014.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ FanControl V112 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601994.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601964.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ oCam 475.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601863.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Format Factory 4.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601843.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ WinNTSetup 3.9.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601803.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ WinToHDD Enterprise 3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601799.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Adobe InDesign CC 2019 (14.0.2.234) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601798.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Microsoft Windows 10 Version 1803 with Update 17134.706 by adguard [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601794.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ EASEUS Partition Master 13.5 Unlimited Edition RePack by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601792.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Windows 10 Enterprise LTSB 2016 x64 Rus by OneSmiLe (26.04.2019)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601786.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Wise Registry Cleaner Pro 10.2.1.681 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601742.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Wise Care 365 Pro 5.2.10.525 Final RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601713.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ CoolUtils Total PDF Converter 6.1.0.194 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601703.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ W10Privacy 3.3.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601667.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Symantec Endpoint Protection 14.2.1 (14.2 RU1) build 3332 (14.2.3332.1000) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601663.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601591.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ ExamDiff Pro Master Edition 10.0.1.13 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601582.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Microsoft Visual Studio 2017 Enterprise 15.9.11 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601570.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ GiliSoft Video Editor 11.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601566.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ WinRAR 5.71 Final  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601530.jpg" />
 </div>
 
 

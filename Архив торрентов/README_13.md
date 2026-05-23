@@ -6,7 +6,7 @@ EditPlus 5.6.0 build 4250 + EditPlus 5.6.0 patch 4328 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044137.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Uninstall Tool 3.7.1 Build 5700 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044136.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ByClick Downloader Premium 2.3.35 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044135.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pale Moon 32.0.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044133.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Spectrasonics Omnisphere Software 2.8.5c (x64) Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044125.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ UninstallView 1.48 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044124.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Topaz Video AI 3.1.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044120.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ RJ TextEd 15.75.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044060.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FileZilla 3.63.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044052.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Privacy Eraser Pro 5.32.0 Build 4422 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044050.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ XYplorer 24.00.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044049.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ RSS Guard 4.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044043.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ QOwnNotes 23.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044042.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FileZilla Server 1.6.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044040.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WinSCP 5.21.7 Build 12963 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044035.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sugar Bytes - DrumComputer 1.2.9 Standalone, VSTi, VSTi 3, AAX RePack by TCD [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044031.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kdenlive 22.12.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044028.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ ISO Workshop 11.8 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044027.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PowerISO 8.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044026.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Emurasoft EmEditor Professional 22.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044021.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SoundSwitch 6.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044019.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Soft Organizer Pro 9.27 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044018.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ PowerISO 8.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044017.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Bitsum Process Lasso Pro 12.0.2.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044016.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Sigil 1.9.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044014.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Text Editor Pro 25.0.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044012.jpg" />
 </div>
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1753892   (41189) от 07.10.2024
-
-Дмитрий Рус | Играть, чтобы жить (Книга 3). Долг (2023) [MP3, Илья Дементьев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новая реальность обретает глубину и краски. Мир познает рождение, мир познает смерть. Пуповина, соединяющая Землю и Друмир, истончается, и даже Неназываемый не в силах предотвратить неизбежный катаклизм! Разве мог Глеб пройти мимо простой русской девчонки, чудом сбежавшей из китайского рабства и с тихим отчаяньем умоляющей помочь первого встреченного ею человека, (   Читать дальше...   )Жанр: LitRPG, Боевое фэнтези, Героическое фэнтезиИздательство: ЭксмоПродолжительность: 09:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CB803CA9BEDCA8484B19225AB9AAF537283DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753932   (41180) от 07.10.2024
-
-Милорад Павич | Внутренняя сторона ветра. Роман о Геро и Леандре (2024) [MP3, Владимир Лесных]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Магистраль. Балканская коллекция.
-Милорад Павич (1929–2009) – знаковый сербский писатель, в произведениях которого магический реализм переплетается с гипертекстуальностью, позволяющей читателю определять фабулу романа и влиять на сюжет.
-Роман «Внутренняя сторона ветра» по своей форме напоминает водяные часы (клепсидра). Это книга-перевертыш, которую можно (   Читать дальше...   )Жанр: Зарубежная литература, романПеревод: Лариса СавельеваИздательство: ЭксмоПродолжительность: 04:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6723463F66FA5187FB104E239D464DD914574A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753894   (41170) от 07.10.2024
-
-Александр Мазин | Викинг (Книга 9). Гнев Севера (2023). [MP3, Валерий Кухарешин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Викинги. Те, кто платит железом, а не серебром. Они не знают страха, ведь погибших ждут чертоги богов, а живых – богатство и слава. И в год 865 от Рождества Христова славнейший из викингов, конунг Рагнар Лотброк, покоритель Франции, завоеватель Парижа, решил, что пришло время английским королевствам стать землями данов.
-Ярлу Ульфу Хвити не нужны английские земли (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 11:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A347E7AB286A94282710BDD4A9257EFC130A662F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754108   (41098) от 08.10.2024
 
 Евгений Шалашов, Владимир Зингер | Милицейский транзит (Книга 1). Убей-городок. Часть 1 (2024) [MP3, Георгий Арсеньев]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41098.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41057.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41047.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40968.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40967.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40966.jpg" />
 </div>
 
 
@@ -245,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40965.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40964.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40963.jpg" />
 </div>
 
 
@@ -324,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40962.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40961.jpg" />
 </div>
 
 
@@ -376,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40960.jpg" />
 </div>
 
 
@@ -402,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40959.jpg" />
 </div>
 
 
@@ -428,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40955.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40952.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40933.jpg" />
 </div>
 
 
@@ -508,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40913.jpg" />
 </div>
 
 
@@ -534,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40912.jpg" />
 </div>
 
 
@@ -562,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40891.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40884.jpg" />
 </div>
 
 
@@ -617,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40878.jpg" />
 </div>
 
 
@@ -644,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40860.jpg" />
 </div>
 
 
@@ -670,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40792.jpg" />
 </div>
 
 
@@ -683,6 +602,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7B27E1A777E2297D310B9BFC9152A68DBC8D0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354773   (40745) от 11.10.2024
+
+Ирина Одоевцева | Книга 2. На берегах Сены (2007) [MP3, Инна Сытник]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирина Владимировна Одоевцева (1901–1990) автор книг: «Ангел смерти» (1922), «Изольда» (1931), «Оставь надежду навсегда» (1954) и др. имели большой успех. После войны Одоевцева вновь обратилась к поэзии, опубликовала ряд сборников – «Контрапункт» (1950), «Десять лет» (1961), «Златая цепь» (1975).
+«На берегах Сены» (1978-81), вторая часть мемуаров Ирины Одоевцевой. (   Читать дальше...   )Жанр: Русская литература, классика, воспоминания, мемуарыИздательство: БиблиофоникаПродолжительность: 16:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A02E1993E0D85C4F1DF79A8804203F562EBF1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354771   (40740) от 11.10.2024
+
+Ирина Одоевцева | Книга 1. На берегах Невы (2007) [MP3, Инна Сытник]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирина Владимировна Одоевцева (1901–1990) автор книг: «Ангел смерти» (1922), «Изольда» (1931), «Оставь надежду навсегда» (1954) и др. имели большой успех. После войны Одоевцева вновь обратилась к поэзии, опубликовала ряд сборников – «Контрапункт» (1950), «Десять лет» (1961), «Златая цепь» (1975).
+Ирина Одоевцева любимая ученица Николая Гумилева. Яркий человек, поэт (   Читать дальше...   )Жанр: Русская литература, классика, воспоминания, мемуарыИздательство: БиблиофоникаПродолжительность: 14:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59EF44B5B3D1616C2AF048D099F082477CA4500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754576   (40705) от 11.10.2024
+
+Рафаэль Дамиров, Валерий Гуров | Боец (Книга 8). Лихие 90-е (2024) [MP3, Егор Федотов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений попаданца по прозвищу Боец в лихие девяностые. Братки, разборки и подпольные бои. Чтобы выжить и подняться наверх герой вынужден уехать на время в США. Там перед Бойцом открываются новые перспективы…Жанр: Фантастика, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 07:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466521E6257BF0007E87C5357F1216B3A09067F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

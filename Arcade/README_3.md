@@ -6,7 +6,7 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004828.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.0.3) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004822.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Harry Potter and the Philosopher's Stone / Гарри Поттер и Филос
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004785.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.308.05.126703.1/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003276.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Street Fighter V (2016) [Ru/Multi] (07.011/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003270.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Dodgeball Academia (2021) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003030.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Luxar (2020) [Ru/Multi] (1.0) Repack Mr_Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002344.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.23.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002193.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BDSM: Big Drunk Satanic Massacre (2019) [Ru/Multi] (1.0.33) Repack Mr_Weegley [1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001211.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Shank: Dilogy [En/Ru] (Repack) 201 - 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000573.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Pure [Ru/En] (RePack) 2008 l R.G. Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999499.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Karateka [Ru/En/Multi5] (L) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998484.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MediEvil: Dilogy [Ru] (PC/Emul) 1998-2000 | Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997632.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Soldier vs. Aliens [Ru/En] (RePack) 2013 | F4CG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994963.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dawnstar [En] (L) 2013 | *SKIDROW*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994340.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Wasteland Angel [Ru/En/Multi4] (L) 2011 | *PROPHET*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993875.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993179.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.21) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991576.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991508.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ iBomber Attack [En] (RePack) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991490.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Dungeonland: Special Edition [En/Multi4] (Steam-Rip/3.5.6.44817) 2013 | R.G. Gam
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988798.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985670.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ We Need To Go Deeper: The Awakened (2019) [En] (1.1) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984604.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Retrovirus [En] (Steam-Rip/1.0.5251.0) 2013 | R.G. GameWorks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983635.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Cargo! The Quest For Gravity / Эврика! [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980954.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980948.jpg" />
 </div>
 
 

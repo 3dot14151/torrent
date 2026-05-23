@@ -6,7 +6,7 @@ TreeSize Professional 7.1.4.1469 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987885.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Omerta City Of Gangsters [XBOX360] [Region Free] [En] (XGD2 / 15574) (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987854.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AIDA64 Extreme/Business Edition 2.80.2300 Final RePack (silent & portable) by SP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987849.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987847.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ TuneUp Utilities 2013 13.0.3000.190 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987845.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987843.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ RusLiveFull RAM 4in1 27/01/2013 by NIKZZZZ cd|dvd [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987842.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ SONY Movie Studio Platinum 12.0.755 / 12.0.756 (x86/x64) Portable by punsh [Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987835.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987813.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Black Jack - Hot Passion (1979) VinylRip [FLAC|Lossless]<Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987810.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AIDA64 Extreme/Extreme Engineer/Business Edition 2.80.2300 Final [Rus/Ukr/Eng] R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987791.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Terragen 2 Deep Edition 2.4.31.1 (32 bit) Portable by XFORCE [Английски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987781.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Heavy Fire: Shattered Spear [XBOX360] [Region Free] [En] (XGD2 / 15574) (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987780.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.1 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987768.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ K-Lite Codec Pack 15.3.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987758.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987728.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Apple iOS 6.1 Beta 5 [Прошивка] (iOS)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987727.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Movavi Video Suite 20.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987712.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Movavi Video Editor Plus 20.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987711.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ The KMPlayer 4.2.2.35 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987703.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ BitTorrent Pro 7.10.5 Build 45496 Stable RePack (& Portable) by D!akov [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987697.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987670.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Advanced SystemCare Ultimate 6.0.8.289 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987656.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Omerta City Of Gangsters [En/Multi3] (L) 2013 | FAiRLiGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987654.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Corel Painter 12.2.1.1212 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987646.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ ABBYY FineReader 15.0.112.2130 Corporate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987618.jpg" />
 </div>
 
 

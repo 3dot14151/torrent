@@ -6,7 +6,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [26.06.2022]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213046.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ NewsFeed Launcher 19.1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213042.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Adobe Animate 2022 v22.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213035.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ RuStore 1.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213029.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Movavi Screen Recorder 22.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213026.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love Is War - Ultra Ro
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213019.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Foxit Reader 12.0.0.12394 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213016.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Bandicam 6.0.0.1998 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213010.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213009.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213008.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213004.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Auslogics BoostSpeed 12.3.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213001.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ StartAllBack 3.4.4 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213000.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ The Bat! Professional 10.1.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212976.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Capture One 22 Pro v15.3.1.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212967.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MediaHuman YouTube Downloader 3.9.9.73 (3006) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212964.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe Animate 2022 22.0.7.214 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212959.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Maxon Cinema 4D Studio R26.107 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212952.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Phase One Capture One 22 Enterprise 15.3.1.17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212940.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Viber 17.9.0.0 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212937.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212932.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ventoy 1.0.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212924.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Auslogics BoostSpeed 12.3.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212915.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v8.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212890.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Tor Browser Bundle 11.0.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212883.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v8.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212868.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Pale Moon 28.3.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751868.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VueScan Pro 9.7.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751821.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Golden Software Didger 5.11.1438 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751758.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ashampoo WinOptimizer 14.00.00 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751754.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ashampoo WinOptimizer 14.00.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751749.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Blue Cat's All Plug-Ins Pack (v.2019.2) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751733.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CleanMyPC 1.10.0.1987 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751726.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wallpaper Engine 1.3.8 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751702.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Image Uploader 1.3.1 Build 4314 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751651.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Flash Player 17.0.0.171 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751650.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Torch Browser 65.0.0.1617 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751612.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Softany WinCHM Pro 5.31 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751607.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Windows Privacy Dashboard (WPD) 1.3.1577 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751580.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Togu Audio Line - TAL-J-8 1.5.4 VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751561.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Sonible - smart:limit 1.0.1 VST, VST3, AAX (x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751560.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Firefox Browser ESR 91.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751553.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Tone2 - Gladiator 3.1.0 STANDALONE, VSTi, VSTi3 (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751551.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Cytomic The Glue 1.5.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751545.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751520.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ SideFx Houdini FX 15.5.480 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751515.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Dism++ 10.1.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751509.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Skype 8.38.0.161 Portable by Cento8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_751502.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751501.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rainmeter 4.3.0 Build 3283 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751490.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ LibreOffice 6.2.0.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751489.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ The KMPlayer 4.2.2.21 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751487.jpg" />
 </div>
 
 

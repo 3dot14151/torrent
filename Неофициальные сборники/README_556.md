@@ -1,38 +1,3 @@
-###  Публикация: 497669   (253764) от 17.05.2012
-
-VA - Летний Союз Новинок 50\50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Люби
-02. DJ Rynno feat. Sylvia - Love (Radio Edit)
-03. Beyond Vibes ft. Raluca Nastase - Step Into The Light (Radio Edit)
-04. Марсель - Иди Ко Мне
-05. Karmin - Walking On The Moon
-06. Даша Суворова - Над Землёй
-07. Diana Vickers - Boy In Paris
-08. MMDance - Баня (Discomania Remix)
-09. Keane - The Boys
-10. Климат и Аня Добрыднева - Глаза В Глаза2012Жанр: PopПродолжительность: 06:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9FAD8AF793519D8A487B09484AE02729EE80F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497813   (253745) от 17.05.2012
 
 VA - Инструментальная музыка (2012) vol. № 44 [MP3|320 кб/с]<Instrumental>
@@ -41,7 +6,7 @@ VA - Инструментальная музыка (2012) vol. № 44 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253745.jpg" />
 </div>
 
 
@@ -67,7 +32,7 @@ VA - Инструментальная музыка (2012) vol. № 45 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253744.jpg" />
 </div>
 
 
@@ -102,7 +67,7 @@ VA - Музыка для хорошей компании Vol .2 (2012) [MP3|256 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253713.jpg" />
 </div>
 
 
@@ -137,7 +102,7 @@ VA - The Best Sixties Album In The World...Ever! Vol. I - IV (1995-1998) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253696.jpg" />
 </div>
 
 
@@ -172,7 +137,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253691.jpg" />
 </div>
 
 
@@ -207,7 +172,7 @@ VA - Водила, трогай! (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253675.jpg" />
 </div>
 
 
@@ -242,7 +207,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253667.jpg" />
 </div>
 
 
@@ -275,7 +240,7 @@ VA - Vocal Passion Vol.26 (16.05.2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253653.jpg" />
 </div>
 
 
@@ -308,7 +273,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #84 (2012) [MP3|320 кб/с]<Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253649.jpg" />
 </div>
 
 
@@ -341,7 +306,7 @@ VA - Убойная вечеринка по-русски (2012) [MP3|256 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253634.jpg" />
 </div>
 
 
@@ -376,7 +341,7 @@ VA - Зарубежные Новинки Vol.50 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253629.jpg" />
 </div>
 
 
@@ -411,7 +376,7 @@ VA - Клубные Новинки Vol.79 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253606.jpg" />
 </div>
 
 
@@ -446,7 +411,7 @@ VA - Лучшие Хиты Диско Золотые 80-е (2012) [MP3|128 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253560.jpg" />
 </div>
 
 
@@ -481,7 +446,7 @@ VA - Инструментальная музыка (2012) vol. № 40 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253473.jpg" />
 </div>
 
 
@@ -507,7 +472,7 @@ VA - Инструментальная музыка (2012) vol. № 42 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253456.jpg" />
 </div>
 
 
@@ -533,7 +498,7 @@ VA - Инструментальная музыка (2012) vol. № 43 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253445.jpg" />
 </div>
 
 
@@ -559,7 +524,7 @@ VA - Инструментальная музыка (2012) vol. № 41 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253432.jpg" />
 </div>
 
 
@@ -585,7 +550,7 @@ VA - Инструментальная музыка (2012) vol. № 39 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253425.jpg" />
 </div>
 
 
@@ -611,7 +576,7 @@ VA - Хитовый Рай Версия 50/50 (2012) [MP3|256 кб/с]<Pop,Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253411.jpg" />
 </div>
 
 
@@ -646,7 +611,7 @@ VA - Lifetime Of Romance (2004)(18CD) [MP3|~225 кб/с (V1)]<Easy Listening / O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253408.jpg" />
 </div>
 
 
@@ -681,7 +646,7 @@ VA - XXXL Зарубежный Топ Сезона (2012) [MP3|320 кб/с]<Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253373.jpg" />
 </div>
 
 
@@ -716,7 +681,7 @@ VA - Танцевальный клубный поп хит vol.7 (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253343.jpg" />
 </div>
 
 
@@ -751,7 +716,7 @@ VA - The Best Singles Of All Time (2008) [MP3|320 кб/с]<Pop, Rock, Oldies>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253245.jpg" />
 </div>
 
 
@@ -777,7 +742,7 @@ VA - Летняя Жажда Скорости (2012) [MP3|256 кб/с]<Dance, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253165.jpg" />
 </div>
 
 
@@ -812,7 +777,7 @@ VA - Популярный музыкайф зарубежный (2012) [MP3|192-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253152.jpg" />
 </div>
 
 
@@ -832,6 +797,41 @@ VA - Популярный музыкайф зарубежный (2012) [MP3|192-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E8F8150E3C5E9A07ADC7182347D1B0DB0DE185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496861   (253145) от 15.05.2012
+
+VA - 200 Самых Сочных Хитов (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Michel Telo - Ai se te ue pego (Sagi Abitbul rmx)
+002 Дискотека Авария - Россия Победит!
+003 Far East Movement feat. Justin Bieber - Live my life
+004 Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov remix)
+005 Sunrise Inc - Mysterious girl
+006 Стас Шуринс - Останься
+007 Inna - Alright
+008 Elvira T - Все решено (Fresh Tunes remix)
+009 Leventina - Freak it out
+010 Диверсанты - Мама Люба Дала Бы2012Жанр: PopПродолжительность: 11:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CB04CFFA3DB36977B55E47B75E3A0518E0E427
 ```
 
 https://mybot314.ru/tekegram_catalog/

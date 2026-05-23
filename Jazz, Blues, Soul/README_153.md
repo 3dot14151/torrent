@@ -6,7 +6,7 @@ Michael Musillami Trio + 4 - Mettle (2012) Playscape Recordings [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764977.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lyn Stanley - The Moonlight Sessions, Vol.1 (2017) [MP3|320 Kbps] <Jazz, Vocal J
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764893.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gerry Mulligan - Mainstream Of Jazz: Special Edition (1955, 1956) 1986, EmArcy [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764700.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dave Douglas - A Thousand Evenings (2000) RCA [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764699.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Milt Jackson - Vibrations (1960, 1961) Remaster, 2013, Warner [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764661.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dizzy Gillespie, Sonny Stitt, Sonny Rollins - Sonny Side Up (1957) 1986, Verve [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764658.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marilyn - Romance Dance (2004) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764656.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Duke Ellington - The Girls And Premieres 1958-1963 (2014) La Maison du Duke [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764650.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ronnie Baker Brooks - Take Me Witcha (2001) [APE|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764648.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lonnie Mack - Lonnie On The Move (1992) [FLAC|Lossless|tracks + .cue] <Rock & Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764622.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chris Thomas King - 2 Альбома (1997, 2002) [FLAC|Lossless|image + .cue | 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764618.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Elvin Bishop - She Puts Me In The Mood (2012) Compilation [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764614.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lonnie Brooks - Deluxe Edition (1997) Compilation, Remastered [APE|Lossless|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764610.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Philippe Soirat Quartet - You Know I Care (2015) Paris Jazz Underground [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764603.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Richard Cole - The Forgotten (2001) Origin Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764602.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mel Torme & Rob McConnell - And The Boss Brass (1986) Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764601.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Harry Connick, Jr. - What a Night! A Christmas Album (2008) Columbia Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764600.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Domagoy Ralasic With Benny Bailey - The Bag Is Packed (1997) Timeless [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764599.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Billy Taylor Trio - You Tempt Me (1989) Taylor-Made Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764598.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lee Konitz & The Brazilian Band - Brazilian Rhapsody (1995) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764500.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mike Morgan & The Crawl - Texas Man (2002) [MP3|320 Kbps] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764480.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Michael Musillami Trio - Zephyr (2015) Playscape Recordings [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764147.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Janice Lakers - The Rainbow Lady (1985) 2016, Solid Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764144.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764073.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763726.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Yoko Kanno & Seatbelts - Space Bio Charge (2009) CD Collection [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763722.jpg" />
 </div>
 
 

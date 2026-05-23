@@ -1,81 +1,3 @@
-###  Публикация: 1293141   (628237) от 08.04.2019
-
-Богдан Сушинский | Правитель страны Даурия (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман известного писателя, Богдана Сушинского посвящен событиям, связанным с деятельностью генерал-лейтенанта, Верховного Главнокомандующего вооруженными силами Дальнего Востока, «правителя страны Даурия» или «Российской Восточной Окраины», походного атамана Амурского, Уссурийского и Забайкальского казачеств Григория Семёнова. В основу романа положены малоизвестные (   Читать дальше...   )Жанр: Военные приключенияПродолжительность: 15:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE28ACDD95F824534D6C4EFE59008E1C1C5CEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292975   (628154) от 08.04.2019
-
-Роберт Брындза | Детектив Эрика Фостер (Книга 5). Холодная кровь (2019) [MP3, Ксения Бржезовская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На берегу Темзы находят потрепанный чемодан, в котором лежит расчлененный труп мужчины. Жуткое убийство приводит детектива Эрику Фостер в шок. Она расследовала множество кровавых преступлений, но с подобной жестокостью столкнулась в первый раз. Эрика и ее команда берутся за дело и вскоре узнают, что двумя неделями ранее был обнаружен такой же чемодан с трупом молодой (   Читать дальше...   )Жанр: Современный детектив, триллерИздательство: АудиокнигаПродолжительность: 10:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20773E2434429127FD05EC9786DC452AC20EB71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293455   (628145) от 08.04.2019
-
-Татьяна Устинова | Селфи с судьбой (2017) [MP3, Леонтина Броцкая]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В магазинчике "Народный промысел" в селе Сокольничьем найдена задушенной богатая дама. Она частенько наведывалась в село, щедро жертвовала на восстановление колокольни и пользовалась уважением. Преступник - шатавшийся поблизости пьянчужка - задержан по горячим следам… Профессор Илья Субботин приезжает в село, чтобы установить истину. У преподавателя физики (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 10:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDA16730A65E936CC48EA4FB6D7755105CE15A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291929   (628142) от 08.04.2019
 
 Татьяна Степанова | На рандеву с тенью (2014) [MP3, Валентин Аксентюк]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628142.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628133.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628127.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628124.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628121.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628113.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628111.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628108.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628082.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628079.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628072.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627985.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627976.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627975.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627973.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627963.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627961.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627904.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627902.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627894.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627891.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627889.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627887.jpg" />
 </div>
 
 
@@ -678,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68C7A093D14903A398364D1765DF6508BB1EA54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293993   (627867) от 08.04.2019
+
+Марк Калашников | Путь Зверя (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в спину дышит старуха с косой, готов согласиться на многое, а тут всего-то работу предлагают, в игре — подарок судьбы! Разве что раса досталась весьма специфическая и не очень почётная, да болевой фильтр чуть выше, чем у остальных. Главное — живём! С этими мыслями Артём уже не просто играет, а живёт в виртуальном мире, не догадываясь, что «Трансформа» не просто (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 15:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4156D8E053A3193347BCCB0EE0A3FA0DC4CB570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294233   (627862) от 08.04.2019
+
+Фрэнк Герберт, Билл Рэнсом | Эффект Лазаря (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627862.jpg" />
+</div>
+
+
+###  Подробнее
+
+С тех пор как погиб последний из естественных островов Пандоры, общество планеты расслоилось на островитян и мутантов морян. Напряжение между ними растет, готовое вылиться в открытый конфликт. Все надежды на второе пришествие Корабля, ставшего для людей этого мира воплощением Господа Бога.Жанр: Научная фантастикаПродолжительность: 12:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFF68B18DDEBE8EF51CFFF5923F66A45B7CD580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293271   (627859) от 08.04.2019
+
+Евгений Сухов | СМЕРШ – спецназ Сталина. Связной (2017) [MP3, Сергей Дадыко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627859.jpg" />
+</div>
+
+
+###  Подробнее
+
+На допрос к начальнику 3 отдела СМЕРШ доставили арестованного немецкого диверсанта Николая Зотова. Предатель сообщил, что в ближайшее время немцы планируют выбросить двух диверсантов у железнодорожного узла Люберцы. Так и случилось. Контрразведчики получили информацию о пролетевшем над лесом самолёте ЛИ-2, а затем - о появлении в городе двух странных сержантов. Диверсантов (   Читать дальше...   )Жанр: БоевикИздательство: Нигде не купишьПродолжительность: 11:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB17DB05BB1583267A378802824E31FA1059D04A
 ```
 
 https://mybot314.ru/tekegram_catalog/

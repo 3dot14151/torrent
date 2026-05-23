@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 13.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785612.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ashampoo Burning Studio 18.0.4.15 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785556.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera 44.0.2510.1218 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785550.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SamDrivers 17.4.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785549.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Dr.Web Security Space 11.0.5.4100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785547.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adobe Acrobat Reader DC 2017.009.20044 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785546.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Skype 7.35.0.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785545.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Air Explorer Pro 1.14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785532.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Shadow Defender 1.4.0.665 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785530.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ DU Meter 7.22 Build 4764 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785527.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe Acrobat Pro DC 2017.009.20044 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785519.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ SamDrivers 17.4.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785517.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Format Factory 4.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785516.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Acronis True Image 2017 20.0.8041 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785514.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Skype 7.35.32.101 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785513.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Adobe Acrobat Reader DC 2017.009.20044 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785503.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Acrobat Pro DC 2017.009.20044 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785501.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ CoolUtils PDF Combine 6.1.0.117 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785428.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ FireAlpaca 2.1.14 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785401.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Loaris Trojan Remover 3.0.75.210 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785376.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ save2pc Ultimate 5.5.7.1584 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785374.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Calibre 3.38.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785369.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Product Key Explorer 4.0.10.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785365.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Waterfox 56.0.4.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785359.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ BlueStacks Tweaker 5.9.0 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785339.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Wise System Monitor 1.4.9.119 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785336.jpg" />
 </div>
 
 

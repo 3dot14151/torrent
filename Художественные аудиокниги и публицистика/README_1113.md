@@ -1,81 +1,3 @@
-###  Публикация: 1813340   (7070) от 18.08.2025
-
-Норман Спинрад | Нейтральная территория (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Путешествия к звездам начались не так, как планировали ученые. Группа «путешественников», лежа на кушетках, отправлялись в некие Места под действием экспериментального препарата. Места никогда не повторялись и поражали воображение испытуемых. У каждого была своя теория на этот счет — будь то путешествие в глубины подсознания, на дальние планеты этой или другой Вселенной (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39777B20488C13DB61DDA389A4A8F59A891C39B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813168   (7068) от 18.08.2025
-
-Focsker | Чужое небо. Дотянуться до небес (Книги 1,2) (2024) [MP3, Arsa Sakura]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-На что способен загнанный в угол зверь, и отличается ли чем-то человек от подобного животного. Каждый сам найдет для себя правильный ответ. Точно так же, как это сделал отчаявшийся отец двенадцатилетней убитой девочки. Мир жесток, полон грязи, насилия и несправедливости. Сегодня ты счастливый, сытый, довольный засыпаешь в своей теплой постели, даже не представляя, (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 28:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8114896A2C9FA80CB9F712DE3D114E53742DDBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813180   (7065) от 18.08.2025
-
-Focsker | Божественный соблазн (Книга 1). Ген подчинения. Том 1 (2024) [MP3, Алексей Семёнов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Что может быть лучше небольшого путешествия в Китай?Жанр: фэнтезиИздательство: ЛитРесПродолжительность: 05:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BF129ED1E83ACFFF2B86EBEBCBE6898721510B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813157   (7064) от 18.08.2025
 
 Focsker | Эпос созидателя. Фермерский этюд. Мистер Фермер (Книги 1-4) (2024) [MP3, Николай Кочмар]
@@ -84,7 +6,7 @@ Focsker | Эпос созидателя. Фермерский этюд. Мист
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7064.jpg" />
 </div>
 
 
@@ -113,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7063.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7061.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7060.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ Focsker | Не такие как все. Захватчики из другог�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7059.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7058.jpg" />
 </div>
 
 
@@ -247,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7056.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7055.jpg" />
 </div>
 
 
@@ -301,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7052.jpg" />
 </div>
 
 
@@ -330,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7051.jpg" />
 </div>
 
 
@@ -359,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7050.jpg" />
 </div>
 
 
@@ -385,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7049.jpg" />
 </div>
 
 
@@ -414,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7042.jpg" />
 </div>
 
 
@@ -440,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7041.jpg" />
 </div>
 
 
@@ -468,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7040.jpg" />
 </div>
 
 
@@ -494,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7039.jpg" />
 </div>
 
 
@@ -520,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7038.jpg" />
 </div>
 
 
@@ -546,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7036.jpg" />
 </div>
 
 
@@ -572,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7022.jpg" />
 </div>
 
 
@@ -598,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7021.jpg" />
 </div>
 
 
@@ -624,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7020.jpg" />
 </div>
 
 
@@ -652,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6954.jpg" />
 </div>
 
 
@@ -680,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6921.jpg" />
 </div>
 
 
@@ -691,6 +613,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5151042E066A954AED4F5EF608DE3FCE0392A5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813376   (6916) от 19.08.2025
+
+Федор Достоевский | О русской литературе. Часть 2 (2024) [MP3, Филипп Матвеев-Витовский]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6916.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге классик мировой литературы, автор культовых романов «Преступление и наказание», «Идиот», «Бесы» анализирует творчество Пушкина, Гоголя, Некрасова, Белинского, а также даёт слушателям ключ к пониманию самой сути русской литературы! Достоевский – мастер во всем. Не только гениальный писатель, мыслитель и философ, но и превосходный публицист и литературный (   Читать дальше...   )Жанр: Русская классика, ПублицистикаИздательство: АСТПродолжительность: 09:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E6278510C838CCD5B99176438DDECD45EA3626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813375   (6913) от 19.08.2025
+
+Федор Достоевский | О русской литературе. Часть 1 (2023) [MP3, Филипп Матвеев-Витовский]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6913.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге классик мировой литературы, автор культовых романов «Преступление и наказание», «Идиот», «Бесы» анализирует творчество Пушкина, Гоголя, Некрасова, Белинского, а также даёт слушателям ключ к пониманию самой сути русской литературы! Достоевский – мастер во всем. Не только гениальный писатель, мыслитель и философ, но и превосходный публицист и литературный (   Читать дальше...   )Жанр: Русская классика, ПублицистикаИздательство: АСТПродолжительность: 06:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18D0663A7EE199EA80DFA39DA3CFBE174A7127D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813360   (6907) от 19.08.2025
+
+Хьюго Гернсбек | Ральф 124С 41+. Роман о жизни в 2660 году (2025) [MP3, Алексей Багдасаров, Владимир Сурдин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6907.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ральф 124С 41+» – единственный роман американского писателя и изобретателя Хьюго Гернсбека, человека, в честь которого названа премия в области научно-фантастической литературы «Hugo Awards». Написанный в 1911 году «Ральф 124С 41+» неслучайно имеет подзаголовок «Роман о жизни в 2660 году». В нём Гернсбек предсказывает самые разнообразные технологии будущего, аналогами (   Читать дальше...   )Жанр: фантастикаИздательство: ВИМБОПродолжительность: 05:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B9B256FF730A4AF52450F333F2B0B9D7CA0433
 ```
 
 https://mybot314.ru/tekegram_catalog/

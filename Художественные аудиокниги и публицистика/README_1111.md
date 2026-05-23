@@ -1,83 +1,3 @@
-###  Публикация: 1812879   (7230) от 17.08.2025
-
-Александр Герда | Черный Маг Императора (Книга 4). (2024) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я Максим Темников. Мне тринадцать лет и во мне живет дух некроманта.
-Я учусь в магической школе, где все старше меня как минимум на пару лет, и регулярно попадаю в кабинет директора за всякую ерунду.
-А еще я обладаю Темным даром и могу… Стоп! Об этом потом. По-моему, я опять нашел какое-то приключение…Жанр: Фантастика, фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 09:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC25F524FF34284A8BFF8610CACD69FE9F796BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813063   (7229) от 17.08.2025
-
-Михаил Злобин | Хроники геноцида (Книга 6). Ода Смятения (2025) [MP3, Олег Троицкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Соглашаясь стать эмиссаром бога обмана, матерый шулер и аферист Александр Горюнов даже не предполагал, что его ждет в новом мире. Примерив на себя личину молодого аристократа по имени Ризант нор Адамастро, он столкнулся с суровыми испытаниями, которые любого другого уже бы сломили. Однако с каждым днем деяния Александра становятся все мрачнее, а вслед за ними темнеет (   Читать дальше...   )Жанр: Фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 07:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6276B2843FE76DA15F3318BD3A968A80F1DD230B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813142   (7226) от 17.08.2025
-
-Илья Савич | Боги спустились с небес (Книга 2) (2025) [MP3, Александр Егоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Саша Савельев преодолел первую серьёзную преграду на своём пути. Но мир магии продолжает подкидывать испытания и затягивает в свои сети всё глубже и глубже.Друзья, враги… даже он сам. Всё теперь не так как прежде.Жанр: Фэнтези, боевикИздательство: ЛитРесПродолжительность: 14:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4766F5BCDC3C0C1B89F3EAA503A55C76AB01D918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813087   (7225) от 17.08.2025
 
 Саймон Вэйл | Фантазия (Книга 2). Не делай глупостей (2025) [MP3, Игорь Ломакин]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7225.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7224.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7223.jpg" />
 </div>
 
 
@@ -169,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7222.jpg" />
 </div>
 
 
@@ -195,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7221.jpg" />
 </div>
 
 
@@ -222,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7220.jpg" />
 </div>
 
 
@@ -249,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7219.jpg" />
 </div>
 
 
@@ -277,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7215.jpg" />
 </div>
 
 
@@ -305,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7214.jpg" />
 </div>
 
 
@@ -331,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7212.jpg" />
 </div>
 
 
@@ -358,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7211.jpg" />
 </div>
 
 
@@ -385,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7210.jpg" />
 </div>
 
 
@@ -411,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7208.jpg" />
 </div>
 
 
@@ -437,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7207.jpg" />
 </div>
 
 
@@ -463,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7206.jpg" />
 </div>
 
 
@@ -490,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7203.jpg" />
 </div>
 
 
@@ -516,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7201.jpg" />
 </div>
 
 
@@ -542,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7196.jpg" />
 </div>
 
 
@@ -568,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7194.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7191.jpg" />
 </div>
 
 
@@ -621,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7189.jpg" />
 </div>
 
 
@@ -647,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7188.jpg" />
 </div>
 
 
@@ -673,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7187.jpg" />
 </div>
 
 
@@ -684,6 +604,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3587E0DB81963A71D36A7AE16FE893916050635C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812823   (7185) от 17.08.2025
+
+Марго Генер | Академия трех миров (2025) [MP3, Анна Ищенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя жизнь перевернулась в одночасье, когда среди ночи я увидела призрак своей кошки. Кто бы мог подумать, что мама тут же отправит меня не куда-нибудь, а в академию магии, где учатся и белые, и черные волшебники! Это стало лишь началом моих приключений, потому что академия полна интриг и тайн, в которых я оказалась в главной роли. Все потому, что кто-то потревожил (   Читать дальше...   )Жанр: Романтическое фэнтезиИздательство: ЭксмоПродолжительность: 08:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B252A0DCDEB73E5B47BED381CC89E021BFBE2B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812893   (7184) от 17.08.2025
+
+Дмитрий Найденов | Варнак. (Книга 5). (2025) [MP3, Григорий Андрианов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот и пришло время, молодому графу, заняться строительством своего города, откуда начнётся рост его влияния. наглые принцессы, кровожадные аристократы и не менее кровожадные магически изменённые звери, будут добиваться внимания бывшего каторжника - Варнака.Жанр: Фэнтези, боевикИздательство: ЛитРесПродолжительность: 08:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AC570A5BC293A23B30F744F4FA1AAB1F013056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813055   (7183) от 17.08.2025
+
+Джон Голсуорси | Фарисеи. Остров фарисеев (2021) [MP3, Ольга Андреева]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Голсуорси (1867–1933) – английский прозаик и драматург, автор знаменитого цикла «Сага о Форсайтах».
+Студия «МедиаКнига» представляет аудиокнигу «Фарисеи. Остров Фарисеев» (англ. The Island pharisees), включающую полную версию прочтения романа знаменитого английского писателя Джона Голсуорси, лауреата Нобелевской премии по литературе 1932 года – «За высокое искусство (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Эмилия ПименоваИздательство: МедиаКнигаПродолжительность: 06:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A736C66E0F4822C58FEF41052D98079F75F0AFA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

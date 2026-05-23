@@ -1,29 +1,3 @@
-###  Публикация: 1335881   (283625) от 04.11.2019
-
-LIMBO (2011) [Ru/Multi] (3.0.0.1) Repack Other s
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По трагическому стечению обстоятельств маленький мальчик оказывается на краю загробного мира – в лимбе, где также блуждает его сестра. Чтобы найти сестренку, ему придется набраться храбрости и проделать нелегкий путь по жутковатому черно-белому миру, наполненному чудовищными тварями, коварными механизмами и сложными головоломками. Что это: воплощение его самых страшных (   Читать дальше...   )Тип издания: RepackРазработчик: PlaydeadЖанр: Arcade (Horror), Adventure, 2DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A439B1BF38B18FAFED872C8854478F530936716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181685   (283444) от 26.11.2017
 
 Motorsport Manager (2016) [Ru/Multi] (1.53/dlc) Repack R.G. Catalyst
@@ -32,7 +6,7 @@ Motorsport Manager (2016) [Ru/Multi] (1.53/dlc) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283444.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Last Dream (2015) [Ru/En] License Specialbit Studio [Developer's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283334.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Ritual on Weylyn Island (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283272.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ STASIS (2015) [Ru/Multi] (1.09.5) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283271.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282277.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Signal Ops (2013) [En] (1.0.5361) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282132.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Thick Air (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281976.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281969.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Ball of Light (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281854.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Batman Anthology (2010-2015) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281846.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Imbroglio (2019) [Ru/Multi] (1.0) Repack Butter_
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281798.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281789.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Crossbow Warrior - The Legend of William Tell (2015) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281655.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Assassin’s Creed Liberation HD (2014) [Ru] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281620.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281610.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Emily Wants To Play (2015) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281513.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Republique Remastered (2015) [Ru/Multi] (4.11) License SKIDROW [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280856.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Mega Man 11 (2018) [Multi] (1.0.0.1/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280838.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Republique Remastered (2015-2016) [Ru/Multi] (4.11) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280499.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.1.0) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279963.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Beholder (2016) [Ru/Multi] (1.0.20161118) Repack Dok2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279897.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279896.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ The Banner Saga (2014) [Ru/Multi] (2.36.03/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279888.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ The Bureau: XCOM Declassified (2013) [Ru/En] (1.0.0.2177831/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279775.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Adam Waste (2017) [Ru/Multi] (1.0) License SKIDROW [Episode 1]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279757.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Adam Waste (2017) [Ru/Multi] (1.0) License SKIDROW [Episode 1]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA024E5B593A3EBB844682C636A66BCFCC34D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116513   (279755) от 28.11.2017
+
+Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Styx: Master of Shadows — это игра в лазутчика с элементами RPG, разработанная Cyanide Studio, чьи события происходят в мире темного фэнтези. Стикс — Гоблин, которому двести лет... Самый первый из Гоблинов. В забытой Башне Акенаша, где Люди и Эльфы защищают Мировое Древо, скрыта тайна его происхождения и создания расы Гоблинов. Пока магия Янтаря проистекает из Мирового (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3ABD3F661BF5B1DD5C1FAEA994EE507D4281F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

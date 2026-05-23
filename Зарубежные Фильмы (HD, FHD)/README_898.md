@@ -1,55 +1,3 @@
-###  Публикация: 1654800   (194001) от 22.08.2023
-
-Сорвиголова / Daredevil (2003) BDRip [H.265/1080p] [10-bit] [Director's Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Он живёт в мире вечной ночи, но эта темнота заполнена звуками и запахами, её можно попробовать на вкус и потрогать руками. Адвокат Мэтт Мердок слеп, но остальные органы чувств у него работают, как у супермена. Днём Мердок защищает униженных и оскорблённых в зале суда, а ночью превращается в супергероя в маске, восстанавливая справедливость на улицах города самыми (   Читать дальше...   )Производство: США, Швейцария / 20th Century Fox Film Corporation, Epsilon Motion Pictures, Horseshoe Bay Productions, Marvel Enterprises, New Regency Pictures, Regency EnterprisesЖанр: боевик, криминал, фантастикаРежиссер: Марк Стивен ДжонсонАктеры: Бен Аффлек, Дженнифер Гарнер, Колин Фаррелл, Майкл Кларк Дункан, Джон Фавро, Джо Пантольяно, Скотт Терра, Дэвид Кит, Эрик Авари, Эллен ПомпеоПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские (full, forced на непереведённые фрагменты в дубляже), английскиеПродолжительность: 02:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D5E2911892F7003200A296A667C86C6BC04F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654245   (193999) от 20.08.2023
-
-Время расплаты / Confidential Informant (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Том Моран — детектив, которому нечего терять. Он смертельно болен и настроен уйти в отставку с максимальной пользой для своей семьи — погибнуть на службе. Он связывается с опасными людьми, чтобы подстроить собственную смерть, однако впутывается в еще более глубокий заговор. Оказывается, не только он мечтает использовать систему: верхушка полиции также замешана в грязных (   Читать дальше...   )Производство: США / BondIt, Buffalo 8 Productions, Grindstone Entertainment GroupЖанр: ТриллерРежиссер: Майкл ОбловитцАктеры: Доминик Пёрселл, Кейт Босворт, Мэл Гибсон, Ник Стал, Ариэль Рэйсин, Эрик Вальдес, Расселл Ричардсон, Джон Линдстрём, Джон Кассини, Камила СавиаПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D0AF1827495D2B062801E72D5A2B0F0CC5E291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654108   (193998) от 20.08.2023
 
 Не буди во мне киллера / Les complices / Killing Blues (2023) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193998.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193995.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193970.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193953.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193893.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193877.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193861.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193853.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193850.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193835.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193831.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193763.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193740.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193733.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193732.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193731.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193685.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193657.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193652.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193630.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193626.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193625.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193613.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193597.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE8E635E754716303F9C06A4A4B74919C18E6B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 698643   (193588) от 28.08.2023
+
+Эрин Брокович / Erin Brockovich (2000) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193588.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об Эрин Брокович, одинокой женщине с тремя детьми, которую жизнь не часто баловала светлыми днями. Для таких, как она, нет карьерных перспектив, есть только скромная работа в маленькой юридической фирме. Но для уверенной в себе красотки, не стесняющейся в выражениях, достаточно одного ничтожного шанса, чтобы кардинально изменить свою судьбу. Красота и обаяние (   Читать дальше...   )Жанр: драма, биографияРежиссер: Стивен СодербергАктеры: Джулия Робертс, Альберт Финни, Аарон Экхарт, Питер Койот, Черри Джонс, Трейси Уолтер, Кончата Феррелл, Марж Хелгенбергер, Дэвид Брисбин, Доун Дидавик ...Перевод: ДублированныйЯзык субтитров: русские, английскиеПродолжительность: 02:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED87899F46A0F1FD226AD57EC793C9E0450DF0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828149   (193566) от 24.10.2025
+
+Хеллбой / Hellboy (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Близится час битвы Хеллбоя с Кровавой королевой, буквально собирающей себя по частям и жаждущей отомстить всему человечеству за века в заточении. Оказавшись в эпицентре столкновения миров людей и монстров, Хеллбой будет вынужден пройти через ад, чтобы предотвратить надвигающийся апокалипсис.Производство: США / Above the Line Set Assistance & SecurityЖанр: фэнтези, боевик, приключенияРежиссер: Нил МаршаллАктеры: Дэвид Харбор, Иэн Макшейн, Милла Йовович, Саша Лэйн, Дэниэл Дэ Ким, Алистэр Петри, Софи Оконедо, Брин Глисон, Томас Хейден Чёрч, Стивен ГрэмПеревод: Дублированный (Лицензия), многоголосый (Asilmedia), авторский (Яроцкий)Язык озвучки: Русский, узбекский, английскийСубтитры: отсутствуютПродолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FA42B41061D1866F6DF37DF0C72062F9A66E60
 ```
 
 https://mybot314.ru/tekegram_catalog/

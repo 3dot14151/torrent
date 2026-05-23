@@ -6,7 +6,7 @@ HWiNFO 8.22 Build 5670 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alfa eBooks Manager 9.1.16 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26354.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 133.0.6943.142 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26352.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zettlr 3.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26351.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ StartAllBack 3.9.5 build 5256 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26341.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FurMark 2.6.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26320.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CPU Temp 1.7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26317.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MiniTool Power Data Recovery 12.4 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26313.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FxSound 1.1.30.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26308.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Google Chrome 133.0.6943.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26292.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7301 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26291.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Master PDF Editor 5.9.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26289.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Windows Manager 2.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26282.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Native Instruments - Kontakt 8.2.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26269.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26266.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sante DICOM Viewer Pro 14.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26265.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Sante DICOM Editor 10.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26259.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Vivaldi 7.1.3570.58 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26250.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Tablacus Explorer 25.2.24 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26247.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PicPick Free+Pro 7.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26246.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ ISO Workshop Pro 13.3  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26237.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Adobe Photoshop 2025 26.3.0.156 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26233.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Activation Program 1.07 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26231.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Photoshop 2025 26.4.1.194 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26219.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ StartAllBack 3.9.5 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26199.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Master PDF Editor 5.9.88 (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26175.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050424.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050421.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Interplay 2025 (Mixed by Alexander Popov) (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050026.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Enhanced Progressive Best of 2025 (Mixed by Matt Fax) (2025) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050025.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - This is Ablazing 2025 (Mixed and Selected by Rene Ablaze) (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049366.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Monster Tunes Year Mix 2025 (Mixed By Exouler) (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049363.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Best Of Full On 140 Records 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049300.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best Releases 2025 of Your Melodies (2025) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049245.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Redux Presents: The Finest Selection 2025 Mixed by DJ Jayel (2025) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049156.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Black Hole Recordings - Best Of 2025 (2025) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048952.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048792.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048594.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048432.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Black Hole Trance Music 12-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048253.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Lost Kommunication Reflections 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048212.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Best of FSOE 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047858.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Best Releases 2025 of Endlessky Audio (2025) [MP3|320 Kbps] <Trance, Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047739.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - A Journey Through Time and Trance (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047511.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Redux Selection, Vol. 12 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046967.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Trance Fusion, Vol. 15 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046667.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Nocturnal Knights Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046478.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Elliptical Sun Recordings 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046476.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - The Best Of Suanda Music 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046475.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Trance: The Vocal Session 2026 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046474.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Uplifting Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045082.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Black Hole Trance Music 01-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044160.jpg" />
 </div>
 
 

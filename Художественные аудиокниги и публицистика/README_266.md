@@ -1,84 +1,3 @@
-###  Публикация: 1113642   (834532) от 13.03.2017
-
-Борис  Акунин | Семейный альбом (Книга 3). Счастливая Россия (2017) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новый роман серии «Семейный альбом» переносит читателя одновременно в не столь далекое прошлое и довольно отдаленное будущее, так что появляется возможность заглянуть в день вчерашний и день завтрашний из дня сегодняшнего.
-
-из интервью с Акуниным:
-"Этой весной выйдет мой третий роман из области литературы — утопия «Счастливая Россия». Этот жанр вышел из моды, (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 10:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1506294F3DFD8547423CC63CC13539AE63181530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005202   (834461) от 08.04.2016
-
-Алексей Слаповский | Большая книга перемен (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В новом романе "Большая книга перемен" есть все: и любовь (трех друзей к своей однокласснице, юной девушки к богатому разбойнику, мужа к жене), и потери (друзей, здоровья, близкого, самого себя), и успех (на сцене, в профессии, бизнесе), и даже детективное расследование (обстоятельств исчезновения человека)... Каждый герой должен сделать выбор, от которого (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 26:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D033FC9B099FF849275B64D6AB8D849BB55D8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652466   (834286) от 05.05.2013
-
-Владимир Богомолов | Момент истины. В августе сорок четвертого [2011] [MP3, Валерия Лебедева]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Второе название книги (или если угодно, подзаголовок) – В августе сорок четвертого. А это название должно быть знакомо многим по одноименному фильму с участием Евгения Миронова и Владислава Галкина. Но сейчас о книге, хотя и фильм замечательный. Роман рассказывает о нелегких буднях разведчиков из Смерш*. Группа капитана Алехина должна в кратчайшие сроки найти диверсионную (   Читать дальше...   )Жанр: Проза о войнеИздательство: Нигде не купишь
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E386A02AFE119926B0C2FC9AD9259F75A3B7F89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005245   (834266) от 08.04.2016
 
 Евгения Гордеева | Закон притяжения (2016) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834266.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834261.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833744.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833743.jpg" />
 </div>
 
 
@@ -197,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833645.jpg" />
 </div>
 
 
@@ -224,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833644.jpg" />
 </div>
 
 
@@ -252,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833637.jpg" />
 </div>
 
 
@@ -278,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833545.jpg" />
 </div>
 
 
@@ -304,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833539.jpg" />
 </div>
 
 
@@ -330,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833495.jpg" />
 </div>
 
 
@@ -356,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833461.jpg" />
 </div>
 
 
@@ -383,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833457.jpg" />
 </div>
 
 
@@ -410,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833372.jpg" />
 </div>
 
 
@@ -436,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833362.jpg" />
 </div>
 
 
@@ -462,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833338.jpg" />
 </div>
 
 
@@ -488,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833319.jpg" />
 </div>
 
 
@@ -516,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833313.jpg" />
 </div>
 
 
@@ -542,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833310.jpg" />
 </div>
 
 
@@ -568,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833179.jpg" />
 </div>
 
 
@@ -594,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833178.jpg" />
 </div>
 
 
@@ -620,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833175.jpg" />
 </div>
 
 
@@ -648,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833174.jpg" />
 </div>
 
 
@@ -674,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833170.jpg" />
 </div>
 
 
@@ -685,6 +604,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CECA1F23EC97830413E638FEBBDF42F5165B789D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380643   (833167) от 03.05.2020
+
+Александр Грин | Бегущая по волнам (1980/2007) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генерал Грант плыл с дочерью Фрези на корабле. Вдруг из воды показался невиданной красоты остров. Девушке захотелось попасть туда, но капитан не смог подплыть к острову. Кто-то сказал ей: ”Вы так легки, что сможете пробежать по волнам”. Фрези со словами “Прощай, отец” спрыгнула с корабля и исчезла в тумане вместе с островом. И теперь, как гласит легенда, она помогает (   Читать дальше...   )Жанр: Аудиоспектакль, классика, романЯзык озвучки: РусскийПродолжительность: 01:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9EC7ED7D95D607BC7F739118F6160A220610C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380345   (833166) от 03.05.2020
+
+Леонид Андреев | Иуда Искариот (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иуда из Кариота - символ предательства, великий грешник, обрекший Иисуса Христа на смерть. При этом Иуда, пожалуй, самый загадочный евангельский персонаж - тем он и притягателен для Леонида Андреева с его интересом к противоречиям в человеческой душе.
+Повесть "Иуда Искариот", по словам самого автора, - "фантазия на тему о предательстве, добре и зле". (   Читать дальше...   )Жанр: Роман, ИсторияПродолжительность: 02:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A336099BB77BF938320B8B92214A6EF7047796EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380581   (833035) от 03.05.2020
+
+Александр Беляев | Властелин мира (Аудиоспектакль) (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой изобретатель Штирнер изучает деятельность мозга живых существ и передачу мысли на расстояние. За поддержкой своих научных проектов Штирнер обращается к крупному банкиру Карлу Готлибу. Многочисленные опыты над животными и людьми дают поразительные результаты. Но Штирнера не устраивают отношения с банкиром, быть простым наемным прислужником не для него. Его (   Читать дальше...   )Жанр: Аудиоспектакль, фантастикаЯзык озвучки: РусскийИздательство: Театр "Радио россии"Продолжительность: 05:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5A9BE345CED34FB9EE786706069B9C09C57330
 ```
 
 https://mybot314.ru/tekegram_catalog/

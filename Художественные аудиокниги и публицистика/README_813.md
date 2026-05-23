@@ -1,87 +1,3 @@
-###  Публикация: 424141   (171829) от 21.10.2023
-
-Алексей Константинович Толстой | Князь Серебряный (2007) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Алексей Константинович Толстой (1817–1875) – русский писатель, поэт, драматург, граф, член–корреспондент Петербургской АН. Создатель баллад, сатирических стихотворений, исторического романа «Князь Серебряный» (опубликован в 1863 году), драматической трилогии «Смерть Иоанна Грозного» (1866), «Царь Фёдор Иоаннович» (1868) и «Царь Борис» (1870). Автор проникновенной (   Читать дальше...   )Жанр: Русская литература, классика, исторический романИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 18:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B09103C7147105F139739558B7FF66F447EA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443721   (171828) от 21.10.2023
-
-Александр Куприн | Волшебный ковёр. Повести и рассказы (2009) [MP3, Вадим Цимбалов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Куприн (1870–1938) – русский писатель.
-Героев Куприна отличает духовная целостность и неподдельное нравственное величие.
-Рассказ «Волшебный ковёр» Александр Куприн закончил 18 сентября 1919 года.
-Он предназначался для детского журнала «Северное сияние», редактором которого был Горький. Но напечатан рассказ так и не был, к тому же он стал последним (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Вира-МПродолжительность: 03:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37315BFE90102861686DD029B7450BB290FF5A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 353497   (171824) от 21.10.2023
-
-Фёдор Тютчев | Весенняя гроза (2008) [MP3, Сергей Казаков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Поэтическая библиотека.
-Фёдор Иванович Тютчев (1803–1873) – государственный муж, поэт, чье творческое наследие является жемчужиной русской литературы XIX века. Душевные переживания, драматичная любовь нашли отражение в его удивительно лиричных стихотворных произведениях.
-
-В творчестве поэта пейзажная лирика тесно переплетена с философскими раздумьями о жизни, (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E54C85AAD03689DF92045A669B220E024FEE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 294342   (171822) от 21.10.2023
 
 Алексей Константинович Толстой | Царь Фёдор Иоаннович. Радиоспектакль (2003) [MP3, Иннокентий Смоктуновский и др.]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171822.jpg" />
 </div>
 
 
@@ -117,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171821.jpg" />
 </div>
 
 
@@ -146,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171819.jpg" />
 </div>
 
 
@@ -172,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171808.jpg" />
 </div>
 
 
@@ -201,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171804.jpg" />
 </div>
 
 
@@ -232,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171749.jpg" />
 </div>
 
 
@@ -260,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171747.jpg" />
 </div>
 
 
@@ -287,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171739.jpg" />
 </div>
 
 
@@ -315,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171732.jpg" />
 </div>
 
 
@@ -343,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171726.jpg" />
 </div>
 
 
@@ -369,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171677.jpg" />
 </div>
 
 
@@ -397,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171669.jpg" />
 </div>
 
 
@@ -423,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171667.jpg" />
 </div>
 
 
@@ -450,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171664.jpg" />
 </div>
 
 
@@ -477,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171663.jpg" />
 </div>
 
 
@@ -504,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171660.jpg" />
 </div>
 
 
@@ -530,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171656.jpg" />
 </div>
 
 
@@ -557,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171654.jpg" />
 </div>
 
 
@@ -584,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171652.jpg" />
 </div>
 
 
@@ -611,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171643.jpg" />
 </div>
 
 
@@ -638,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171641.jpg" />
 </div>
 
 
@@ -665,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171636.jpg" />
 </div>
 
 
@@ -691,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171563.jpg" />
 </div>
 
 
@@ -702,6 +618,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:721844BD025A491BB567393D2869580A6240A26C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671090   (171551) от 23.10.2023
+
+Харпер Л. Вудс | Из плоти и костей (Книга 1). Что таится за завесой (2023) [MP3, Алена Бойченко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то мы поклонялись им как богам. Почти четыреста лет Завеса защищала нас от фейри Альвхейма. А потом мы погибли от их мечей. Все изменилось в один день – Завеса рухнула, впустив фейри в мир. Они ставят метки на тех, кого хотят подчинить себе, но Страже Тумана, защищающей мир людей, отдан приказ уничтожить нас всех – и тех, на ком  появилась магическая метка, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 12:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3140EA2992E4688B4BBB57F3DC4C3BEA73715DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671163   (171549) от 23.10.2023
+
+Александр Радищев | Путешествие из Петербурга в Москву (2006) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: XVIII век. Русская проза.
+Александр Николаевич Радищев (1749–1802) – русский писатель, поэт, просветитель, литератор, философ, переводчик, автор известного произведения «Путешествие из Петербурга в Москву».
+Главный труд русского мыслителя и писателя Александра Николаевича Радищева «Путешествие из Петербурга в Москву» – правдивое и резкое обличение системы (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 08:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E6D49AC8AEA1A5C87C28455E69D8A71FBEA0FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671232   (171539) от 23.10.2023
+
+Майкл Муркок | Хроники Элрика из Мелнибонэ. Месть Розы (2023) [MP3, Сергей Оробчук]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элрик Мелнибонийский встречается с призраком своего отца и, чтобы избежать страшной участи, пускается в путь на поиски ларца из розового дерева и его нынешних хозяек – Трех Сестёр.Жанр: ФэнтезиИздательство: Аудиокниги своими рукамиПродолжительность: 08:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F610630D715777823A85498397F0B96077750DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

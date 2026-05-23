@@ -1,29 +1,3 @@
-###  Публикация: 1711657   (36705) от 20.11.2024
-
-VIDEOVERSE (2023) [En] (1.2.0.3) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-VIDEOVERSE - это приключенческая игра с элементами визуальной новеллы, где вам предстоит перенестись в прошлое, когда интернет только входил в общий обиход. Оживите те старые деньки, когда люди общались на форумах и развлекались с использованием примитивных программ. Заводите друзей в сети, поддерживайте связь и наблюдайте за становлением персонажей, ведь развитие (   Читать дальше...   )Тип издания: LicenseРазработчик: KinmokuЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C9EA0D01F56FE17E0721004AE2A272C5A3C33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761417   (36694) от 20.11.2024
 
 Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.1.3) Repack FitGirl
@@ -32,7 +6,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.1.3) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36694.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36655.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tortuga - A Pirate's Tale (2023) [Multi] (1.2.0.62400) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36654.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36650.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36634.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Devil Within: Satgat (2024) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36621.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Disney Dreamlight Valley (2023) [Multi] (1.14.1.990/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36619.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36601.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36599.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Revhead (2017) [Multi] (1.9.11049/dlc) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36543.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Patch 5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36536.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.1.4/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36531.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36527.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36525.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36519.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36475.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36437.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1358352/dlc) Scene Rune [Le
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36434.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36424.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Valheim - Ashlands (2021) [Ru/Multi] (0.219.16) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36419.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Funko Fusion (2024) [Ru/Multi] (1.2.10.143142/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36415.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Factory Town (2021) [Ru/Multi] (2.2.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36408.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Inside the Backrooms (2022) [Ru/Multi] (0.5.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36381.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36375.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ A Quiet Place: The Road Ahead (2024) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36374.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ A Quiet Place: The Road Ahead — это однопользовательска�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D95063116FB4E9238545F78205290BCCCB7EFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761973   (36368) от 23.11.2024
+
+Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бионик Таня получила задание от своего создателя, доктора Эрве, найти и спасти исследовательскую команду, пропавшую без вести в джунглях Горациевых островов, где загадочная карпасская энергия превращает местных животных и растения в агрессивных мутантов.Тип издания: SceneРазработчик: Dark Pigeon GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, Английский, Китайский (Упрощенный)Язык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B4DC6246071731FEB7C442B0EE3BFC55A580BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779837.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alien: Isolation (2014) [Ru/En] (1.0upd9/7dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779697.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hunt Down The Freeman (2018) [En] (1.0/upd1) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779167.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778890.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru/En] (16.00.20.0275) Repack R.G. Механик�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778582.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Quadrant Episode 1-3 (2015-2016) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777843.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fleeting Ages (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777810.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru] (16.0.20.1060) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_777701.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Share (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777450.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Vortex: The Gateway (2016) [Ru/Multi] (1.1520) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777051.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Call of Duty 2 (2005) [Ru] (1.3) License 1C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775485.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Night Blights (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775457.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Enemy Front (2014) [Ru/En] (3.4.4.6290/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774794.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774028.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774022.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773971.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Council of Hanwell (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772770.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ No Man's Sky (2016) [Ru/Multi] (1.77/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772509.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/8dlc) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772263.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Disintegration (2020) [Ru/Multi] (1.0.0.6) Repack от xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769602.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Infected Maze (2020) [Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769314.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ P.A.M.E.L.A. (2020) [En] (1.0.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769272.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Dishonored 2 (2016) [Ru] (1.77.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768822.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Deadstep (2018) [En] (1.0.3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768782.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Duder (2018) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768751.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Far Cry (2004) [En] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768377.jpg" />
 </div>
 
 

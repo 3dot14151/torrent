@@ -1,55 +1,3 @@
-###  Публикация: 1235087   (563643) от 09.07.2018
-
-3 дня на убийство / 3 Days to Kill (2014) BDRip [H.265/1080p-LQ] [10-bit] [Extended Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Итан Реннер один из лучших агентов. Чтоб не потерять свою семью, в течение 10 лет ему пришлось скрывать от них, чем он занимается. Но из-за этих тайн у него портится отношения с супругой. Вскоре он узнает, что смертельно болен. У него рак мозга последней стадии и жить ему остался не больше 6 месяцев. Он собирается уйти в отставку, чтобы провести последние дни со (   Читать дальше...   )Производство: Франция, СШАЖанр: Боевик, Криминал, Триллер, ДрамаРежиссер: МакДжиАктеры: Кевин Костнер, Эмбер Хёрд, Хейли Стайнфелд, Конни Нильсен, Томас Лемаркус, Рихард Заммель, Марк Андреони, Бруно Риччи, Йонас Блоке, Эрик ЭбониПеревод: ДублированныйСубтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306FBBD2B66414C1E07994763274A355337C4DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690188   (563611) от 18.08.2013
-
-Добро пожаловать в капкан / Welcome to the Punch (2013) BDRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бывший преступник Джейкоб Стернбуд вынужден вернуться в Лондон из своего убежища, когда его сын вовлечен в ограбление пошедшее не так. У детектива Макса Левински появляется шанс поймать человека, которому всегда удавалось уйти. Соперники снова меряются силами, но они сталкиваются с более глубоким преступным заговором, с которым вынуждены бороться, чтобы выжить.Производство: Великобритания, США - Automatik Entertainment, Between The Eyes, Scott Free Productions, Worldview EntertainmentЖанр: Боевик, Триллер, КриминалРежиссер: Эрен Криви / Eran CreevyАктеры: Джеймс МакЭвой, Марк Стронг, Андреа Райзборо, Дэвид Моррисси, Джейсон Флеминг, Питер Муллан, Элайес Габел, Дэниэл Мейс, Джонни Харрис, Дэниэл Калуя, Ли Николас Харрис, Стив Орам, Наташа Литтл, Элли Дарси-Олден, Рут Шин, Роберт Порталь, Джейсон Мацца, Даниэль Брент, Кэти Мерфи, Чонради Култап, Аластер Камминг, Рэй Де-Хаан, Стивен Борри, Джинни Ди, Лорен Гарнхэм, Майк (   Читать дальше...   )Перевод: Любительский одноголосый, Авторский одноголосыйОзвучка / Автор перевода: lord666, ДольскийСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, испанскийПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B96A2964D2CD136C6C9D920B3712AA569A2F4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 690282   (563597) от 18.08.2013
 
 Порочные игры / Stoker (2013) BDRip [720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563597.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563471.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563469.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563273.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563134.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563061.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563019.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563000.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562999.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562965.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562935.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562932.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562904.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562858.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562843.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562831.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562828.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562718.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562711.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562664.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562662.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562655.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562627.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562610.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:730538379447538BC6140F747CF5B1FF883176AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923730   (562516) от 01.08.2015
+
+Джеки и Райан / Jackie & Ryan (2014) WEB-DL [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562516.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о бродяге, который пытается стать успешным музыкантом, и о матери-одиночке, которая борется за право опеки над своей дочерью. Отношения, складывающиеся между ними, могут изменить их жизни навсегда…Производство: СШАЖанр: драмаРежиссер: Эми Канаан МаннАктеры: Кэтрин Хайгл, Бен Барнс, Клеа ДюВалл, Эмили Элин Линд, Шерил Ли, Нэйтан Стивенс, Райан Бингхэм, Челси Гудвин, Джеффри Хэнсон, Аллан Гров и др.Перевод: Профессиональный многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC041600992ABB1A1AB6DA252968518C0FB03356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923759   (562455) от 01.08.2015
+
+Дальняя дорога / The Longest Ride (2015) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люк — экс-чемпион по родео, раздумывающий над возвращением в спорт. София — выпускница колледжа, получившая заманчивое предложение о работе в сфере искусства в Нью-Йорке. В то время как молодые люди пытаются сделать нелегкий выбор между чувствами и мечтами, жизнь сталкивает их со стариком Айрой. Воспоминания нового друга о его полувековых отношениях с женой вдохновляют (   Читать дальше...   )Производство: США, Fox 2000 Pictures, Temple Hill EntertainmentЖанр: Драма, МелодрамаРежиссер: Джордж Тиллман мл.Актеры: Скотт Иствуд, Бриттани Робертсон, Алан Алда, Уна Чаплин, Джек Хьюстон, Мелисса Бенуа, Лолита Давидович, Питер Юрасик, Эми Пэрриш, Майкл ЛоуриПеревод: Дублированный (Лицензия Blu-ray EUR)Язык субтитров: Русский (Forced, iTunes), украинский (iTunes), английский (iTunes, SDH, Commentary)Продолжительность: 02:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EABC26BCEABAC495969F38D745948F8F261C48F
 ```
 
 https://mybot314.ru/tekegram_catalog/

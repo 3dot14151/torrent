@@ -1,83 +1,3 @@
-###  Публикация: 1432164   (164918) от 16.12.2020
-
-Алексей Мухин | Механоид (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мир изменился. Мы не заметили, как это произошло, но вдруг оглянувшись, стало понятно – сейчас уже все по-другому. Мы действительно вошли в эпоху умных машин и автоматизированного труда. Игры стали с полным погружением в выдуманный мир. Мы сами тоже изменились, стали больше полагаться на умных помощников и меньше пользоваться своей головой. Решил поиграть? Новая (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 15:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA093A46BBB0E63158007E0A208A7E3E8F07E428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345936   (164915) от 17.12.2019
-
-Михаил Елизаров | Земля (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Роман «Земля» рассказывает о Кроте, «русском Танатосе», а другими словами – мастере похоронного дела. Его зовут Кротышев Владимир Сергеевич, и с самого раннего детства в его жизни присутствует смерть. Ее символы постоянно преследуют Крота, а когда он начинает заниматься похоронным делом, то сам становится олицетворением смерти.
-История балансирует между серьезным (   Читать дальше...   )Жанр: Философская проза, мистикаПродолжительность: 12:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0C5E729487E4F3E3D132861288E512FAF4508F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421659   (164898) от 01.11.2023
-
-Оноре де Бальзак | Шагреневая кожа (2006) [MP3, Валерий Захарьев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Зарубежная проза.
-В историю литературы Оноре де Бальзак вошел как создатель «Человеческой комедии» – единственной в своем роде художественной энциклопедии жизни Франции XIX века. Наиболее значительным и ярким произведением этой эпопеи является роман «Шагреневая кожа». Когда ты молод, влюблен и честолюбив, но знаешь, что все твои мечты обречены из-за отсутствия (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: АудиокнигаПродолжительность: 12:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E68C131714F029FDC9525463467A0249AAEABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 282366   (164893) от 01.11.2023
 
 Оноре де Бальзак | Сборник рассказов Красавица Империа (2006) [MP3, Александр Белый, Александр Котов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164893.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164892.jpg" />
 </div>
 
 
@@ -142,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164860.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164851.jpg" />
 </div>
 
 
@@ -195,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164845.jpg" />
 </div>
 
 
@@ -222,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164825.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164819.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164809.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164801.jpg" />
 </div>
 
 
@@ -328,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164789.jpg" />
 </div>
 
 
@@ -356,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164787.jpg" />
 </div>
 
 
@@ -383,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164781.jpg" />
 </div>
 
 
@@ -409,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164770.jpg" />
 </div>
 
 
@@ -435,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164719.jpg" />
 </div>
 
 
@@ -461,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164716.jpg" />
 </div>
 
 
@@ -489,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164675.jpg" />
 </div>
 
 
@@ -518,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164604.jpg" />
 </div>
 
 
@@ -546,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164587.jpg" />
 </div>
 
 
@@ -572,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164555.jpg" />
 </div>
 
 
@@ -598,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164554.jpg" />
 </div>
 
 
@@ -624,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164516.jpg" />
 </div>
 
 
@@ -652,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164510.jpg" />
 </div>
 
 
@@ -681,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164491.jpg" />
 </div>
 
 
@@ -692,6 +612,91 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D68B0ABC824EA4DD36AF9D1BD7C419940833C608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673655   (164486) от 02.11.2023
+
+Иван Тургенев | Записки охотника (2003) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Школьная библиотека
+Мастер слова и тонкий психолог, прославленный русский писатель Иван Сергеевич Тургенев оказал огромное влияние на умы своих современников и внес существенный вклад в развитие отечественной и мировой литературы.
+В аудиокнигу вошли рассказы И.С. Тургенева – знаменитые «Записки охотника», принесшие писателю широкую известность.
+(   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Студия «АРДИС»Продолжительность: 08:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375E2EB7005A567B480B5C848A36DEAB55C6419C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673667   (164474) от 02.11.2023
+
+Иван Тургенев | Дворянское гнездо (2013) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860). Считается одним из классиков мировой литературы.
+
+В романе И.С. Тургенева «Дворянское гнездо» с трагической остротой поставлен вопрос о праве человека на личное счастье. «Дворянское гнездо» – это (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Нигде не купишьПродолжительность: 07:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80B012F509BD6E6BC2F474634A8807C5D7EE825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673660   (164469) от 02.11.2023
+
+Иван Тургенев | Рассказы и повести (2008) [MP3, Олег Исаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Школьная библиотека.
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик; член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860). Считается одним из классиков мировой литературы.
+«Школьная библиотека» продолжает знакомить вас с творчеством И.С. Тургенева. В сборник вошли повести и рассказы из цикла (   Читать дальше...   )Жанр: Русская литература, классика, рассказ, повестьИздательство: АудиокнигаПродолжительность: 11:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6108FA44E843D094411CEA41F2CEF5886524CF81
 ```
 
 https://mybot314.ru/tekegram_catalog/

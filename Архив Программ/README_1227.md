@@ -6,7 +6,7 @@ Wise Auto Shutdown 1.54.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421310.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SRWare Iron 53.0.2800.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421309.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Artweaver Free 5.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421308.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ultra Adware Killer 4.3.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421302.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Folder Hider Free 3.38.147 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421301.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Vivaldi 1.4.589.38 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421299.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Xilisoft YouTube Video Converter 3.3.3 build 20120919 + Portable by p2000s [Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_421294.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kaspersky Rescue Disk 10.0.31.4 (06.10.2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_421284.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ OSForensics Pro 1.2 Build 1003 + Portable by p2000s [Англ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_421278.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ XYplorer 20.40 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421150.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Brave Browser 0.68.132 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421148.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wise System Monitor 1.5.1.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421144.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Product Key Explorer 4.1.8.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421135.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Google Chrome 77.0.3865.75 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421134.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dr.Web Remover 11.1.0.201601180 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421123.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Loaris Trojan Remover 2.0.22 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421113.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.23 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421040.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.23 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421038.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ GPU-Z 2.25.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420980.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Microsoft Visual Studio 2019 Enterprise 16.2.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420966.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Vidiot 0.3.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420961.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Comodo IceDragon 49.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420958.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Comodo Dragon 52.15.25.664 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420956.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Resonic Player 0.8b Build 1307 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420954.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ KLS Backup 2015 Professional 8.4.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420952.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Wise Duplicate Finder 1.0.4.16 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420950.jpg" />
 </div>
 
 

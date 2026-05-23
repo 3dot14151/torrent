@@ -6,7 +6,7 @@ VA - Союз 2018. Лучшие хиты попмузыки (2017) [MP3|256-320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278368.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Greatest Dance Hits (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277667.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Discoтека Life is Life (2010) [MP3|128 kbps]<Dance / Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277446.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Созвездие хитов. Суперсборник попмузыки 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277438.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - Модные Новогодние Хиты from AGR | @nGeL® (2010) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277437.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Новогодние DFM танцы до утра 50/50 (2010) [MP3|128 kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277436.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Взрывной хит-парад. Часть 3 (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277374.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ VA - Лучшие песни зимы (2010) [MP3|256 kbps]<Pop/Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277323.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Снегопад новинок (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277255.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - German Top 100 Single Charts 01.12.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277158.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - XXL Новогодний Хит 50/50 (2010) [MP3|160 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277105.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - American Discothek vol. 1 - 8 (2010) [MP3|256 kbps]<Eurodance/Technopop/Dis
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276909.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - German Top 100 Single Charts 08.11.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276338.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Зимние Хиты from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop/Dance/Cl
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276296.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Музыкальный Новогодний Подарок from AGR | @nGeL
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276237.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Hot Dance Pool Party (2019) [MP3|320 Kbps] <Dance, House, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276227.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - В десяточку! Зимний выпуск (2010) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276226.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Mega Популярный Ринг-tone 50/50 (2010) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276134.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - OLD Dance Hits 100% (2010) [MP3|320 kbps]<Pop,Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276127.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Сотка модных хитов. Сборник 9 (2016) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275920.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Хит-парады Топы Чарты FM-станций  Ноябрь (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275780.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Отрывайся с лучшими хитами выпуск 5 (2016) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274978.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Осенний динамит. 50Х50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274976.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - Новогодние Каникулы 50/50 (2010) [MP3|256 kbps]<Pop/Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274913.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Музыкальные новинки. Only Best Hits. Выпуск 2 (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274854.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ VA - Музыкальные новинки mp3. Выпуск 6 (2016) [MP3|256 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274846.jpg" />
 </div>
 
 

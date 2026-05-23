@@ -6,7 +6,7 @@ AutoPlay Menu Builder 8.0 build 2450 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803622.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ USDownloader 1.3.5.9 Portable (30.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803548.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AutoHideMouseCursor 2.04 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803537.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PointerStick 2.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803432.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Balabolka 2.11.0.601 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803422.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Blackmagic Design Fusion 8.0 Build 18 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803419.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Baidu Antivirus 2015 5.8.0.150821 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803322.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ KMS Tools Portable 24.04.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803315.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ MediaInfo 0.7.94 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803282.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ KLS Backup 2015 Professional 8.4.4.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803279.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Uninstall Tool 3.4.5 Build 5432 Final RePack (& portable) by KpoJIuK (23.04.2016
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803236.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Uninstall Tool 3.4.5 Build 5432 Final RePack (& Portable) by D!akov (24.04.2016)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803233.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Bulk Crap Uninstaller 3.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803193.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ SuperBird 41.0.2272.101 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803167.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Google Chrome 57.0.2987.133 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803117.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Cakewalk SONAR Platinum 23.3.0 Build 51 (2017.03) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803116.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ R-Drive Image Technician 6.1 Build 6104 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803088.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ JetBrains CLion 2017.1 Build #CL-171.3780.121 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803086.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BitComet 1.45 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803079.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Google Chrome 57.0.2987.133 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803076.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803021.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ W10Privacy 2.3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802923.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Avast Premier 17.3.2291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802913.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Microsoft Windows 10 TP Language Pack build 10051 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802879.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Advanced SystemCare Pro 10.3.0.739 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802847.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802828.jpg" />
 </div>
 
 

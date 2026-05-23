@@ -6,7 +6,7 @@ PhotoLine 22.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886955.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WireGuard VPN 0.4.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886951.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BELOFF 2021.09 Lite (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886933.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Opera GX 67.0.3575.130 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886916.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ORPALIS PDF Reducer Professional 3.1.14 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886901.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Total Commander LE 2.30 (9.00a-x32-x64) Portable by southron4965 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886870.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mozilla Firefox MO 3.52 (45.7.0 esr) Portable by southron4965 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886866.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ CoolUtils Total Audio Converter 5.3.0.226 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886817.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ORPALIS PaperScan Professional 3.0.101 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886797.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Icecream PDF Editor PRO 2.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886740.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Altium Designer 17.0.10 Build 617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886724.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.15031 (esd) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886720.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886716.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886635.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ TrustViewer 2.1.2.3550 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886626.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ qBittorrent 4.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886620.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ USDownloader 1.3.5.9 (10.03.2016) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886524.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mozilla Firefox 46.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886520.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Adobe AIR 21.0.0.176 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886411.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ KMSoffline 2.1.4 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886403.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Maxthon Cloud Browser 4.9.2.300 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886367.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WinUtilities Professional Edition 12.4 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886338.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ K-Lite Codec Pack Update 12.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886316.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ QTranslate 5.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886313.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ KMS Tools Portable 01.04.2020 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886255.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ LibreOffice 5.1.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886209.jpg" />
 </div>
 
 

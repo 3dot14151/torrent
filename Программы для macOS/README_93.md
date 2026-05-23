@@ -6,7 +6,7 @@ Master of Typing - Мастер Печати на Китайском  7.3.1 [Mul
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436224.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Scrutiny 9 v9.11.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436223.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Master of Typing : Состязание 2 v8.5.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436216.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436181.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Orbis (Formerly MenuWeather) 5.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435981.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SILKYPIX Developer Studio Pro 8E 8.0.24.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435880.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Dropzone 3 v3.6.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435879.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ NotePlan - Markdown Calendar 1.6.29 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435872.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Turbo Boost Switcher Pro 2.9.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435658.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ iSkysoft iTransfer 4.5.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435548.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Reeder 3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435507.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ AudioBook Converter for Mac 5.1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435293.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Startupizer 2.3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435233.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Statsey - app usage statistics in your menu bar 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435231.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tadam: Stay focused at work 2.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434826.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ iFFmpeg 6.2.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434814.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Monit 2.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433956.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Darkroom: Photo & Video Editor 6.0.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433936.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Pacifist 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433834.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mellel4 v4.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433459.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Fantastical 2 v2.5.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433452.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ ChatMate for WhatsApp 4.3.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433311.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ SMARTReporter 3.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433288.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ BrowserFreedom 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432519.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ AnyMP4 MOV Converter 6.3.10 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432254.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Capture One Pro 10 v10.2.105 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432209.jpg" />
 </div>
 
 

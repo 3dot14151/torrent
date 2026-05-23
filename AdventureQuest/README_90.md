@@ -1,29 +1,3 @@
-###  Публикация: 1757736   (38940) от 29.10.2024
-
-Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Bendy and the Ink Machine – это игра-головоломка от первого лица в жанре survival horror, которая начинается в далёкие дни анимации и заканчивается в очень тёмном будущем. Возьмите на себя роль Генри – аниматора из давних времён. Возвращайтесь в забытое место, про которое он думал, что никогда его больше не увидит. То, что произойдёт дальше, – тайна. Но вы больше (   Читать дальше...   )Тип издания: LicenseРазработчик: Joey Drew StudiosЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2653B98C6CB406524E441916B604D34D701326A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757687   (38936) от 29.10.2024
 
 Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
@@ -32,7 +6,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38936.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38886.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38854.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38833.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38780.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38748.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38725.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Tintin Reporter Cigars of the Pharaoh / Репортер Тинтин: Сига�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38660.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38654.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38652.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38650.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38642.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38600.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38537.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38417.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Night is Grey (2024) [En] (1.4) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38397.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38379.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38340.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ CRUELTY (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38305.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38164.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38116.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38057.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38006.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37825.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37806.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Chicken Police: Into the HIVE! - увлекательное детективно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759541   (37783) от 09.11.2024
+
+Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы собирались встретить праздник со своей девушкой, Джойс, но приятный вечер нарушил незванный гость, и теперь вам придётся приложить все усилия, чтобы пережить это Рождество. Crimson Snow - это сюжетно ориентированная хоррор игра, которая рассказывает о мрачных событиях одной рождественской ночи. Пробирайтесь по странным комнатам освящённого праздничными огнями (   Читать дальше...   )Тип издания: RepackРазработчик: Steppe Hare StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDB855E32DB3FA0437AA39D16F573022D8E4E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

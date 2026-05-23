@@ -6,7 +6,7 @@ priPrinter Professional 6.9.0.2541 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197434.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent Pack 1.2.3.69 (04.06.2023) Repack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197426.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Topaz Video AI 3.2.9 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197425.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WhatsApp (outdated) 2.2323.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197420.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Opera 99.0.4788.65 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197419.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Total Commander 11.00 beta6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197413.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AnyDesk 7.1.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197410.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ UnHackMe 14.90.2023.0426 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197404.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Ashampoo Photo Optimizer 9.3.4.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197400.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wondershare UniConverter 14.1.19.209 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197397.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Reg Organizer 9.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197394.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ DxO PureRAW 3.3.0 build 12 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197392.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Radiant Photo 1.1.2.281 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197390.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ IceCream Ebook Reader Pro 6.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197388.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Mozilla Thunderbird 102.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197378.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Adguard 7.13.1 (7.13.4278.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197366.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ SamDrivers 23.6 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197358.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ IObit Driver Booster Pro 10.5.0.139 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197353.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197351.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Adguard 7.13.1 (7.13.4278.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197350.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AOMEI Backupper Technician Plus 7.2.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197348.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DxO PhotoLab Elite 6.7.0 build 219 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197346.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ LibreOffice 7.5.4.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197345.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Auslogics Driver Updater 1.25.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197344.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ IObit Smart Defrag Pro 8.5.0.299 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197343.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Advanced Renamer 3.89.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197341.jpg" />
 </div>
 
 

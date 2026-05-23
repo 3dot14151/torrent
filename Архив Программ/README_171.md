@@ -6,7 +6,7 @@ ImTOO DVD Ripper Ultimate 7.7.2.20130122 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993343.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kaspersky World 1.3.8.88 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993336.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ GeForce Experience 1.0.1.0 Beta [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993299.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Windows 8 Transformation Pack 6.5 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993295.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Screensaver Factory 6.4 Enterprise Portable by Kopejkin [Rus / Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993294.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Radiocamp 0.1.22.0 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993284.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VidCoder 5.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993282.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Zillya! Antivirus 1.1.3450 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993252.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WinZip Pro 17.0 Build 10381r [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993250.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ IObit Smart Defrag Pro 6.4.5.98 (COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993232.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ BluffTitler Ultimate 14.7.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993224.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ NetLimiter Pro 4.0.58.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993220.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Opera 66.0.3515.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993216.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ GPU-Z 2.29.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993215.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ardfry PSD Codec 1.6.1.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993188.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Win8PE + (x86) by Xemom1/Ljhvb [Eng\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993187.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ G Data InternetSecurity 2013 23.1.0.2 Final [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993185.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ SoftPerfect NetWorx 6.2.7.20016 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993159.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Notepad++ 7.8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993157.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ R-Wipe & Clean 20.0.2263 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993154.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Viber 12.2.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993152.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Sumatra PDF 3.2.12014 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993123.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Smart Game Booster Pro 4.2.1.4218 (promo GAOTD) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993087.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ AOMEI Backupper Technician Plus 5.6.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993079.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ RadioBOSS Advanced 5.9.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993073.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Adobe Bridge 2020 10.0.2.131 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993070.jpg" />
 </div>
 
 

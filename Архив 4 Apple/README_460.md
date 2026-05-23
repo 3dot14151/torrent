@@ -6,7 +6,7 @@ Debut Professional 6.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296028.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Color Folder Master 1.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296022.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ djay Pro AI 3.0.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296016.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ iMazing 2.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295978.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tayasui Sketches Pro 6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295953.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mach Desktop HD 3 v3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295951.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PhoneRescue for iOS 4.1.0.20201020 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295948.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AnyTrans 8.8.0.20201109 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295815.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ CrossOver 20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295788.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Screenium 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295767.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PhotoScape X Pro 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295446.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Doo - Get Things Done 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295196.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Uninstaller sensei 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295186.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Downie 3.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295055.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Grids for Instagram 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295013.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Macgo Mac Blu-ray Player Pro 3.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295010.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Alfred 4 Powerpack 4.0.6 (1121) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294977.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ ExactScan Pro 19.10.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294974.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Progressive Downloader 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294973.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Paste 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294972.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Perfect Horizon Full 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294971.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ OCRKit Pro 19.10.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294970.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ iSkysoft DVD Creator 6.0.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294969.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Carbon Copy Cloner 4.1.6 (4255) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294935.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Recompress 19.10.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294883.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Hype 4 Pro v4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294882.jpg" />
 </div>
 
 

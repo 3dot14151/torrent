@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357296.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SolidWorks Premium Edition 2016 SP0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357286.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Whos On My WiFi 2.0.9 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357144.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ K-Lite Codec Pack 9.5.0 (Basic, Standart, Full, Mega, Update + x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357141.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ PrivaZer (Donors) 4.0.52 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357034.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Advanced Tokens Manager 3.5 BETA 7 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357000.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ muvee Reveal X 10.5.0.22971 Build 2744 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_356993.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ ESET Smart Security 5.2.9.12 DC 08.11.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_356992.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Cyberlink ColorDirector Ultra 11.0.2031.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356887.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ FanControl V129 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356886.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Three-Body Tech - Kirchhoff-EQ 1.5.1 VST, VST 3, AAX (x64) RePack by TeamFuCK [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356884.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Ableton Suite 8.3.4 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_356857.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ ESET NOD32 AntiVirus 5.2.9.12 DC 08.11.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_356853.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Quick CPU 4.4.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356766.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ TrustViewer 2.9.0.4203 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356762.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Kerish Doctor 2022 4.90 (Update 18.09.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356761.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ WavePad Sound Editor Masters Edition 6.63 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356710.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Ant Download Manager Pro 1.10.1 Build 53855 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356696.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ save2pc Ultimate 5.5.6.1581 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356681.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Brave Browser 0.55.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356670.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ R-Studio Technician 9.1 Build 191044 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356658.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Windows 11 Manager 1.1.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356654.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ WinContig 5.0.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356653.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Double Commander 1.0.8 Build 191 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356650.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ BurnAware Professional 12.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356633.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ SMPlayer 18.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356565.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Slimjet 5.0.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344652.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox 50.0 Portable by Fossius [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344643.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mozilla Firefox ESR 45.5.0 Portable by Fossius [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344629.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ LockHunter 3.1.1.115 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344615.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wise Care 365 Pro 5.5.9.554 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344553.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Proxifier v3.21 Standard Edition + Portable by Alexei78 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344522.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CCleaner 5.24.5841 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344486.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Aiseesoft Blu-ray Player 6.6.10 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344449.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Tipard Blu-ray Player 6.2.10 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344443.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cockos REAPER 6.15 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344417.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ O&O ShutUp10 1.2.1349 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344399.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cyberfox 42.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344381.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Tor Browser Bundle 6.0.6 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344375.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ SpyHunter 4.24.3.4750 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344369.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Display Driver Uninstaller 17.0.7.8  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344329.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Reg Organizer 8.02 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344318.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Blank And Secure 4.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344266.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Icecream Ebook Reader PRO 2.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344262.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Topaz A.I. Gigapixel 5.2.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344206.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe InCopy 2021 16.0.0.77 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344205.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ K-Lite Codec Pack Update 15.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344202.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ MiniTool Power Data Recovery 9.1 Business Technician RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344200.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ LibreOffice 5.0.3 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344174.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Cyberfox 42.0.1 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344165.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ MSI Afterburner 4.4.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344124.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Reg Organizer 8.02 Final RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344116.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - IBIZA 2023 (Deluxe Version) (2023) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224759.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Deep Winter Chill (2012) [MP3|320 кб/с]<Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224747.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Best Of Massive EDM Party (2015) [MP3|320 кб/с] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224598.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ VA - Milano Fashion Nights: House Music Compilation (2012) [MP3|320 кб/с]<Dee
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224468.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - ADE Highlights (2022) CD, Compilation [MP3|320 Kbps] <Melodic House & Techn
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222601.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Crossfit 2019 - Best Cross Fit Workout Music - Motivation Gym Music Mix (20
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222524.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Last Christmas 2018 Compilation (2018) [MP3|320 Kbps] <House, ElectroHouse,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221898.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Remembering the 90s: Best Hits Remixed (2018) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221417.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Best of 2019 Dance Music (2019) [MP3|320 Kbps] <Dance, House, Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220075.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Dancing Pirates Vol. 1 (House Radio Edits) (2023) [MP3|320 Kbps] <Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218852.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Dj De Key - Anniversary Edit (2019) [MP3|320 Kbps] <Progressive House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218763.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Ibiza Dance Party (2023) CD, Compilation [MP3|320 Kbps] <Electro, Club, Fut
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218690.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downte
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218497.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - House Clubhits Megamix 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218460.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Black Hole House Music 08-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217875.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Mojito Lounge Beats 2023: Best of Tropical & Deep House (2023) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216787.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - Summer Vibes 2023: Best of Deep Tropical House (2023) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216773.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - X Mas Party Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216398.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Winterpearls 06 Chillout for a lovely cold breeze - Presented By Kolibri Mu
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216262.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Best of Bedrock 2016 (2016) [MP3|320 Kbps] <Tech House, Techno, Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214738.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Ibiza Winter Session 2017: 25 Deep Smoothies (2016) [MP3|320 Kbps] <Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214654.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - BC2 Winter (2 CD) (2018) [MP3|320 Kbps] <House, Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214503.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Best of Lapsus Music (2 CD) (2018) [MP3|320 Kbps] <Tech House, Funky, Groov
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214487.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ VA - Top 40 Djs Club Beats'18 (2018) [MP3|320 Kbps] <House, Funky, Future House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214445.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ VA - Anjunadeep The Yearbook 2018 Vol 2 (2018) [MP3|320 Kbps] <House, Indietroni
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214298.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ VA - Dance On Abba - Remix Cover Collection Vol.2 (2017) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214031.jpg" />
 </div>
 
 

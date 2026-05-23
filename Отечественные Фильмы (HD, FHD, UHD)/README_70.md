@@ -1,81 +1,3 @@
-###  Публикация: 1247664   (450745) от 16.09.2018
-
-Колыбель (2016) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Полёт на Международную космическую станцию проходит штатно. Одна из многих задач экспедиции — провести биологические исследования, которые могут внести весомый вклад в медицину. Бортинженер Толя заинтересован в этих опытах не только с научной точки зрения: он надеется, что положительные результаты помогут жене, которая ждёт его в московской больнице. Но нештатная (   Читать дальше...   )Производство: Россия / Space Film IndustriesЖанр: Короткометражный, драмаРежиссер: Артур СухонинАктеры: Александр Черкашин, Николай Захаров, Евгений Саранчев, Евгения Нохрина, София СолдатоваСубтитры: Английские (вшитые не отключаемые)Продолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E966EEE1607443F7DA362664F331E0BC52343889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705132   (450414) от 29.09.2013
-
-Бедная LIZ (2013) WEB-DLRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сержант канадской полиции Джо Соколофф едет в далекую Россию выполнить последнюю просьбу своей любимой бабушки. Но с первых шагов на исторической родине все планы Джо рушатся — его грабят в поезде «милые соседи». Отстав от поезда, 30-летний любитель родео и кантри-музыки, глядящий на мир радостными широко открытыми глазами, оказывается в маленькой кубанской станице (   Читать дальше...   )Производство: "Star Media", РоссияЖанр: КомедияРежиссер: Алексей ЛисовецАктеры: Мария Машкова, Антон Пампушный, Ниеле Сережникова, Александр Данильченко (II), Лина Будник, Дмитрий Лаленков, Екатерина Кистень, Любовь Тимошевская, Николай Боклан, Галина Корнеева, Николай ОлейникПродолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E1CC89AE6949EEB092F1221984DDD5FFC4BB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247591   (450069) от 16.09.2018
-
-Потерянное отражение: Исповедь содержанки (2017) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта история сложилась из множества реальных рассказов о жизни тех, кто предпочел остаться за кадром. Юная, полная жизненной энергии провинциальная девушка отплясывает под «Мальчик мой». Она даже не подозревает, что вскоре, отправившись покорять столицу, встретит мужчину, чье появление оборвет восторженный полет ее души. И героиня превратится в ту, кого презрительно (   Читать дальше...   )Производство: Россия, Киношкола «Лестница», Кинокомпания «Магнум», Русская Фильм ГруппаЖанр: ДрамаРежиссер: Елена ЖигаеваАктеры: Анна Чурина, Саша Летта, Владимир Топцов, Мария Атлас-Попова, Ольга Павловец, Ольга Лапшина, Дмитрий Ланчихин, Наталья Клюкина, Владимир Скворцов, Наталья МишкинаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FF5899C409183E29FD9F5BB2B727F85DB4E719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631148   (448727) от 15.09.2020
 
 Рассказы (2012) BDRip [H.264/1080p]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448727.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447997.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447144.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446846.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446182.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445955.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444641.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444548.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444325.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444306.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444237.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444129.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443696.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443639.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443574.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442563.jpg" />
 </div>
 
 
@@ -500,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442238.jpg" />
 </div>
 
 
@@ -526,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442034.jpg" />
 </div>
 
 
@@ -552,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441930.jpg" />
 </div>
 
 
@@ -578,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441876.jpg" />
 </div>
 
 
@@ -604,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441851.jpg" />
 </div>
 
 
@@ -630,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441672.jpg" />
 </div>
 
 
@@ -656,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441483.jpg" />
 </div>
 
 
@@ -667,6 +589,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:731B2F0001041F047FF4581AA063721CD519CB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570724   (440489) от 18.08.2022
+
+Шарнохой — желтый пес (2019) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек по имени Шарнохой живёт в съёмном доме в пригороде Улан-Удэ со своей невестой Гэрэлмой. Она сбежала из дома, когда родители запретили ей выходить за него замуж. Будучи беременной, однажды Гэрэлма видит на улице всадника на вороном коне, в древних гуннских доспехах и с оружием. Ей становится плохо и ее доставляют в больницу. Старик бурят рассказывает (   Читать дальше...   )Производство: Россия / Студия "БурятКино"Жанр: драма, мистикаРежиссер: Баир ДышеновАктеры: Баир Протасов, Баярма Бобоева, Саяна Цыдыпова, Николай Соктоев, Чимит Дондоков, Эрдэм Шагдуров, Юрий Линхоев, Майдари Лодоев, Жаргал Лодоев, Галина ГалсановаСубтитры: русские (hardsub - на бурятский язык)Продолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166A91E5DAAD0077760386E3307AAC98EBCF5FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743778   (439782) от 19.09.2020
+
+Рассказы (2012) BDRip (1080p)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рукопись молодого писателя попадает в литературное издательство и начинает влиять на жизнь любого, кто откроет её и прочтет хотя бы страницу. Четыре рассказа из рукописи — это четыре истории с непредсказуемой развязкойЖанр: Драма, КомедияРежиссер: Михаил СегалАктеры: Андрей Мерзликин, Игорь Угольников, Тамара Миронова, Константин Юшкевич, Дарья Носик, Любовь Новикова, Владислав Лешкевич, Сергей Фетисов, Елена Нестерова, Василий Мичков ...Язык субтитров: Русский, АнглийскийПродолжительность: 01:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E500092912EA6E3B460195AA190BCE7D7216D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248871   (439480) от 21.09.2018
+
+Мама – Святой Себастьян (2016) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын и мать. Севе шестьдесят, маме — восемьдесят. Жизнь Севы прошла в уходе за мамой — ни своей семьи, ни детей… Пока ее капризы исполнял, не до себя было. Не заметил как и сам постарел… И тут случилось, то что должно было случится — мама умерла. Жизнь потеряла все, что в ней было. А тут еще всплыла тайна связанная с мамой. Невыносимая правда перевернула все с ног (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Александр МеркюриАктеры: Анатолий Горячев, Светлана Киреева, Сергей Юшкевич, Антонина Введенская, Юрий Лопарев, Анатолий Хропов, Александр БольшаковСубтитры: ОтсутствуютПродолжительность: 00:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1E186465A1042DD11AABA6498F37314BFCBC62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1087293   (145630) от 27.12.2016
-
-Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мир рухнул. Надежды нет. Нельзя начать все с чистого листа. Остались только выжившие. Игра «Deadlight» рассказывает историю Рэндэла Уэйна — человека, ищущего свою семью в Сиэтле после событий 1980-х годов, во время которых вся жизнь на Земле была уничтожена.Тип издания: LicenseРазработчик: Tequila WorksЖанр: Action, Survival Horror, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372CFC49215430A76E5ABB9FBB2F4EEB174EB8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087377   (145616) от 27.12.2016
 
 Call of Duty: Black Ops (2010) [Ru/Multi] (0.305-05.125430.1/dlc) License PLAZA [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Call of Duty: Black Ops (2010) [Ru/Multi] (0.305-05.125430.1/dlc) License PLAZA 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145616.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145605.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145577.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145572.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Witches' Legacy 7: Awakening Darkness (2015) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145443.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ My Train Arrives (2019) [Ru/Multi] (20231030/dlc) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145029.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144997.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) Repack R.G. Revenants
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144992.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144983.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ KURSK (2018) [Ru/En] (2.1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144970.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Barton Lynch Pro Surfing (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144751.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Bzzzt (2023) [Multi] (1.001) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144741.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144680.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Haunted Hotel 16: Lost Dreams / Проклятый отель 16: Несбывш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144670.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Fairy Godmother Stories: Cinderella / Сказки Феи Крестной: Зо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144613.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Christmas Spirit 3: Grimm Tales / Дух Рождества 3: Сказки 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144567.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Mystery Tales 2: The Twilight World / Загадочные истории 2. С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144528.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Terminal Velocity: Boosted Edition (2023) [Multi] (1.0.4) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144464.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Demon Hunter 5: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144454.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144447.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Haunted Hotel 17: Beyond the Page (2018) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144436.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Vermillion Watch 5: London Howling (2018) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144282.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144142.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Legacy 3: The Tree of Might / Наследие 3: Дерево Силы (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144096.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Haunted Manor 5: Halloween's Uninvited Guest / Призрачная усадьб
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144056.jpg" />
 </div>
 
 
@@ -667,6 +641,34 @@ Haunted Manor 5: Halloween's Uninvited Guest / Призрачная усадьб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C606F52D5B98C2574AE18F8DA0B09FA454975FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589981   (143866) от 16.12.2012
+
+Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R.G. Shift
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через два года после того, как командор Шепард отразил вторжение Пожинателей, у человечества появился новый враг. На окраинах обитаемого космоса кто-то постепенно уничтожает колонии людей. Чтобы остановить надвигающуюся угрозу, Шепарду предстоит сотрудничать с сетью Цербер - безжалостной организацией, провозглашающей выживание человечества любой ценой.
+
+Для выполнения этой ответственной миссии Шепард должен собрать очень сильную команду и принять командование самым мощным космическим кораблем в галактике. Но даже с такими ресурсами большинство считает его затею безнадежной. Командор Шепард должен доказать скептикам, что они ошибались. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

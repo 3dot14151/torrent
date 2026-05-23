@@ -6,7 +6,7 @@ Last Days of Eden - Ride the World (2015) [FLAC|Lossless|image + .cue] <Epic Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471984.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hellion - Hellion (1983) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471886.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Taake - Nattestid Ser Porten Vid (1999) [APE|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471176.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Onslaught - Generation Antichrist (2020) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471002.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - A Tribute To Slayer (2016) [FLAC|Lossless|image + .cue] <Deathcore, Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470944.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Accuracy - Absolut 100% (1996) [FLAC|Lossless|image + .cue] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470321.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Blind Guardian Twilight Orchestra - Legacy Of The Dark Lands (2019) 2xCD [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470186.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dream Theater - Dream Theater (2013) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469496.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Miasthenia - Supremacia Ancestral (2008) [FLAC|image +.cue]<Pagan Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469422.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Midwinter - Between Wisdom And Lunacy (2006) [FLAC|image +.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469421.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Bifrost - The Wildest Fire (1996) [APE|image +.cue]<Pagan / Thrash / Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469356.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Love Lies Bleeding - Clinamen (2006) [FLAC|image +.cue]<Atmospheric Black Metal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469342.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Love Lies Bleeding - S.I.N. (2001) [FLAC|image +.cue]<Atmospheric Black Metal / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469332.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Love Lies Bleeding - Behold My Vain Sacrifice (2000) [FLAC|image +.cue]<Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469329.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Abhorer - Zygotical Sabbatory Anabapt (1996) [APE|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468135.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Abscess - Bourbon, Blood And Butchery (2013) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468134.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Abscess - Dawn Of Inhumanity (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468133.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Martyr - Feeding The Abscess (2006) [FLAC|Lossless|image + .cue] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468132.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Reternity - Cosmic Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468129.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Nightmare - Live Hard, Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468128.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Sin Isomer - Burst Into Isomer (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467645.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Vampire - Vampire & Cimmerian Shade EP (2014) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467642.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Sacrosanct - Recesses for the Depraved (1991) [APE|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467640.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Svartsyn - In Death (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467636.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Taberah - Sinner's Lament (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467634.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Humanitas Error Est - Human Pathomorphism (2016) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467596.jpg" />
 </div>
 
 

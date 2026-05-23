@@ -1,32 +1,3 @@
-###  Публикация: 520798   (628450) от 10.07.2012
-
-Hoard [Multi5\-] (RePack/1.0) 2011 | R.G. ReCoding
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Обычно герой игры про драконов занимается тем, что бегает по королевствам и убивает этих огромных монстров, но в Hoard вам предстоит выступить в роли этого самого монстра...
-
-По сюжету игры, расширяющееся королевство намеревается вытеснить его с законной территории. Так что нам придется сделать все, чтобы этого не случилось – красть золото из казны, нападать на караваны (!!!), осуществлять рейды на склады еды и даже палить дома.
-Главное добиться того, чтобы дракону никто не мешал снова погрузиться в мирный сон !..(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Action / 3D / Top-downЯзык интерфейса: Английский, Испанский, Немецкий, Французский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795CDD00978B6748E9BF59506992CA26F44E57A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519327   (628437) от 10.07.2012
 
 Ys Origin [En] (L) 2012 | Reloaded
@@ -35,7 +6,7 @@ Ys Origin [En] (L) 2012 | Reloaded
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628437.jpg" />
 </div>
 
 
@@ -62,7 +33,7 @@ Ashes of the Singularity (2016) [En/De] (1.24.20813/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628026.jpg" />
 </div>
 
 
@@ -88,7 +59,7 @@ Vector Thrust (2015) [Ru/Multi] (1.500) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627871.jpg" />
 </div>
 
 
@@ -114,7 +85,7 @@ MechRunner (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627861.jpg" />
 </div>
 
 
@@ -141,7 +112,7 @@ Nevertales 8: The Abomination / Несказки 8: Мерзость (2019) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627689.jpg" />
 </div>
 
 
@@ -167,7 +138,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.5.20/dlc) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627662.jpg" />
 </div>
 
 
@@ -193,7 +164,7 @@ Dead Effect 2 (2016) [Ru/Multi] (190 401.1357/dlc) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627575.jpg" />
 </div>
 
 
@@ -219,7 +190,7 @@ The Occupation (2019) [Ru/Multi] (1.02) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627557.jpg" />
 </div>
 
 
@@ -245,7 +216,7 @@ Surface 11: Strings of Fate / Внешние пределы 11: Линии су�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627239.jpg" />
 </div>
 
 
@@ -271,7 +242,7 @@ Rolling Sun (2015) [En] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627040.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0.12897) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626916.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Get Even (2017) [Ru/En] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626907.jpg" />
 </div>
 
 
@@ -349,7 +320,7 @@ Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626250.jpg" />
 </div>
 
 
@@ -378,7 +349,7 @@ Burnstar (2015) [Ru/Multi] (1.0 b.204) License PROPHET
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626236.jpg" />
 </div>
 
 
@@ -404,7 +375,7 @@ Oxenfree (2016) [Ru/En] (2.1.0f26) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626085.jpg" />
 </div>
 
 
@@ -430,7 +401,7 @@ Electric Circuit (2015) [Ru/En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626075.jpg" />
 </div>
 
 
@@ -456,7 +427,7 @@ Satellite Reign (2015) [Ru/Multi] (1.13.02) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625916.jpg" />
 </div>
 
 
@@ -482,7 +453,7 @@ Ridge (2016) [Ru/Multi] (1.0 u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625908.jpg" />
 </div>
 
 
@@ -508,7 +479,7 @@ Ridge (2016) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625905.jpg" />
 </div>
 
 
@@ -537,7 +508,7 @@ GHOUL (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625875.jpg" />
 </div>
 
 
@@ -563,7 +534,7 @@ The Piano (2018) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625865.jpg" />
 </div>
 
 
@@ -589,7 +560,7 @@ Night in the Woods (2017) [En] (5.6.2.23522822) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625862.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Enter the Gungeon (2016) [Ru/Multi] (2.1.3/dlc) License PLAZA [Collector`s Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625698.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Small Town Terrors 3: Galdor's Bluff / Террор в городке 3: Бле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625687.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625571.jpg" />
 </div>
 
 
@@ -678,6 +649,32 @@ Pineview Drive - Homeless — это прямое продолжением иг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6EC424D4EEAD2C3C33044D6AD273A06BC61DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683410   (625450) от 25.07.2013
+
+Rugby Challenge 2 (2013) [En] (1.0.0.0) RePack R.G. Revenants
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение серии Rugby Challenge. В игре представлены около 110 команд, 50 спортивных арен, десятки чемпионатов, большие возможности по созданию собственных игроков и коллективов, а также многопользовательский режим, где вместе со своими друзьями вы посоревнуетесь за звание лучшего.(   Читать дальше...   )Тип издания: RePackРазработчик: Sidhe InteractiveЖанр: Sport (Rugby) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE092AAC047A2C89132ED6E52C51A1E6247A3D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

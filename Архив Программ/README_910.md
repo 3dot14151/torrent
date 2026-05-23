@@ -6,7 +6,7 @@ MxNitro Browser 1.1.1.600 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588654.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ UsbFix Free 2015 7.991 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588651.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MeinPlatz 4.77 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588650.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ EagleGet 2.0.4.2 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588646.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ProcessKO 3.78 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588644.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CHM Editor 3.0.1 RePack by leserg73 (Upd. 11.07.15) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588616.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Unchecky 0.3.8 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588614.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mustang Browser 1.44.46.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588599.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ O&O Defrag Professional 18.9 Build 60 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588596.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AVG AntiVirus 2015 15.0.6086 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588591.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Reg Organizer 7.15 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588589.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AVG Internet Security 2015 15.0.6086 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588588.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Foundry MARI 2.6 v5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588584.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ReWord 5.5 Portable + Все словари [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588583.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Avast Free Antivirus 2015 10.3.2223 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588580.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ K-Lite Codec Pack 11.2.8 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588573.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MSActBackUp 1.0.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588571.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Balabolka 2.11.0.583 Portable by Maverick [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588570.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Reg Organizer 7.15 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588564.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Acronis True Image 2016 19.0.3093 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588562.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Opera 30.0.1835.125 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588559.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Screen Translator 1.2.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588550.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Foundry NUKE STUDIO 9.0 v6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588546.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Adobe Dreamweaver CC 2015 16.0.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588542.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Adobe Premiere Pro CC 2015.0 9.0.0 (247) Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588532.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ AusLogics BoostSpeed 8.0.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588531.jpg" />
 </div>
 
 

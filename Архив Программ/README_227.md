@@ -6,7 +6,7 @@ Google Chrome 80.0.3987.116 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955501.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FinalCrypt 6.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955399.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Movavi Video Suite 20.2.0 (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955391.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nikon Capture NX-D 1.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955314.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Epic Pen Pro 3.7.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955312.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Asus K50IN - оригинальный диск для Windows 7 Driver&Utility v
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955227.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Movavi Video Suite 20.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955222.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955215.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ IP-TV Player 50.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955208.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The KMPlayer 4.2.2.37 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955207.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Flash Player 11.6.602.171 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955202.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Download Master 6.11.1.1535 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955144.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MAGIX Vegas Pro 17.0 Build 421 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955141.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows 7 (13in2) Sergei Strelec x86/x64 6.1 (build 7601.24548) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955135.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kaspersky Free 2020 20.0.14.1085 (h) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955132.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows 10 Enterprise LTSC 2019 x64 v.1809.17763.1039 Feb2020 by Generation2 [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955130.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FL Studio Producer Edition 20.6.2.1549 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955125.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Telegram Desktop 1.9.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955121.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.02.19 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955119.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ AV Uninstall Tools Pack 2017.01 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955002.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ AdminPE 3.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954823.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Total Commander Ultima Prime 7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954819.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Athentech Perfectly Clear Photoshop Plug-in 2.2.5 RePack by Leserg [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954813.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ CrystalDiskMark 5.2.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954805.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VidShot Capturer 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954762.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ CrystalDiskInfo 7.0.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954733.jpg" />
 </div>
 
 

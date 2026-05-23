@@ -6,7 +6,7 @@ Adobe Audition 2026 26.0.0.56 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053739.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mp3tag 3.33 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053536.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Audition 2025 25.6.4.2 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052566.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Audition 2025 25.6.4.2 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052358.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ocenaudio 3.17.1 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052309.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FL Studio Producer Edition 25.2.3.5171 All Plugins Edition + Addons + FLEX Pack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051817.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Serato DJ Pro Suite 4.0.1 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051236.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ EZ CD Audio Converter 12.4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051219.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ocenaudio 3.16.5 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051205.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Audacity 3.7.7 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048746.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ discoDSP - Discovery Pro 7.5 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) Repack by d
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046017.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Auburn Sounds - Panagement 2 2.5.1 (FULL) VST, VST3, AAX (x86/x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046003.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ u-he - MFM2 2.5.0 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045935.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ircam Lab - The Snail 1.4.1 STANDALONE, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045579.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Nomad Factory - 80s Spaces 2.1.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045577.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Polyverse Music - Supermodal 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045576.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ GiliSoft Audio Recorder Pro 11.1.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045564.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Sonic Projects - OP-X PRO-II 1.3.0 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045561.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Cableguys - ShaperBox 3 3.2.1 VST, VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045186.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Karanyi Sounds - LoFi Keys 1.25 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045064.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ u-he Everything Bundle 2022 VSTi, VSTi3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044938.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ W.A. Production - KSHMR Reverb 1.0.0 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044143.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sugar Bytes - Cyclop 1.3.6 Standalone, VSTi, VSTi 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043930.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Mastering The Mix Collection 2023.01 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043898.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Sugar Bytes - Graindad 1.0.4 Standalone, VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043841.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Plugin Alliance - AMEK Mastering Compressor 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043799.jpg" />
 </div>
 
 

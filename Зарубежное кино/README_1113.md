@@ -1,55 +1,3 @@
-###  Публикация: 934700   (501076) от 06.09.2015
-
-Счастливая пропажа / Lost & Found (1999) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Дилана Рамси давно превратилась в бесконечний поиск идеальной спутници жизни. Настоящим подарком судьбы оказывается его мимолётная встреча с Лайлой Дюбуа, очаровательной француженкой, поселившейся по соседству. Лайла соответствует всем требованиям Дилана, но как же заставить её обратить на себя внимание? Для начала, Дилан похищает любимую болонку Лайлы, чтобы (   Читать дальше...   )Производство: США, Alcon Entertainment, Dinamo EntertainmentЖанр: КомедияРежиссер: Джефф ПоллакАктеры: Дэвид Спейд, Софи Марсо, Патрик Брюэль, Арти Лэнг, Митчелл Уитфилд, Кристиан Клеменсон, Эстелль Харрис, Марла Гиббс, Роуз Мари, Кэрол Кук, Мишель Клуни, Эвер Кэррэдин, Карл Майкл Линднер, Мартин Шин, Хэл СпарксПеревод: Дублированный, профессиональный (многоголосый, закадровый)Язык субтитров: АнглийскийПродолжительность: 01:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306A51E6563C785C255CA3D018CB89F089212300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934875   (501074) от 06.09.2015
-
-Шоссе смерти / Highwaymen (2004) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Герою этой картины, Ренни Крэю, терять нечего: после того, как извращенный садист безжалостно отнял жизнь у его жены, он бросил всё и годы посвятил поискам убийцы. Опасный психопат, который расправился с женой Крэя, продолжает совершать зверские преступления: он разъезжает на своём потрёпанном «Эль Дорадо» 72 года выпуска по безлюдным ночным дорогам и убивает молодых (   Читать дальше...   )Производство: США, Канада, Cornice Entertainment, Millenium Films, New Line CinemaЖанр: Боевик, ТриллерРежиссер: Роберт ХармонАктеры: Джеймс Кэвизел, Рона Митра, Фрэнки Фэйзон, Колм Фиор, Гордон Карри, Андреа Рот, Ноам Дженкинс, Тоби Проктор, Джеймс Ки, Гилейн Сент-Ондж, Джо Пинг, Мартин Роуч, Рон Белл, Пол Рутледж, Келли Джонс, Брайан Ренфро, Джейсон МакКормак, Пол Мота, Майкл СтивенсПеревод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3033A7E5B295EADC190CB444BAA7349CBEBC5A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934827   (501070) от 06.09.2015
 
 Непристойное поведение 2 / Indecent Behavior II (1994) DVDRip [EN / DU Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501070.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501068.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501041.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501034.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501028.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501027.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500972.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500961.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500960.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500945.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500936.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500911.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500903.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500897.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500878.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500873.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500868.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500865.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500856.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500821.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500703.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500688.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500593.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500437.jpg" />
 </div>
 
 
@@ -668,6 +616,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2892493F49DE74B075517ABC27E2EB1C8F35BC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541820   (500397) от 01.09.2012
+
+С почестями / With Honors (1994) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания студентов снимают один дом, причем на троих парней приходится одна девушка. Каждый учиться на своем факультете, работают. Главный герой (в исполнении Брендана Фрейзера — еще до Мумий) пишет дипломную работу, и вот однажды вечером он теряет ее. А находит данное творчество один, простите за слово, бомж, от которого потом не так-то просто получить свою дипломную работу обратно. Что делать? Приходится выполнять все пожелания бомжа, и за каждое пожелание он возвращает горе-студенту по одному листочку (а диплом-то состоит из 90 листов !).
+
+Постепенно студент и нищий завязывают глубокую дружбу и привязанность. Очень мило наблюдать, как герой Фрейзера нежно заботится о своем недруге. Нам раскрывается история жизни нищего и то, как он докатился до такой жизни… А еще он страдает страшной болезнью и умирает… Студент пытается сделать все возможное, чтобы спасти его, но все напрасно… Дипломная работа становится не так уж и важна — ведь это наша жизнь, мы сами должны управлять ею, мы должны наслаждаться каждым моментом, (   Читать дальше...   )Жанр: Драма, КомедияРежиссер: Алек КешишьянАктеры: Джо Пеши, Брендан Фрейзер, Мойра Келли, Патрик Демпси, Джош Хэмилтон, Гор Видал и др.Перевод: Многоголосый закадровый / ДублированныйПродолжительность: 01:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECA0E2D39A9613AE3E74B3AEAE4909FB79F56BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541837   (500381) от 01.09.2012
+
+Плохая карма / Bad Karma (2011) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно вышедший из тюрьмы бывший наркоман и преступник налаживает совместную жизнь с девушкой. Однако он решает отомстить, для чего вынужден снова иметь дела со своей старой бандой.Жанр: ТриллерРежиссер: Сури КришнаммаАктеры: Доминик Пурселл, Рэй Лиотта, Энди МакФи, Ванесса Грэй, Аарон Педерсен, Брэд МакМюррей, Ти Смит, Робин Мур, Кармел Роуз ДжентилеПеревод: Любительский (двухголосый)Продолжительность: 01:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D88545070303E5052C2059F8EAEF89DF770FB9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

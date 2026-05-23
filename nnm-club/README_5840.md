@@ -1,54 +1,25 @@
-###  Публикация: 1495813   (830841) от 13.10.2021
+###  Публикация: 1500138   (830399) от 13.10.2021
 
-VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 3 (2021) [AAC|~310 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Karen Gibson Roc, Merge Of Equals - Love Each Other (4:27)
-02. Lounge Groove Avenue - Soul In The City (2:52)
-03. Gold Lounge - Vinile (5:33)
-04. Artur Bayramgalin - Sunny Kiss (3:14)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2CBD43B530D7110EFBA9D51944D758B133A479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497189   (830840) от 13.10.2021
-
-VA - Luxury Lounge Sunset, Vol. 2 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Erotic Stories (Suite 01) (2021) [AAC|~291 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Worldtraveller - Maui Pie (4:20)
-02. Svendaq - Near The Beach (6:06)
-03. Music Of The Earth - Jazz Skit Lick (Pearldiver Remix) (3:20)
-04. Paul Eerhart - Mambo Queen (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:44
+01. Living Room - Smokers Unite (3:03)
+02. Konsiglio - Oleico (5:04)
+03. Ronald Ganz - Bolland (Ladies Chill Mix) (4:05)
+04. Sealovers - Wild Hunters (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E57014AF138AD38C5E1660180935DF4D4464561
+magnet:?xt=urn:btih:2845126F6D22A5D5829A5A84F12867F1EBCFFD14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497181   (830839) от 13.10.2021
+###  Публикация: 1498279   (830398) от 13.10.2021
 
-VA - Smooth Espresso Bar, Vol. 1 (2021) [AAC|~318 Kbps] <Lounge, Chill Out>
+VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 4 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Remembering Those Nights (5:56)
-02. Living Room - Calm Space (5:52)
-03. Pier-O - Dawn (5:12)
-04. Marga Sol - Black Coffee (5:17)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:36:42
+01. Velvet Dreamer, Tim Gelo - Time Together (Original Mix) (5:06)
+02. Openzone Bar - Kiss in the Dark (Original Mix) (4:36)
+03. MoShang - Pagoda (Original Mix) (3:29)
+04. Decò - Slow Motion (Original Mix) (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F7339A0D42683B78C32176D5DC2669E014DDACA
+magnet:?xt=urn:btih:B7524C3245EF355092628953151343C1E3747E2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497894   (830838) от 13.10.2021
+###  Публикация: 1500990   (830397) от 13.10.2021
 
-Röyksopp - Senior (2010) [AAC|~306 Kbps] <Electronic, Downtempo>
+VA - The World Series of Lounge, Vol. 3 (2021) [AAC|~338 Kbps] <Balearic, Downtempo, Lounge>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ... And the Forest Began to Sing (1:50)
-02. Tricky Two (7:51)
-03. The Alcoholic (5:11)
-04. Senior Living (5:10)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:55:51
+01. 351 Lake Shore Drive, Genius Jane - Cubic Waves (4:27)
+02. Eddie Silverton - Basic Course (4:27)
+03. Lounge Deluxe - El Dorado (5:17)
+04. Inventors Of The Sun - Desert Moon (4:36)(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 01:42:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A30229CB40315702897D3E8D2E657AF695209575
+magnet:?xt=urn:btih:56CAD7B9F65F6DAE96AE1E443E762F33143DF794
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496552   (830837) от 13.10.2021
+###  Публикация: 1501691   (830396) от 13.10.2021
 
-VA - Smooth Jazz n Chill (2016) [AAC|~336 Kbps] <Jazz>
+VA - The Spirit of Lounge Music (2021) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. LeBron - Kiss and Tell (4:08)
-02. Oli Silk - Get out Claws (3:30)
-03. Randy Scott - Kisses (4:54)
-04. Jaared - Jamaican Winds (3:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:51
+01. Gamma Orionis - A Gentle Rain (5:49)
+02. Fuchsgang - Plaisirs Inconnus (5:41)
+03. Basics On Lounge - Insatiable Love (6:06)
+04. Lovers in Motion - A Perfect Digestif (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFCB4563A00EEF03C0B6C62B7B61EAF899E855DA
+magnet:?xt=urn:btih:B431AC7072ABC55C4FA76C800861D94BB570203D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497394   (830836) от 13.10.2021
+###  Публикация: 1498901   (830395) от 13.10.2021
 
-VA - Buddhatronic - the Compilation, Vol. 5 (2020) [AAC|~312 Kbps] <Downtempo, Lounge, Chill Out>
+Chillout Music Masters - Flow Beats 2021 – Magical Electro Lounge (2021) [AAC|~301 Kbps] <Chill Out, Lounge>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Beyond The Sky (4:28)
-02. Buddhatronic - Be Still (5:26)
-03. Jean Mare - Slow Rise (4:31)
-04. Book of Dreams - Emuland (4:12)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:28:39
+01. Electro Chillout Lounge (3:54)
+02. Wind and Fire (3:27)
+03. Blue Dreams (6:17)
+04. Flow Beats (3:35)(   Читать дальше...   )Жанр: Chill Out, LoungeПродолжительность: 01:00:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C06F9CC2DC37501325C32AD8240BAF49EE994A3C
+magnet:?xt=urn:btih:F68977E04D13522260BFF6C11D9824A65C56D02D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496119   (830835) от 13.10.2021
+###  Публикация: 1500982   (830394) от 13.10.2021
 
-VA - Lounge Moments, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Downtempo, Chillout>
+VA - The World Series of Lounge, Vol. 1 (2021) [AAC|~325 Kbps] <Balearic, Downtempo, Lounge>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luke Hampton - Jazz Music (Lemongrass Remix) (5:42)
-02. Chris le Blanc, Liz June - Enjoy Your Life (Cafe Del Mar Edit) (4:10)
-03. Roberto Bronco - Figure It Out (Original Mix) (6:19)
-04. Alien Café - Paris Depression (Original Mix) (3:33)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:17:43
+01. 351 Lake Shore Drive, Genius Jane - Day of Light (2:21)
+02. Man In A Room, Natasha Tsirou - Marveland (5:22)
+03. Inventors Of The Sun - Secrets (5:39)
+04. Smooth Deluxe, Nizam Kharda - Bodhu Boron (3:18)(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 01:35:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA10D5DE4DEF8EA0E9E0AFBB6A7512FAC1264152
+magnet:?xt=urn:btih:B86B99F1718A72CE32D8D5EC2B0026490A385CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495809   (830834) от 13.10.2021
+###  Публикация: 1496769   (830393) от 13.10.2021
 
-VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 2 (2021) [AAC|~322 Kbps] <Lounge, Downtempo, Chillout>
+Святослав Вакарчук - Оранжерея (2021) [AAC|~293 Kbps] <Rock, Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Urban Phunk Society - Love Echoes (4:35)
-02. Worldtraveller - Maui Pie (4:20)
-03. Lord Of Beat - In My Mind (5:06)
-04. James Butler - Coastline (3:16)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:06:00
+01. Оберіг (3:34)
+02. Лиш для нас (3:01)
+03. Без причини (3:11)
+04. Знову (5:08)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:48:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E193462D82F89DD6203A487020EE8296867029D2
+magnet:?xt=urn:btih:7DBE13BC2FEB2E7701130B93A684ECD8183C87D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,422 +201,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496116   (830833) от 13.10.2021
+###  Публикация: 1502262   (830392) от 13.10.2021
 
-VA - Lounge Moments, Vol. 1 (2021) [AAC|~326 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass - Bossa Del Mar (Original Mix) (4:09)
-02. No Noise - Karma Shabda (Original Mix) (5:07)
-03. Mo'jardo - Tequila Days (Original Mix) (4:46)
-04. InnamoratoDellaMusica - Venice (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D731E95CAB004BEB91D6D701331F33A55CB98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502182   (830832) от 13.10.2021
-
-Bad Whispers - Burn Out (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing to Hope
-02. Burn Out
-03. Go Home Tonight
-04. Burning Wings(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF48E0AEC5138680B7AEDE1639DC3DF48D0CE7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497257   (830831) от 13.10.2021
-
-Chillhop Guitar - Chill at the Lux' (2021) [AAC|~317 Kbps] <Chill Out, Smooth Jazz, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Lilou DeLaLune (5:00)
-02. Cat Wanted (6:41)
-03. Pyramidal (3:38)
-04. Princess at the Door (5:00)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65674854C0BF96DF98A1F7287CDD717955973DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497227   (830830) от 13.10.2021
-
-Chillhop Guitar - Guitar at Work (2021) [AAC|~302 Kbps] <Chill Out, Smooth Jazz, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Behind the Dark (5:40)
-02. A Friday with You (5:31)
-03. Dolce Vita (6:27)
-04. Submarine (5:25)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 02:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5962EDC7E35469A541F58766EA1B618607D3F6C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500361   (830829) от 13.10.2021
-
-VA - Aimée Sol, It's All About Beloved and Chilled Sunshine, Vol. 1 (2021) [AAC|~317 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Sphere - If (4:19)
-02. BuzzGo, Andestro - I Wish (Millsleg Remix) (3:40)
-03. Raum 21 - Meet the Magic Man (5:26)
-04. Aiemo, Holly Prothman - Your Dreams (Vocal Mix) (4:09)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C65DED329131DF0D174481E7243FD52CBA264DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497034   (830828) от 13.10.2021
-
-VA - Relaxing Coffee Beats, Vol. 1 (2021) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Follow That Star (5:00)
-02. Area Code 51 - Sindarin (3:46)
-03. Luis Hermandez - I Will Miss You (3:48)
-04. Marga Sol, Michael e - Reflections of You (3:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6449981484B2B62D2B1AE50C96602D83FB47563A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497136   (830827) от 13.10.2021
-
-VA - Magic Island of Chill Out, Vol. 1 (2021) [AAC|~314 Kbps] <Lo-Fi, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Antennasia - First Flight (Lemongrass Remix) (6:19)
-02. Tom Tom Club - Love to Love You Baby (Anonymous Rifles Remix) (6:07)
-03. Thomas Lemmer - Lunar Eclipse (4:58)
-04. Twins In Mind - Sad About You (Cammiloo Remix) (7:33)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00D7A8801133AF17C7817ECBB66CC2F27B3C525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497386   (830826) от 13.10.2021
-
-Lemongrass - Touch (2021) [AAC|~331 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. I Go (4:28)
-02. Amoureuse (6:24)
-03. Times (3:46)
-04. Bonne Nuit (4:10)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861DE09F90037776525377BD44FC89C5A03418C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496949   (830825) от 13.10.2021
-
-VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 1 (2021) [AAC|~324 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup, Jenufa Gleich - Live As One - Be As One (Remastered) (4:59)
-02. Weathertunes - Take Me Away (4:00)
-03. Jane Maximova - Only (6:09)
-04. CaPa - Capacity (5:55)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154CF0807A536067379E8EB8EB8611B83AB39ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005920   (830824) от 10.04.2016
-
-VA - DJ SS & Influx UK Present: Deepsound Vol.2 (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Mixmaster Doc, Dave Shichman, Bernzilla, DJ SS - Personally Frankly [05:34]
-02. Boyan & Boyer - Be Right Here (feat. Mission Zero) [04:36]
-03. Soul Savaz - From My Heart to the Heavens (feat. DJ SS, High Roll, Victor, Tsiu) [06:00]
-04. Full Kontakt - Conditions [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAFDACACF30B5E3FBD6FC662804FD574BDD3158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006107   (830823) от 10.04.2016
-
-Соль. «БАХ!(-ЫТ-)КОМПОТ» (10.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Ведущий шоу Захар Прилепин - человек с четко выраженной позицией, очевидно, что ему есть, что сказать людям. Каждая программа начинается с обозначения Прилепиным темы, которая для широкого зрителя является ключевой в текущем информационном поле. Ведущего и музыкальных гостей в студии, по словам самого Прилепина, объединит "яркость, талант, взрывоопасность в (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFADF04E56F52E11F737A8216687FA6466AB198C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005850   (830822) от 10.04.2016
-
-Максим Шахов | Узник Гуантанамо (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Российские ракетчики тайно испытывают в одной из африканских стран новейший ракетный комплекс «Любава». Испытание проходит успешно. Наши бойцы нанесли серьезный урон силам повстанцев, которые пытались свергнуть законно избранное правительство. Однако по дороге к аэродрому грузовики с ракетным комплексом блокируют американские военные. Намерения американцев ясны – (   Читать дальше...   )Жанр: БоевикПродолжительность: 08:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D237CF5A7B2CD756574EC35FB19B6886AEE074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005834   (830821) от 10.04.2016
-
-Первая передача на НТВ. Автомобильная передача (10.04.2016) SATRip (выпуск 246)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2820DF4562D634E2AAD57B9EE12854226BB276FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005810   (830820) от 10.04.2016
-
-Журнал | Садовник №4 (131) (апрель 2016) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто хочет сделать свой приусадебный участок красивым, не потратив при этом огромных средств; для тех, кто считает, что работать нужно с удовольствием, а отдыхать - красиво. Пять разделов журнала: «Участок», «Сад», «Огород», «Дом» и «Арсенал», - повествуют о сезонных работах за городом, рассказывают обо всех особенностях и секретах, которые необходимы (   Читать дальше...   )Жанр: Сад, огород, цветы, дизайн участкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6B7934BDDF712B5DEE5A066F3F259A1DDCDB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005774   (830819) от 10.04.2016
-
-BookReader 5.1 (5.1.201604081) [Multi/Ru]
+MacX DVD Ripper Pro 6.6.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BookReader поможет вам погрузиться в мир новой компьютерной реальности и любая домашняя библиотека будет иметь привычный вам вид на вашем любимом Маке.
-Настройки программы позволяют менять шрифт, цвет и фон так, что вы сможете читать любимые книги в любом месте и в любое время дня и ночи.
-
-НА ЗАМЕТКУ: PDF не поддерживается. Файлы PDF можно импортировать на книжную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 апреля 2016Разработчик: Leo MesentsevЯзык интерфейса: Русский, Английский, Чешский и др.
+MacX DVD Ripper Pro 6 был создан специально для пользователей Mac для конвертации как самодельных, так и защищенных DVD дисков. MacX DVD Ripper Pro преобразует видео в форматы MP4, H.264, MOV, FLV, MPEG, AVI, QT, iPhone (iPhone 4,iPhone 3GS, iPhone 3G), iPad, iPod (iPod touch, iPod classic, iPod nano), Apple TV, PSP для просмотра видео в таких популярных приложениях, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6CFC64DCFA500818C16A477DFB60AC6771C301A
+magnet:?xt=urn:btih:98EDE1F52865256B33ED005AD521AC78449CD6AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,25 +227,370 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006154   (830818) от 10.04.2016
+###  Публикация: 1501914   (830391) от 13.10.2021
 
-КВН-2016. Высшая лига. 1.4 финала. Игра 1 (2016.04.10) DVB [H.264]
+VA - Chill out Mood, Vol. 1 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madhukar - When Love Rules (Original Mix) (5:05)
+02. The Funky Lowlives - Stay (Original Mix) (5:05)
+03. Ganga, Annemarie Zimakoff - Are You Hiding (Original Mix) (6:18)
+04. Manuel Ceballos - Cala D'hort (Original Mix) (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0302472B7DFE955456434DA4A65BC58E3498D18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502139   (830390) от 13.10.2021
+
+TextFridge 1.3.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830390.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextFridge позволяет хранить множество текстов, которые вам часто приходится писать. (Хранить до 150 текстов)Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: Guy MarandonПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2083E6570BA7D6A3B94C2B3851A51AEE110C8C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502192   (830389) от 13.10.2021
+
+Texpad 1.9.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Texpad это редактор LaTeX предназначен для простой навигации проектов любого размера. Когда Texpad открывает документ, сканирует через него, ища латексные команды структуры и любые включенные файлы, тогда он дарит Вам представление схемы, с которым Вы можете быстро переместиться по всему проекту.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: Jawad A DeoПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315D6F3962DDD3745F958FFF8CE50A0D1887A301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 651566   (830388) от 07.05.2013
+
+Торстен Гавенер | Менталист. Чтение мыслей примеры и упражнения (2012) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор - самый известный менталист Германии. Эта книга стала бестселлером менее, чем за 3 месяца. Все представленные в этой книге ментальные методики автор применяет ежедневно. Читатели также смогут освоить и научиться применять техники самоконтроля, влияния на окружающих, умения концентрироваться и увеличивать свои умственные способности, что позволит им достичь (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D0BFFCDEF5F2E6AE93371CE73C1A7EA37C78C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653419   (830387) от 07.05.2013
+
+Паркер / Parker (2013) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный вор – одиночка решает переманить на свою сторону бывшую коллегу, чтобы совершить новое ограбление. Действуя только по своим законам, он готов отправить на тот свет любого, кто перейдет ему дорогу.Производство: США / Incentive Filmed Entertainment, Sierra / Affinity, Alexander/ Mitchell Productions, Current Entertainment, Sidney Kimmel EntertainmentЖанр: Боевик, Криминал, ТриллерРежиссер: Тейлор ХэкфордАктеры: Джейсон Стэтэм, Дженнифер Лопес, Ник Нолт, Майкл Чиклис, Клифтон Коллинс-мл., Уэнделл Пирс, Сала Бэйкер, Пэтти Люпоун, Эмма Бут, Дэниэл Бернард, Керк Бальц, Карлос Карраско, Мишель Торрес, Алишиа Ош, Дерек СесилПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37348C73706CBCE584805E2A60A0043B6E5A3C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 649046   (830383) от 07.05.2013
+
+[Игра] (Android 2.3+) House of the Dead Overkill: LR  [RUS] 1.32 / Обновлено: 06.05.2013 /
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты думал, что все закончилось... но мы нашли Утраченные катушки.
+▪ Присоединяйся к оригинальному составу и пробей свой путь через смешанные миры The House of the Dead Overkill™.
+▪ Сыграй в режиме Выживания или Истории, и уничтожай волны зараженных, кровожадных мутантов в стильной аркадной стрелялке.Разработчик: SEGAЖанр: ШутерЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653071   (830382) от 07.05.2013
+
+Терминатор / The Terminator (1984) BDRip [1080p] [hand made 60fps]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830382.jpg" />
+</div>
+
+
+###  Подробнее
+
+История противостояния солдата Кайла Риза и киборга-терминатора, прибывших в 1984-й год из пост-апокалиптического будущего, где миром правят машины-убийцы, а человечество находится на грани вымирания. Цель киборга: убить девушку по имени Сара Коннор, чей ещё нерождённый сын к 2029 году выиграет войну человечества с машинами. Цель Риза: спасти Сару и остановить Терминатора любой ценой.Жанр: фантастика, боевикРежиссер: Джеймс КэмеронПродюсер: Гэйл Энн Хёрд, Джон Дэйли, Дерек ГибсонАктеры: Арнольд Шварценеггер, Майкл Бьен, Линда Хэмилтон, Пол Уинфилд, Лэнс Хенриксен, Бесс Мотта, Эрл Боэн, Рик Россович, Дик Миллер, Шоун Шеппс, Брюс М. Кернер, Франко Колумбу, Билл Пэкстон, Брэд Рирден, Брайан Томпсон, Уильям Уишер мл., Кен Фриц, Том Оберхауз, Джо Фараго, Хетти Линн Хёртес, Тони Мирелез, Филип Гордон, Энтони Тружильо, Стэн Йейл, Аль Кан, Лесли Моррис, Хью Фаррингтон, Харриет Медин, Лори Фрэзиер, Джеймс Ралстон, Норман Фридман, Барбара Пауэрс, Уэйн Стоун, Дэвид Пирс, Джон Е. Бристоль, Уэбстер Уильямс, Патрик Пинни, Чино "Фэтс" Уильямс, Грегори Роббинс, Марианн МюллерлейлПеревод: ДублированныйПродолжительность: 01:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4DE00F5D109800DB29B8CE7798FFBB4DDA49BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653406   (830380) от 07.05.2013
+
+Мулан / Mulan (1998) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для великого народа наступили тяжелые времена: на страну напало воинственное племя гуннов. Переодевшись в мужскую одежду, Мулан присоединяется к другим воинам и отправляется в опасный поход к подножию заснеженных гор. Ее сопровождает забавный дракончик Мушу, который больше похож на маленькую собачку, чем на мифическое чудовище. Пытаясь скрыть тайну, они попадают (   Читать дальше...   )Жанр: Мультфильм, мюзикл, приключения, семейныйРежиссер: Тони Бэнкрофт, Бэрри КукПерсонажи: Эдди Мёрфи (Mushu, озвучка), Лиа Салонга (Mulan, озвучка), Мигель Феррер (Shan-Yu, озвучка), Харви Фирштейн (Yao, озвучка), Фреда  Фо Шен (Fa Li, озвучка), Джун Форэй (Grandmother Fa, озвучка), Джеймс Хонг (Chi Fu, озвучка), Мириам Маргулис (The Matchmaker, озвучка), Пэт Морита (The Emperor, озвучка), Марни Никсон (Grandmother Fa, озвучка), О Сун Тек (Fa Zhou, озвучка), (   Читать дальше...   )Перевод: ДублированныйЯзык субтитров: Русские (4 вида), английские (2 вида), украинскиеПродолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DDD9907D4FB0690C4BF24A84C33A85B7E5EECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653179   (830378) от 07.05.2013
+
+Подшивка журналов | Весёлые картинки (482 номера) [1957-2011] [DJVU, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский юмористический журнал «Весёлые картинки» начал выходить в свет с 1956 года на волне «хрущевской оттепели».
+Идея появления журнала принадлежала Ивану Семенову - популярному карикатуристу газеты «Крокодил». Он стал первым редактором журнала. Вместе с художником Виталием Стацинским он привлек к работе своих коллег - академиков Аминадава Каневского и Алексея (   Читать дальше...   )Жанр: Детский юмористический журналФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73633813059F60C72F7AA1BA0E0A3FE1552C2AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648910   (830375) от 07.05.2013
+
+Менталист / The Mentalist (2012) WEB-DL [720p] (Сезон: 5, серии 1-21 (22)) (napaBo3uk) [обновляемая]
+
+>>След.
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патрик Джейн — детектив и независимый консультант из Калифорнийского Бюро Расследований (КБР), он использует свои отточенные, как лезвие, навыки наблюдения для раскрытия тяжких преступлений. В самом Бюро Джейн известен за частые нарушения протокола, а также за его звездное прошлое: он работал медиумом, однако теперь сам признает, что симулировал паранормальные способности. (   Читать дальше...   )Жанр: Детектив, Драма, КриминалРежиссер: Крис Лонг, Дэвид Баррет, Чарльз БисонАктеры: Саймон Бейкер, Робин Танни, Аманда Риджетти, Тим Кенг, Овайн Йомен, Грегори ИтцинПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: napaBo3ukПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647896   (830374) от 07.05.2013
+
+Возвращение героя / The Last Stand (2013) BDRip [H.264/1080p] [hand made 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая опасная и жестокая банда наркоторговцев сбегает из-под конвоя ФБР. Прихватив заложника, они мчатся к мексиканской границе на бронированной, оснащенной первоклассным вооружением машине. У них на пути стоит лишь тихий городок, за порядком в котором следит шериф Оуенс. Когда-то он был одним из лучших полицейских Лос-Анджелеса, теперь он вернулся.Жанр: Боевик, Триллер, КриминалРежиссер: Ким Чжи УнАктеры: Арнольд Шварценеггер, Форест Уитакер, Джонни Ноксвил, Родриго Санторо, Джейми Александр, Луис Гузман, Эдуардо Норьега, Петер Стормаре, Зэк Гилфорд, Генезис Родригез...Перевод: ДублированныйСубтитры: Русские, полные, вшитые, отключаемыеПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1842687B408E77313B66C7364359AF57988A5485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653090   (830371) от 07.05.2013
+
+(Linux) Tomb Raider [CrossOver RePack] (P) [Русский, Multi13] (2013)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomb Raider – один из ярчайших проектов весны 2013 года, знаменующий возрождение широко известного цикла видеоигр о приключениях охотницы за сокровищами Лары Крофт, который ведет свою историю с 1996 года.
+Игра повествует о пути становления знаменитой героини, раскрывая ее характер и позволяя проследить эволюцию ее личности. Это по-настоящему взрослая, проникнутая (   Читать дальше...   )Тип издания: PЖанр: Action / 3D / 3rd PersonЯзык интерфейса: Русский, Multi13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE75A449D7679BD4F155A2B24A4715AC9A871CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003924   (830369) от 10.04.2016
+
+Yamada-kun to 7-nin no Majo / Ямада и семь ведьм [2015, TV, 12] BDRip 1080p Hi10p raw+rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем известный хулиган Рю Ямада как-то столкнулся на лестнице с «заучкой» Урарой Сирайси – и случилось странное: ребята поменялись телами. Когда шок прошел, оба поняли, что в обмене есть свои плюсы, к тому же ради него не нужно исполнять жуткие кульбиты – достаточно просто поцеловаться. И вот хулиган с мозгом гения начал исправлять оценки, пугая учителей, а красавица-отличница (   Читать дальше...   )Производство: Япония, Liden Films / ライデンフィルムЖанр: комедия, романтикаРежиссер: Такуно СэйкиСубтитры: Надписи, отключаемые (Внутренние) | RusПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930AAA9302E9A6F07D57447602FF6DCF37A97C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006055   (830367) от 10.04.2016
+
+Stand Up (2016.04.10) SATRip (сезон 4, выпуск 7)
 
 >>Архив торрентов
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:49:33
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E5AAA187BC7ECFE1EEFF320BACD1771E54664FB
+magnet:?xt=urn:btih:8C37B4DC458C8831A1CD6B7DE7290747CAFFEA50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +598,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006025   (830817) от 10.04.2016
+###  Публикация: 653159   (830366) от 07.05.2013
 
-Robert Palmer - Sneakin' Sally Through The Alley (1974) Remastered, 2013 [FLAC|Lossless|image + .cue] <Pop Rock, Rhythm & Blues>
+Демонстрационный ряд роликов  различной тематики 3D / Demo 3D TV (2012) HDTVRip
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Остальное
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sailing Shoes (2:43)
-02. Hey Julia (2:24)
-03. Sneakin' Sally Through The Alley (4:23)
-04. Get Outside (4:47)(   Читать дальше...   )Жанр: Pop Rock, Rhythm & BluesПродолжительность: 00:51:41
+Вашему вниманию представлен набор красочных DEMO-роликов в едином видеоряде.Ролики совершенно разной тематики,их цель-продемонстрировать возможности вашего 3d-телевизора,порадовать гостей и близких.
+Видеоряд должен  понравиться любителям "вылетов"из экрана.Вы видели эти замечательные ролики в магазинах, и наверняка не одного зрителя они склонили к покупке нового стереотелевизора.Жанр: Семейный, Короткометражный,Демо-роликиПеревод: Отсутствует(почти не требуется)Продолжительность: 00:38:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B473BBA78978C23F5CD027501C91503A9F18A949
+magnet:?xt=urn:btih:28E1EE2A8A10BBE2D8BA7AAD8546A98F15B70FA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,28 +625,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005764   (830816) от 10.04.2016
+###  Публикация: 1005873   (830365) от 10.04.2016
 
-VA - Lifestyle Jazz Vintage Sound (2016) [MP3|320 кб/с] <Jazz>
+Выстрел в тумане (1963) SATRip
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. St Project - Stars
-02. Diana Krall - This Can’t Be Love
-03. Airborne Blues Virus - No Money
-04. Robertinho De Paula Jazz Quartet - Stormy(   Читать дальше...   )Жанр: JazzПродолжительность: 04:26:31
+Публикация работы молодого ученого Игоря Пантелеева произвела сенсацию. Его взысканиями заинтересовалась иностранная разведка. Вскоре имя Пантелеева исчезло со страниц газет и журналов, а в одном из НИИ появился новый сотрудник — Евдокимов…Производство: СССР, МосфильмЖанр: ДетективРежиссер: Анатолий Бобровский, Александр СерыйАктеры: Владимир Краснопольский, Лионелла Пырьева, Юрий Горобец, Роман Хомятов, Бруно Оя, Михаил Майоров, Владимир Колчин, Борис Кожухов, Андрей Файт, Николай Рушковский, Виктор Байков, Галина ШосткоПродолжительность: 01:21:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CBEB78CF2C635D0FB924F65DC0AF85B191EC79B
+magnet:?xt=urn:btih:F5229A60B99D753492ED5311B9EC06FC51E94811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005707   (830363) от 10.04.2016
+
+Йеспер Кунде | Корпоративная религия (2008) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830363.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Корпоративная религия" наступает на любимые мозоли международным компаниям. Надо набраться терпения, поскольку лишь преподнеся на блюдечке наши слабости, мы можем стать более сильными. Эта хорошо написанная книга облекает в слова то, что мы знаем как истину, и нет никакой возможности уклониться от этого Здесь и аргументы, и метод. Нам больше нет оправдания. (   Читать дальше...   )Жанр: Предпринимательство, Психология бизнеса, Менеджмент и управлениеПродолжительность: 06:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AC828CE0B673642331430E2AD488089F02A44A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006051   (830360) от 10.04.2016
+
+КВН-2016. Высшая лига. 1.4 финала. Игра 1 (2016.04.10) HDTVRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1E8336C55B5ED9A7F2A94E287B981D5D99D6DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

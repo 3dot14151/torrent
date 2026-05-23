@@ -6,7 +6,7 @@ Kelly Simonz's Blind Faith - The Best Of (2009) Compilation [MP3|320 Kbps] <Neoc
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643545.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Xiu Shen Yang Xing Yin Yue Xi Lie (5CD) (2008) [MP3|320 кб/с]<Instrument
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639118.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Shogo Hamada - selected discography[9 albums] (1982-2005) [FLAC|Lossless]<JRock,
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_637177.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mari Natsuki - 13 Chansons (1998) [FLAC|Lossless|tracks + .cue] <Bossa Nova, Con
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634041.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Susheela Raman - Ghost Gamelan (2018) [FLAC|Lossless|WEB-DL|tracks] <Ethnic, Fol
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631817.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Vallendusk - Homeward Path (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631705.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Band-Maid - Brand New MAID (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628274.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Yoko Oginome - Dancing Hero The Archives (2017) Single [MP3|320 Kbps] <j-pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627882.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Loudness - Samsara Flight: 35th Anniversary (2016) [WavPack|Lossless|image + .cu
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626238.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ UVERworld - 7 albums + 16 singles (2005-2011) [FLAC|Lossless]<JRock, Pop Rock>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621198.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Iron Attack! - Space Galaxy (2016) /Doujin/ [FLAC|Lossless|tracks + .cue] <Progr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618522.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ BugLug - Shin Jinsei (2017) [MP3|320 Kbps] <J-Rock, Visual Kei>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617193.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Konomi Suzuki - Дискография, 4 альбома + 13 синглов (20
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617182.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Hou Chang Qing - Xiao Ao Cang Hai (2006) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617116.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Zen Spa (2011) [MP3|320 кб/с]<New age, Meditative, Lounge>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616994.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Ma Chang-sheng - Mi Jing Tian Yin (2015) [MP3|320 кб/с]<New Age>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615726.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ supercell - 4 альбома + 12 синглов (2008-2015) [FLAC|tracks] <J-Po
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613924.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ eufonius — kalyteryz (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612298.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ LiSA — LANDSPACE (2013) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612292.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Hanazawa Kana — Blue Avenue (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612219.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Hanazawa Kana — 25 (2014) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612218.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ LiSA — Launcher (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612216.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Dexcore - -18- (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore, J-Roc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611402.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ JORMUNGAND - 3 альбома (2014-2017) KanColle Vocal /Doujin/ [FLAC|Lossless
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609187.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ ALiCE'S EMOTiON - 49 альбомов (2005-2017) Touhou Vocal, Vocaloid /Doujin
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608975.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ A-One | A1 - 36 альбомов (2008-2017) Touhou Vocal, KanColle /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608970.jpg" />
 </div>
 
 

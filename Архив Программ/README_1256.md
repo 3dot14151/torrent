@@ -6,7 +6,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 02.10 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407890.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Bat! Professional 9.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407885.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DAEMON Tools Ultra 4.1.0.0492 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407876.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DAEMON Tools Ultra 4.1.0.0492 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407867.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Internet Download Manager 6.12 Build 22 Final Retail [Rus/Eng] RePack/Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407838.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Uninstall Tool 3.5.2 Build 5532 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407797.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaspersky Anti-Virus 2017 17.0.0.611 (b) Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407792.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Shutdown8 1.0 [Eng+Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407777.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TeamViewer 7.0.14563 Final DC 13.10.2012 RePack by elchupacabra [Ru/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407772.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ iZotope - RX 8 Audio Editor Advanced 8.1.0.544 STANDALONE, VST, VST3, AAX RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407738.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ GridinSoft Anti-Malware 4.0.13.233 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407731.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Media Player Classic Home Cinema 1.8.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407714.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Daum PotPlayer 1.5.34321 Stable [Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407700.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Display Driver Uninstaller 18.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407688.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Media Player Classic Home Cinema 1.8.3 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407683.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Trojan Killer 2.0.68 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407675.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ IObit Malware Fighter Pro 1.6.0.8 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407647.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ TuneUp Utilities 2013 13.0.2020.14 Final DC 13.10.2012 RePack by elchupacabra [�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407641.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Total Commander 8.01 Final [MAX-Pack 2012.10.2] AiO-Smart-SFX [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407635.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Driver Genius Professional 11.0.0.1136 DC10.10.2012 Portable by moRaLIst [Рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407634.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ K-Lite Codec Pack 14.5.2 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407630.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Incomedia WebSite X5 Evolution 9.1.6.1952 [мульти+русский]+комм
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407610.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CadSoft Eagle 6.3.0 Professional [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407608.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Advanced SystemCare PRO 6.0.7.160 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407604.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ foobar2000 1.3.19 Final DarkOne + DUIFoon Portable by MC Web (03.10.2018) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407586.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ AAct 3.9.4 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407582.jpg" />
 </div>
 
 

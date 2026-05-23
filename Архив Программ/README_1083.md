@@ -6,7 +6,7 @@ Infix PDF Editor Pro 6.40 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497339.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Daum PotPlayer 1.6.56209 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497325.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VLC Media Player 2.1.0-git-20120904 (x32/x64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497314.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Uninstall Tool 3.2.1 Build 5276 Final тихая установка by moRaLIst 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497301.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Win7codecs 3.7.7 + x64 Components [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497300.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Daum PotPlayer 1.6.56209 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497271.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bigasoft Total Video Converter 3.7.6.4626 [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497255.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ FileRescue Professional 4.8 Build 197 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497253.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ProgDVB 7.11.0 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497200.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Uninstall Tool 3.2.1 Build 5276 Final + RePack by KpoJIuK + Portable [Multi(Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497191.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ XnView 2.34 Complete RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497148.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Maxthon Cloud Browser 4.4.7.3000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497099.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ FilmConvert Pro OFX 2.06 for DaVinci, Sony Vegas and Scratch [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497095.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ MAGIX Audio & Music Lab 2016 Premium 21.0.1.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497090.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497016.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Auslogics Driver Updater 1.6.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497007.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ AusLogics BoostSpeed тихая установка by moRaLIst 5.4.0.10 [рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496989.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ GetFLV Pro 9.1.1.1 [Multilanguage / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496976.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ LabView 2012 (Windows 64 bit) 12.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496907.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Q-Dir 7.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496663.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Vivaldi 5.3.2679.70 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496660.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Soft Organizer Pro 9.25 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496659.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Brave Browser 1.41.100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496657.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Chromium 103.0.5060.134 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496656.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ FileZilla Server 1.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496655.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Speccy 1.32.803 Professional / Busines / Technician Edition RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496654.jpg" />
 </div>
 
 

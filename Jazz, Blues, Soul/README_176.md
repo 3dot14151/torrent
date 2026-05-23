@@ -6,7 +6,7 @@ Ian Parker - Inside (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock, Southern R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710787.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Big Mike Griffin - Harley In The Rain (1998) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710666.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Malia - The Best of Malia (2015) [FLAC|Lossless|image + .cue] <Soul, Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710519.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Allen Toussaint - American Tunes (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710193.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Steve Oliver - Pictures and Frames (2016) [FLAC|Lossless|image + .cue] <Jazz, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710190.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Martha High - Singing for the Good Times (2016) [MP3|320 кб/с] <Soul, Funk, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710109.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Clayton Brothers - Siblingity (2000) Warner [FLAC|Lossless|image + .cue] <Mainst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710053.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Maria Schafer - To Know Love... (2018) Marsch Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710052.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nina Simone - I Got Life And Many Others 1959 - 1971 (2000) Star Series, Unoffic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710039.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Django Reinhardt - 100 Ans de Jazz (1930-e - 1940-e) 1997, 2CD, BMG [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709540.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Highway Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709283.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Johnny Smith - Plus The Trio (1960) Remaster, 2017, Warner [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709111.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Richard Davis - Forest Flowers (1977) 2000, 32 Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709109.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709094.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Stree
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709093.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709007.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708997.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Easy Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708915.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Caught A Ghost - Human Nature (2014) [FLAC|Lossless|tracks + .cue] <Soul, Altern
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708790.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Sunny Day Simply Jazz (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708787.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Diana Krall - Turn Up the Quiet (2017) [MP3|320 Kbps] <Vocal Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708568.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Diana Krall - Turn Up The Quiet (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708552.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Chico Hamilton - El Chico & The Further Adventures Of El Chico (1965/1966) 2011,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708294.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Phil Woods - Voyage (2001) Chiaroscuro Records[FLAC|Lossless|image + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708293.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sonny Stitt & Hank Jones - The Complete Original Quartet Recordings (1955, 1957,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708246.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Fredrik Kronkvist - Afro-Cuban Supreme (2017) Connective Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708245.jpg" />
 </div>
 
 

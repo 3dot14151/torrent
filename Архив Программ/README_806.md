@@ -6,7 +6,7 @@ Adobe Media Encoder CC 2015.3 (10.3.0.185) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639485.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 7 Manager 5.1.9 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639481.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DU Meter 7.15 Build 4757 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639480.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kaspersky Cleaner 1.0.1.150 Beta (Веб-установщик) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639479.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Advanced SystemCare Pro 8.3.0.806 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639450.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 43.0.2357.124 Stable RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639441.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Opera 30.0.1835.59 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639439.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MetaProducts Offline Explorer Enterprise 6.9.4208 SR4 Portable by PortableAppZ [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639426.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Comodo Dragon 66.0.3359.117 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639399.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Audition CC 2015.2 (9.2.0.191) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639371.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aiseesoft Screen Recorder 1.1.26 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639341.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ jv16 PowerTools 2017 4.1.0.1728 Final RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639337.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AVG AntiVirus 2015 15.0.6030 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639324.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ LightShot 5.2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639320.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AVG Internet Security 2015 15.0.6030 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639318.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Bandicam 2.2.2.790 Portable by KloneBADGuY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639317.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BurnAware Free / Premium / Professional 8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639314.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Google Chrome 67.0.3396.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639282.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Wise Care 365 Pro 4.8.7.469 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639276.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Google Chrome 67.0.3396.62 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639269.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wise Disk Cleaner 7.53 build 499 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639260.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Reg Organizer 5.46 Beta 2 [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639258.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ AVG Anti-Virus Free Edition 2012 12.0.2193 от 02.07.2012 [Русский]Windo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639256.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Opera GX 85.0.4341.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639231.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ PrivaZer 3.0.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639226.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Wise Disk Cleaner 9.49.669 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639222.jpg" />
 </div>
 
 

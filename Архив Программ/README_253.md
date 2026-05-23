@@ -6,7 +6,7 @@ Actual Multiple Monitors 8.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936761.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat XI (v11.0.19) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936710.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NoVirusThanks File Governor 2.1.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936657.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Smart Defrag 5.0.0.490 Beta 1.0 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936655.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 48.0.2564.109 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936653.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Registry First Aid Platinum 10.1.0 Build 2297 Portable by Valx [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936651.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Process Explorer 16.12 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936645.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ KMS Tools Portable 12.01.2017 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936568.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mail.Ru Облако 15.05.0403 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936541.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Actual Window Manager 8.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936539.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adguard 6.0.189.984 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936529.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Aqua Data Studio 16.0.5-9 build 44007 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936528.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sticky Password Premium 8.0.6.151 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936524.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ IObit Smart Defrag Pro 4.3.0.926 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936472.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ GridinSoft Anti-Malware 3.0.26 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936462.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ FurMark 1.17.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936451.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ IP-TV Player 0.28.1.8843 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936450.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Bat! Professional Edition 9.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936397.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Process Lasso Pro 9.7.0.16 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936393.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ ActivePresenter Pro Edition 8.0.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936381.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ashampoo Burning Studio 16.0.6.23 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936368.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Adobe Animate CC 2015 (v15.1.0) RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936367.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Alien Skin Exposure X 1.1.0.2103 Revision 32398 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936361.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Loaris Trojan Remover 3.1.16.1411 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936327.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Tixati 2.69 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936323.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Lacey Free Music & Video Downloader 2.39 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936322.jpg" />
 </div>
 
 

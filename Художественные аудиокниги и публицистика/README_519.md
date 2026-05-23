@@ -1,82 +1,3 @@
-###  Публикация: 934439   (498359) от 09.09.2015
-
-Фёдор Достоевский | Хозяйка (2015) [MP3, Михаил Горевой]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Комментаторы Достоевского указывают, что к концу 1846 года Достоевский под влиянием печатных суждений приходит к мысли о том, что тема чиновничества исчерпана им в «Бедных людях» и «Двойнике», следовательно, повторное обращение к этой теме сулит творческую неудачу. Поэтому в «Хозяйке» появляется новый главный герой: молодой персонаж-мечтатель. Этот тип персонажа (   Читать дальше...   )Жанр: Русская классикаИздательство: ИП Сергей ГригорянПродолжительность: 03:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03233CA531A0789CEC0C54B0FDE59FFC421F54C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935250   (498356) от 09.09.2015
-
-Том Холланд | Спящий в песках (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Египет. 1922 год. В одном из малоисследованных уголков Долины царей археолог Говард Картер находит запечатанную гробницу, у входа в которую прикреплена табличка с начертанными на ней словами страшного проклятия. Но в чем состоит загадка таинственного захоронения? Кто из правителей Древнего Египта вот уже много веков покоится под толстым слоем горячего песка? И почему (   Читать дальше...   )Жанр: Детектив, мистика, триллерПродолжительность: 15:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864280E6EB7B59B871274334DB287E3198FC7F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935324   (498349) от 09.09.2015
-
-Сергей Кормилицын | Адольф Гитлер. Взгляд из зеркала (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Имя Гитлера ещё много лет будет вызывать интерес наряду с отвращением - из-за его чудовищных преступлений перед человечеством. Он с лёгкостью санкционировал уничтожение миллионов людей. Так кто же он был - человек или сверхъестественное чудовище?
-Однако, книга позиционирует Гитлера как вполне среднего человека из народа, не без способностей, ряд которых он подавил, (   Читать дальше...   )Жанр: Историческое исследование, биографияПродолжительность: 08:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46F6C014268A1DD69F0A66102E6A044E571671D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935755   (498310) от 09.09.2015
 
 Михаил Бабкин | Слимперия (2015) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498310.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498298.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498269.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498002.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497808.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497806.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497751.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497731.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497594.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497566.jpg" />
 </div>
 
 
@@ -350,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497510.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497249.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497248.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497196.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496935.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496918.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496804.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496748.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496747.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496746.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496741.jpg" />
 </div>
 
 
@@ -640,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496716.jpg" />
 </div>
 
 
@@ -666,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496714.jpg" />
 </div>
 
 
@@ -678,6 +599,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:222A0123B8BD94B36C5DBA0E348B73BF1EC81774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565238   (496713) от 22.07.2022
+
+Филип Дик | Вкус Уаба (2016) [MP3, Максим Тарлавин (Scaners)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытывая недостаток в пище и провизии, команда землян забирает с Марса большую партию животных. Среди них есть животное, прозванное местными туземцами уабом. Уаб чем-то похож на свинью и капитан корабля Франко предлагает сразу же испробовать на вкус мясо этого зверя.
+Но дело в том, что сам уаб не очень-то и хочет, чтобы его съели, о чем тут же и докладывает Франко…Жанр: ФантастикаПродолжительность: 00:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC77ADC4FFEE07FCAC96A4F152678B7C47C1A874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564920   (496708) от 22.07.2022
+
+Владимир Першанин | Братская могила экипажа. Самоходки в операции «Багратион» (2022) [MP3, Владимир Большаков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые атаки отчаянных самоходок Су-76, которые из-за слабой брони и открытого боевого отделения на фронте прозвали «брезентовым фердинандом», «сукой» и «братской могилой экипажа».
+Однако эти легкие подвижные машины с мощной пушкой и высокой проходимостью, ставшие самыми массовыми САУ СССР, сыграли огромную роль во второй половине войны.
+Особенно отличились экипажи (   Читать дальше...   )Жанр: Боевики, Книги о войнеПродолжительность: 08:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FF62B748BCA41E76900D77AB32F95AAA64BBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565231   (496707) от 22.07.2022
+
+Артур Кларк | Кассета бессмертия (2021) [MP3, Максим Тарлавин (Scaners)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это последние часы человека обреченного на смерть на Марсе. Это запись его слов к тем, кто придет позднее. И перед смертью он, как единственный человек в истории, увидит впечатляющую картину — противостояние Солнца, Земли и Луны. Все они сойдутся в одну линию друг за другом — с перспективы человека, находящегося на Марсе. Такое происходит только раз в сто лет. И (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD1B60C052AB81265CFD0BD05995D1F8E5F7336
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Akatsuki no Yona / Рассвет Йоны (2014, TV, 24) HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767149.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fate/Stay Night Unlimited Blade Works / Судьба: Ночь схватки. �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756464.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Freezing / Заморозка [2011, TV, 12 из 12 серий] SDTV 720p raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755556.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gakkou Gurashi! / School-Live! / Школьная жизнь! [2015, TV, 12] HDT
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753198.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Saijaku Muhai no Bahamut / Undefeated Bahamut Chronicle / Хроники неп�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751171.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Junketsu no Maria / Maria the Virgin Witch / Непорочная Мария [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751046.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749127.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Моя
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747688.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746360.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Coppelion / Коппелион [2013, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744967.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Shingeki no Kyojin / Attack on Titan / Атака титанов / Вторже�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743154.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Sola | Sky | Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737495.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Dimension W / Измерение W [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730206.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Tales of Zestiria: The X / Сказания Зестирии [2016, TV, 13 эп.
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728086.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [ТВ-1]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722229.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Tales of Zestiria the Cross / Сказания Зестирии [ТВ-2] [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717874.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru / NouCo
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709686.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Selector Infected Wixoss / Заражённый селектор WIXOSS [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707125.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704683.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Yuuki Yuuna wa Yuusha de Aru / Yuuki Yuna is a Hero / Герой Юки Юна (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702845.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Sangatsu no Lion (2017) / Мартовский лев [ТВ-2] [2017, TV, 22 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698283.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Hakata Tonkotsu Ramens / Тонкоцу-рамен из Хакаты [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698140.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku / Death March to the Parallel Worl
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698139.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Citrus / Цитрус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698138.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Garo: Vanishing Line / Гаро: Линия Схода [2017, TV, 24 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698136.jpg" />
 </div>
 
 

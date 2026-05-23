@@ -6,7 +6,7 @@ DVDFab 12.0.6.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678521.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BandLab - Cakewalk 2022.02 (Build 039) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678520.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Office Tab Enterprise Edition 9.10 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678503.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AIDA64 Extreme | Business Edition 2.50.2000 Final AIO (RePack & portable) by SPe
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678497.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Malwarebytes Anti-Malware Premium 3.1.2.1733 DC 19.05.2017 RePack by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678442.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Norton Security Premium 22.9.3.13 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678440.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ TechSmith Camtasia Studio 9.0.5 Build 2021 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678435.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ CyberLink AudioDirector Ultra 12.3.2702.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678397.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PrivaZer (Donors) 4.0.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678382.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ MAGIX Sound Forge Pro 16.0 Build 72 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678349.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hard Disk Sentinel Pro 6.00 Build 12540 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678347.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BestReminder v2019.03.20.10  Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678344.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ OCCT 10.1.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678343.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Aiseesoft Video Converter Ultimate 10.3.32 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678341.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ IP-TV Player 0.28.1.8847 DC 20.05.2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678309.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Adobe Premiere Pro CC 2017.1.1 11.1.1.15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678293.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows 7 Drivers Update 10.06.2012 (x32/x64) [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678273.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678246.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Blender 3.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678232.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678231.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.53.2065, Speccy 1.32.774) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678195.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ MAGIX Vegas Pro 19.0 Build 532 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678189.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Serif Affinity Photo 1.10.5.1342 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678188.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mozilla Firefox 47.0.1 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678177.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ PrivaZer 3.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678172.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Slimjet 10.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678171.jpg" />
 </div>
 
 

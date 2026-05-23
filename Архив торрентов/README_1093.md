@@ -6,7 +6,7 @@ Opera 81.0.4196.31 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798266.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PDFsam Basic 4.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798263.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ reaConverter Pro 7.683 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798261.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Acoustica Premium Edition 7.3.22 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798260.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Telegram Desktop 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798251.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Mozilla FireFox 94.0.1.7977 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798250.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ FinePrint Software (FinePrint 11.04 / pdfFactory Pro 8.04) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798241.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Disk Drill Enterprise 4.6.370 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798237.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Visual Studio Code 1.62.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798234.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PowerISO 8.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798222.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Total Commander 10.00 Extended 21.11 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798198.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ SnapMotion 5.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798167.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ SiteSucker 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798166.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Bookends 14.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798165.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ GlueMotion 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798164.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ DropDMG 3.6.2 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798163.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ MacPilot 13 v13.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798162.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ NCH Express Accounts Plus 9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798157.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ NCH Express Animate 6.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798156.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798154.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Invisor - Media File Inspector 3.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798152.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ iFlicks 3.8 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798147.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ PhotosRevive 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798146.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ DetectX Swift 1.0981 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798132.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Exposure Software Eye Candy 7 v7.2.3.176 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798131.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ K-Lite Codec Pack Update 16.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798129.jpg" />
 </div>
 
 

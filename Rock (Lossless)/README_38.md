@@ -6,7 +6,7 @@ VA - NOW Acoustic Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833305.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Santana - Lotus (1974) 3CD /Reissue, 2006/ [FLAC|Lossless]<Classic Rock,  Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832665.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Robert Palmer - Rhythm & Blues (1999) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832557.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Daturana - Ghosts In The Flowers (2009) [WavPack|Lossless]<Psychedelic/Blues/Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832001.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ One Desire - One Desire (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831964.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Rhizone - Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Ecle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831905.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hunka Munka - Foreste Interstellari (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831904.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ House Of Lords - Saint Of The Lost Souls (2017) Japanese Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831850.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Peter Straker - This One's On Me (2020) Deluxe Expanded Edition, 3CD Box-Set [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831664.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Jeff Beck - Performing This Week...Live At Ronnie Scott's (2008) [APE|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830913.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Natalie Merchant - Ophelia (1998) HDCD, Tri-fold card-paper sleeve  [APE|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830912.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Robert Palmer - Sneakin' Sally Through The Alley (1974) Remastered, 2013 [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830817.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Electric Light Orchestra - 12 Albums (1971-2001) 13 CD Japan Remastered Reissue 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830579.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Donnas - Spend The Night (2002) Expanded Edition, Remastered, 2016, HNE Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829949.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jeff Beck - History Of Rock 70-80's (1995) [APE|Lossless|image + .cue] <Rock, Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828971.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA -The Very Best of While My Guitar Gently Weeps 2CD (2008) [FLAC|Lossless]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828905.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Echoes - Barefoot To The Moon: An Acoustic Tribute To Pink Floyd (2015) Unoffici
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826753.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Roger Taylor - Outsider (2021) [FLAC|Lossless|tracks + .cue] <Rock, Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826704.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Rockets - Alienation (2021) Limited Edition, Numbered [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826621.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Phil Collins - Hello, I Must Be Going! (1982) Remaster, 1998, WEA International 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826549.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Genesis - Abacab (1981) Remaster, 1984, Vertigo [FLAC|Lossless|image + .cue] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826451.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Genesis - Duke (1980) Remaster, 1985, Charisma [FLAC|Lossless|image + .cue] <Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826450.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Genesis - Three Sides Live (1982) Box Set 2CD [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826345.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Genesis - Genesis (1983) Remaster, 1987, Vertigo [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826266.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Genesis - We Can't Dance (1991) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826264.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Gurvitz (Curtis): Projects - 11 albums, 16 CD (1967-2017) [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826235.jpg" />
 </div>
 
 

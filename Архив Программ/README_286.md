@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2015.010.20059 Lite Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914718.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ParAAvis Flash Lite v.Cyber 02.2016 | UEFI [x86/x64] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914695.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MetaProducts Offline Explorer Enterprise 7.0.4428 SR1 Portable by punsh [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914694.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DVDFab 9.2.3.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914688.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Hetman Partition Recovery 2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914600.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CCleaner 5.15.5513 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914573.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VMware Workstation 10.0.5 Build 2443746 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914542.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Windows 10 Technical Preview Language Pack 9926 (x86, x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914398.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VidCoder 2.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914390.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Cyberfox 51.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914383.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Privacy Eraser Free 4.20.5 Build 2256 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914285.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Soft4Boost Secure Eraser 4.3.5.503 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914283.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Q-Dir 6.49.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914282.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Cyberfox 51.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914280.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Wise Program Uninstaller 1.98.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914276.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MediaHuman YouTube Downloader 3.9.9.34 (1603) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914259.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ MediaHuman YouTube Downloader 3.9.9.34 (1603) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914257.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Glary Utilities Pro 5.138.0.164 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914253.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Dr.Web Remover 11.1.1.201612140 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914171.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Ultra Adware Killer 5.2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914126.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Soft4Boost Document Converter 4.7.5.485 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914122.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ HyperSnap 8.12.02 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914097.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Glary Utilities Pro 5.138.0.164 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914092.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Telegram Desktop 1.9.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914036.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Light Alloy 4.9.1 Build 2414 Final RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914022.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Soft4Boost Easy Disc Burner 5.1.1.517 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914011.jpg" />
 </div>
 
 

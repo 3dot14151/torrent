@@ -6,7 +6,7 @@ Sumatra PDF 3.3.13474 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009987.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NirLauncher Package 1.23.47 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009969.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MAGIX Samplitude Pro X6 Suite 17.0.2.21179 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009967.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009942.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Final Cut Pro 10.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009935.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ App Cleaner & Uninstaller Pro 7.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009926.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009922.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Charterstone (2020) [Multi] (1.2.4) License GOG [Digital Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009916.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Dr.Web LiveDisk 9.0.0 (21.06.2021) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009876.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PCDJ DEX 3.16.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009873.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Juno Editor 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009871.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tidy Up 5 v5.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009870.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Colibri 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009868.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ PDF Office Max: Acrobat Expert 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009862.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Swift Publisher 5 v5.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009861.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ USBclean 3.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009860.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ WiFi Explorer Pro 3 v3.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009856.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ DesktopOK 8.99 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009846.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Music Tag Editor 2 v5.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009845.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ iShowU Studio 2 v2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009843.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Opera GX 76.0.4017.208 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009838.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ScreenFlow 10 v10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009835.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Meta 2.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009831.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ RAR Extractor  - unzi‪p‬ 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009829.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ FastStone Capture 9.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009828.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Initial Audio - Sektor 1.4.0 VSTi, VSTi3, STANDALONE (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009827.jpg" />
 </div>
 
 

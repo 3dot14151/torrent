@@ -1,55 +1,3 @@
-###  Публикация: 1618647   (201343) от 12.03.2023
-
-Пальмы и линии электропередач / Palm Trees and Power Lines (2022) WEB-DLRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Семнадцатилетняя Леа знакомится с Томом, мужчиной вдвое старше нее. Ей неинтересны сверстники и их развлечения, ее беспокоят плохие отношения с матерью, отсутствие друзей, непонимание мира. Том становится для девушки и лучшим другом, и заботливым родителем, и терпеливым возлюбленным. Однако вскоре Леа понимает, что стала настолько зависима от мужчины, что больше (   Читать дальше...   )Производство: США / Momentum Pictures, Fieta Island Films, Neon Heart ProductionsЖанр: драмаРежиссер: Джэми ДэкАктеры: Лили Макинерни, Гретхен Мол, Эмили Джексон, Куинн Франкель, Армани Джексон, Пин Ву, Тимоти Таратчила, Рид Де Кастро, Джонатан Такер, Иоланда КорралесПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские, французскиеПродолжительность: 01:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071A994921E3C57F99F0EDC33C824090FE83CB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618735   (201336) от 12.03.2023
-
-Враждебная территория / The Orphan Train / Hostile Territory (2022) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В Америке в конце Гражданской войны, солдат Джек Калгроув, воевавший за армию Союза, возвращается домой после плена и узнает, что его жена погибла, а дети были вывезены на поезде для сирот на Запад. Джек пускается в погоню, а вместе с ним - отряд коренных американцев и одна беглая рабыня.Производство: США / Buffalo 8 Productions, Rebel Road Entertainment, P12 FilmsЖанр: Драма, вестерн, историяРежиссер: Брайан ПрэслиАктеры: Мэтт МакКой, Брэд Лелэнд, Лью Темпл, Брайан Прэсли, Бреа Би, Крэйг Тейт, , Том Драгт, , , Тимоти Патрик КаваноПеревод: Профессиональный многоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Английские (Full)Продолжительность: 01:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE412573470BD63D83A0A02CF70B63400987F974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618351   (201334) от 12.03.2023
 
 Бетонная Саванна / Concrete_savanna (2021) WEBRip [H.264/1080p] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201334.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201327.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201298.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201291.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201278.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201270.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201259.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201250.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201238.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201233.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201221.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201217.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201212.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201204.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201202.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201197.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201190.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201167.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201157.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201155.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201150.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201139.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201137.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201131.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A612BF8690DB154690BD74EFFA0BC2D5648B83D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988349   (201111) от 17.03.2023
+
+Кровью и потом: Анаболики / Pain & Gain (2013) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды тренеру по фитнесу надоело ходить в трениках. Он решил круто изменить свою судьбу и разбогатеть. Нашел двух других незадачливых качков и предложил им план похищения своего клиента-миллионера. Но если в организме мышц больше, чем мозгов, то даже самый лучший план, подсмотренный в экшен-боевике, может не сработать...Производство: СШАЖанр: Криминал, Комедия, Триллер, БоевикРежиссер: Майкл БэйАктеры: Марк Уолберг, Дуэйн Джонсон, Энтони Маки, Тони Шэлуб, Эд Харрис, Роб Кордри, Ребел Уилсон, Бар Пали, Кен Жонг, Майкл РисполиПеревод: Дублированный, авторский, многоголосый закадровыйСубтитры: Русские (Forsed, Full), английские (SDH)Продолжительность: 02:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC56A0A402AB4AB39AD3E18E238E2B94C04D8A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620572   (201091) от 20.03.2023
+
+Аксиома / The Axiom (2018) BDRemux [MPEG-2/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маккензи Коди вместе с друзьями отправляется в национальный парк Синдер, чтобы разыскать без вести пропавшую сестру Мэрилин. Не желая самостоятельно заходить в лес, где часто пропадают люди, друзья принимают помощь со стороны местного жителя Леона. Продвигаясь вглубь парка вместе с проводником, Маккензи и компания начинают испытывать галлюцинации, а также слышать (   Читать дальше...   )Производство: США / Axiom Movie Production CompanyЖанр: Ужасы, фэнтези, детективРежиссер: Николас ВудсАктеры: Hattie Smith, Зак Титус, Nicole Dambro, Майкл Харрисон, Taylor Flowers, Уильям Кирчер, Aaron Berjohn, Дежан Браун, Brandon Burtis, Чейз КаргиллПеревод: Профессиональный многоголосый (Блокбастер HD, HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английскиеПродолжительность: 01:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E52D4FFB6392A9E4D85A81F4D7EA5F74661F95
 ```
 
 https://mybot314.ru/tekegram_catalog/

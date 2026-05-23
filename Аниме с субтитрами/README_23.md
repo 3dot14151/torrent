@@ -6,7 +6,7 @@ No.6 / Шестая зона [2011, TV, 11] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936476.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Orange | Орендж [2016, TV, 13] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936395.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Дети вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934379.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Ushio to Tora / Ushio and Tora / Усио и Тора [1992, OVA, 10 ep.+Omake] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934300.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Soukyuu no Fafner: Dead Aggressor | Fafner in the Azure: Dead Aggressor | Неб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934287.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Mushishi Special: Sun-Eating Shade | Ма�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931438.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Ginga Tansa 2100-nen: Border Planet | Galaxy Investigation 2100: Border Planet |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930682.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Gekijouban Bungaku Shoujo / Literature Girl / Литературная деву�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930435.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Gekijouban Blood-C: The Last Dark / BLOOD-C: Последний Тёмный [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929700.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929640.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Tantei Kageki Milky Holmes TD / Детективная опера Румяшек
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928921.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Arve Rezzle: Kikaijikake no Yousei-tachi  [2013, ONA, 1 из 1] WEBrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927878.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Cocolors | Соцветие [2016, Movie] BDRip 816p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927034.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Home! | Домой! [2021, Web] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926900.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Alexander Senki | Reign: The Conqueror | Александр [1999, TV, 13 эп.]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925445.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924440.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Heavy Object | Тяжёлый объект [2015, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923981.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923928.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? | Danmachi | Может
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923804.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Mushishi Zoku Shou | Mushi-Shi: Next Passage | Мастер Муси: Следу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923247.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922771.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922573.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922450.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922443.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922357.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922324.jpg" />
 </div>
 
 

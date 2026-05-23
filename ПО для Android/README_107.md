@@ -1,55 +1,3 @@
-###  Публикация: 1641299   (117100) от 17.02.2024
-
-Photo Editor v9.9 Pro Mod by Balatan, Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Photo Editor - уникальная программа для обработки качественных фотографий. Настройка цвета, различные эффекты, поворот, обрезка, изменение размера, рамки, а также возможность рисовать прямо на фото. Настройка цвета включает в себя тон, насыщенность, контраст, яркость. Вдобавок Photo Editor предлагает множество эффектов для фотографий, включая гамма-коррекцию, автоконтраст, (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 12.02.2024Разработчик: dev.macgyverПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F37D03517DE960F1139BC1DB421B7EB8FE4033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700512   (117094) от 17.02.2024
-
-Astrological Charts / Астрологические Карты Pro v10.5.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Астрологические Карты Pro (Astrological Charts Pro) – это профессиональная астрологическая программа для Android, которая строит 12 типов астрологических карт, содержит, кроме планет, ещё 13 астероидов и 23 фиктивные точки, включая транснептуновые, и несколько жребиев. А так же есть выбор из 12 систем домов, 22 вида аспектов с настраиваемыми орбисами и база данных (   Читать дальше...   )Тип издания: Paid / ProРелиз состоялся: 10.02.2024Разработчик: full-astro-devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC3B7717E3DF4456A99E112D7411DC21BC3EDD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700604   (117085) от 17.02.2024
 
 Sense Flip Clock & Weather v6.51.0 Mod by youarefinished [Ru/Multi]
@@ -58,7 +6,7 @@ Sense Flip Clock & Weather v6.51.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117085.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Plus Messenger (Telegram+) v10.6.4.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117084.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Horary Chart / Астрология: Хорарная Карта v3.1.1 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117067.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116940.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ IPTV Pro v7.1.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116616.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Strava: бег, велоезда, хайкинг v347.5 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116545.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ PhotoDirector v18.10.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116517.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Moon+ Reader Pro v9.1 build 901001 Mod by Balatan + Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116134.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Universal TV Remote / Универсальный ТВ пульт v2.6.3 Mod by d
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116122.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ ToonMe v0.7.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116042.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Moon+ Reader Pro v9.1 (build 901001) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116025.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115956.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ Plus Messenger (Telegram+) v10.8.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115898.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ WPS Office + PDF v18.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115883.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ Super Sound v2.7.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115865.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115791.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ ES File Explorer File Manager v4.4.2.2.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115737.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ AI Beauty / ИИ Красота v1.52 Mod by CVXUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115220.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.020.1441 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115185.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ ProShot v8.24.0 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114786.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114721.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114710.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114673.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114598.jpg" />
 </div>
 
 
@@ -678,6 +626,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:152AA994CD94FB1478E5C9A53DD42FB8DAC492CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665442   (114553) от 03.03.2024
+
+Посылки v2.3.11 Mod by Timozhai [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отслеживайте все ваши посылки с Алиэкспресс, eBay, Joom, Pandao, GearBest, Banggood, Wiggle, ASOS, Chain Reaction Cycles и других интернет магазинов. Отслеживает S.F. Express, YunExpress и другие службы доставки с Joom и Pandao. Импортируйте посылки напрямую из магазинов Aliexpress, Joom, eBay, Wish, Pandao! Больше не нужно вводить трек номера вручную, посылки импортируются (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 27.02.2024Разработчик: ParcelsAppПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E51B45B13C1B1FAEA30E2D5D4DA06F89D241B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704173   (114508) от 03.03.2024
+
+Assistive Volume Button v0.9.4 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое приложение для создания наэкранных виртуальных кнопок громкости. Позволяет подробно настраивать внешний вид создаваемого наложения. Поддерживает виртуализацию кнопки питания (на Андроид 9.0+). Позволяет создавать определённые наложение под отдельные приложения.Тип издания: PremiumРелиз состоялся: 03.03.2024Разработчик: mCreationsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7048788ABBE2084DFE13F75EADB21D5973DB0894
 ```
 
 https://mybot314.ru/tekegram_catalog/

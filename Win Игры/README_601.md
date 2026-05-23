@@ -1,29 +1,3 @@
-###  Публикация: 1797906   (3050) от 13.09.2025
-
-Monster Prom 4: Monster Con (2025) [En] (1.42.a/dlc) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Monster Prom 4: Monster Con это многопользовательский симулятор свиданий. Игроки попадают в обстоятельства, наполненные юмором и неожиданными поворотами, пытаясь успеть найти пару среди шести возможных партнеров-монстров до истечения времени. Основной процесс содержит принятие решений во время взаимодействий в течение определенного времени для достижения романтических (   Читать дальше...   )Тип издания: LicenseРазработчик: Beautiful GlitchЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9AAB142569D4925AA1F50CA89E3BDAAE80E9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728285   (3046) от 13.09.2025
 
 Heads Will Roll: Reforged (2023) [Ru/Multi] (2.6/dlc) Repack FitGirl [Complete Edition]
@@ -32,7 +6,7 @@ Heads Will Roll: Reforged (2023) [Ru/Multi] (2.6/dlc) Repack FitGirl [Complete E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3046.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Shape of Dreams (2025) [Ru/Multi] (build 19939749) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3041.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.01.010/dlc) Repack Let'sРlay [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3029.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack seleZen [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3027.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Shape of Dreams (2025) [Ru/Multi] (1.0.0.RC12 s) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3002.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Whispered Secrets 17: Poisoner's Masquerade (2025) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2971.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2898.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2891.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2890.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2883.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2881.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ready or Not (2023) [Ru/Multi] (94572/dlc) Repack Let'sРlay [LSPD Bundle]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2855.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.04/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2847.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2840.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28561) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2839.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Gloomy Eyes (2025) [Multi] (1.0.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2837.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2835.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Metro Simulator 2 (2022) [Ru/Multi] (1.6.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2834.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.547) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2825.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Infestation: Origins (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2822.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Antioma (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2820.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2817.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2810.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Metro Simulator (2019) [Ru/Multi] (5.1c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2788.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Elder Scrolls IV: Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2725.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8ACBA3F9827DA4F7A442187753BF6C1F54A8AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765799   (2722) от 15.09.2025
+
+The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Complete Pack]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы играете за капитана Эшли Новак – вы рифтбрейкер, элитный ученый/коммандо внутри мощного меха-костюма. Пройдите сквозь односторонний портал на Галатею-37, отдаленную планету на окраине Млечного Пути, чтобы построить базу, которая позволит возвращаться на Землю, а также начать колонизацию. Меха-костюм Эшли, которому она дала прозвище «Мистер Ригз», может выдерживать (   Читать дальше...   )Тип издания: RepackРазработчик: EXOR StudiosЖанр: Стратегия, Строительство, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFCD1F99F1161025B54B71A56BBF0A263BF42E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

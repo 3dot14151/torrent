@@ -6,7 +6,7 @@ AIDA64 Extreme/Engineer/Business Edition 2.60.2100 Final RePack (& portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510234.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The KMPlayer 3.3.0.33 Final DC 21.08.2012 [MULTi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510232.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mozilla Firefox 41.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510196.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Vivaldi 1.0.258.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510183.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ NonCompressibleFiles 2.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510113.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wise Folder Hider Free 3.22.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510100.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Wise System Monitor 1.3.5.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510099.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Wise Disk Cleaner 8.81.617 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510098.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Cyberfox 40.0.3 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510053.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wise Program Uninstaller 1.73.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510051.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wise Registry Cleaner 8.71.558 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510050.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wise Memory Optimizer 3.37.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510048.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Display Driver Uninstaller 15.4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510047.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Internet Download Manager 6.23 Build 21 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510040.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509995.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Wise Care 365 Pro 3.83.340 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509994.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Light Image Resizer 4.7.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509984.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Numeric System 1.3.9 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509955.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509951.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Mozilla Firefox 40.0.3 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509945.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ WSUS Offline Update 10.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509943.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BitTorrent Pro 7.9.4 Build 40912 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509939.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Actual Window Manager 8.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509938.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Pale Moon 25.7.0 + Portable + tools [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509878.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Cyberfox 40.0.3 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509877.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ HitmanPro 3.7.9 Build 242 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509872.jpg" />
 </div>
 
 

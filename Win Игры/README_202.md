@@ -1,29 +1,3 @@
-###  Публикация: 1547347   (600712) от 01.05.2022
-
-Command & Conquer: Red Alert 3: Generals Evolution (2022) [Ru/En] (0.3 Beta) Mod
-
->>Win Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Generals Evolution предусматривает перенос C&C: Generals - Zero Hour на движок “SAGE 2.0”, который используется в Red Alert 3 с максимально возможной точностью. Так как Red Alert 3 всё-таки совершенно другая игра, многие вещи будут чувствоваться иначе. Помимо этого для создания эффектов частиц и прекрасных визуальных эффектов (HDR, CC и др.) используется RNA-рендер, (   Читать дальше...   )Тип издания: ModРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4F6DC8634FBF7D14F6493FE0EC6BEAE3522F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528922   (600711) от 01.05.2022
 
 The Waylanders (2022) [Ru/Multi] (1.10) License GOG
@@ -32,7 +6,7 @@ The Waylanders (2022) [Ru/Multi] (1.10) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600711.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.4.1/dlc) License PLAZA [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600700.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) License PLAZA [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600671.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dark Sector (2009) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600670.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Reflections of Life 4: Call Of The Ancestors / Отражения жизни 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600222.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Depth (2014) [Ru/Multi] (25657) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599715.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Cursed Fables: White as Snow / Проклятые предания: Сама н�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599585.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Reflecting Fate (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599560.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Outland (2014) [Ru/En] (1.13) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599466.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Beholder 3 (2022) [Ru/Multi] (1.0.9_99) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599301.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Deputy Dangle (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599179.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Deputy Dangle (2016) [En] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599176.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Pinstripe (2017) [Ru/Multi] (2.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597784.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.57) License PLAZA [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597778.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Chess Ultra (2017) [Ru/Multi] (4.15.1) Repack R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597732.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Vive le Roi / Vive le Roi 2 (2017-2018) [Ru/Multi] (1.0.10/1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597616.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cold Waters (2017) [En] (1.15c) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597612.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ SUPER DRAGON BALL HEROES WORLD MISSION (2019) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597408.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Deadly Dozen Reloaded (2022) [Multi] (1.03) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597372.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Fly and Destroy (2016) [En] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597164.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (2.2.18.9/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597087.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fly and Destroy (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597086.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.1.192/dlc) Repack Other s [Odyssey Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597077.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ DreamBreak (2016) [Ru/En] (1.11) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596986.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Eternal Journey: New Atlantis. Collector's Edition / Вечное путешес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596974.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Eternal Journey: New Atlantis. Collector's Edition / Вечное путешес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D45D395663218E1EFA0F9AFAF281C5FA0DA02AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914758   (596495) от 03.07.2015
+
+Chronicle Keepers: The Dreaming Garden (2015) [En] License RELOADED [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы потратили всю свою жизнь на поиск информации о вашем прошлом. Кто был вашей матерью и что стоит за таинственным медальоном, который она оставила для вас? Вы не можете избавиться от странных снов в последнее время, и запутанные, далекие, воспоминания не дают вам покоя. Случайно в местном книжном магазине ваше внимание привлекает старая пыльная книга, на которой (   Читать дальше...   )Тип издания: ЛицензияРазработчик: PlayWayЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC8C9B8168D913E532691524C7581AF781221A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

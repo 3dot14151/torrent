@@ -1,30 +1,3 @@
-###  Публикация: 251402   (373304) от 31.10.2010
-
-Sprill: The Mystery of The Bermuda Triangle / Сприлл: Тайна Бермудского треугольника (L) [Ru] (2008)
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Красочная игра в жанре найди объект в зоне Бермудского треугольника. Вам предстоят нелёгкие поиски жемчужены, которая спасет планету от катастрофы. Исследуйте каждую локацию досконально, решайте головоломки и раскройте тайну Бермудского треугольника!
-Однажды лисёнок Сприлл отправился в плавание, и всё было хорошо... до Бермудского треугольника. Его кораблик вмиг оказался на дне океана, где он встретился с инопланетянами. Теперь он должен найти необычную жемчужину, которя якобы спасёт их планету...Тип издания: ЛицензияЖанр: Аркада, Поиск предметовЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 252408   (373169) от 31.10.2010
 
 Call of Juarez Дилогия [Ru] (RePack) 2006-2009 | R.G. ReCoding
@@ -33,7 +6,7 @@ Call of Juarez Дилогия [Ru] (RePack) 2006-2009 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373169.jpg" />
 </div>
 
 
@@ -65,7 +38,7 @@ Painted Memories (2016) [En/Tr] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373040.jpg" />
 </div>
 
 
@@ -91,7 +64,7 @@ In Verbis Virtus (2015) [Ru/Multi] (1.0.2420) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372701.jpg" />
 </div>
 
 
@@ -117,7 +90,7 @@ Halloween Stories 2: Black Book / Хэллоуин 2. Проклятие чер�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372540.jpg" />
 </div>
 
 
@@ -143,7 +116,7 @@ The Last Remnant [Ru/En/Multi7] (RePack) 2009 | R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372348.jpg" />
 </div>
 
 
@@ -169,7 +142,7 @@ The Imperial Gatekeeper (2022) [En] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372314.jpg" />
 </div>
 
 
@@ -195,7 +168,7 @@ Baldur's Gate: Dark Alliance II (2022) [Multi] (1.0.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372306.jpg" />
 </div>
 
 
@@ -221,7 +194,7 @@ Paranormal Files 4: Hook Man's Legend (2019) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372258.jpg" />
 </div>
 
 
@@ -247,7 +220,7 @@ Farm Together (2018) [Ru/Multi] (1.0/dlc) License HOODLUM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372251.jpg" />
 </div>
 
 
@@ -273,7 +246,7 @@ Endless Legend (2014) [Ru/Multi] (1.6.10 S3/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372242.jpg" />
 </div>
 
 
@@ -299,7 +272,7 @@ Iron Ladies 2048 (2018) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372115.jpg" />
 </div>
 
 
@@ -325,7 +298,7 @@ Need to Know (2018) [En] (1.30.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371729.jpg" />
 </div>
 
 
@@ -351,7 +324,7 @@ Viscera Cleanup Detail (2015) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371679.jpg" />
 </div>
 
 
@@ -377,7 +350,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.2.0.1/dlc) Repack R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371355.jpg" />
 </div>
 
 
@@ -403,7 +376,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.11.0/dlc) Repack R.G. Catalyst [Deluxe E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371354.jpg" />
 </div>
 
 
@@ -429,7 +402,7 @@ Hitman (2016) [Ru/Multi] (1.12.2/dlc) Repack R.G. Catalyst [The Complete First S
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371348.jpg" />
 </div>
 
 
@@ -455,7 +428,7 @@ Dummy Life (2017) [En] (1.0.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371245.jpg" />
 </div>
 
 
@@ -481,7 +454,7 @@ The Inner World - The Last Wind Monk (2017) [Ru/Multi] (96894D) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371241.jpg" />
 </div>
 
 
@@ -507,7 +480,7 @@ SolSuite Solitaire 2020 (2020) [Ru/En] (20.10) Repack/Portable TryRooM
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371193.jpg" />
 </div>
 
 
@@ -533,7 +506,7 @@ Dungeon Rats (2016) [En] (1.0.1.0001) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370759.jpg" />
 </div>
 
 
@@ -559,7 +532,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.0) Repack Dok2
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370459.jpg" />
 </div>
 
 
@@ -585,7 +558,7 @@ Call of Duty: Modern Warfare Remastered & Call of Duty: Infinite Warfare (2016) 
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370457.jpg" />
 </div>
 
 
@@ -611,7 +584,7 @@ Virginia (2016) [Ru/Multi] (1.02/upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370456.jpg" />
 </div>
 
 
@@ -637,7 +610,7 @@ MIAZMA or the Devil's Stone (2018) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370273.jpg" />
 </div>
 
 
@@ -663,7 +636,7 @@ Rabbit Hole (2022) [Ru/Multi] (Build 9481229) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370080.jpg" />
 </div>
 
 
@@ -674,6 +647,32 @@ Rabbit Hole (2022) [Ru/Multi] (Build 9481229) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D43B48A9D1B04FCEFE68EB0A6B5F331B1D134E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377817   (370032) от 12.09.2022
+
+The Shattering (2020) [Ru/Multi] (1.1.9/dlc) License GOG (обновляемая)
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ничего не помните. Всё, что вы видите - это белый цвет вокруг вас. Вы слышите голос. Вы видите часы, медленно раскачивающиеся перед вашими глазами. The Shattering помещает вас в ум Джона Эванса, где вы боретесь изо всех сил, пытаясь собрать воедино фрагменты вашего прошлого и настоящего. Не помнить - это одно, но что происходит, когда ваш ум ведёт вас по извилистому (   Читать дальше...   )Тип издания: LicenseРазработчик: Super Sexy SoftwareЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DE382F74943BB2064173BB50774177A098ABF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

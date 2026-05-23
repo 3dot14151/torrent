@@ -6,7 +6,7 @@ DFX Audio Enhancer 10.137 (Winamp/Aimp3) RePack by elchupacabra [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_644805.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ USB Image Tool 1.84 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644786.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NirLauncher Package 1.23.59 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644776.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644743.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Light Image Resizer 5.0.7.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644725.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CCleaner 5.31.6104 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644716.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Zoner Photo Studio X 19.1706.2.29 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644714.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Shockwave Player 12.2.9.199 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644707.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SamDrivers 19.3 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644704.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644703.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WhatsApp 2.2210.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644646.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VueScan Pro 9.6.09 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644616.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NetLimiter 4.0.36.0 Pro RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644608.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Rainlendar Pro 2.14.2 Build 157 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644607.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Adobe Flash Player 26.0.0.126 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644593.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CCleaner 5.31.6105 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644591.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Wondershare Filmora 9.1.0.11 (x64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644577.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Spectrasonics - Omnisphere Update 2.6 + Bob Moog Tribute Patch Library Update 1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644576.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SamDrivers 19.3 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644571.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WhatsApp 2.2210.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644521.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ IObit Malware Fighter 6 PRO 6.0.2.4612 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644485.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ CCleaner 5.31.6105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644476.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Ashampoo Snap 10.0.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644470.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Wondershare Data Recovery 6.0.2.31 RePack (& Portable) TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644468.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ MiniTool Partition Wizard 11.0.1 Technician + BootCD [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644449.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ AIDA64 Engineer Edition 6.60.5900 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644416.jpg" />
 </div>
 
 

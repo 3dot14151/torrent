@@ -6,7 +6,7 @@ Gunslugs 2 (2015) [En] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059753.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gunslugs (2015) [En] (3.3.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059752.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.03.2/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059751.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Planet of Lana II (2) (2026) [Ru/Multi] (1.0.14/dlc) Repack Let'sРlay [Supporte
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059746.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Trash Goblin (2024) [Ru/Multi] (1.3.5.8836/dlc) Repack FitGirl [Complete Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059732.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Children Of Morta (2019) [Ru/Multi] (1.3.376/dlc) Repack FitGirl [Complete Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059731.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059730.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ride 6 (2026) [Multi] (1.0/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059721.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059720.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Forgotlings (2026) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059718.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Last Express (2013) [Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059717.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Gatekeeper (2024) [Ru/Multi] (1.2.0.00/dlc) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059540.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ys X (10): Proud Nordics (2025) [Multi] (1.0.3r10/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059539.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Reanimal (2026) [Ru/Multi] (354342.5/dlc) Repack dixen18
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059538.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Star Trek: Voyager - Across the Unknown (2026) [Ru/Multi] (1.3.23480/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059537.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Fisherman Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059536.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Total War: Attila (2015) [Ru/Multi] (1.8.1.1299.3427123/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059535.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Pure Pool Pro (2026) [Ru/Multi] (Build 1605) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059530.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Pure Pool Pro (2026) [Ru/Multi] (Build 1605) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059529.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Pure Pool Pro (2026) [Ru/Multi] (Build:1716) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059520.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Harry Potter - Anthology / Гарри Поттер - Антология (2001-20
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059385.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Star Trek: Voyager - Across the Unknown (2026) [Ru/Multi] (1.3.23480.eccaabe9/dl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059379.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (269) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059378.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (2.0/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059376.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Yakuza Kiwami (2019) [Ru/Multi] (2.13) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059356.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Scott Pilgrim EX (2026) [Ru/Multi] (1.0.0.13877) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059344.jpg" />
 </div>
 
 

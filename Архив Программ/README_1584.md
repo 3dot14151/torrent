@@ -6,7 +6,7 @@ NetLimiter 5.2.5.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Partition Assistant Technician Edition 9.10.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236436.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WindowManager 10.9.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236428.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VueScan Pro 9.7.99 (04.05.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236417.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blackmagic Design Fusion Studio 18.5b Build 30 Public Beta 2 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236374.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SysAdmin Software Portable v.0.5.8.0 by rezorustavi (07.05.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236361.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ EF Commander 2022.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236355.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ IObit Smart Defrag Pro 8.4.0.266 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236347.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FinePrint Software (FinePrint 11.36 / pdfFactory Pro 8.36) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236344.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ QOwnNotes 23.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236340.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236337.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Surge XT 1.2.3 Standalone, CLAP, VSTi 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236311.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Plexim Plecs 4.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236304.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Vivaldi 6.0.2979.18 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236299.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Zoner Photo Studio X 19.2303.2.450 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236281.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ nakst - Apricot Hybrid Synth 1.1.9 (FL Studio Native) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236268.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Wondershare UniConverter 14.1.16.174 (х64) Repack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236265.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Visual Studio Code 1.78.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236260.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ R-Wipe & Clean 20.0.2403 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236231.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SIGERSHADERS XS Material Presets Studio 4.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236230.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Kaspersky Virus Removal Tool (KVRT) 20.0.10.0 (09.05.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236223.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.8 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236220.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Total Commander 10.51 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236210.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Total Commander 10.51 (03.09.2022) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236204.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Topaz Video AI 3.2.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236165.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Sandboxie 5.64.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236144.jpg" />
 </div>
 
 

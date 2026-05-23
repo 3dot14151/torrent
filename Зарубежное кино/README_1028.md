@@ -1,57 +1,3 @@
-###  Публикация: 924694   (557399) от 04.08.2015
-
-Отомстить за Анджело / Ангел мести / Avenging Angelo (2002) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Красивая и богатая Дженнифер Баррэтт к своему ужасу узнаёт, что на самом деле она - дочь недавно убитого главаря мафии Анджело Аллигьери. Теперь ей достались в наследство его верный телохранитель Фрэнки и уйма мрачных типов, мечтающих сквитаться с родней своего извечного врага.
-Чтя клятву, данную боссу, бесстрашный Фрэнки незримо защищает Дженнифер от наемных головорезов, (   Читать дальше...   )Производство: США, Франция, Швейцария / Dante Entertainment, Quinta Communications, Cinema HoldingsЖанр: Боевик, Комедия, КриминалРежиссер: Мартин БёркАктеры: Сильвестр Сталлоне, Мэдлин Стоу, Энтони Куинн, Рауль Бова, Гарри Ван Горкум, Билли Гарделл, Джордж Тулиатос, Анджело Селеста, Эзра Перлман, Кэрин Моффэт, Джон ГилбертПеревод: Многоголосый закадровыйСубтитры: нетПродолжительность: 01:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9104CEDC90F885DF4400BCF4C86D7ED3006DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924718   (557397) от 04.08.2015
-
-Обезьянья кость / Monkeybone (2001) HDTV [H.264/1080i-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После курьезной автокатастрофы, Стю, молодой талантливый художник-мультипликатор впадает в кому. Его сознание отделяется от тела, и он погружается в царство Морфея. Ему снятся всякие мультипликационные кошмары, самый страшный из которых как две капли воды похож на его последнюю разработку — безумную похотливую мартышку.
-Путешествуя по лабиринтам подсознания в обнимку (   Читать дальше...   )Производство: США, Twentieth Century Fox Film Corporation, 1492 Pictures, Twitching Image StudioЖанр: Фэнтези, Комедия, АнимацияРежиссер: Генри СеликАктеры: Брендан Фрейзер, Бриджит Фонда, Джон Туртурро, Вупи Голдберг, Крис Кэттэн, Джанкарло Эспозито, Роуз МакГоун, Дэйв Фоли, Меган Маллалли, Боб Оденкирк, Пэт КилбейнПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D85F04958A3905699B7DFCD497620383EB304B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924332   (557318) от 04.08.2015
 
 Форсаж 7 / Furious Seven (2015) BDRip [Extended cut]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557318.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557315.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557314.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557313.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557304.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557303.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557302.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557287.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557286.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557268.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557265.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557241.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557239.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557229.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557227.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557225.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557221.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557219.jpg" />
 </div>
 
 
@@ -531,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557199.jpg" />
 </div>
 
 
@@ -557,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557158.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557031.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557002.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556990.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556953.jpg" />
 </div>
 
 
@@ -672,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18ED2C24B0469D7C900C959471D115134FD238EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305415   (556891) от 30.05.2019
+
+Ведьма Лапласа / Rapurasu no majo (2018) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двух, казалось бы, несвязанных между собой людей находят умершими от отравления сероводородом. Приглашённый эксперт, профессор геологии Сюнсукэ Аои, считает, что это несчастные случаи, вероятность повторения которых ничтожно мала. Полицейский детектив из Токио находит связь между погибшими, и никак не может понять способ совершения убийств, если они всё-таки имели (   Читать дальше...   )Производство: Япония / Oriental Light and Magic (OLM), Rakueisha, Toho PicturesЖанр: Детектив, криминал, фантастикаРежиссер: Такаси МиикеАктеры: Сё Сакурай, Судзу Хиросэ, Сота Фукуси, Рэи Дан, Рири Фрэнки, Тао Окамото, Эрико Сато, Мираи Сида, Масанобу Такасима, Хироси ТамакиПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AE94C9AC71A877EB568449E3401BA81AE733AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153471   (556886) от 28.07.2017
+
+Чистка до блеска / Sunshine Cleaning (2008) HDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556886.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чистка до блеска» — это название фирмы по уборке особо грязных мест преступлений, которую открывают две разнохарактерных сестры Роуз и Нора Лорковски. И всё ради того, чтобы отправить сына одной из них в частную школу.Производство: США / Back Lot Pictures, Big Beach FilmsЖанр: ДрамаРежиссер: Кристин ДжэффсАктеры: Эми Адамс, Эмили Блант, Алан Аркин, Джейсон Спивак, Стив Зан, Мэри Линн Райскаб, Клифтон Коллинз мл., Эрик Кристиан Олсен, Пол Дули, Кевин ЧэпменПеревод: Любительский одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EB462F2C860B6DCFCDCF75065642E9EFDC30DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

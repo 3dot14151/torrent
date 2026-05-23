@@ -6,7 +6,7 @@ Heading Out (2024) [Ru/Multi] (1.047) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048768.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048765.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Cold White (2024) [Ru/Multi] (build 21100504) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048764.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048763.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Winter Burrow (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048760.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Scene voices38
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048754.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048741.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rugby League 26 (2025) [Multi] (1.0.3326) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048730.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adrenaline Rampage (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048723.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.r40893.f/dlc) Repack L
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048660.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048643.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Looper Tactics (2023) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048624.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ MyVoiceZoo (2025) [Ru/Multi] (build 20860342) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048623.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Chaos Galaxy (2020) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048622.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.12.0/dlc) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048584.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Metal Mind (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048583.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Asterix & Obelix: Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack FitG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048571.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Foolish Mortals (2025) [Multi] (0.7.5.1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1048570.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048569.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hoomanz! (2025) [Ru/Multi] (0.3.26) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048541.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Three Kingdom: The Journey (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048540.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Last Case of John Morley (2025) [Ru/Multi] (Build 20987894) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048519.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Master of Command (2025) [Ru/Multi] (Build 20565020) Repack FitGirl [Supporter E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048518.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Driving Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048517.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ANGST: A TALE OF SURVIVAL (2025) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048516.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048515.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Circular Studio 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914382.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.136 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914374.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ SQLPro for Postgres - PostgreSQL database manager 1.0.101 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914372.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ KCNcrew Pack 03-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914362.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ WebScraper 4.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914360.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Wondershare DVD Creator 6.1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914357.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Postbox 5.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914277.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Typinator 8 v8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914271.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Magic Battery 5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914270.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Smart Disk Image Utilities 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914266.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ One Switch 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914265.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Scrutiny 10 v10.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914263.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Kiwi for Gmail 2.0.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914260.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ PD (Progressive Downloader) 4.6 (build 9531) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914258.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ InstaCal 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914252.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ iFlicks 2 v2.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914249.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Affinity Designer 1.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914247.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Affinity Publisher 1.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914246.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Tidy Up 5 v5.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914194.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Text Scanner - PDF & Document 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914188.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Scherlokk - Files finder 4 v4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914184.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ BBEdit 14.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914177.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ SideNotes 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914173.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ uDock 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914167.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Cookie 6.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914163.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ DaisyDisk 4.21.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914132.jpg" />
 </div>
 
 

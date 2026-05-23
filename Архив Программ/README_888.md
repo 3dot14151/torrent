@@ -6,7 +6,7 @@ Mozilla Firefox 39.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595990.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ImBatch 3.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595989.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cyberfox 39.0 for AMD/Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595985.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SRWare Iron 73.0.3800.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595970.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pale Moon 28.5.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595966.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sonic Academy - KICK 2 1.1.1 VSTi, AAX (x86/x64) RePack [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595904.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ uTorrent Stable 3.5.5 (Build 45225) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595900.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AllDup 4.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595890.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SIV (System Information Viewer) 5.38 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595888.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BELOFF [dp] 2019.4.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595886.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Photoshop 2022 23.3.1.426 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595881.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Exact Audio Copy 1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595857.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ QuickTime Pro 7.7.7.80.95 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595856.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AVG Internet Security 2015 15.0.6081 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595854.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Tor Browser Bundle 4.5.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595846.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Panda Free Antivirus 2016 16.1.3 DC 31.07.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595817.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ uTorrent 3.4.8 Build 42445 Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595802.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 894 RePack by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595792.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Adobe After Effects CC 2015.0 13.5.0.347 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595773.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Acronis Backup / Backup Advanced 11.5 Build 43956 BootCD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595760.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ AIDA64 Extreme Edition 2.50.2050 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595752.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Meridian 3.0.333 Beta [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595745.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Mozilla Firefox 15.0 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595743.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VMware Workstation 10.0.7 Build 2844087 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595673.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft Windows 10 Insider Preview 10.0.10162 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595666.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Red Giant Trapcode Suite 12.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595664.jpg" />
 </div>
 
 

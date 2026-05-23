@@ -1,119 +1,3 @@
-###  Публикация: 327158   (47416) от 09.08.2024
-
-Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В 1980 году две мощные хард-рок-группы, Black Sabbath и Blue Oyster Cult, объединились для совместного концертного тура, в котором каждая из них предложила свой собственный, неповторимый подход к хэви-металу. Одна из дат этого тура была заснята на пленку, и фильм "Black & Blue: Black Sabbath и Blue Oyster Cult Live демонстрируют эти две группы-ветераны на (   Читать дальше...   )BLACK SABBATH
-01. War Pigs
-02. Neon Knights
-03. N.I.B.(   Читать дальше...   )Жанр: Heavy Metal, Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728073   (47412) от 09.08.2024
-
-Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-После камбэка с альбомом "13" Black Sabbath отправились в гастрольное турне. Одним из самых запоминающихся концертов в туре стали выступления на Зелёном Континенте. 29 апреля и 1 мая 2013 года у музыкантов прошло 2 концерта в Мельбурне, которые надолго запомнились всем австралийцам. Black Sabbath решили, что было бы замечательно выпустить CD/DVD и Blu-ray (   Читать дальше...   )01. Introduction
-02. War Pigs
-03. Into the Void
-04. Loner(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0ED68B301AF0C41BC23F063FE51514E210E6BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 73571   (47409) от 09.08.2024
-
-AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"No Bull: The Director's Cut" — новое, расширенное издание знаменитого концерта AC/DC в Plaza De Toros De Las Ventas , Мадрид, Испания, состоявшегося 10 июля 1996 года. Для нового издания был сделан ремастеринг и ремикс звука в Dolby Digital Stereo и Dolby Digital 5.1 Surround Sound, а также добавлены КОНЦЕРТНЫЕ бонусные треки (в первом издании был клип (   Читать дальше...   )01 Back In Black
-02 Shot Down In Flames
-03 Thunderstruck
-04 Girl's Got Rhythm(   Читать дальше...   )Жанр: rockКачество: DVD9Продолжительность: 122 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A36966B4A3BE9062C42EE7B0C7DF2057F039FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205778   (47408) от 09.08.2024
-
-AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-К апрелю 1980, Янги нашли себе нового вокалиста: Брайна Джонсона, сына углекопа из Ньюкасла из Англии и бывшего музыканта хард рок группы 70-х Geordie, с такой мощной глоткой так словно каждое утро он полоскал свое горло кипящим маслом. Через три месяца AC/DC выпустили свой триумф- воскрешение, Back In Black, один из самых продаваемых рок альбомов в истории (на сегодняшний (   Читать дальше...   )(1980 -1993)
-
-01. Hells Bells (promo clip, 1980)
-02. Back In Black (promo clip, 1980)(   Читать дальше...   )Жанр: Hard RockФормат: DVD videoКачество: DVD9
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8662D40815D34425F3FDEA57814C92CEBFF804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 53438   (47406) от 09.08.2024
 
 Black Sabbath - The Last Supper '99  (2015) DVD9
@@ -122,7 +6,7 @@ Black Sabbath - The Last Supper '99  (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47406.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47386.jpg" />
 </div>
 
 
@@ -178,7 +62,7 @@ Beth Hart / Live at Paradiso (2005) DVD9 <Blues rock, Jazz fusion, Soul>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47314.jpg" />
 </div>
 
 
@@ -207,7 +91,7 @@ BBC - Top Of The Pops [1967-2004] (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47308.jpg" />
 </div>
 
 
@@ -236,7 +120,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47279.jpg" />
 </div>
 
 
@@ -266,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47195.jpg" />
 </div>
 
 
@@ -292,7 +176,7 @@ Chickenfoot - Get Your Buzz On Live (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47188.jpg" />
 </div>
 
 
@@ -321,7 +205,7 @@ Def Leppard - Historia: In the Round In Your Face (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47182.jpg" />
 </div>
 
 
@@ -347,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47179.jpg" />
 </div>
 
 
@@ -376,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47177.jpg" />
 </div>
 
 
@@ -407,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47163.jpg" />
 </div>
 
 
@@ -433,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47125.jpg" />
 </div>
 
 
@@ -459,7 +343,7 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47089.jpg" />
 </div>
 
 
@@ -485,7 +369,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47088.jpg" />
 </div>
 
 
@@ -511,7 +395,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47068.jpg" />
 </div>
 
 
@@ -542,7 +426,7 @@ Dream fest. День звезд российской эстрады (2024) WEBRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47008.jpg" />
 </div>
 
 
@@ -570,7 +454,7 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46996.jpg" />
 </div>
 
 
@@ -596,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46986.jpg" />
 </div>
 
 
@@ -622,7 +506,7 @@ Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46978.jpg" />
 </div>
 
 
@@ -654,7 +538,7 @@ THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46976.jpg" />
 </div>
 
 
@@ -687,7 +571,7 @@ Vaya Con Dios - the ultimate collection (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46961.jpg" />
 </div>
 
 
@@ -717,7 +601,7 @@ Deep Purple: Live In California 1974 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46880.jpg" />
 </div>
 
 
@@ -732,6 +616,115 @@ Deep Purple - Live In California 74 это пожалуй самый гранд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62BA483B9D5F5611812CF47C830B9F316CA989E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583269   (46786) от 15.08.2024
+
+Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xDVD9)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46786.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 ноября 1993 года вышел в продажу Live Shit: Binge & Purge бокс сет состоящий из 3-х дисков с аудиозаписью концерта в Sports Palace, Мехико, Мексика (25, 26, 27 февраля и 1, 2 марта 1993 года). И 3-х VHS кассет с видеозаписью концерта в Seattle Coliseum, Сиэтл, США (29 и 30 августа 1989 года) и концерта в San Diego Sports Arena, Сан Диего, США (13 и 14 января (   Читать дальше...   )Жанр: Музыка, КонцертАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Jason NewstedПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 03:19:21 + 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 56839   (46784) от 15.08.2024
+
+Metallica - The Videos 1989-2004 (2006) DVD-9
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свершилось - Metallica наконец-то выпустила все свои видеоклипы на отдельном DVD. Впервые на DVD видео "2 of One", который ранее выпускался только на VHS. Североамериканцы впервые увидели клип "Mama Said", который никогда там не транслировался по телевидению. Также на диске 11-минутная версия клипа "The Unforgiven" и трейлер фильма "Some (   Читать дальше...   )One 7:41
+Enter Sandman 5:28
+The Unforgiven 6:21
+Nothing Else Matters 6:24(   Читать дальше...   )Жанр: Thrash MetalФормат: DVD videoКачество: DVD9Продолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13D03A5F1BE0C28C6CFA302237E5DFF8B813BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443110   (46735) от 15.08.2024
+
+Ретро / МХТ им. Чехова (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Московского художественного театра им. А.П. Чехова.
+Пьеса Александра Галина - это трогательная история о том, что обрести себя и встретить родную душу можно в любом возрасте и при самых странных обстоятельствах.
+Людмила и ее муж Леонид решают поженить ставшего вдовцом отца и приглашают без его ведома на смотрины трех старушек. Старушки приходят не в то (   Читать дальше...   )Жанр: трагикомедия, спектакльРежиссер: Андрей МягковПродолжительность: 01:22:15 + 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAA0648857E2F1FFE639D669363255F4DFCC553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103191   (46734) от 15.08.2024
+
+Жан Мари Люсьен Пьер Ануй - Не будите мадам (2003) TVRip (Театр им. Моссовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта пьеса Жана Ануя о судьбе человека, целиком посвятившего себя театру. Ее герой - режиссер Жюльен Палюш - принципиален во всем: и в творчестве, и в жизни; формула «гений и беспутство» - не для него. Его фантастическая увлеченность новыми театральными идеями притягивает к нему самых разных людей. Часто в его памяти возникают образы прежних спутников жизни, они переплетаются (   Читать дальше...   )Производство: Россия, Театр им. МоссоветаЖанр: Спектакль, драмаРежиссер: Юрий ЕреминАктеры: Георгий Тараторкин, Татьяна Бестаева, Ольга Остроумова, Евгения Крюкова, Александр Яцко, Александр Леньков, Марина Кондратьева, Дмитрий Журавлев, Вячеслав Бутенко, Александр БобровскийПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85196DF50D3B7CF2033AA29665445E3FC0B6F543
 ```
 
 https://mybot314.ru/tekegram_catalog/

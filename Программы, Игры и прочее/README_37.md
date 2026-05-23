@@ -1,55 +1,3 @@
-###  Публикация: 1353352   (991806) от 18.01.2020
-
-Angry Birds Seasons 6.6.2 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Angry Birds Seasons на Андроид – Это сборка самых различных уровней с разной сложностью и множеством интересных бонусов. Данная часть злых птиц вобрала в себя целую уйму всего, в ней более тысячи уровней что понравятся и закаленным ветеранам и зеленым новичкам! Задача наша проста и понятна как и всегда нужно уничтожать свиней при помощи своих злых птичек! Каждую (   Читать дальше...   )Тип издания: Мод (Unlocked)Релиз состоялся: 23.05.2018Разработчик: Rovio Entertainment CorporationПоддерживаемая ОС: Android 4.1+Жанр: АркадыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F155D73B21B716C369F13BB4F63C0FE4413F9B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353499   (991801) от 18.01.2020
-
-Angry Birds Star Wars 1.5.13 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Angry Birds Star Wars – вот и появилась на свет новая часть Angry Birds от студии Rovio. Новый эпизод разворачивается в галактической вселенной, где главные герои злые птички и свиньи теперь в роли джедаев и ситхов. Сюжет Angry Birds Star Wars для android будет проходить по знаменитому фильму Звездные Войны, вы увидите героев фильма в новом обличье! Игра выполнена (   Читать дальше...   )Тип издания: Мод UnlockedРелиз состоялся: 31 августа 2018 г.Разработчик: Rovio Entertainment CorporationПоддерживаемая ОС: Android 4.1+Жанр: АркадыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23CF37E11982B9C898CEE02F6EF53B591A42073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353503   (991696) от 18.01.2020
 
 Angry Birds Star Wars II 1.9.25 [Ru/En]
@@ -58,7 +6,7 @@ Angry Birds Star Wars II 1.9.25 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991696.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Angry Birds Stella 1.1.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991685.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Angry Birds Classic 8.0.3 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991684.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Game Dev Tycoon 1.4.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990604.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990538.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989684.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Free Audiobooks v1.14.7 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987823.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Garmin: City Navigator Turkey NTU 2016.30 [Tr]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983094.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ The Rivers of Alice v1.61 [Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978934.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ TurboScan Paid 1.5.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976473.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Compass Pro 1.49 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976381.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975273.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974394.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ Garmin: City Navigator Southern Africa NT 2016.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973200.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972875.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ Garmin: City Navigator India NT 2015.40 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971924.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971526.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ Garmin: City Navigator Middle East & North Africa 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970657.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970484.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ Garmin: TOPO Norway Premium v2 [No]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969528.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ Canva Premium 2.47.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969299.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964057.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963299.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959287.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882753E3B0B1D21C88DF2A2273DC18FB16987036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360790   (959176) от 16.02.2020
+
+Check Engine  v1.5.8.01 [Ru] - на русском языке
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Вам один из самых больших справочников по ошибкам OBD-II (EOBD).Тип издания: Пиратка (Разблокирована Pro)Релиз состоялся: 17.07.2018Разработчик: Vizorg AppsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D91A2084B23196CF7B5C654C1306A055DEDF7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936769   (958964) от 16.02.2020
+
+Проверка зрения v2.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет осуществлять измерение и контроль остроты зрения. Доступна статистика измерений, что позволяет отслеживать как изменяется острота зрения. Программа поможет вам лучше контролировать состояние глаз. Вне зависимости от результата тестирования, проводимого самостоятельно, необходима регулярная проверка зрения у специалиста. 90% всей информации человек (   Читать дальше...   )Тип издания: Пиратка (разблокирована Pro)Релиз состоялся: 13.02.2020Разработчик: andrew.brusentsovПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976B31D80DC674F26656F238CA4B0036F2FFD583
 ```
 
 https://mybot314.ru/tekegram_catalog/

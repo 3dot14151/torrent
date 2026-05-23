@@ -1,111 +1,3 @@
-###  Публикация: 594614   (132420) от 28.12.2012
-
-Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
-
->>Консольные Игры
->>Другие приставки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия Fire Emblem считается сложной именно из-за того, что требуется немалая изворотливость, тактический расчет и удача для сохранения жизни всему отряду. Будет ли исход битв меньше зависеть от случая после всех нововведений – пока неизвестно. Но что у владельцев PlayStation 2 появился очередной повод завидовать счастливым обладателям GameCube – вне сомнений.Жанр: StrategyЯзык интерфейса: Multi-5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5069A42243FF6D335709A692482CC30BCB265D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681772   (131680) от 06.12.2023
-
-Shenmue III Digital Deluxe Edition (2019) [PS4] [USA] 6.0 + Backport [5.05] [License] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в китайскую глубинку вместе с японским подростком Рё Хадзуки, который решительно настроен найти убийцу своего отца. Это история о приключениях, тайнах, дружбе, боевых искусствах и, самое главное, мести! Захватывающая история, созданная Ю Сузуки. В своё время Ю Сузуки создал несколько высокооцененных игр, таких как Space Harrier, Daytona USA и Virtua Fighter. (   Читать дальше...   )Тип издания: LicenseРазработчик: Ys NetЖанр: Third-person, Action, AdventureЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Испанский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Испанский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086DD5A4E798562BB592F46D792A7B2408CFB0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595417   (131258) от 30.12.2012
-
-King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
-
->>Консольные Игры
->>PS2
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Как может показаться, в The Ancient City судьба вселенной никоим образом не зависит от ваших действий. Ведь все решено уже без вас - в королевство был завезен мистический символ печали, вследствие чего все население пострадало от страшной чумы. Так как спасать уже попросту некого, все, что остается - вернуть проклятую статуэтку ее законным обладателям.
-
-Сюжет ограничивается одной лишь завязкой. Спустя пару-тройку часов вы наверняка забудете, кто ваш герой и какими судьбами он оказался в очередном пропахшем сыростью подземелье. И не даже не найдетесь, что вам кто-нибудь напомнит. Город опустошен, NPC можно пересчитать по пальцам, а разговоры сводятся к никчемным замечаниям.
-
-Главное, что сюжетная линия не сдерживает вас в действиях. Вы вольны следовать, куда угодно, и развлекаться, как угодно. Если желаете, порешите топором продавца в магазине, которому до этого сбывали найденные предметы. Никто вам не скажет ни слова упрека. Некому. Отсюда и доминирующие чувства одиночества, безысходности, неопределенности. Как (   Читать дальше...   )Жанр: RPGЯзык интерфейса: Multi-5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5A530B23B6D2CE000722571C9E27BB2D765417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681836   (130660) от 09.12.2023
-
-Gran Turismo 7 (2022) [PS4] [USA] 9.00 (backport 5.05/6.72/7.xx/8.xx) [License] [Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в самый реалистичный симулятор вождения… 25 лет с вами. Садитесь за руль более 400 машин уже с первого дня и покоряйте 90 трасс в переменчивых погодных условиях. Вас ждут классические автомобили и ультрасовременные суперкары, воссозданные в мельчайших подробностях. Легендарный режим GT Simulation возвращается – откройте для себя новые машины и испытания, (   Читать дальше...   )Тип издания: LicenseРазработчик: Polyphony DigitalЖанр: Racing, SportsЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D37DA9A11AFD08B6D718000149CE27D51735368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632973   (130613) от 09.12.2023
 
 Hogwarts Legacy: Deluxe Edition (2023) [PS4] [EUR]  5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
@@ -114,7 +6,7 @@ Hogwarts Legacy: Deluxe Edition (2023) [PS4] [EUR]  5.05 [HEN] [License / 1.04 /
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130613.jpg" />
 </div>
 
 
@@ -140,7 +32,7 @@ GRAN TURISMO 5 Prologue (2008) [PS3] [EUR] 2.16 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130204.jpg" />
 </div>
 
 
@@ -166,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130112.jpg" />
 </div>
 
 
@@ -193,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130077.jpg" />
 </div>
 
 
@@ -219,7 +111,7 @@ GRAN TURISMO 5 Prologue Spec III (2007) [PS3] [JAP] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129824.jpg" />
 </div>
 
 
@@ -245,7 +137,7 @@ Broforce (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127922.jpg" />
 </div>
 
 
@@ -271,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127511.jpg" />
 </div>
 
 
@@ -297,7 +189,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [USA] 9.0 [HEN] [Repac
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127346.jpg" />
 </div>
 
 
@@ -323,7 +215,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Repa
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127288.jpg" />
 </div>
 
 
@@ -349,7 +241,7 @@ KingStation 0.3a (2024) [PC] [License] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122699.jpg" />
 </div>
 
 
@@ -375,7 +267,7 @@ Resident Evil Village - Gold Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122107.jpg" />
 </div>
 
 
@@ -401,7 +293,7 @@ Sniper Elite 5 - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.29 / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122095.jpg" />
 </div>
 
 
@@ -427,7 +319,7 @@ GRID Legends - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 6.01] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121383.jpg" />
 </div>
 
 
@@ -453,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101650.jpg" />
 </div>
 
 
@@ -481,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90317.jpg" />
 </div>
 
 
@@ -507,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89144.jpg" />
 </div>
 
 
@@ -534,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88069.jpg" />
 </div>
 
 
@@ -562,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86651.jpg" />
 </div>
 
 
@@ -588,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85631.jpg" />
 </div>
 
 
@@ -614,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85434.jpg" />
 </div>
 
 
@@ -642,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85412.jpg" />
 </div>
 
 
@@ -668,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85043.jpg" />
 </div>
 
 
@@ -679,6 +571,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F7E74037BC71B4F7BCEAF4DB97B61D903457C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473551   (84597) от 26.03.2012
+
+[XBox360] Darksiders: Wrath of War [FullRUS] (RegionFree) (2009)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля разрушена. Всюду взгляд выхватывает одни лишь развалины и следы бушевавших когда-то губительных сил. Давно предрекаемый Конец Света свершился, однако планета не до конца сгорела в его пламени. В истерзанных городах еще теплится жизнь, но будет ли она милосердна к случайному путнику, особенно если путник этот не кто иной, как Всадник Апокалипсиса?
+
+Вам отводится роль посланника высших сил. Отправившись на Землю, чтобы проследить за ее уничтожением, один из четырех наводящих ужас Всадников — Война — сам оказался в ловушке. Он был предан собственным хозяином, лишен своего могущества и брошен погибать на агонизирующей планете. Но враги просчитались, не убив его сразу. Теперь Война вместе со своим боевым скакуном по кличке Руина полон решимости жестоко мстить!Разработчик: Vigil GamesЖанр: 3rd Person / Action / AdventureЯзык интерфейса: FullRUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622D1720A6C168CB082560E7A8D8FAB644436838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471287   (83813) от 22.03.2012
+
+[Xbox 360] Burnout Revenge [PAL][Rus](2006)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно, в этой жизни вы не разобьете ни одной «Ламборджини Диабло», никогда не превысите скорость и ни за что не вступите в пререкания со светофором. Ничего страшного! Потому что с Burnout Revenge, новой сверхскоростной гоночной игрой от компании Electronic Arts, вам будет о чем рассказать внукам! Забудьте о том, чему вас учили в автошколе, не вспоминайте о правилах дорожного движения и сделайте, наконец, то, о чем тайно мечтаете с момента получения водительских прав: громите «пробки», наказывайте «чайников», сносите светофоры на скорости двести миль в час!
+(   Читать дальше...   )Тип издания: ПираткаРазработчик: Criterion StudioЖанр: Racing/ArcadeЯзык интерфейса: Русский (текст и звук, при запуске игры выбрать британский язык)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469050   (83373) от 20.03.2012
+
+[XBox360] Jillian Michael's Fitness Adventure [ENG] [KINECT] (PAL/NTSC-U) (2011)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83373.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире фитнеса существует девушка, которая известна всему миру: Джилия Михайлс. Именно она превратила простой на первый взгляд фитнесс в настоящую культуру здорового образа жизни. Были созданы масса материалов, которые призывают и пропагандируют правильное питание с постоянным поддержанием физической формы.
+  Новая игра "Jillian Michael's Fitness Adventure" не отступает от главной линии спортсменки - ее цель как и ранее важна, научить каждого правильно владеть собственным телом. Вам предстоит принять участие в увлекательном приключении, которое приносит к тому же и пользу вашему телу. Повторяйте те движения, которые делает Джилия.
+  Геймерам предстоит выполнять серию интенсивных и веселых упражнений, пробираясь по заброшенному храму в джунглях. Кроме этого режима в игре есть и другие более стандартные режимы, которые позволят привести себя в тонус. Ваша цель - пройти установленный маршрут за указанное время, используя при этом указанные группы мышц. В конце занятий можно посмотреть свою статистику, которая (   Читать дальше...   )Тип издания: ПираткаРазработчик: MicroproseЖанр: Arcade(Exercises)/3D/SportsЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517ECA4850A37DE8174FB15CA78F8471AABD4934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366217   (83195) от 19.03.2012
+
+[PS2] PS2 софт, эксплойт + FAQ v1.94
+
+>>Консольные Игры
+>>Тех. раздел Консолей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык интерфейса: Английский(и в ряде случаев русский)
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

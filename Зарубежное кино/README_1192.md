@@ -1,55 +1,3 @@
-###  Публикация: 1569230   (452926) от 12.08.2022
-
-Завтра мы будем мертвы / Und morgen seid ihr tot / And Tomorrow We Will Be Dead (2021) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это история швейцарской пары (Даниэлы Видмер и Дэвида Оча), которая в 2011 году, следуя по стопам Марко Поло, была похищена (в Пакистане) и удерживалась в заложниках в течение восьми месяцев группой боевиков "Талибана". Это история, которая потрясла общественное мнение в Швейцарии и которая до сих пор считается экстраординарной, учитывая, что на сегодняшний (   Читать дальше...   )Производство: Швейцария, Германия, Blue Production, Bundesamt für Kultur (BAK), Fresco Film ServicesЖанр: драмаРежиссер: Михаэль ШтайнерАктеры: Морган Ферру, Свен Шелкер, Ghizlane Lkoucha, Ajay Kumar Nain, Сиддхант Карник, Dara Sandhu, Rajeev Singh, Arda Görkem, Yassmine Othman, Ingo OspeltПеревод: Многоголосый любительский (AlphaProject)Субтитры: отсутствуютПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1361136D7ED7A3FC5E60F7B22700EFFA1A0BD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569269   (452924) от 12.08.2022
-
-Заговор в Голливуде (Бензиновая аллея) / Gasoline Alley (2022) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Человек, вовлеченный в тройное убийство голливудских звезд, начинает собственное расследование. Нуждаясь в помощи, он нанимает двух детективов, чтобы разоблачить заговор, уровень опасности которого они и представить себе не могли.Производство: США / 308 EntBondIt Media Capital, Buffalo 8 ProductionsЖанр: Боевик, триллерРежиссер: Эдвард ДрэйкАктеры: Брюс Уиллис, Девон Сава, Люк Уилсон, Кэт Фостер, Суфе Брэдшоу, Кенни Вормолд, Ирина Антоненко, Рик Саломон, Энджи Пак, Эрик БоркПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DD05C4FA724D6E7DE53EF387E88E0D19F4CBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 825950   (452910) от 30.09.2014
 
 Третья персона / Third Person (2013) BDRemux [1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452910.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452909.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452862.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452857.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452850.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452847.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452837.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452833.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_452745.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452702.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452671.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452579.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452568.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_452550.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452470.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452469.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452468.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452466.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452432.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRemux [H.2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452411.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452402.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452393.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452367.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452363.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3186D0CFA7E1852F848AC9D64FDE4DAD1CA127E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060014   (452353) от 08.10.2016
+
+Гонки по-итальянски / Rosso Mille Miglia (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналистка Мария приезжает в город Брешиа, чтобы сделать репортаж о ралли ретро-автомобилей «1000 миль». Девушка предлагает знакомому механику Марко принять участие в соревнованиях: он будет водителем, она — штурманом. Марко соглашается, а вот мать героини не слишком рада такому повороту событий. Дело в том, что много лет назад дедушка Марии, участвуя в гонке «1000 (   Читать дальше...   )Производство: Италия, Россия / Centro Sperimentale di Cinematografia Production, Lucere FilmЖанр: Приключения, Мелодрама, Детектив, КомедияРежиссер: Клаудио УбертиАктеры: Мартина Стелла, Фабио Тройяно, Ремо Джироне, Франческа Реттондини, Виктория Дзинни, Людмила Бикмуллина, Маурицио ФранконеПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D11F937A964F7A3BA5ED6E3C20EC34C96D3928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247001   (452330) от 15.09.2018
+
+Наложница / Hugung: jewangui cheob (Hoo-goong: Je-wang-eui cheob) / The Concubine (2012) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды сводный брат короля принц Сон-вон встречает красивую девушку Хва-ён — дочь знатного человека. Он влюбляется в неё без памяти. Однако, у той уже есть возлюбленный. Матери Сон-вона не нравится увлечение сына, поэтому она решает устранить девушку, отдав её в жёны своему пасынку-королю. Хва-ён жертвует собой, согласившись стать женой короля. Теперь ей придётся (   Читать дальше...   )Производство: Корея Южная / HwangKiSung FilmsЖанр: Эротика, Драма, Мелодрама, История, ТриллерРежиссер: Ким Дэ-сынАктеры: Ё Чжон Чо, Дон Ук Ким, Мин Чжун Ким, Чжи Ён Пак (II), Ын Джи Чо, Кён Ён Ли, Чхоль Мин Пак, Чан Чон, Хён Кён О (II), Сок Хван Ан, Чжи Хэ ОПеревод: Двуголосый закадровый любительский (Ustas Alexis & Allestra по переводу VaiNary & Charmy)Субтитры: Русские, АнглийскиеПродолжительность: 02:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D4D69CF407453AA07F25F7C34EC2EAB8387D31
 ```
 
 https://mybot314.ru/tekegram_catalog/

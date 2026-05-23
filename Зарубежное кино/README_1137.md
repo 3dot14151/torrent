@@ -1,58 +1,3 @@
-###  Публикация: 545288   (487006) от 09.09.2012
-
-Остин Пауэрс: Голдмембер / Austin Powers in Goldmember (2002) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 1975 году отец Остина Пауэрса — знаменитый английский шпион Нейджел Пауэрс — был похищен голландским злодеем Голдмембером. Теперь, в 21-ом веке, знаменитый шпион Остин Пауэрс решает помочь своему отцу. Заручившись поддержкой своего давнего врага — Доктора Зла, с помощью его машины времени Остин совершает прыжок во времени.
-Он оказывается в 1975 году, в эпохе диско. Однако вскоре выясняется, что одержимый идеей завоевать весь мир Доктор Зло, был сам в сговоре с Голдмембером и возможно причастен к похищению отца Остина. Может быть, похищение Нейджела Пауэрса — это всего лишь уловка двух злодеев, совершенная, чтобы заманить к себе Остина Пауэрса?
-Вместе со своей очаровательной давней подружкой Фокси Клеопатрой Остин Пауэрс пытается распутать злодейские планы Доктора Зла и Голдмембера, чтобы не только выручить своего отца, но и спасти весь мир от этих злодеев…Жанр: Комедия, Криминал, ПриключенияРежиссер: Джей РоучАктеры: Майк Майерс, Бейонсе Ноулз, Сет Грин, Майкл Йорк, Роберт Вагнер, Мелинда Стерлинг, Верн Тройер, Майкл Кейн, Фред Сэвадж, Дайан МизотаПеревод: ДублированныйПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E292FFF1D41195847FDB7AB3D26DCB9BF08AF5B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545295   (487001) от 09.09.2012
-
-Остин Пауэрс: Шпион, который меня соблазнил / Austin Powers: The Spy Who Shagged Me (1999) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мечтающий о мировом господстве Доктор Зло отправляется назад в свингующие 60-е, чтобы похитить «моджо» плейбоя и суперагента Остина Пауэрса- талисман, гарантирующий ему успех у женщин. Смертельная схватка неизбежна.
- Остин бросается в погоню за своим врагом, чтобы вместе с соблазнительной помощницей Фелицией Трахвелл спасти мир, вернуть свою гиперсексуальность и… успеть домой как раз к чаю…Жанр: Комедия, Криминал, ПриключенияРежиссер: Джей РоучАктеры: Майк Майерс, Хэзер Грэм, Майкл Йорк, Роберт Вагнер, Роб Лоу, Сет Грин, Мелинда Стерлинг, Верн Тройер, Элизабет Херли, Гия КаридесПеревод: ДублированныйПродолжительность: 01:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7C58B468C0D080EA488A390D3632C569C873BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402809   (486905) от 28.08.2020
 
 Другой мир / Underworld (2003) BDRip [H.265/1080p] [10-bit] [TWN Transfer, Theatrical Cut, Open Matte]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486905.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486904.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486895.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486884.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486779.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486755.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486745.jpg" />
 </div>
 
 
@@ -245,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486743.jpg" />
 </div>
 
 
@@ -273,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486715.jpg" />
 </div>
 
 
@@ -300,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486680.jpg" />
 </div>
 
 
@@ -326,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486667.jpg" />
 </div>
 
 
@@ -352,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486639.jpg" />
 </div>
 
 
@@ -378,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486623.jpg" />
 </div>
 
 
@@ -404,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486582.jpg" />
 </div>
 
 
@@ -431,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486581.jpg" />
 </div>
 
 
@@ -457,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486577.jpg" />
 </div>
 
 
@@ -483,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486576.jpg" />
 </div>
 
 
@@ -509,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486575.jpg" />
 </div>
 
 
@@ -535,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486573.jpg" />
 </div>
 
 
@@ -561,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486572.jpg" />
 </div>
 
 
@@ -587,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486566.jpg" />
 </div>
 
 
@@ -613,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486561.jpg" />
 </div>
 
 
@@ -639,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486559.jpg" />
 </div>
 
 
@@ -666,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486477.jpg" />
 </div>
 
 
@@ -677,6 +622,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 237268   (486465) от 18.09.2010
+
+Престиж / The Prestige (2006) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт и Альфред - фокусники-иллюзионисты, которые на рубеже XIX и XX веков соперничали друг с другом в Лондоне. С годами их дружеская конкуренция на профессиональной почве перерастает в настоящую войну.
+
+Они готовы на все, чтобы выведать друг у друга секреты фантастических трюков и сорвать их исполнение. Непримиримая вражда, вспыхнувшая между ними, начинает угрожать жизни окружающих их людей…Жанр: Фэнтези, Триллер, ДрамаРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Майкл Кейн, Пайпер Перабо, Ребекка Холл, Скарлетт Йоханссон, Саманта Мэхурин, Дэвид Боуи, Энди Серкис, Дэниэл ДэвисПеревод: ДублированныйПродолжительность: 02:10:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319243   (486462) от 10.08.2019
+
+Толкин / Tolkien (2019) BDRip [H.264] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина рассказывает о том, как молодой писатель, будучи изгоем во время обучения, находит дружбу, любовь и вдохновение. Фильм затронет участие Толкина в Первой мировой войне - он служил в британских войсках с 1916-го по 1920-й.Производство: США / Fox Searchlight Pictures, Chernin EntertainmentЖанр: драма, военный, биографияРежиссер: Доме КарукоскиАктеры: Николас Холт, Al Bollands, Kallum Tolkien, Крэйг Робертс, Гарри Джилби, Колм Мини, Лаура Доннелли, Гильермо Бедуорд, Ниа Гвин, Пэм ФеррисПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: русские (форсированные, полные x2), английские (полные, SDH)Продолжительность: 01:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDEDAA34FBE9A066EF0A906B4916421AB55CBD10
 ```
 
 https://mybot314.ru/tekegram_catalog/

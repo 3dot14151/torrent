@@ -6,7 +6,7 @@ Windows 11 Manager 1.2.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042341.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PotPlayer 230207 (1.7.21873) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042336.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hard Disk Sentinel Pro 6.10 Build 12918 Final Portable) by FC Portables [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042331.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RAVE CULTURE - Year Mix 2020 (2020-12-25) [MP3|320 Kbps] <Hardstyle, Big Room>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042306.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SPINNIN' - Best Of 2020 Club Mix (2020-12-26) [MP3|320 Kbps] <Electro House, Big
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042295.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ K-Lite Codec Pack Update 15.9.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042289.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Saint Abdullah - In God's Image 2CD, (2020) [FLAC|Lossless|tracks + .cue] <Sound
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042280.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ DirPrintOK 4.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042276.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ HDCleaner 1.323 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042274.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Exif Pilot 5.22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042271.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ HiBit Uninstaller 2.5.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042269.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ CherryTree 0.99.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042267.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Dentures and Demons 2 v1.0.42 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042263.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ HiBit System Information 2.0.25 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042262.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Error Lookup 2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042246.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ qBittorrent 4.3.2 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042239.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ K-Lite Codec Pack 15.9.6 beta Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042235.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Exif Pilot 4.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042231.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ WSCC (Windows System Control Center) 4.0.5.8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042229.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042227.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ WakeMeOnLan 1.87 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042204.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Perfectly Clear WorkBench 4.3.0.2418 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042192.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Trance Compilation Vol. 2 (2023) [MP3|320 Kbps] <Trance, Progressive, Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042190.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042175.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Skype 8.93.0.406 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042166.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Skype 8.93.0.406 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042164.jpg" />
 </div>
 
 

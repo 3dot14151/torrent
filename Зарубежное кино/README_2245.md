@@ -1,57 +1,3 @@
-###  Публикация: 1272089   (18999) от 08.05.2025
-
-Простая просьба / A Simple Favor (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Стефани, мама-блогер из маленького городка, оказывает подруге простую услугу, после чего та бесследно исчезает… Вместе с Шоном, мужем пропавшей, Стефани должна докопаться до истины. Отныне их жизни полны тайн и предательств, любви и верности, убийств и мести.Производство: США / BRON Studios, Feigco EntertainmentЖанр: Триллер, драма, криминал, детективРежиссер: Пол ФигАктеры: Анна Кендрик, Блэйк Лайвли, Генри Голдинг, Эндрю Рэннеллс, Иэн Хо, Джошуа Сатине, Гленда Браганза, Келли МакКормак, Апарна Нанчерла, Джия МавджиПеревод: Дублированный (iTunes)Субтитры: Русские (full), английские (full, SDH)Продолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD779B463627D11DD7C44DCE7906E0D0214DAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 66690   (18985) от 08.05.2025
-
-Тихушники / Sneakers (1992) HDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Веселая компания «шутников» занимается тем, что разъезжает из города в город и тестирует компъютерные системы безопасности на возможность «взлома», и далеко не всегда — с разрешения владельцев этих систем.
-Это настоящие виртуозы программирования, их изобретательность в том, как обмануть защиту и похитить информацию, не знает границ.
-Но дело приобретает серьезный (   Читать дальше...   )Жанр: триллер, комедия, криминал, детектив, приключенияРежиссер: Фил Олден Робинсон / Phil Alden RobinsonВ ролях: Джо Марр, Гаррисон Хершбергер, Роберт Редфорд, Сидни Пуатье, Дэвид Стрэтэйрн, Дэн Эйкройд, Ривер Феникс, Бодхи Элфмэн, Дениз Дауз, Тимоти Басфилд, Эдди Джонс, Тайм Уинтерс, Мэри МакДоннел, Джан Асаи, Донал Лог, Джордж Хирн, Ли Гарлингтон, Джон ШепардСубтитры: Продолжительность: 02:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25CA827AFC2C2349AEF9B89C424398259D2016C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426416   (18979) от 08.05.2025
 
 Нюрнберг / Nuremberg (2000) BDRip [H.264/720p] [MVO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18979.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18976.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18970.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18937.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18895.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18880.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18878.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18875.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18859.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18842.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18833.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18831.jpg" />
 </div>
 
 
@@ -376,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18816.jpg" />
 </div>
 
 
@@ -402,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18814.jpg" />
 </div>
 
 
@@ -428,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18809.jpg" />
 </div>
 
 
@@ -454,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18798.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18781.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18764.jpg" />
 </div>
 
 
@@ -532,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18757.jpg" />
 </div>
 
 
@@ -558,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18726.jpg" />
 </div>
 
 
@@ -584,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18721.jpg" />
 </div>
 
 
@@ -610,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18714.jpg" />
 </div>
 
 
@@ -636,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18708.jpg" />
 </div>
 
 
@@ -662,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18701.jpg" />
 </div>
 
 
@@ -674,6 +620,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1A03F1CF898646D59C14A9B54AC89EA391A16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235834   (18700) от 11.05.2025
+
+Маленькая мисс счастье / Little Miss Sunshine (2006) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олив - маленькая девочка, мечтающая победить на конкурсе «Маленькая мисс Счастье». Ее семья тоже хочет, чтобы мечта Олив осуществилась, но они столь обременены своими собственными причудами, неврозами, и проблемами, что едва могут ей помочь.
+
+Отец Олив, Ричард, почти не общается с дочерью, а лишь поддерживает отношения с ее матерью. Ее дядя Фрэнк, известный ученый, (   Читать дальше...   )Жанр: Комедия, драмаРежиссер: Джонатан Дантон, Валери ФарисВ ролях: Тони Колетт, Эбигайл Бреслин, Грег Кинер, Пол Дано, Алан Аркин, Стив КареллПеревод: Профессиональный (многоголосый), оригиналСубтитры: Русские(2 вида), АнглийскиеПродолжительность: 01:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08C459DB2745DCA0AFD3DBF548853F17454E278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523446   (18699) от 11.05.2025
+
+Опасная правда / Antitrust (2001) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочешь знать правду? Будь готов стать мишенью… Он считал себя везунчиком в то время, как на самом деле находился на краю пропасти. Майло Хоффман, молодой гений-программист, получил престижное место в суперкорпорации мультимедийного магната Гэри Уинстона, этакого Билли Гейтса нового поколения. Перед Хоффманом открылись перспективы роста, герой уже предвкушал блестящую (   Читать дальше...   )Производство: США / Epsilon Motion Pictures, Hyde Park Entertainment, Industry Entertainment, Metro-Goldwyn-Mayer (MGM)Жанр: боевик, триллер, драма, криминалРежиссер: Питер ХауитАктеры: Райан Филипп, Рэйчел Ли Кук, Клэр Форлани, Тим Роббинс, Дуглас МакФерран, Ричард Раундтри, Тай Рунян, Йи Джи Цо, Нат Душку, Нед БелламиПеревод: двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05061ECBF807975CB6E8C2DF623647A60F65E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

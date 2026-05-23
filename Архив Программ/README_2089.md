@@ -6,7 +6,7 @@ Protect My Disk 6.3.0 [english]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89013.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Windows 7 Manager v4.0.4 Final [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88972.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aero Crystal - набор тем для Windows 7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88917.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Waves Complete 9.0 R1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88900.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Windows 7 (x86) Ultimate UralSOFT v.4.6.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88884.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Your Uninstaller! Pro 7.4.2012.05 + Portable by BALISTA [Мульти, Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88869.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ MediaPortal 1.2.3.0 [Русский (оболочка)/Английский (н�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88868.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Dr.WEB CureIt! 6.0 от 15.04.2012 [русский / английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88854.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Microsoft Process Monitor 3.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88790.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 от 15.04.2012 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88761.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Autodesk 3ds Max Design v.2013 (32 bit) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88722.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ MAGIX Video Easy 3 HD 3.0.1.29 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88528.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Real RocketDock by kubunes v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88520.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ IVT BlueSoleil с поддержкой голосового звонка (VOIP) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88519.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ DFX Audio Enhancer 10.137 [Eng + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88469.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Auslogics BoostSpeed 5.2.1.10 Portable by PortableApps [Мульти, Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88444.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Blumenthal Web Builder 2011 11.2.2.131 [Русский, Английский, Н
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88439.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ UltraEdit 18.00.0.1034 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88382.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ uTorrent 3.1.3 Stable (build 27060) [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88375.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88317.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Flash bootable drive от Урода - 7.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88289.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Adobe Flash Player 11.2.202.233 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88252.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Data Flow Accelerator 3.4.2.26 Beta + Portable [русский, английск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88139.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Google Chrome 18.0.1025.162 Stable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88122.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Windows 7x86x64 Professional UralSOFT v.4.3.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88117.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Windows 7 Start Orb Changer 4.0 + 17 кнопок [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88080.jpg" />
 </div>
 
 

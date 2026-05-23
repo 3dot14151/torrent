@@ -7,7 +7,7 @@ True Crime: New York City (2006) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069135.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ True Crime: Dilogy (2004-2006) [En] (1.0/1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069133.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Desperados 2: Cooper's Revenge (2006) [Ru] (1.1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068407.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mob Enforcer / Я, гангстер (2004) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068406.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Just Cause (2006) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068311.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ American McGee presents Bad Day L.A. / Bad Day L.A. (2006) [Ru/En] (1.1.0) Repac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068137.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FlatOut (2004) [Multi] (1.01 Build 14940243) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067856.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ FlatOut 2 (2006) [Multi] (1.2) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067855.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FlatOut: Ultimate Carnage (2008) [Multi] (1.0) Scene TiNYiSO [Collector's Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067834.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Grand Theft Auto: Vice City (2003) [Multi] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067216.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gangland: Trouble in Paradise (2004) [Ru] (1.4) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066972.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064428.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Turok 2: Seeds of Evil (1998) [Multi] (3.0.1336) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063781.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Dune 2000 (1998) [Ru/En] (1.6.7) Repack dixen18 [GruntMods Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063677.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063357.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063356.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Let Them Trade (2025) [Ru/Multi] (1.1.7.9) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063119.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BioShock (2007) [Ru] (Build 11242) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062257.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Max Payne 2: The Fall of Max Payne (2003) [En] (1.01) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060215.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06) Repack 1nomok
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060132.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060094.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060088.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ The Punisher (2005) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059957.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Max Payne (2001) [En] (1.05) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059944.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The Last Express (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059733.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Knights of Honor (2004) [En] (1.05) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059519.jpg" />
 </div>
 
 

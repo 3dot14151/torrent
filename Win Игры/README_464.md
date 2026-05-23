@@ -1,29 +1,3 @@
-###  Публикация: 1750422   (43118) от 19.09.2024
-
-Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack dixen18
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Кират. Кират – крошечная страна, затерянная в Гималаях. В роли Анджая Гейла вам предстоит отправиться туда, чтобы выполнить последнюю волю матери. Но это путешествие не из простых – ведь в Кирате пылает гражданская война. Здесь вам предстоит изучать обширный открытый мир, где опасности поджидают на каждом шагу. Здесь каждое ваше решение будет иметь (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montréal, Ubisoft Shanghai, Red Storm EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4632B52417CA9803258F17F01EEFE1CC2CC3A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750386   (43104) от 19.09.2024
 
 Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
@@ -32,7 +6,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43104.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Scene DOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43099.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Repack FitGirl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43075.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dawn of the Monsters (2022) [Multi] (1.03/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43062.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Repack Fi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43023.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Crysis 3 (2013) [Ru/En] (1.3) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43017.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Subnautica (2018) [Ru/Multi] (71288) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43010.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43006.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ ExoCross (2020) [Multi] (2024.8.30.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42994.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42987.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Toy Tactics (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42982.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ StarCraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42905.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Scourge Of War - Remastered (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42894.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Gunk (2021) [Ru/Multi] (1014.1.6.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42893.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Smells Like a Mushroom (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42885.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42883.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Guns And Draguns (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42870.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Crash Bandicoot - Original Trilogy 3D (2011) [Ru/En] (1.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42860.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42858.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Myths Of Orion: Light From The North (2014) [Ru/Multi] (1.11.7.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42843.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ AMEDAMA (2024) [Multi] (2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42842.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ BAKERU (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42839.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Garden Witch Life (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42814.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Assassin's Creed II (2010) [Ru/Multi] (1.01/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42807.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Anger Foot (2024) [Ru/Multi] (1.46) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42806.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C865D7247F107B09FDC6632172361B6818C5086B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751008   (42805) от 22.09.2024
+
+Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete Season]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую историю в серии Life is Strange от DONTNOD Entertainment. Из-за трагических событий братья Шон и Даниэль Диасы сбегают из дома. Скрываясь от полиции, они обнаруживают у Даниэля телекинетическую способность - умение двигать предметы силой мысли. В поисках убежища братья отправляются в мексиканский городок Пуэрто-Лобос, на родину их отца. На плечи (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E0BB7AAEF76B3F8E0B5E47834D4113523D9991
 ```
 
 https://mybot314.ru/tekegram_catalog/

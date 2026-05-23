@@ -6,7 +6,7 @@ Ummy Video Downloader 1.10.0.0 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682859.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PrivaZer 3.0.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682858.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ TechSmith Camtasia Studio 8.5.2 Build 1999 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682840.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Avant Browser Ultimate 2017 build 07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682814.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe Prelude CC 2017 (v6.1.1) Multilingual Update 3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682804.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FileRestorePlus 3.0.7 Build 512 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682799.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Zoom Player MAX 13.5 Build 1350 Final RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682797.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Complete Internet Repair 5.1.0.3905 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682756.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Nox App Player 6.0.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682737.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mozilla Firefox Quantum 59.0.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682722.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe Acrobat XI (v11.0.11) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682718.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Photoshop CC 2014.2.2 (20141204.r.310) Portable by PortableWares (13.05.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682710.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Notepad++ 7.4.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682659.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682627.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Resource Hacker 4.7.34 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682619.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Sandboxie 5.55.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682506.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ K-Lite Codec Pack Update 16.8.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682497.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Cockos REAPER 6.51 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682496.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Corel VideoStudio Pro X5 15.1.0.34 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682456.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Avira Free Antivirus 15.0.36.163 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682442.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Malwarebytes AdwCleaner 7.1.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682438.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Visual Studio 2017 Community 15.6.7 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682437.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ GIMP 2.10.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682433.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Process Explorer 16.21 Portable by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682383.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Sandboxie plus 1.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682381.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Microsoft Edge 99.0.1150.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682379.jpg" />
 </div>
 
 

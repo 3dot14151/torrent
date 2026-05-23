@@ -1,55 +1,3 @@
-###  Публикация: 1318253   (496174) от 05.08.2019
-
-Гибрид / Crossbreed (2019) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В ближайшем будущем человечество вступило в контакт с инопланетянами, Луна стала обитаемой, но большинство людей продолжают жить на Земле. Эллен Хенриксен, президент Новых Соединенных Штатов Америки, отправляет спецкоманду во главе с Адамом Рикером добыть секретное биологические оружие пришельцев. Объект находится в хорошо защищенном исследовательском центре на орбите (   Читать дальше...   )Производство: США / Jaguar Cinema, Jaguar Motion PicturesЖанр: фантастика, боевик, триллер, комедияРежиссер: Брэндон СлэглиАктеры: Вивика А. Фокс, Дэниэл Болдуин, Билл Фишер, Антуан Ланье, Вернон Уэллс, Джон Т. Вудс, Джейсон МаНил, Му-Шака Бенсон, Брэндон Уильямс, Деванни ПиннПеревод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Английские (Full, SDH)Продолжительность: 01:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9505C45C3B8B2CD0C3DCFFC2D7207AE354706BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936233   (496169) от 11.09.2015
-
-Прогулка с придурками / Mookie (1998) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В один прекрасный день живущий в Мексике монах брат Бенуа нашел на обочине дороги обезьянку-шимпанзе. Муки — не простая обезьяна. Муки умеет играть в баскетбол, понимает человеческую речь и умеет говорить. Ученые хотят исследовать Муки в своих страшных лабораториях. На счастье брата Бенуа и Муки их берет под опеку добрый, но немного туповатый боксер Антуан. Но ему (   Читать дальше...   )Производство: Франция | Canal+, Hop-La Productions, KatharinaЖанр: КомедияРежиссер: Эрве ПалюАктеры: Эрик Кантона, Жак Вильре, Эмильяно Суарес, Карла Ортис, Гарри Портер, Валери Боннетон, Виктор Санчез Рамирез, Мигель Анхель Фуэнтес, Доминик БеснеарПеревод: Многоголосый закадровый, профессиональный (Екатеринбург Арт)Субтитры: ОтсутствуютПродолжительность: 01:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5636FD58932D618E0CD2D668133094DB43498DF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936405   (496163) от 11.09.2015
 
 Курназ – Пять лет жизни / Kurnaz - Fünf Jahre Leben (2013) WEB-DLRip [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496163.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496139.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496138.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496137.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496136.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496130.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496128.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496123.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496119.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496059.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496057.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496054.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496039.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495977.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495937.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495919.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495911.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495886.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495881.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495866.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495843.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495839.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495837.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495805.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B59F6F647C8A27965CBFF4D9031B71D3FA7D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543285   (495802) от 05.09.2012
+
+Истина в вине / Trees Lounge (1996) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томми теряет все — работу, любовь, друзей, в общем, жизнь катится под откос. Единственное место, где он чувствует себя вполне сносно — это небольшой уютный местный бар. Здесь можно просто посидеть, пропуская стаканчик за стаканчиком, и жалеть себя и свою несложившуюся жизнь. Впрочем, Томми все-таки делает попытки вернуться к нормальной жизни, но не так просто найти работу в маленьком провинциальном городке, где все его знают, и порой не с самой лучшей стороны. Совершенно случайно Томми получает место водителя фургончика, развозящего мороженое. Но с этой работой появляется и новая проблема в виде юной и соблазнительной 17-летней девчонки, напросившейся ему в помощницы…Жанр: Драма, КомедияРежиссер: Стив БушемиАктеры: Стив Бушеми, Клоэ Севиньи, Марк Бун Джуниор, Энтони ЛаПалья, Элизабет Бракко, Эстер Балинт, Кэрол Кейн, Дэниэл Болдуин, Мими Роджерс, Деби Мейзар, Сеймур Кэссел, Сэмюэл Л. Джексон, Бронсон Дадли, Майкл Бушеми, Джон Вентимилья, Стивен Рандаззо, Сюзанн Шеперд, Рокетс Редглейр, Джо Лиси, Ричард Боэ, Брук Смит, Карина Финн, Майкл Стормс, Ирма Ст. Пауле, Кевин Корригэн, Аннетт Арнольд, Майкл Империоли, Даниелла Рич, Мэрилин Крис, Виктор Арнольд, Кристин Гилди, Роберта Хэнли, Ларри Джиллиард мл., Люсиан Бушеми, Бьянка Хантер, Чарли Ньюмарк, Катрин НаталиПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB05BCAB966893E03CDBC3B0902DA777A418B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936409   (495764) от 11.09.2015
+
+Ужасы Лох-Несса / Beyond Loch Ness (2008) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Мерфи — отчаянный криптозоолог, кторый тридцать лет назад во время поездки в Лох-Несс, Шотландию, имел фатальное столкновение с легендарным существом «Несси», которое убило его отца и оставило Джеймсу глубокий шрам на лице. Двадцать лет спустя, Джеймс отправляеться на поиски Несси в сонный город Острова Пику, Ашбурн. Джеймс нанимает Джоша Райли как своего (   Читать дальше...   )Производство: СШАЖанр: Ужасы, фантастика, триллер, детективРежиссер: Пол ЗиллерАктеры: Брайан Краузе, Найолл Мэттер, Дон С. Дэвис, Доннелли Роудс, Кэрри Гензел, Эмбер Борицки, Нил Дэнис, Себастьян Гаки, Пол МакДжиллион, Серинда СвонПеревод: Профессиональный многоголосыйПродолжительность: 01:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDA99C27760C642F24DA160A462C2D2DA7ED4FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

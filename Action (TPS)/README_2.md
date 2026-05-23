@@ -6,7 +6,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Wanterlude [Digital Deluxe]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054684.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack dixen18 [Digital Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054649.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack FitGirl [Digital Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054582.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053919.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dead Space (2023) [Ru] (Build 10602756/dlc) Repack HardwareMining [Digital Delux
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053916.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Deadly Premonition (2013) [Multi] (2.1.0.6) License GOG [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052896.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dead Space (2023) [Ru/En] (Build 10602756/dlc) Repack Decepticon [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052562.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack HardwareMining [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052436.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052386.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack seleZen [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052385.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Wanterlude [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052342.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack FitGirl [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052248.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051924.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051870.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Alan Wake Remastered (2021) [Ru/En] (34885/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051758.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051751.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack Let'sРlay [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051682.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051622.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ghost of Tsushima / Призрак Цусимы (2024) [Ru/Multi] (1053.8.1212.1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051376.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051282.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dead Space (2023) [Ru/Multi] (1.1.14.17871/dlc) Repack Let'sРlay [Deluxe]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051009.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Yakuza 3 Remastered (2021) [Ru/Multi] (1.005a) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050940.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Yakuza 4 Remastered (2021) [Ru/Multi] (1.003a) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050939.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Yakuza 0 (2018) [Ru/Multi] (build 4746539) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050797.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3725.0/1.72) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050629.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.95-1/dlc) Repack FitGirl [Final Cu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049665.jpg" />
 </div>
 
 

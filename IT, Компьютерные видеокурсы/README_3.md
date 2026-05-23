@@ -1,107 +1,3 @@
-###  Публикация: 1841312   (1047947) от 10.12.2025
-
-Julia Marketing, Алёна Волкова | Веб-дизайнер сайтов на Tilda 2.0 (2023) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Практический онлайн-курс, который научит создавать и оформлять эффективные и стильные сайты без программирования!Производство: Julia MarketingЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 11:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8069FB85255D84D612A03A83EF654B38D26AEC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841024   (1047729) от 08.12.2025
-
-Специалист, Вячеслав Лохтуров | Linux. Уровень 5. Zabbix. Мониторинг IT инфраструктуры предприятия (2024) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Курс даст вам не просто знания по Zabbix, а готовые решения для бизнеса: вы научитесь предсказывать сбои до того, как они повлияют на клиентов, быстро реагировать на инциденты и автоматизировать рутинные процессы. Освоите построение отказоустойчивых систем и интеграцию мониторинга с DevOps-процессами. Это позволит сократить простои, оптимизировать ресурсы, обеспечить (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 11:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E05E70B461D071C05F303D7F8B026D8155B3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841030   (1047728) от 08.12.2025
-
-Специалист, Вячеслав Лохтуров | Linux. Уровень 6. Создание отказоустойчивых кластерных решений (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе Вы научитесь создавать высоконадежные решения, на основе свободных программных продуктов в операционной системой Linux. Вы сможете плавно мигрировать подключение Вашей сети к Интернет в отказоустойчивую конфигурацию с несколькими шлюзами и распределять нагрузку между несколькими провайдерами. Познакомитесь с решениями Pacemaker/Corosync, позволяющими (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9F7BF9BF7F987BE657112C64D0F7C3EDD820E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841054   (1047727) от 08.12.2025
-
-Специалист, Вячеслав Лохтуров | Linux. Уровень 7. Управление сетью на основе методологии NetDevOps (2024) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самое передовое, дорогостоящее и популярное оборудование уровня connectivity отлично взаимодействует со стабильными, бесплатными и демократичными операционными системам, предоставляющими ему уровень service. Слушатели на практике настроят самые разнообразные варианты такого обоюдовыгодного взаимодействия.Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52385233A3923293D1DC9215DACA6F105B3EB05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840834   (1047596) от 07.12.2025
 
 Дмитрий Зверев | Telegram в онлайн-проекте 2.0 (2025) PCRec [AD] [RU]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047596.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Stepik, Илья Фофанов | Профессия Python-разработчи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047513.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ IT Start, Дмитрий Тарасов | Курс по Python 3 (2024) PCRec [A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047510.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Stepik, Дмитрий Фокеев | Курс по WordPress с нуля до �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047459.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ OTUS, Владимир Елфимов | LLM Driven Development. Разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047006.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ Rush Academy, Евгений Милованцев, Михаил Охотнико
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046800.jpg" />
 </div>
 
 
@@ -269,7 +165,7 @@ Stepik, Василий Еремин | 1С программирование дл�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046777.jpg" />
 </div>
 
 
@@ -295,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046775.jpg" />
 </div>
 
 
@@ -321,7 +217,7 @@ OTUS, Сергей Потамошнев, Артем Павлов |  Rust Develop
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046559.jpg" />
 </div>
 
 
@@ -349,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046558.jpg" />
 </div>
 
 
@@ -375,7 +271,7 @@ N.E.C.O, Sergey Dragunov | Курс по созданию приложения "
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046381.jpg" />
 </div>
 
 
@@ -402,7 +298,7 @@ Devtodev, Александр Болотников | Разработка HTML5 �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046308.jpg" />
 </div>
 
 
@@ -431,7 +327,7 @@ Amigoscode, Nelson Djalo | Java Master Class (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046247.jpg" />
 </div>
 
 
@@ -457,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045343.jpg" />
 </div>
 
 
@@ -483,7 +379,7 @@ Udemy, Дмитрий Фокеев | Верстка и создание веб �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045338.jpg" />
 </div>
 
 
@@ -512,7 +408,7 @@ Slurm (Слёрм), Леонид Крутовский | Python-разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045247.jpg" />
 </div>
 
 
@@ -538,7 +434,7 @@ Udemy, Bogdan Stashchuk | Git - Курс по Git и GitHub (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044777.jpg" />
 </div>
 
 
@@ -564,7 +460,7 @@ CodeBreakers, Анна Радзиевская и др. | Создавайте в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044280.jpg" />
 </div>
 
 
@@ -593,7 +489,7 @@ Slurm (Слёрм), Виктор Попов, Ирина Блажина | Без�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044108.jpg" />
 </div>
 
 
@@ -619,7 +515,7 @@ Thinknetica Pro, Кирилл Храпков | Продвинутый Git (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043985.jpg" />
 </div>
 
 
@@ -648,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043881.jpg" />
 </div>
 
 
@@ -676,7 +572,7 @@ Udemy, Rob Baker | Pro Unreal Engine Game Coding (2022) PCRec [EN, RU / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043875.jpg" />
 </div>
 
 
@@ -688,6 +584,118 @@ Udemy, Rob Baker | Pro Unreal Engine Game Coding (2022) PCRec [EN, RU / EN Sub]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEADBF118307CA3BD8EC6B4D612B098D9FCB466C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607727   (1043869) от 27.01.2023
+
+Владилен Минин | Docker Практикум (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как правильно использовать Docker для разработки?
+Не важно кто вы: frontend или backend разработчик, но когда вы закончили локальную разработку приложения и хотите показать его людям, возникает вопрос: "А как правильно это сделать?"
+Разумеется это могут сделать за вас, однако чем шире вы понимаете как технологии связаны между собой, чем подробней вы понимаете (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:42:48Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1388EABAEFC527CFB01207B8C3F6D501957079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607775   (1043778) от 28.01.2023
+
+Курсы-по-1С.РФ, Евгений Гилев | Подготовка к Аттестации 1С:Специалист-Консультант по производству и ремонтам в 1С:ERP 2.5 (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите центральную функцию флагманского продукта 1С и получите весомый сертификат, который реально поднимет Ваш профессиональный статус.
+В курсе рассмотрены следующие темы:НСИ и ввод остатков.
+Нормативная система.
+Планирование производства.(   Читать дальше...   )Производство: Курсы-по-1С.РФЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:49:11Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518E2729359969615EC53EAD52362FFE644ADF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608045   (1043679) от 29.01.2023
+
+Udemy, Dzianis Matveyenka | Shell and Bash Scripting Beginner's Guide (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для успешного прохождения этого курса необходимо всего лишь:
+- базовое понимание и опыт работы с Unix operating systems
+- основы алгоритмизации и программирования
+Другими словами говоря, этот курс рассчитан на людей практически с нуля.(   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA194FADFD0669B9B9B352AD09F503AB88847BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566823   (1043576) от 30.01.2023
+
+Udemy, Dzianis Matveyenka | Maven (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс является продолжением курса "HTTP. Servlets" Курс Apache Maven содержит информацию про инструмент автоматизированной сборки проектов, который полностью отвечает за жизненный цикл Java приложений. Зайдем в исходный код Apache Maven, чтобы понять основное ядро его, которым на самом деле являются плагины. Более того, мы сами попробуем написать (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBF0360E04373C4607C4E66FA0996D98D1F0EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

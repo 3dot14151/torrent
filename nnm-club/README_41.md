@@ -1,58 +1,3 @@
-###  Публикация: 1870454   (1069126) от 
-
-State of Flux - Stasis (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Identity Crisis (01:46)
- 02. In Flux (07:12)
- 03. Fabric Torn (07:12)
- 04. Behind the Veil (07:14)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B9B8D7FED2EAF4165CE99ECBF422EA27A6DC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870437   (1069125) от 
-
-Приключения Робин Гуда / The Adventures of Robin Hood (1938) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Пока король Ричард Львиное Сердце находится в крестовом походе, его брат принц Джон захватывает трон и начинает обирать собственный народ. Сэр Робин Локсли восстает против вероломного узурпатора и селится в Шервудском лесу. Заручившись поддержкой своих верных приспешников, он начинает грабить богатеев под сенью крон и раздавать их деньги беднякам.Производство: США / Warner Bros.Жанр: боевик, мелодрама, приключенияРежиссер: Майкл Кёртиц, Уильям КилиАктеры: Эррол Флинн, Оливия Де Хэвилленд, Бэзил Рэтбоун, Клод Рейнс, Патрик Ноулз, Юджин Пэллет, Алан Хейл, Мелвилл Купер, Иэн Хантер, Уна О’КоннорПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69087F4B927A0C159160336479DA74750A984648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870258   (1069124) от 
 
 MotoGP. Этап 05 из 22. Гран-при Франции. Гонка (10.05.2026) WEBRip [H.264/1080p] [50fps]
@@ -61,7 +6,7 @@ MotoGP. Этап 05 из 22. Гран-при Франции. Гонка (10.05.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069124.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069123.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ Browser Tamer 5.6.9 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069122.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ Black Label Society - Engines Of Demolition (2026) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069121.jpg" />
 </div>
 
 
@@ -170,7 +115,7 @@ Fast Video Cutter Joiner 7.1.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069120.jpg" />
 </div>
 
 
@@ -196,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069119.jpg" />
 </div>
 
 
@@ -222,7 +167,7 @@ Crimson Glory - Chasing The Hydra (2026) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069118.jpg" />
 </div>
 
 
@@ -251,7 +196,7 @@ OTUS, Илья Сикорский и др. | Unreal Engine Game Developer C++. B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069117.jpg" />
 </div>
 
 
@@ -277,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069115.jpg" />
 </div>
 
 
@@ -303,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069114.jpg" />
 </div>
 
 
@@ -329,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069113.jpg" />
 </div>
 
 
@@ -357,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069112.jpg" />
 </div>
 
 
@@ -383,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069111.jpg" />
 </div>
 
 
@@ -409,7 +354,7 @@ Carrion Vael - Slay Utterly (2026) [FLAC|Lossless|image + .cue] <Death Metal, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069110.jpg" />
 </div>
 
 
@@ -438,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069109.jpg" />
 </div>
 
 
@@ -466,7 +411,7 @@ Watchdog Anti-Malware Premium / Business 4.4.1 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069108.jpg" />
 </div>
 
 
@@ -495,7 +440,7 @@ VectorStyler 1.3.017 RePack [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069107.jpg" />
 </div>
 
 
@@ -524,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069106.jpg" />
 </div>
 
 
@@ -550,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069105.jpg" />
 </div>
 
 
@@ -577,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069104.jpg" />
 </div>
 
 
@@ -603,7 +548,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai Returns | Изобрази отв�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069103.jpg" />
 </div>
 
 
@@ -629,7 +574,7 @@ Elfen Lied | Эльфийская песнь [2004, TV 13 эп. + SP] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069102.jpg" />
 </div>
 
 
@@ -655,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069101.jpg" />
 </div>
 
 
@@ -681,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069100.jpg" />
 </div>
 
 
@@ -692,6 +637,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668F4BAC8DE74526E41A5C89476C75B1CE7DAD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870458   (1069099) от 
+
+YouTube канал "green lamp public domain" - Старые Зарубежные Фильмы (1903-1968) WEBRip [H.264]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "green lamp public domain" / UCFcI8lexe5s0eNfRxxFKvZA по состоянию на февраль 2020 года.
+
+Канал "green lamp public domain" был открыт в 2015 году, удалён 19 августа 2021 года.
+За 6 лет было опубликовано около 550 фильмов, большую часть из которых удалось сохранить для данной раздачи.Производство: СШАЖанр: история, драма, комедия, немое киноЯзык озвучки: Английский, русский, немое киноСубтитры: Английские интертитры, русские встроенныеПродолжительность: 403:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7CE7E898992750E80217317DD855CBD0184F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869872   (1069098) от 
+
+Брошенный / Neglected (2025) Telecine [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069098.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свой первый официальный день на пенсии детектив Шоу оказывается втянут в самый страшный кошмар своей жизни. В участок приходит окровавленный подросток Эй-Джей и делает шокирующее признание: он заживо похоронил сына Шоу. Пока кислород в тайной могиле стремительно заканчивается, бывший детектив вынужден вновь погрузиться в расследование серии жестоких убийств.Производство: США / Latigo FilmsCali, Wood Pictures, BondIt Media CapitalЖанр: боевик, криминал, триллер, детективРежиссер: Дэвид ЛипперАктеры: Джош Дюамель, Елена Санчес, Дилан Спроус, Тиль Швайгер, Кипп Трайббл, Дэвид Липпер, Корбин Питтс, Джереми Лондон, Джейсон Лондон, Кристин УоллеттПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:03Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCE43C686F6B1F50BE56FFEF543E1D0902094E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

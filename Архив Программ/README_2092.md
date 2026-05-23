@@ -6,7 +6,7 @@ Wise Disk Cleaner v7.18 build 475 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86704.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ uTorrent 3.1.3 Stable (build 26994) [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86703.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PrintFolders 2.51 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86578.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ WINDOZA FAN USB  [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86476.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Glass-Folders RocketDock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86451.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Free for commercial use WPI by q1q1 1.0 (февраль 2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86426.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BitTorrent 7.6.1 Build 26993 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86314.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ KMPlayer 3.2.0.19 Final RePack (& portable) by Diakov [Русский, Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86270.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Windows7 Максимальная AUZsoft Yellow+miniWPI x64 v.10.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86259.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Kuba Windows 7 themepack + Rocketdock by kubines 1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86233.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Uniblue PowerSuite 2012 3.0.6.6 Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86207.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Nvidia-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86206.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ CyberLink MediaShow Ultra 6 0 3914 [Multi без русского]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86203.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Kaspersky World 1.3.3.95 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86192.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ My7CustoBox 1.3.0 [Французский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86180.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ The Longhorn Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86165.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86155.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ AnvSoft Photo Flash Maker Platinum 5.45 Portable by Valx [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86153.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86149.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Windows 7 SP1 x86 x64 WPI By StartSoft v 17.4.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86045.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Freeware WPI by q1q1 x64 Edition 1.0 (04/2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86010.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ MyLanViewer 4.9.11 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86006.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Volko Audio - Volko Alaturka Drum v1.1 by ASSiGN (VST)[английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85984.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ SAM CoDeC Pack & SAM DeCoDeR Pack 2012 v4.05 Final[Best]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85885.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ WPI for Windows 7 v27.03.2012 by UZEF (2012/Rus) v27.03.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85844.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85835.jpg" />
 </div>
 
 

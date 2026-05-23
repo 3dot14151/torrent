@@ -1,55 +1,3 @@
-###  Публикация: 231314   (261519) от 25.11.2025
-
-И твою маму тоже / Y tu mama tambien (2001) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Наступили долгожданные каникулы, и теперь закадычные друзья Хулио и Теноч могут оттянуться от души! Жаль только, что их подруги смылись на курорт, бросив своих кавалеров в пыльном городе. Вскоре уставшие от безделья парни оказываются на крутой вечеринке, где знакомятся с дальней родственницей Теноча Луизой. Недолго думая, они в шутку предлагают ей вместе отправиться (   Читать дальше...   )Жанр: Комедия, драмаРежиссер: Альфонсо Куарон / Alfonso CuarónАктеры: Марибель Верду , Диего Луна , Гаэль Гарсия Берналь , Натан Гринбер , Вероника Ленджер , Мария Аура , Жизелль Одри , Артуро Риос , Андрес Альмейда , Диана БрашоСубтитры: Русские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8503EBB5DC334AE1FF7E9A82CF733AAB6EDC2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800504   (261513) от 25.11.2025
-
-Ночи в стиле буги / Boogie Nights (1997) BDRemux [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в конце 70-х в Америке, в годы так называемой сексуальной революции. Немолодой режиссер Джек Хорнер (Берт Рейнолдс), занимающийся съемками порнофильмов, в ресторане примечает семнадцатилетнего парня, мойщика посуды Эдди, который может подойти для его работы. Честолюбивого юношу (Марк Уолберг) природа щедро наделила такими исключительными (   Читать дальше...   )Производство: США / Ghoulardi Film CompanyЖанр: ДрамаРежиссер: Пол Томас АндерсонАктеры: Марк Уолберг, Джулиан Мур, Берт Рейнолдс, Джон С. Рейли, Уильям Х. Мэйси, Дон Чидл, Хизер Грэм, Филип Сеймур Хоффман, Альфред Молина, Луис Гузман, Мелора Уолтерс, Томас Джейн, Нина Хартли, Вероника Харт, Энн ФлетчерПеревод: Многоголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F3B93990E12C0FC527F91EF3AE5574CEB7D062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838850   (261509) от 25.11.2025
 
 Большой Стэн / Big Stan (2007) BDRip [H.265/1080p] [10 bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261509.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261508.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261506.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261488.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261486.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261384.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261347.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261268.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261035.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261002.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260980.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260930.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260798.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260719.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260681.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260605.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260593.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260590.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260357.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260152.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260091.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260086.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260062.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260060.jpg" />
 </div>
 
 
@@ -668,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8BF6BC22C5FF5B5E3B38CDABE5A93C2E585FCE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838377   (260056) от 22.11.2025
+
+Искусственный разум / Artificial Intelligence: AI (2001) BDRip [AV1/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем мире вырвавшегося из-под контроля глобального потепления и пугающих достижений науки, смертные живут бок о бок с удивительными и сложными роботами. Но когда продвинутый прототип робота-ребенка по имени Дэвид программируется на проявление бескорыстной любви, члены его человеческой семьи оказываются неготовыми к последствиям такого чувства.
+ Неожиданно Дэвид (   Читать дальше...   )Производство: США, Великобритания / Warner Bros., DreamWorks, Amblin EntertainmentЖанр: фантастика, драма, приключенияРежиссер: Стивен СпилбергАктеры: Хейли Джоэл Осмент, Джуд Лоу, Фрэнсис О’Коннор, Сэм Робардс, Джейк Томас, Уильям Хёрт, Кен Люн, Кларк Грегг, Кевин Сассмэн, Том ГэллопПеревод: Авторский (Ю. Живов)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE67C87BA44CAB250C4AB8119A0114C6C6C3C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377998   (260049) от 22.11.2025
+
+Тебя никогда здесь не было / You Were Never Really Here (2017) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пропала белокурая девочка-подросток. Есть все основания полагать, что её похитили, и теперь она работает в борделе для малолетних. Отец девочки, крупный политик, нанимает бывшего агента ФБР, чтобы отыскать и спасти единственную дочь. У отставного военного, следующего кодексу чести, эта задача не вызывает сложностей, он спасает ребенка. Вызволив девочку из рабства, (   Читать дальше...   )Производство: Великобритания, Франция, США / Why Not Productions, Film4, British Film Institute (BFI) Production BoardЖанр: триллер, драма, детектив, криминалРежиссер: Линн РэмсиАктеры: Хоакин Феникс, Данте Перейра-Олсон, Винисиус Дамассено, Нео Рэндолл, Джудит Анна Робертс, Фрэнк Пандо, Джон Доумен, Эдвард Лэтэм, Алекс Манетт, Клер СюйПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90558D9D16E6F27F177D15D86AFD3B9625D22D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

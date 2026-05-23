@@ -1,29 +1,3 @@
-###  Публикация: 1340859   (263181) от 25.11.2019
-
-The Lift (2018) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Макс - хамоватый подросток и разгильдяй. Нехватка денег вынуждает его разносить пиццу. Во время доставки очередного заказа Макс ссорится с матерью. Квартира, куда нужно доставить заказ находится на 13 этаже.Тип издания: RepackРазработчик: Bulls BrosЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341083   (262781) от 26.11.2019
 
 Heavy Rain (2019) [Ru/Multi] (1.0/build 362) Repack Other s
@@ -32,7 +6,7 @@ Heavy Rain (2019) [Ru/Multi] (1.0/build 362) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262781.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mind: Path to Thalamus (2015) [Ru/Multi] (1.1) License PLAZA [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262198.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262154.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262010.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Granny Remake (2023) [Ru/Multi] (3.6.3) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261694.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261553.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Radiolight (2025) [Multi] (0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261515.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261511.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Nostradamus: The Last Prophecy / Нострадамус: Последнее пр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261502.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261442.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0hf4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260759.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259905.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Still Life 1, 2 (2005-2009) [Ru/En] (1.00) Repack R.G. Catalyst [Dilogy / Дил
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259509.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Nancy Drew: Legend of the Crystal Skull / Нэнси Дрю: Легенда о �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258408.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257932.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257746.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257626.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Entomorph: Plague of the Darkfall [En] (RePack) 1995 | RG Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257272.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256796.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ DE-EXIT - Eternal Matters (2023) [Ru/Multi] (1.0.23.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256787.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Agatha Christie - Death on the Nile / Агата Кристи - Смерть н�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256766.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256755.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Knock On The Window (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256745.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256641.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Lumo (2016) [Ru/Multi] (2.4.0.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256638.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Lumo, волшебный платформер повышенной степен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EB6B44363DBB0C7F831703C04E068EBB99C8D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560081   (256617) от 15.11.2025
+
+The Stillness of the Wind (2019) [Ru/Multi] (1.1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один за другим все уехали из некогда людной деревни в город. Все, кроме Тальмы. На склоне лет она ведет простую уединенную жизнь, день за днем ухаживая за своим хозяйством и козами. Распоряжайтесь своим временем и решайте, как вы будете заботиться о ферме и животных. Ухаживайте за козами, варите сыр из их молока, собирайте яйца, готовьте еду, выращивайте овощи и (   Читать дальше...   )Тип издания: LicenseРазработчик: Memory of God, Lambic StudiosЖанр: ПриключениеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7824570115AECAA95523B9DA6BC81CF48CB5A99
 ```
 
 https://mybot314.ru/tekegram_catalog/

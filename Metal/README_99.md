@@ -6,7 +6,7 @@ Rammstein - Mein Herz Brennt (2012) [MP3|320 кб/с]<Industrial>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216673.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Communic - Hiding from the World (2020) [MP3|320 Kbps] <Progressive Metal, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215136.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Royal Hunt - Dystopia, Pt. 2 (2022) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214696.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ WolfeBlitzer - Lonely World (2007) [MP3|192 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214669.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Zed Yago - Pirates From Hеll (2010) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214526.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Devin Townsend - Lightwork / Nightwork (2022) Deluxe Edition [MP3|320 Kbps] <Pro
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213998.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Signs Preyer - Mammoth Disorder (2015) [MP3|320 Kbps] <Groove Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213825.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Shores of Null - Black Drapes for Tomorrow (2017) [MP3|320 Kbps] <Melodic Black,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213799.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Shores of Null - The Loss of Beauty (2023) [MP3|320 Kbps] <Melodic Black, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213717.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213705.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Vanta - Empire On Fire (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213698.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Shores of Null - Quiet Whispers (Unplugged at Traffic Garden) (2021) Live albom 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213694.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Legion Of The Damned - The Poison Chalice (2023) [MP3|320 Kbps] <Death-Thrash-Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211763.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Imminent Reign - The Legend of Prometheus (2023) [MP3|320 Kbps] <Epic Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211575.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mechina - 3 Albums (2021-2023) [MP3|320 Kbps] <Epic, Symphonic, Industrial, Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210806.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ ScreaMachine - Church of the Scream (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209710.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Adrian Benegas - The Revenant (2019) Japanese Edition [MP3|320 Kbps] <Melodic He
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209299.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adrian Benegas - Arcanvm - El mantra secreto de los espíritus (2023) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209266.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Coventrate - Roots of all Evil (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208186.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Sargon - In Contempt (2011) [MP3|320 Kbps] <Thrash, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205463.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Sea of Dreams - Dawn of Time (1996) [MP3|320 Kbps] <Melodic Progressive, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205459.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Rideout - Driven To Insanity (2023) [MP3|320 Kbps] <Progressive Hard, Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205456.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Sea of Dreams - Land of Flames (1998) [MP3|320 Kbps] <Melodic Progressive, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205441.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Disturbed - Divisive (2022) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205123.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Wonders - Beyond the Mirage (2023) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205115.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Wonders - The Fragments of Wonder (2021) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205110.jpg" />
 </div>
 
 

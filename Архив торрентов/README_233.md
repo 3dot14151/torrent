@@ -6,7 +6,7 @@ Nox App Player 6.6.0.0014 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003144.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OCCT 5.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003129.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003125.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IP-TV Player 49.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003121.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WeNote v2.46 [Ru/Multi] - заметки, задачи, напоминания �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003115.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ford против Ferrari / Ford v Ferrari (2019) DVDScr [MVO]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003111.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003085.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Caelum Audio - Flux Mini 1.1.5 VST3, AAX (x64/x86) RePack by FLARE [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003068.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Edge 92.0.902.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003066.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ K-Lite Codec Pack Update 16.3.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003065.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ProcessKO 5.56 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003042.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Nicky Romero - Live @ Protocol X ADE Label Night, Melkweg Amsterdam, Netherlands
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003025.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ SPINNIN' - Best Of 2019 House Mix (2019-12-27) [MP3|320 Kbps] <House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003015.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ SPINNIN' - 2020 Future Hits (2019-12-30) [MP3|320 Kbps] <Progressive House, Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003003.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Reasonandu - Zephyr (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Psychill, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002989.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ GoaD - Hypnotic Mirage (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002987.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Chillout And Ambient Pieces (2012) [FLAC|Lossless|WEB-DL|tracks] <Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002980.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Chill Me Softly (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Psychill, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002975.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Glary Utilities Pro 5.135.0.161 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002967.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002962.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ JRiver Media Center 26.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002941.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Light Image Resizer 6.0.0.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002939.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Ummy Video Downloader 1.10.7.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002913.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Ford против Ferrari / Ford v Ferrari (2019) DVDScr [H.264/1080p-LQ] [MVO] 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002881.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002875.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Krita 4.4.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002802.jpg" />
 </div>
 
 

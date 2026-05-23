@@ -6,7 +6,7 @@ PullTube 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233653.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TweakNow WinSecret Plus! 4.7.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233652.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BatchOutput PDF 2.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233651.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Ghost Buster Pro 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233650.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ WonderPen 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233646.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Emurasoft EmEditor Professional 22.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233645.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ TweakNow WinSecret Plus! 4.9.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233641.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Find Any File (FAF) 2.3.2 b7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233640.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VideoSolo Video Converter Ultimate 2.3.12 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233639.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Duplicate Photos Fixer Pro 4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233637.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ NIUBI Partition Editor 9.6.3 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233633.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Cardhop 2.0.7 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233631.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ AAF DCH Optimus Sound 6.2329.9403 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233625.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ TG Pro (Temperature Gauge Pro) 2.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233624.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Permute 3 v.3.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233623.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Fort Firewall 3.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233622.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ AmanVPN 2.1.9.0513 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233621.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ FastStone Capture 10.1 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233620.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ WSCC (Windows System Control Center) 7.0.6.3 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233619.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Opera One 100.0.4815.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233618.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233616.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Phase One Capture One 23 Enterprise 16.2.0.1367 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233605.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ X Icon Changer - Change Icons 4.2.7 Mod by Citrus, PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233603.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ One Switch 1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233600.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ NIUBI Partition Editor 9.6.3 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233598.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Wondershare PDFelement 9.5.12.2329 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233596.jpg" />
 </div>
 
 

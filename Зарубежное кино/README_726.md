@@ -1,55 +1,3 @@
-###  Публикация: 1525184   (733530) от 04.02.2022
-
-Миссис Даутфайр / Mrs. Doubtfire (1993) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Неприятности сыплются на Дэниеля Хиларда, как из рога изобилия: он теряет работу, от него уходит жена и после развода ему позволено видеть детей всего раз в неделю! Но Дэниель находит выход — переодевается в женское платье и становится Миссис Даутфайр — пожилой женщиной. Он нанимается к собственной жене в домработницы, и теперь может видеть своих детей каждый день. (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Blue WolfЖанр: драма, комедия, семейныйРежиссер: Крис КоламбусАктеры: Робин Уильямс, Салли Филд, Пирс Броснан, Харви Файерстин, Полли Холлидей, Лиза Якуб, Мэттью Лоуренс, Мара Уилсон, Роберт Проски, Энн ХейниПеревод: дублированный, многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 02:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1AC413BD14570716F3E4FB6803B7D37F981520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525005   (733518) от 04.02.2022
-
-Мистериум. Журнал 64 / Journal 64 (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Детектив копенгагенской полиции Карл Мерк и его помощник Ассад обнаруживают в заброшенной квартире три мумифицированных трупа. Тела рассажены за обеденным столом, где стоит еще один стул. Расследование приводит Карла к женской клинике на необитаемом острове, в которой проводились жестокие экспериментыПроизводство: Дания, Германия / Zentropa Entertainments, Det Danske Filminstitut, Deutscher Filmförderfonds (DFFF)Жанр: Криминал, Детектив, ТриллерРежиссер: Кристоффер БоэАктеры: Фарес Фарес, Николай Ли Каас, Николас Бро, Андерс Хове, Эллиотт Кроссет Хов, Андерс Юль, Сёрен Пильмарк, Diem Camille Gbogou, Фанни Борнедал, Вибеке ХаструпПеревод: Дублированный (Лицензия Blu-ray RUS)Язык озвучки: Русский, ДатскийСубтитры: Русские (форсированные, полные), английские, датскиеПродолжительность: 01:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D62CF4FC108DE798B7C2A5827874B5B4407AAFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525153   (733513) от 04.02.2022
 
 Честный вор / Honest Thief (2020) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733513.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733501.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733484.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733481.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733478.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733389.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733349.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733348.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733345.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733342.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733341.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733339.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733338.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733308.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733304.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733297.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733295.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733288.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733267.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733264.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733259.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733257.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733256.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733153.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D210FDBBFF2BBF5FBC6BE1BDF02A3DD7543ECE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525423   (733121) от 05.02.2022
+
+32-е августа на Земле / Un 32 aout sur terre / August 32nd on Earth (1998) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая женщина по имени Симон попадает в опасную автокатастрофу. Чудом оставшись невредимой, она переосмысливает жизнь, оставляет работу и решает завести ребенка. На роль отца девушка выбирает своего лучшего друга Филиппа. Он соглашается, но при условии, что зачатие произойдет в пустыне в Солт-Лейк Сити. Это путешествие преподаст им много важных уроков о любви, (   Читать дальше...   )Производство: Канада, Max Films ProductionsЖанр: Драма, мелодрамаРежиссер: Дени ВильнёвАктеры: Паскаль Бюссьер, Серж Терио, Иван Смит, Алексис Мартен, Фредерик Дезаже, Эстель Эссе, Жоанн Коте, Эвелин Ромпре, Эммануэль Билодо, Р. Крэйг КостинПеревод: Многоголосый профессиональный (Omskbird records)Субтитры: Русские, английскиеПродолжительность: 01:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3B568B9133C4C3A8A665415FA680657A81004A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789457   (733116) от 24.05.2014
+
+Ограбление по-итальянски / The Italian Job (2003)  BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ограбив банк, банда Чарли Крокера пытается скрыться с места преступления, ведь в их руках находится банковский сейф, до отказа набитый золотом. Но уйти от преследования полицейских на улицах Лос-Анджелеса – задача не из легких. Первая же пробка положит конец погоне. Но грабители позаботились об этом заранее, на всем пути их следования горит зеленый свет и машины (   Читать дальше...   )Жанр: Криминал, Триллер, БоевикРежиссер: Ф. Гари Грэй / F. Gari GreyАктеры: Марк Уолберг, Шарлиз Терон, Дональд Сазерленд, Джейсон Стэтхэм, Сет Грин, Мос Деф, Эдвард Нортон, Фаусто Каллегарини, Стефано Петронелли, Фабио Скарпа, Cristiano Bonora, Tiberio Greco, Джимми Шуберт, Tammi Cubilette, Mary Portser, Шоун Фаннинг, Кристофер Мур мл., Terrelle Jones, Valentine Ebunilo, Joel Homan, Эрик УолкерПеревод: Авторский (одноголосый, закадровый):Субтитры: Русские (SRT/UTF-8)Продолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784168D621F9C3547C745AE4EE84DED2BA0681D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Auslogics BoostSpeed 13.0.0.7 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57960.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StartAllBack 3.7.9 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57958.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Video AI 5.0.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57954.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fast Screen Recorder 2.0.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57943.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DVDFab StreamFab 6.1.7.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57935.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ High-Logic FontCreator Professional 15.0.0.2974 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57931.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ n-Track Studio Suite 10.1.0.8642 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57928.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Icecream Screen Recorder Pro 7.40 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57927.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Icecream Screen Recorder Pro 7.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57918.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Perfectly Clear WorkBench 4.6.1.2658 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57916.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Auslogics BoostSpeed 13.0.0.7 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57910.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft  Visual C++ Runtimes AIO v0.82.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57908.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Auslogics BoostSpeed 13.0.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57882.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Premiere Pro 2024 24.3.0.59 (x64) Portable by 7997 [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57881.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Punto Switcher 4.5.0 Build 576 RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57876.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.40.33810.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57872.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ MAGIX Video Pro X16 22.0.1.215 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57868.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Topaz Gigapixel AI 7.1.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57867.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Psiphon 3 build 183 (01.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57865.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ CyberLink PowerDirector Ultimate 22.4.2829.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57860.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ SQL Dynamite 2.5.2.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57856.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ R-Studio Network 9.4 Build 191310 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57855.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Auslogics Windows Slimmer 4.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57854.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Auslogics Driver Updater 1.26.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57852.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Topaz Video AI 5.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57846.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ GPU Shark II 2.3.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57843.jpg" />
 </div>
 
 

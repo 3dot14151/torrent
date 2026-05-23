@@ -6,7 +6,7 @@ Internet Download Manager 6.27 Build 1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280261.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nvidia DriverPack v.441.12 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280194.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Tor Browser Bundle 9.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280188.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Xplorer2 Ultimate 4.3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280181.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Foundry MODO 902 Bulid 100509 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280171.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AIMP 4.12 Build 1873 RC + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280162.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Movavi Video Editor Plus 14.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280128.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280122.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Uninstall Tool 3.5.4 Build 5566 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280119.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Movavi Video Editor 14 Plus 14.1.1 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280114.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ SoftMaker Office Professional 2018 rev 972.1023 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280065.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Movavi Video Editor Plus 20.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280059.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Comodo Internet Security Premium 10.0.2.6420 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280002.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Avira Phantom VPN Pro 2.29.1.28212 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279968.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ IObit Driver Booster Pro 7.1.0.533 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279956.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adobe Character Animator CC 2017 1.0.5.141 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279892.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Webcam Surveyor 3.5.0 Build 1028 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279885.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ uTorrent 3.5.0 Build 44294 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279881.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Adobe After Effects CC 2017.0 14.0.1.5 RePack by D!akov (10.12.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279801.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279460.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ O&O DiskImage Professional + Workstation + Server Edition 14.0 Build 307 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279411.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Cockos - REAPER 5.963 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279408.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ BestReminder v2018.11.13.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279407.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ DMG Audio – Plugins Bundle  (2018.11) VST, VST3, AAX, RTAS (x86/x64) RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279403.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Adobe components: Flash Player 31.0.0.153 + AIR 31.0.0.96 + Shockwave Player 12.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279401.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Uninstall Tool 3.5.7 Build 5610 RePack (& Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279353.jpg" />
 </div>
 
 

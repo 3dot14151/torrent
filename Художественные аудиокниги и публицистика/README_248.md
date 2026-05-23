@@ -1,83 +1,3 @@
-###  Публикация: 304189   (861422) от 04.03.2011
-
-Слава Сэ | Сантехник, его кот, жена и другие подробности (2011) [MP3, Семен Мендельсон]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-О мужчинах, женщинах, детях, котах, хомяках, работе, творчестве, семейных проблемах, одиночестве пишет в своем "Живом журнале", на основе которого издана книга, популярный блогер Слава Сэ — пишет легко, иронично, избегая идеализации и не опускаясь до пошлостей. Пишет автор не о себе: повествование ведется от имени сантехника, воспитывающего двух буйных (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4571CFD4D2DD789DCA9406E57EB7FA55F7FCC698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497963   (861366) от 24.09.2021
-
-Меган Миранда | Девушка из Уидоу-Хиллз (2021) [MP3, Юлия Бочанова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Все знают историю о девушке из Уидоу-Хиллз. Арден было шесть, когда ее, блуждающую ночью во сне, смыло грозой и унесло в систему труб под городом. Тогда вся страна с замиранием сердца следила за продолжавшейся три дня спасательной операцией. Теперь Арден зовут Оливия. Сменив имя и разорвав все связи, она живет в небольшом доме на окраине, и больше всего боится, что (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EB27245BD9423E98220277EB24871E0EA1FBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497965   (861364) от 24.09.2021
-
-Меган Миранда | Последняя гостья (2021) [MP3, Юлия Бочанова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Всю свою жизнь Эйвери провела в крохотном городке Литтлпорт, в Мэне. И кто бы мог подумать, что ей суждено подружиться с Сэди, состоятельная семья которой владеет почти всем Литтпортом.
-
-Каждое лето Сэди приезжает в Мэн, и долгие годы девушки – не разлей вода… До того вечера, как тело Сэди находят под обрывом. Поначалу все кажется очевидным – суицид. Однако, чем (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0170805C9CA898CDFED41BF8AF5358CFACA3971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497972   (861362) от 24.09.2021
 
 Ясмина Сапфир | Помощница декана демона (2021) [MP3, Тамара Некрасова]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861362.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861358.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861351.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861257.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861247.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861185.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861080.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860980.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860808.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860804.jpg" />
 </div>
 
 
@@ -355,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860763.jpg" />
 </div>
 
 
@@ -381,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860573.jpg" />
 </div>
 
 
@@ -407,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860569.jpg" />
 </div>
 
 
@@ -433,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860487.jpg" />
 </div>
 
 
@@ -459,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860273.jpg" />
 </div>
 
 
@@ -485,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860255.jpg" />
 </div>
 
 
@@ -513,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860147.jpg" />
 </div>
 
 
@@ -539,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860072.jpg" />
 </div>
 
 
@@ -566,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859992.jpg" />
 </div>
 
 
@@ -595,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859983.jpg" />
 </div>
 
 
@@ -622,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859978.jpg" />
 </div>
 
 
@@ -648,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859976.jpg" />
 </div>
 
 
@@ -674,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859773.jpg" />
 </div>
 
 
@@ -686,6 +606,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91670AAB8B20F408A16CD56AEC11DBAA42E48D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498102   (859767) от 25.09.2021
+
+Наталья Лирник | Тонкий тающий след (2021) [MP3, Евгений Бидненко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она отказалась от своего дара, чтобы обеспечить благополучие близких. Но жизнь не прощает подобных жертв: взамен таланта у нее появился порок, заставляющий жить в вечном страхе разоблачения.
+
+Судьбы героев причудливо переплетаются, пока каждый из них ищет свой путь к счастью. Как сохранить самое главное, когда близкие уходят навсегда, любимые лишают поддержки, а (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A50B898E71F205E07F21763168A57180BBF55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498178   (859287) от 25.09.2021
+
+Андрей Васильев | Файролл (Книга 13). Петля судеб. Том 1 (2021) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никому не нравится, когда все идет кувырком, но когда подобное происходит раз за разом, то к такому положению дел потихоньку привыкаешь. Вот и игрок Хейген вроде привык к хаосу, тот стал привычной частью его жизни. И все бы ничего, вот только обновление, сотрясшее основы Файролла, снова все поменяло, и не в лучшую сторону. Да и вне игры его существование особо легким (   Читать дальше...   )Жанр: Боевое фэнтези, героическое фэнтези, LitRPGПродолжительность: 13:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75148D7490815856F11E37EA0CF182E89DD1A634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109233   (859148) от 27.02.2017
+
+Патрик Квентин | Зеленоглазое чудовище (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напряженная криминальная интрига, динамизм сюжета, яркость, колоритность и психологичность образов - все это, присуще роману "Зеленоглазое чудовище" Патрика Квентина, американского писателя, мастера психологического детектива.
+Эндрю Джордан после смерти жены, находясь под подозрением полиции, пытается выяснить, кто убил его жену и кому это было выгодно...Жанр: ДетективПродолжительность: 07:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9B72FCBBC6C25B3102C1C034AE828B289BC94F
 ```
 
 https://mybot314.ru/tekegram_catalog/

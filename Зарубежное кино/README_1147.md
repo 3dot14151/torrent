@@ -1,55 +1,3 @@
-###  Публикация: 1403557   (480652) от 31.08.2020
-
-Солнце / Solis (2018) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Очнувшись, Трой Холлоуэй осознает, что находится в шаттле, направляющемся в сторону солнца. Командир Робертс вместе с командой уже мчится ему на помощь, однако Холлоуэй после недавней потери сына не особо жаждет спасения. Тем не менее командир не позволяет ему спокойно ждать смерти и всячески поддерживает его с помощью слабой радиосвязи, полный решимости вытащить (   Читать дальше...   )Производство: Великобритания, Goldfinch Studios, Premiere Picture, Strathie FilmЖанр: Фантастика, драмаРежиссер: Carl StrathieАктеры: Стивен Огг, Элис Лоу, Сид Феникс, Генри Даутуэйт, Кейт Куган, Шарлетт Килби, Jonathan CallowayПеревод: Многоголосый профессиональный (iTunes)Субтитры: Английские (srt)Продолжительность: 01:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEC2CDE672DA96BEB46C0D72B91BE4FE5C48895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405736   (480644) от 31.08.2020
-
-Пока свадьба не разлучит нас / Hasta que la boda nos separe (2020) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Марину все устраивает: любимая работа, яркие вечеринки с друзьями, отношения без обязательств. Все меняется, когда она встречает мужчину своей мечты. Но есть всего одна проблема — он собирается жениться на ее лучшей подруге…Производство: Испания, Atresmedia Cine, Álamo Producciones AudiovisualesЖанр: Мелодрама, комедияРежиссер: Дани де ла ОрденАктеры: Белен Куэста, Алехандро Гарсия, Сильвия Алонсо, Антонио Дечент, Мариам Эрнандес, Грасия Олайо, Сальва Реина, Ricardo Castella, Jorge Ponce, Эрнесто СевильяПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Forced)Продолжительность: 01:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEFC32384CA640D2F3428770E30C76BE31BF556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319448   (480616) от 13.08.2019
 
 Все пути ведут в Доннибрук / Donnybrook (2018) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480616.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480614.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480606.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480605.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480600.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480592.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480485.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480484.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480439.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480344.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ WAZ: Камера пыток / W Delta z (2007) DVD5
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480303.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480287.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480285.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480244.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480227.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480199.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480193.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480173.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480169.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480161.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480157.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480127.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480125.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479962.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4F9F68B041004759ECB0AE3D8FD23300DC9F121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160015   (479933) от 22.08.2017
+
+Эго / Ego (2013) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для 25-летнего Себастьяна жизнь — это сплошная череда вечеринок с друзьями, знакомств со случайными подружками и необременительных занятий музыкой. Он не ставит перед собой цель сделать музыкальную карьеру или найти настоящую любовь. Все изменилось, когда он попал в аварию и ослеп. Именно тогда выяснилось, кто есть кто в его окружении. ..Производство: ШвецияЖанр: ДрамаРежиссер: Лиза Джеймс-ЛарссонАктеры: Мартин Вальстрём, Милен Хедреуль, Сиселла Кайл, Петер Андерссон, Эмиль Йонсен, Кристоффер Свенссон, Джонатан Родригез, Йорген Торссон, Ричард УльфзэтерПеревод: Любительский одноголосый (PashaUp)Субтитры: ОтсутствуютПродолжительность: 01:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A278A4FD9B14075318773958FC5322E39B187F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546042   (479909) от 12.09.2012
+
+Сладкий секс и любовь / Sweet Sex and Love (2003) DVDRip [KOR / RU Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Син-А - современная женщина свободная духом. Дон-Ки - молодой мужчина в бесконечном поиске нового и волнующего. Они неожиданно встречаются, и ординарная ночь перерастает в нечто незабываемое. Порвав со своим парнем, Син-А решает встретиться с Дон-Ки снова, который позвал ее разогнать тоску после их первой страстной встречи. Двое безумно влюблены, и их роман только начинается. Но как коротка жизнь романа, основанного на горячем и жарком сексе? Или паре удастся найти что-то стоящее?Жанр: ДрамаРежиссер: Man-dae Bong / Пон Ман-ДэАктеры: Seo-hyeong Kim (Ким Со-Хён) - Jo Shin-a (Чжо Син-А), Seong-su Kim (Ким Сон-Су) - Dong-ki (Дон-Ки)Перевод: ОтсутствуетЯзык субтитров: РусскиеПродолжительность: 01:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2B1E8D43FF18C9B6537A08F3D70C9D6A44BF99
 ```
 
 https://mybot314.ru/tekegram_catalog/

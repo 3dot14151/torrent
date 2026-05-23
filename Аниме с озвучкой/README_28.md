@@ -6,7 +6,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575543.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rean no Tsubasa | The Wings of Rean | Крылья Рин [2005, ONA, 6 эп.] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575542.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивител
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575541.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575540.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gekijouban Hunter x Hunter: Phantom Rouge / Охотник х Охотник (ф
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574778.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Isshuukan Friends / One Week Friends / Друзья на неделю [2014, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571688.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sasameki Koto / Whispered Words / Я тихо прошепчу [2009, TV, 13 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571214.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570878.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567911.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Маги�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567788.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] BDRip 400p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566563.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Soul Link | Связь душ [2006, TV, 12 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562985.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Chirin no Suzu | Ringing Bell | Колокольчик Чирина [1978, Movie
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562983.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Yume de Aetara | If I See You in My Dreams | Увидеть тебя в моих
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562981.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562171.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Tetsuwan Birdy Decode: The Cipher | Birdy the Mighty Decode: The Cipher | Мог
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561159.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Tetsuwan Birdy Decode:02 | Birdy the Mighty: Decode | Могучая Берди 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561158.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Shin Kimagure Orange Road: Soshite, Ano Natsu no Hajimari | Новые капр�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561157.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Kidou Senshi Gundam 0080: Pocket no Naka no Sensou | Mobile Suit Gundam 0080: Wa
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561156.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Megazone 23 | Мегазона 23 [1985-1989, OVA, 4 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561155.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Tetsuwan Birdy Decode | Birdy the Mighty Decode | Могучая Берди [Т�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561153.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Lost Universe / Затерянная Вселенная [1998, TV, 26 из 26] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561149.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель вол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560711.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557217.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556161.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554283.jpg" />
 </div>
 
 

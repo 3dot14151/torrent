@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132258.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TechSmith Snagit 2024.0.2 build 909 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132257.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Total Commander 11.02 Final - Titan v32 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132216.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Corona Renderer 11.0 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132214.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GeoGebra 4.9.82 Beta [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132176.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132173.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Opera GX 104.0.4944.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132089.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Dropbox 1.6.11 Stable [Multilingual]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132068.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ RegCool 1.348 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132059.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Master PDF Editor 5.9.80 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132045.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microsoft PowerToys 0.76.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132041.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cyberlink ColorDirector Ultra 12.0.3523.11 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132034.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132033.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Zentimo xStorage Manager 1.7.1.1224 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132032.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ CyberLink AudioDirector Ultra 14.0.3523.11 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132023.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132021.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132019.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ AIMP 5.30 Build 2531 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132013.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ AIMP 5.30 Build 2531 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132007.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AIMP 5.30 Build 2530 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132005.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ CrystalDiskInfo 9.2.1 + Portable (Shizuku Edition & Kurei Kei Edition) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131989.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131983.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131973.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.1 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131969.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.2 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131955.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ MeeSoft Diagram Designer 1.25 + Samples [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131942.jpg" />
 </div>
 
 

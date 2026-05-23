@@ -6,7 +6,7 @@ Download Master 6.17.3.1621 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631555.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Secure Eraser Pro 5.102 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631552.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631547.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Loaris Trojan Remover 3.0.83.218 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631543.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WAVDSP - Magic Suite 1.0.0  VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631534.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PDFsam Basic 4.2.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631523.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VidCoder 2.53 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631490.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wing IDE Professional 5.1.4 [Multi/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631405.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Wondershare Filmora 9.1.1.0 (x64) Repack by elchupacabra (05.04.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631385.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Topaz A.I. Gigapixel 4.0.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631381.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ HiBit System Information 2.0.35 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631369.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ R-Drive Image System Recovery Media Creator 7.0 Build 7003 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631363.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sprint-Layout 6.0 DC 09.02.2022 RePack by NikZayatS2018 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631361.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Display Driver Uninstaller 17.0.6.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631354.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AusLogics BoostSpeed 9.1.4.0 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631353.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ CleanMyPC 1.8.7.915 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631351.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631348.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ YouTube Video Downloader PRO 5.8.4 (20170619) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631344.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Process Lasso Pro 9.0.0.360 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631343.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631278.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Adobe Flash Professional CC 2015 15.0.0.173 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631272.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adobe InDesign CC 2015 11.0.072 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631263.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Uniblue DriverScanner 2015 4.0.14.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631260.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Adobe Media Encoder CC 2015 9.0.0.222 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631257.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe Illustrator CC 2015 19.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631256.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631249.jpg" />
 </div>
 
 

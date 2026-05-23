@@ -6,7 +6,7 @@ PeaZip 6.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565048.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BitTorrent Pro 7.9.8 Build 42502 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565046.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinTools.net Premium 17.7.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565038.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MKVToolNix 14.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565033.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Paint.NET 4.0.17 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565030.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sumatra PDF 3.4.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565003.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Maxthon Browser 6.1.3.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565000.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Download Master 5.13.1 Build 1315 Final RePack (& Portable) by D!akov [Multi/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564810.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Panda Free Antivirus 2017 17.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564756.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ GridinSoft Anti-Malware 3.0.51 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564753.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sumatra PDF 3.2.10551 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564749.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Comodo IceDragon 13.0.3.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564717.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ uTorrent Pro 3.4.8 Build 42501 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564672.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Avidemux 2.6.13 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564669.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Zemana AntiMalware Premium 2.21.2.465 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564667.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564664.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Photoshop Lightroom CC 2015.12 (6.12) Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564640.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Citrio 44.0.2403.262 (4792.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564601.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ ArcSoft Perfect365 1.8.0.1 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564592.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Kaspersky Password Manager 5.0.0.166 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564588.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Mem Reduct 3.1.1454 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564574.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mac OS X Transformation Pack 4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564562.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ JetBrains ReSharper Ultimate 2016.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564557.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ IOBit Uninstaller 5.0.1.163 beta 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564544.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Bitdefender AntiVirus Plus 2015 19.1.0.114 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564540.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ PrivaZer 2.35.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564538.jpg" />
 </div>
 
 

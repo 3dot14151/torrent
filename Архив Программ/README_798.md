@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644403.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics BoostSpeed 12.2.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644393.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ashampoo Burning Studio 18.0.6.29 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644350.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Flash Player 26.0.0.126 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644348.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MusicBee 3.0.6335 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644347.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Opera 45.0.2552.898 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644343.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PowerISO 6.9 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644341.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Total Commander 9.22a Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644324.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ashampoo Burning Studio 18.0.6.29 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644264.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CCleaner 5.31.6105 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644252.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mozilla Firefox 54.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644251.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The KMPlayer 4.2.2.63 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644250.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CCleaner 5.31.6105 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644188.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NVIDIA PhysX System Software 9.17.0524 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644182.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Windows 10 Professional 10.0.15063.0 Version 1703 (Updated March 2017) [v.Specia
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644175.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ DAEMON Tools Lite 10.5.1.232 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644170.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ XMedia Recode 3.3.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644025.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Mozilla Firefox 48.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643912.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Google Chrome 11.0.696.77 Stable [Многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643721.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Junkware Removal Tool 6.9.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643706.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe AIR 18.0.0.144 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643580.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Slimjet 4.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643571.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Any Video Converter Ultimate 5.9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643568.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Phase One Capture One PRO 7.1.3 Build 18560 (x64) (18-06-2013) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643561.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Boilsoft Video Joiner 8.01.1 RePack & Portable by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643535.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643533.jpg" />
 </div>
 
 

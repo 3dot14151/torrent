@@ -6,7 +6,7 @@ Serif Affinity Publisher 1.10.5.1342 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650238.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Boris FX Mocha Pro 2022 v9.0.2 Build 197 (Adobe, OFX, Standalone)  [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650210.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Serif Affinity Designer 1.10.5.1342 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650206.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NeoPaint 5.3.0 RePack by 78Sergey + Portable by Dinis124 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647131.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wondershare DVD Slideshow Builder Deluxe 6.7.1 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642638.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PhotoInstrument 7.6 Build 902 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640511.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SmartDeblur 2.3 PRO Portable by CheshireCat [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637155.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SmartDeblur 2.3 PRO RePack (& Portable) by Trovel [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637152.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AKVIS Plugins Pack 2019.01 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633091.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Magic Particles 3D 3.34 Portable by NobyuCoz [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628172.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ RonyaSoft Poster Designer 2.3.14 RePack (& Portable) by ZVSRus [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625363.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PicturesToExe Deluxe 8.0.16 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623700.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_619466.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AutoDWG DWGSee Pro 2017 4.43 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618623.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CorelDRAW Graphics Suite 2022 v24.0.0.301 (x64) Portable by FC Portables [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614343.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mister Retro - Machine Wash Deluxe 2.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607941.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Pano2VR 5.0.1 Pro [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604464.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Flaming Pear Flood 2.0.8 [Ru] x86-x64
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603532.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602609.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Blumentals Screensaver Factory Enterprise 7.3.0.68 RePack by вовава [Multi
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596157.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Photo Stamp Remover 8.3 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583109.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ PrintSeal Studio 2 Build 120 Portable by warezo [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581644.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nevercenter CameraBag Pro 2022.2.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570236.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PictureCode Noise Ninja 2.4.2 for Photoshop (x32/x64) [Английский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_569973.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Ashampoo Photo Optimizer 9 9.0.0.17 Portable by rsloadNET [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561383.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Easy GIF Animator Pro 7.3.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557960.jpg" />
 </div>
 
 

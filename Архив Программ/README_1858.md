@@ -6,7 +6,7 @@ AIDA64 Extreme Edition 6.92.6616 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EssentialPIM Pro 11.7.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172087.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Glarysoft Malware Hunter PRO 1.173.0.791 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172082.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Calibre 6.29.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172080.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Fort Firewall 3.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172070.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ DNS Changer 2.1.11 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172068.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Process Lasso Pro 12.4.1.10 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172059.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Serif Affinity Publisher 2.2.1.2075 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172057.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ LDPlayer 9.0.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172055.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Soft Organizer Pro 9.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172054.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Universal USB Installer 2.0.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172053.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows Firewall Control 6.9.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172046.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Serif Affinity Photo 2.2.1.2075 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172044.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ONLYOFFICE 7.5.0.127 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172041.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Topaz Photo AI 2.0.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172037.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Serif Affinity Designer 2.2.1.2075 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172035.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows 10 Manager 3.8.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172033.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Internet Download Manager 6.41 Build 22 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172031.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Blender 3.6.5 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172029.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Bizagi Modeler 4.0.0.096 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172027.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Adobe Character Animator 2024 24.0.0.46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172019.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Internet Download Manager 6.41 Build 22 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172011.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ AnyDesk 8.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172010.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ CCleaner 6.17.10746 Technician Edition (x64) + CCEnhancer Portable by FC Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172007.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Adobe After Effects 2024 24.0.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172001.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VMware Workstation Player 17.5.0 Build 22583795 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171984.jpg" />
 </div>
 
 

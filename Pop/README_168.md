@@ -6,7 +6,7 @@ Carly Rae Jepsen - Dedicated (2019) [MP3|320 Kbps] <Pop, Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579326.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Carly Rae Jepsen - Dedicated (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579325.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Italo Disco Party, Vol. 1 (2019) [MP3|320 Kbps] <Italo-Disco, Europop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579319.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ MONATIK (Монатик) - LOVE IT ритм (2019) [MP3|320 Kbps] <Dance-Pop, R&
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579135.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Bravo Hits 117 (2022) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Pop, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578799.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Songs Sunny Italy (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578782.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - NRJ Total Hits 2015 (2CD)[FLAC|track+.cue]<Pop, Hip Hop, Eurodance, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578770.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Tamar Kaprelian - 3 альбома и 1 сингл (2009-2015) Дискогра�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578742.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Zucchero - Spirito Di Vino (1995) [FLAC|Lossless]<Pop-Rock-Blues>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578453.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sandra Van Nieuwland - Breaking New Ground (2015) [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578441.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Eddie Drennon & The B.B.S. Unlimited - 2 Albums (1975, 1977) LP [MP3|320 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578121.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Supercharge - Body Rhythm (1979) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578031.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Romantic Serenade (2001) [MP3|320 Kbps] <Pop, Vocal, Easy Listening>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578013.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Metropolis (Original Motion Picture Soundtrack) (1984) By Giorgio Moroder [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577891.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Amen 78 - Финифть (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Pop, 
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577879.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - ZYX Italo Disco Spacesynth Collection 8 (2022) 2CD, Compilation [MP3|320 Kb
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577601.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Ed Sheeran - = (Tour Edition) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acousti
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577492.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Легендарные песни - Коллекция (гр. Форум 20
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577378.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kebekelektrik - Kebekelektrik (1977) Reissue, 2003, Unidisc [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576541.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Melanie C - Northern Star (2000) [FLAC|Lossless]<Pop, Pop Rock, Dance Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576529.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Die Hit Giganten Best Of 2000er (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576316.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - New Hit 2019 (Vol.2) (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576313.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576212.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Andrea True Connection - 2 Hit Albums (1976, 1977) [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576207.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ VA - Ретро FM представляет: Русская, Зарубежна�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576192.jpg" />
 </div>
 
 
@@ -764,7 +764,7 @@ VA - Speech №3-Новогодний бал (1994) [FLAC|Lossless|image + .cue]
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576190.jpg" />
 </div>
 
 

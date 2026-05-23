@@ -1,87 +1,3 @@
-###  Публикация: 1780493   (70468) от 18.02.2025
-
-Алексей Иванов | Ёбург (2023) [MP3, Олег Булгак]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Города Ёбурга нет на карте. В Советском Союзе был город Свердловск, в России он превратился в Екатеринбург, а Ёбург — промежуточная стадия между советской и российской формациями.
-
-В книге Алексея Иванова сто новелл о Екатеринбурге на сломе истории: сюжеты о реальных людях, которые не сдавались обстоятельствам и упрямо строили будущее. Эпоха перемен порождала героев (   Читать дальше...   )Жанр: публицистика, современная прозаИздательство: ЭвербукПродолжительность: 13:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78DD809DF7F356156042F57F7B0EFD7E3CCBAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780367   (70462) от 18.02.2025
-
-Шарлотта Бронте | Джейн Эйр (2020) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет культовую аудиокнигу знаменитой английской писательницы Шарлотты Бронте (1816–1855) «Джейн Эйр»  классику женской литературы.
-Впервые роман был опубликован в 1847 году в Лондоне и сразу же после публикации книга заслужила большую любовь читателей и хорошие отзывы критиков. Книга переведена на большинство языков мира. Выдержала многомиллионные (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: МедиаКнигаПродолжительность: 11:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D41B9528BC574D6169BEC892DACE392FE596A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780370   (70461) от 18.02.2025
-
-Шарлотта Бронте | Шерли (2022) [MP3, Станислав Иванов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика (АСТ).
-Шарлотта Бронте (1816–1855) – английская писательница, старшая из трёх сестёр Бронте.
-Самый, пожалуй, «остросюжетный» роман Шарлотты Бронте.
-Роман, тонко сочетающий в себе классические «готические» мотивы – с мотивами, условно говоря, классически «детективными».(   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Инесса Метлицкая, Дарья Целовальникова, Елена ПарахневичИздательство: Аудиокнига (АСТ)Продолжительность: 22:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A0ADA0A7818345E9408A1B0AB1140FCAA83784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780382   (70458) от 18.02.2025
 
 Сагит Шварц  | Гербарий (Книга 3). С тех пор как ты ушла (2025) [MP3, Юлия Тархова]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70458.jpg" />
 </div>
 
 
@@ -116,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70436.jpg" />
 </div>
 
 
@@ -144,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70435.jpg" />
 </div>
 
 
@@ -171,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70434.jpg" />
 </div>
 
 
@@ -200,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70432.jpg" />
 </div>
 
 
@@ -229,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70430.jpg" />
 </div>
 
 
@@ -258,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70399.jpg" />
 </div>
 
 
@@ -287,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70388.jpg" />
 </div>
 
 
@@ -314,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70371.jpg" />
 </div>
 
 
@@ -341,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70368.jpg" />
 </div>
 
 
@@ -370,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70367.jpg" />
 </div>
 
 
@@ -398,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70338.jpg" />
 </div>
 
 
@@ -426,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70332.jpg" />
 </div>
 
 
@@ -454,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70331.jpg" />
 </div>
 
 
@@ -480,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70330.jpg" />
 </div>
 
 
@@ -507,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70326.jpg" />
 </div>
 
 
@@ -535,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70294.jpg" />
 </div>
 
 
@@ -561,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70293.jpg" />
 </div>
 
 
@@ -587,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70289.jpg" />
 </div>
 
 
@@ -614,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70279.jpg" />
 </div>
 
 
@@ -640,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70278.jpg" />
 </div>
 
 
@@ -666,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70277.jpg" />
 </div>
 
 
@@ -693,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70268.jpg" />
 </div>
 
 
@@ -704,6 +620,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D87322DCEC5E588B96340F694CF4AFD69354A041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781310   (70254) от 22.02.2025
+
+Кейт Элизабет Расселл | Моя тёмная Ванесса (2021) [MP3, Мариэтта Цигаль-Полищук]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ванессе было пятнадцать, когда у неё случился роман с сорокадвухлетним учителем литературы мистером Стрейном. Сейчас ей тридцать два и их связывают тёплые дружеские отношения. Когда одна из бывших учениц обвиняет Стрейна в домогательствах и призывает открыться всех, кто знал преподавателя с этой стороны, Ванесса оказывается перед мучительным выбором: молчать, отказываясь (   Читать дальше...   )Жанр: психологическая проза, современная зарубежная литература, триллерыПеревод: Любовь КарцивадзеИздательство: СиндбадПродолжительность: 12:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D69813CE1A1816B2CEC824B1DBC5B1A1F1457C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781196   (70244) от 22.02.2025
+
+Александр Козачинский | Зелёный фургон (2022) [MP3, Александр Воробьёв]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Владимирович Козачинский (1903–1943) – русский советский писатель.
+«Зеленый фургон» – повесть Александра Казачинского. Сюжет основан на реальных событиях, прототипами главных героев были Александр Козачинский и Евгений Петров, известный как соавтор книг «Двенадцать стульев» и «Золотой телёнок».
+Действие его происходит в послереволюционной Одессе и её окрестностях. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ИДДКПродолжительность: 02:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE2916F1ECAB62CD76FA612F41792756EA2907D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781406   (70218) от 23.02.2025
+
+Валерий Шарапов | Контрразведка (Книга 8). Сезон свинцовых туч (2024) [MP3, Юрий Несговоров]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1979 год. В одном из латиноамериканских государств действует просоветское правительство. Это не устраивает американские спецслужбы. Они тайно готовят политический переворот, искусственно накаляя обстановку в стране. При невыясненных обстоятельствах погибает начальник охраны советского посольства, затем уходят на сторону секретные данные нашей дипмиссии… Для выявления (   Читать дальше...   )Жанр: Шпионские детективыИздательство: ЭксмоПродолжительность: 07:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4F8B3A4DB8EB28E9146248D47485AA791C1734
 ```
 
 https://mybot314.ru/tekegram_catalog/

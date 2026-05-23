@@ -1,30 +1,3 @@
-###  Публикация: 497912   (517123) от 21.08.2015
-
-BBC: Ноев Ковчег - реальная история / BBC: Noah`s Ark-The Real Story (2004) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Всем известна старая библейская легенда о Ное, чей ковчег, по описанию лишь слегка уступающий размерами Титанику, принял на борт семью Ноя и по паре всех живых земных созданий, чтобы спасти их от великого потопа.
-Но действительно ли это лишь легенда, или подобное происходило на самом деле? В данной программе мы рассмотрим множество версий, фактов и вымыслов, прямо (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD598FD6BA49B708E0ABF4A6299CC18F262A8881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314780   (516763) от 16.07.2019
 
 BBC. Планеты / The Planets (2019) BDRemux [H.264/1080i] (сезон 1, серии 1-5 из 5)
@@ -33,7 +6,7 @@ BBC. Планеты / The Planets (2019) BDRemux [H.264/1080i] (сезон 1, с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516763.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ BBC. Мир природы. Королева морских дьяволов / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514815.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ BBC. Horizon: Питание, голодание и долголетие / Eat, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513263.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Do You See What I Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512272.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511439.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ BBC: Грязные города. Революционный Париж [час�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510458.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ BBC. В краю муссонов: Засуха / Wonders of the Monsoon: The Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510039.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ BBC. Империя Смерти / Empair of Death (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504684.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ BBC: Грязные города. Индустриальный Нью-Йорк [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504589.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ BBC: Мир природы: Полярные медведи и гризли на
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504534.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504113.jpg" />
 </div>
 
 
@@ -320,7 +293,7 @@ BBC. Горизонт. 10 вещей, которые мы должны знат�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504037.jpg" />
 </div>
 
 
@@ -346,7 +319,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTV [H.264/108
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503207.jpg" />
 </div>
 
 
@@ -372,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503205.jpg" />
 </div>
 
 
@@ -398,7 +371,7 @@ BBC: Еда будущего / Tomorrow's Food (2015) HDTVRip [H.264/720p-LQ] (3
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494200.jpg" />
 </div>
 
 
@@ -424,7 +397,7 @@ BBC:Стюарты в изгнании / BBC:The Stuarts in Exile (2015) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494199.jpg" />
 </div>
 
 
@@ -450,7 +423,7 @@ BBC: Неизвестные викинги. Под парусами дракка
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493759.jpg" />
 </div>
 
 
@@ -476,7 +449,7 @@ BBC: Вся правда о красоте / The Truth About Looking Good (2018)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492522.jpg" />
 </div>
 
 
@@ -502,7 +475,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492513.jpg" />
 </div>
 
 
@@ -528,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492288.jpg" />
 </div>
 
 
@@ -554,7 +527,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490599.jpg" />
 </div>
 
 
@@ -580,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490175.jpg" />
 </div>
 
 
@@ -606,7 +579,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487736.jpg" />
 </div>
 
 
@@ -632,7 +605,7 @@ BBC. Лицо человека (4-х серийный) / The Human Face (2001) D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487455.jpg" />
 </div>
 
 
@@ -658,7 +631,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487449.jpg" />
 </div>
 
 
@@ -669,6 +642,32 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2964E607585363824F0F31A1F584F8711BDE1BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055801   (483770) от 24.09.2016
+
+BBC: Нюрнбергский процесс. Нацистские преступники на скамье подсудимых / Nuremberg: Nazis on Trial (2006) SATRip (3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Связав воедино повествование и драматическую реконструкцию событий, документальный сериал рассказывает о трех ключевых фигурах нацистской Германии: Германе Геринге, Альберте Шпеере и Рудольфе Гессе. Обширные архивные документы из Европы и Америки, ранее неопубликованные материалы, включающие показания самих заключенных, возрождают на экране фигуры военных преступников. (   Читать дальше...   )Телекомпания: Великобритания, США, BBC, Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:58 + 00:57:16 + 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E6B8C03017800C1D436DBAE596F7252DE52309
 ```
 
 https://mybot314.ru/tekegram_catalog/

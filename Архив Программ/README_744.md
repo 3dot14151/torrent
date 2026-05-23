@@ -6,7 +6,7 @@ Auslogics Driver Updater 1.20.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FileZilla 3.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673811.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Norton Security 22.7.0.76 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673803.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Norton 360 22.7.0.76 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673801.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Red Giant Trapcode Suite 15.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673723.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Reg Organizer 8.28 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673721.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ EZ CD Audio Converter 8.2.2.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673717.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ CorelDRAW Graphics Suite 2019 21.0.0.593 Retail + Content [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673711.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Adobe Illustrator CC 2019 23.0.3.585 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673707.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Techsmith Snagit 13.0.1 Build 6326 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673678.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ cFosSpeed 10.14 Build 2274 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673670.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windows 10 Manager 1.1.5 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673669.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Skype 7.25.32.106 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673665.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Hotspot Shield Elite 5.20.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673599.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Adobe Audition CC 2015.2 9.2.0.191 Release RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673597.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ WhatsApp 0.2.1061 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673594.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Sandboxie 5.12 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673592.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Norton Internet Security 22.7.0.76 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673588.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Piriform CCleaner Professional Plus 5.19.5633 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673536.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Adobe Media Encoder CC 2015.3 10.3.0.185 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673534.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ ACDSee Ultimate 9.3 Build 673 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673532.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mozilla Firefox 38.0.5 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673364.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ GOM Player 2.1.26.5021 Beta [Multi + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_673349.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Icecream Screen Recorder PRO 5.50 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673291.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Notepad++ 6.7.8.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673275.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Rowbyte Plexus 3.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673200.jpg" />
 </div>
 
 

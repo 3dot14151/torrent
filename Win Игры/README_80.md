@@ -1,29 +1,3 @@
-###  Публикация: 1088975   (954945) от 01.01.2017
-
-Timber! The Logging Experts (2016) [En/De] (1.0) License PROPHET
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Timber! The Logging Experts — симулятор лесозаготовок.Тип издания: LicenseРазработчик: Stonehill GamesЖанр: Simulator, 3DЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0EFA3CA32A9A2399B1E5DED9687469B680AB033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088894   (954920) от 01.01.2017
 
 Disoriented (2016) [En] (1.0) Repack Other s
@@ -32,7 +6,7 @@ Disoriented (2016) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954920.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Walking Dead: Season Two (2013) [Ru/En] (1.0.0.1) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954735.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Walking Dead: Season One (2012) [Ru/En] (1.0.0.26/dlc) Repack R.G. Меха�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954726.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ King's Quest (2015) [Ru/En] (1.0) Repack R.G. Механики [Chapter 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954721.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Brutal Legend [En/Multi5] (L) 2013 | RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954695.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Beast of Lycan Isle / Зверь Острова Оборотней (2013) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954220.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ F.E.A.R. 2: Reborn / F.E.A.R. 2: Возрождённый [Ru] (RePack) 2010 | U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953799.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (ph3 update/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953654.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Pixel Puzzles Ultimate (2016) [En] (1.11.0.220) License PROPHET
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953303.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953215.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Colin McRae Rally Remastered (2014) [Multi] (1.0) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953195.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Stronghold Crusader 2 (2014) [Ru/Multi] (1.0.22689/dlc) SteamRip Let'sPlay [Spec
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953189.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Gratuitous Space Battles + 8 DLC [En] (Steam-Rip/1.62) 2009 | R.G. Игрома�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953133.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ Space Robinson: Hardcore Roguelike Action (2019) [Ru/Multi] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952020.jpg" />
 </div>
 
 
@@ -404,7 +378,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951992.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951981.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.03B) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951975.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ Hypersensitive Bob (2016) [En] (1291928) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951704.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951661.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Haunted Legends 8: The Iron Mask / Ожившие легенды 8: Железн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951643.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ Cursed (2016) [Ru/Multi] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951604.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ SOMA (2015) [Ru/Multi] (1.102) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951585.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ A New Beginning - Final Cut (2011) [Ru/Multi] (2.0.3.0395) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951516.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ Men of War: Red Tide / Чёрные бушлаты (2009) [En] (1.00.0) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951489.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ Curse of Anabelle (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950458.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ Curse of Anabelle — новый взгляд на приключения в ж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28E2198E113674454EB6165702E53E6E037CB9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624579   (950348) от 01.03.2013
+
+Costume Quest + 1 DLC [Ru] (Repack/1.0.0.11) 2013 | Fenixx
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Costume Quest — это приключение на тему Хеллоуина от компании Tim Schafer's Double Fine Productions. В этой чарующей ролевой игре, вы сможете выбрать своего героя и попробовать повыпрашивать сладости на трех чудесных локациях, которые полны забавным юмором и интересными историями. Пройдите все квесты, созовите друзей и соберите все костюмы на протяжении вашего пути, которые позволят вам стать понастоящему могущественными войнами против зла в республике Repugia. Эта героическая воскресная сказка поразит воображение детей и тех, кто еще в душе ребенок. (   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46A239E0523524C7C57DB2996050EA84436E6FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

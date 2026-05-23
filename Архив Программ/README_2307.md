@@ -6,7 +6,7 @@ GeoGebra 6.0.882 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21232.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tablacus Explorer 25.4.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21223.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 11 PRO 23H2 22631.5189 Update 18 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21197.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ CCleaner 6.35.11488 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21196.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adobe After Effects 2025 25.2.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21194.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Bridge 2025 15.0.4.534 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21179.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ CCleaner 6.35.11488 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21168.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 11 PRO 24H2 26100.3775 Update 14 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21163.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Tor Browser Bundle 14.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21140.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ MediaHuman YouTube to MP3 Converter 3.9.10.0 (1604) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21136.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ MediaHuman YouTube Downloader 3.9.10.0 (1604) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21123.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ MyLanViewer 6.3.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21121.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sandboxie 5.70.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21115.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sandboxie plus 1.15.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21111.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ SketchUp Pro 2025 25.0.634 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21090.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Topaz Photo AI Pro 3.6.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21063.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MAGIX Vegas Pro 22.0 Build 248 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21058.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ OpenVPN 2.6.14 (18.04.2025) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21055.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AAF Family DCH Audio Realtek 10.11.9816.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21044.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Reg Organizer 9.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21041.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Open Server Panel 6.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21035.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Soft Organizer Pro 10.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21034.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ocenaudio 3.14.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21033.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21031.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Calibre 8.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21025.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ GeoGebra 6.0.883 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21006.jpg" />
 </div>
 
 

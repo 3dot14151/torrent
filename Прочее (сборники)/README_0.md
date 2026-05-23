@@ -6,7 +6,7 @@ Ai - Russian poets covers 4 (2026) [MP3|320 Kbps] <Cover, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065530.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ai - Russian poets covers 2 (2026) [MP3|320 Kbps] <Other, Covers>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065317.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rosetta Solenne - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Pop, Ballad
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065316.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Abi Z - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Pop, Dance, RnB, Othe
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065280.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - No Name Compilation Simply listen music Part 87 Other (2026) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065118.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - No Name Compilation Simply listen music Part 88 Other (2026) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064951.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Music News For Forum vol.166 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064891.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ai - No Name Compilation Simply listen music Part 86 Other (2026) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064698.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Abi Z - Favorites Collection (2026) [MP3|320 Kbps] <Pop, Dance, RnB, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064214.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - No Name Compilation Part 79 Just Covers (2025) [MP3|320 Kbps] <Cover, Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064142.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - No Name Compilation Part 80 Other (2026) [MP3|320 Kbps] <Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064003.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Anya Blaze & One1 - Favorites Compilation (2026) [MP3|320 Kbps] <Italodisco, Ita
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063872.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ DJ Calma - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Electr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063628.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Music - Pop vol.Three (2026) [MP3|320 Kbps] <Pop, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063495.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Hanwave - Favorites Collection (2026) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063478.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - No Name Compilation Simply listen music Part 81 Other (2026) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063422.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - No Name Compilation Simply listen music Part 82 Other (2026) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063299.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ai - No Name Compilation Simply listen music Part 84 Just Cover (2026) [MP3|320 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063079.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - No Name Compilation Simply listen music Part 83 Just Cover (2026) [MP3|320 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063078.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Frezee - Favorites Collection Part 7 (2026) [MP3| 320 Kbps] <Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062925.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - No Name Compilation Part 78 Other (2026) [MP3|320 Kbps] <Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062390.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Maya Tune - Favorites Collection (2026) [MP3|320 Kbps] <Emotional deep house vib
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062351.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - No Name Compilation Part 76 Just Covers (2026) [MP3|320 Kbps] <Cover, Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062177.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - No Name Compilation Part 75 Just Remixes (2026) [MP3|320 Kbps] <Remixes>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062032.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - ЕвроХит Топ 40 Europa Plus 20.03.2026 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061905.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Rosetta Solenne - Favorites Collection (2026) [MP3|320 Kbps] <Ballads, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061447.jpg" />
 </div>
 
 

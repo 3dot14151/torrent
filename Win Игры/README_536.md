@@ -1,29 +1,3 @@
-###  Публикация: 1751103   (21901) от 10.04.2025
-
-Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Funko Fusion - это экшн от третьего лица, посвященный фандому. Играйте с любимыми персонажами из сериалов, фильмов, игр и комиксов и исследуйте созданные вручную миры, вдохновленные «Миром Юрского периода», «Назад в будущее», «Челюстями», «Нечто», «Чаки», «Звездным крейсером «Галактика», «Типа крутые легавые», «Академией Амбрелла», «Пять ночей у Фредди», «Властелинами (   Читать дальше...   )Тип издания: RepackРазработчик: 1010 Games LtdЖанр: Экшены, ПриключенияЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB7127A3F24E794A0607DD2CDF67C00D87434AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790592   (21892) от 10.04.2025
 
 Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Edition]
@@ -32,7 +6,7 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21892.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack seleZen [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21886.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21883.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21880.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Cinemaster: Cinema Simulator (2025) [Ru/Multi] (1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21879.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack FitGirl [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21854.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21795.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21787.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.3.1.10846) Repack seleZen [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21778.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21772.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21717.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21714.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.4.1637/dlc) Repack FitGirl [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21681.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21662.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ SnowRunner (2020) [Ru/Multi] (35.0/dlc) Repack Other s [4-Year Anniversary Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21661.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ SNOW BROS. 2 SPECIAL (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21653.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21650.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ SNOW BROS. 2 SPECIAL (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21624.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21623.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Sacred Fire: A Role Playing Game (2021) [En] (2.6.4.f6) License GOG [Early Acces
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21616.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ FRONT MISSION 2: Remake (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21615.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Astrea: Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21614.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.9) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21612.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Bleak Faith: Forsaken (2023) [En] (4036071) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21606.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21595.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A2CE47B52A350B672538BDD235D2713A705C2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791368   (21594) от 13.04.2025
+
+Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (2014) [Ru/Multi] (rc2/dlc) Repack Wanterlude [Game of the Year Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21594.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Средиземье: Тени Мордора» – игра нового поколения, события которой происходят в знаменитом Средиземье. Вас ждет захватывающая история о мести и искуплении. Исполните роль следопыта Талиона, чья семья погибла от рук прислужников Саурона. Талион и сам не избежал жестокой участи, однако Дух отмщения вернул его к жизни и наделил сверхъестественными силами. Теперь вернувшемуся (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith Productions, Inc.Жанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B4601062233F9A2C237D20A9F5D20238CE63C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

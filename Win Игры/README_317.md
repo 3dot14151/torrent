@@ -1,29 +1,3 @@
-###  Публикация: 1574233   (237353) от 04.09.2022
-
-South of the Circle (2022) [Ru/Multi] (23) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-South of the Circle - эмоциональная игра с глубоким многослойным кинематографическим сюжетом. Она ставит вопросы о последствиях жизненного выбора, о столкновении карьеры и любви, о попытках лавировать между настоящим и прошлым. Вы будете играть за Питера, ученого из Кембриджа, который терпит крушение в Антарктиде во времена Холодной войны. Пока он ищет помощи, его (   Читать дальше...   )Тип издания: LicenseРазработчик: State of Play GamesЖанр: Приключение, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922E4DD117BAC7C84E34E28422C989DAAA48978C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549240   (237068) от 06.05.2022
 
 Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
@@ -32,7 +6,7 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237068.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Magic City Detective 2: Secret Desire / Волшебный город 2: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237064.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Space Engine (2017) [Ru/En] (0.9.8.0e/dlc) License
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236338.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236099.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235999.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9717.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235923.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Blue Fire (2021) [Ru/Multi] (6.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235355.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235338.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235258.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Camelot 2: The Holy Grail / Камелот 2: Святой Грааль [Ru/En] 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234790.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234642.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234577.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234149.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Detectives United 6: Beyond Time (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233978.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233780.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Connected Hearts 3: The Musketeers Saga / Связанные любовью 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233770.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ City Legends 3: Ghost of Misty Hill (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233731.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Criminal Archives 2: Alphabetic Murders (2023) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233708.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233614.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ It Happened Here: Streaming Lives / Это случилось здесь: Пря
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233529.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233373.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Grim Tales 22: Horizon of Wishes / Страшные сказки 22: Преде�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233122.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Kung Fu Grand King (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233091.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ JANITOR BLEEDS (2022) [Ru/Multi] (1.0.41) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232591.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232168.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EEDF71A6D2834F9A9F115B71127F7AE582C4761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636157   (231728) от 29.05.2023
+
+Grim Tales 23: Dual Disposition / Страшные сказки 23: Двойственность (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Grim Tales. Полиция предложила Анне Грей участвовать в расследовании ограбления странного сувенирного магазина. Однако дело получило неожиданный поворот - она стала главной подозреваемой. Оказалось, двойник Анны решила забрать ее способности, нарушив при этом поток магии. Сможет ли Анна не дать исполниться дьявольским планам Леди (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC04DE017D1F59A114A8717212F699D65556AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

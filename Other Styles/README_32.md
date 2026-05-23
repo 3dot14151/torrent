@@ -6,7 +6,7 @@ Atlas - Прогревочный и размагничивающий диск (2
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861059.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860759.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860664.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ David Arkenstone - The Delicate Balance (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859982.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859324.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859067.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859007.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Floex (Tomas Dvorak) - Samorost 3 (2016) [FLAC|Lossless|WEB-DL] <Soundtrack, Dow
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858865.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Paul Mauriat - Transparence & Serenade (1985,1989) Reissue, 2017 [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857162.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856665.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855823.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yog
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855566.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - T2 Trainspotting (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855213.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ansia Orchestra - The Order, Vol. 1 (2020) [MP3|320 Kbps] <dubchestral, soundtra
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854917.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854787.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854726.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854699.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854654.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tra
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854588.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853994.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrosso
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853735.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - The Best of Instrumental Music (2004) Compilation [FLAC|Lossless|image + .c
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853606.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Various - Полонезы И Вальсы Русских Композиторо
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853020.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852107.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Wo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852095.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Tradi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852093.jpg" />
 </div>
 
 

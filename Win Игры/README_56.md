@@ -6,7 +6,7 @@ Labyrinths of the World 13: Eternal Winter (2021) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037106.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NBA 2K21 (2020) [Multi] (1.07) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037019.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0.7583.25061) License GOG [Soundtrack Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036918.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BPM: Bullets Per Minute (2020) [Ru/Multi] (1.59082) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036912.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (1.4) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036765.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rebel Galaxy Outlaw (2020) [Ru/Multi] (1.18d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036763.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Steel Division 2 (2019) [Ru/Multi] (46442/dlc) Repack xatab [Total Conflict Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036169.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (1.4.651.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036085.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Last Haven (2023) [Ru/Multi] (3.02.26) Scene TENOKE
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036080.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Bridge to Another World 7: Secrets of the Nutcracker / Мост в Другой 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035953.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Fantastic Kitty Rue (2022) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035819.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Flashout 3 (2022) [Ru/Multi] (1.0.8/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035796.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Doom 3: BFG Edition (2012) [Multi] (1.14) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035791.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Source of Madness (2022) [Ru/Multi] (1.1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035510.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Gods Will Fall (2021) [Ru/Multi] (1.0/dlc) Repack xatab [Valiant Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035299.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Strange Investigations: Becoming (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035121.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Disjunction (2021) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035031.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ File Destined (2023) [Ru/Multi] (1.0.382) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034718.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Spirit Legends 4: Finding Balance / Легенды Духов 4: Поиск га
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034559.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Trasamire Campaigns (2023) [En] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034267.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 1054
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034256.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ House Flipper (2018) [Ru/Multi] (1.2366/dlc) License GOG (обновляемая
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034250.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Contraband Police (2023) [Ru/Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033817.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (2.3.0.5(a)) License GOG [Digital 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033815.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Sunrider 4: The Captain's Return (2023) [En] (1.2.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033808.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Vampire: The Masquerade - Coteries of New York (2019) [Ru/Multi] (1.0.12) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033804.jpg" />
 </div>
 
 

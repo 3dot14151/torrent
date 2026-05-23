@@ -6,7 +6,7 @@ GoodSync Enterprise 10.9.9.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435709.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MEGA Sync Client 2.3.1 (47e22) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435690.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Duplicate File Remover 3.7.25 Build 0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435671.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ EZ CD Audio Converter 9.1.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435661.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435643.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ u-he - Hive 2.0.0.9033 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435631.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Blue Cat's All Plug-Ins Pack (v.09.2018) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435541.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ AV Voice Changer Software Diamond 7.0.50 Retail [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435514.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ AdwCleaner 5.013 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435511.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ DensPlay 2.0.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435505.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ HitmanPro 3.7.10 Build 250 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435502.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Realtek High Definition Audio Driver 6.0.8988.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435490.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ u-he - Diva 1.4.3.9033 VSTi, VSTi3, AAX Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435475.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.09.21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435458.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mailbird Pro 2.6.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435456.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ WinASO Registry Optimizer 5.6.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435323.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Far Manager 3.0 build 2852 Nightly + Portable [Multi/Русский] (обнов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435320.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ AIMP 4.60 Build 2146 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435284.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Webcam Surveyor 3.7.7 Build 1108 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435282.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VirtualBox 6.0.12 Build 133076 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435272.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ashampoo Photo Commander 14.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435255.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ RonyaSoft Poster Printer 3.02.02 Portable by SoftProgram [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435248.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Easy CD-DA Extractor 16.1.0.1 Final RePack (& Portable) by KpoJIuK [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435123.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Photoshop CS6 Extended 13.0.1.1 Portable 64-bit by PortableAppZ [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435119.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Photoshop CS6 Extended 13.0.1.1 Portable 32-bit by PortableAppZ [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435117.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Boris FX CS6 10.0.3\v10.0.1 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435111.jpg" />
 </div>
 
 

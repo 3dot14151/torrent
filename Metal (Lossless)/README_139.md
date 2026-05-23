@@ -6,7 +6,7 @@ Max Pie - Eight Pieces - One World (2013) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518425.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sorgeldom - Innerlig Förmörkelse (2009) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517897.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sorgeldom - Vithatten (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517896.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Shining Black - Postcards From The End Of The World (2022) Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517647.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Fervent Hate - Tales Of Hate, Lust And Chaos (2018) Limited Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517188.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Disturbed - Immortalized (2015) Deluxe Edition [FLAC|tracks+.cue]<Alternative / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517126.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Atrocity - Okkult II (2018) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517099.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Taake - Noregs Vaapen (2011) [WavPack|Lossless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516971.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ The Chronicles Of Manimal And Samara - Trust No Leaders (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516914.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Aerodyne - Last Days Of Sodom (2022) [FLAC|Lossless|image + .cue] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516792.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Scarlet Anger - Dark Reign (2012) [APE|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516769.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Darkness By Oath - Near Death Experience (2012) [FLAC|Lossless]<Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515956.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ BongBongBeerWizards - Ampire (2022) [FLAC|Lossless|WEB-DL|tracks] <Drone, Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515728.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Knifesmoke - Reawakening (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515727.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Synteleia - The Secret Last Syllable (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515726.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Orthodox - Proceed (2022) [FLAC|Lossless|WEB-DL|tracks] <Drone, Doom, Avant-gard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515725.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Sweet Sadness - The Chance to Reset & the Choice of Dying (2022) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515724.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Monarchist - Cosmos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515723.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Spire Of Lazarus - Soaked In The Sands (2022) [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515653.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Symphonity - Voice from the Silence (2008) Limb Music (Reloaded 2022) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515532.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Boss Keloid - Family The Smiling Thrush LIVE At Foel Studio (2022) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515529.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ AxeWound - Vultures (2012) [FLAC|Lossless]<Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515521.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Unheilig - 10 альбомов, 13 синглов, 3 ЕР, 5 Live, 5 компи�
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514751.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Backfire - The Two of Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514685.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Ironflame - Where Madness Dwells (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514668.jpg" />
 </div>
 
 
@@ -751,7 +751,7 @@ Metal Church - The Dark (1986) [FLAC|image +cue] Japan <Heavy/Power/Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514090.jpg" />
 </div>
 
 

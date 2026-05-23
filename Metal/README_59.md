@@ -6,7 +6,7 @@ Clouds - Destin (2017) EP [MP3|320 Kbps] <Ambient, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539078.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lysithea - Realms (2015) [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537277.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rings Of Saturn - Ultu Ulla (2017) [MP3|320 Kbps] <Technical Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537070.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Pain - Coming Home (2016) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536079.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Stormzone - Seven Sins (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535587.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Black Dahlia Murder - Abysmal (2015) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535470.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Primal Fear - Apocalypse (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533153.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Accept - The Rise Of Chaos (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533042.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Breakdown Of Sanity - Coexistence (2016) [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532684.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Devin Townsend Project - Transcendence (2016) Limited Edition 2 CD [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532552.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Turilli & Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532470.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Delain - 6 альбомов, 4 сингла (2006-2016) [MP3|320 кб/с]<Sympho
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532125.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Fear Factory - 14 Альбомов (1995-2015) [MP3|320] <Death metal\Industrial
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530922.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Tarja Turunen - Into The Sun (2012) Single  (Radio Edit) [MP3|320 кб/с]<Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530644.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Jackdevil - Evil Strikes Again (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529947.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Animal In Me - Words and Actions (2015) [MP3|320 кб/с]<Post-Hardcore, Fem
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529725.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Clawfinger - Save Our Souls (2017) Single [MP3|320 кб/с]<Alternative, Nu-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529473.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Soulfly - Savages (2013) Japanese Edition [MP3|320 кб/с]<Groove / Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528691.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Dying Fetus - The Wrong One To Fuck With (2017) [MP3|320 Kbps] <Brutal Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528499.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Pentakill - II: Grasp of the Undying (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527656.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Lordi - Monstereophonic (Theaterror vs. Demonarchy) (2016) [MP3|320 Kbps] <Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527313.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Ghost - Popestar (2016) EP [MP3|320 Kbps] <Heavy Metal, Occult Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527312.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ TraumeR - Avalon (2016) Japanese Edition [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526686.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Alice Cooper - School's Out... Forever... (2015) [MP3|320 Kbps] <Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525969.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Thy Art Is Murder - Dear Desolation (2017) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525837.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Hell Rebel's - Reawaken (2017) [MP3|320 Kbps] <Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525503.jpg" />
 </div>
 
 

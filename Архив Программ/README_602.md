@@ -6,7 +6,7 @@ TweakPower 2.006 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746370.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PotPlayer 220106 (1.7.21590) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746367.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Firefox Browser 96.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746364.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Glary Utilities Pro 5.180.0.209 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746362.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Slimjet 10.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746359.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinX HD Video Converter Deluxe 5.9.4 Build on Apr 1 2016 RePack by FoXtrot [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746340.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Display Driver Uninstaller 15.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746324.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sticky Password Premium 8.2.1.228 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746317.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Zero + portable 0.18.0.21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746306.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ PortExpert +  Portable 1.7.5.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746303.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The KMPlayer 4.0.8.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746251.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Picosmos Tools 1.5.1 Portable by poni-koni [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746243.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Viber 10.0.0.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746216.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Game WideScreener 1.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746207.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BlueStacks Tweaker 5.10.2 beta Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746203.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WhatsApp 0.3.2043 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746202.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Readiris Corporate 15.2.0 Build 8693 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746172.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PowerISO 6.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746165.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Internet Download Manager 6.25 Build 20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746163.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ MediaHuman YouTube Downloader 3.9.9.65 (1301) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746150.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Total Commander Ultima Prime 8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746147.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Phase One Capture One Pro 22 15.0.1.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746146.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ ActivePresenter Professional Edition 7.2.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746129.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Allavsoft Video Downloader Converter 3.15.6.6666 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746128.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ BlueStacks App Player 4.50.0.1043 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746092.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Internet Download Manager 6.32 Build 6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746082.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560211.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560210.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560209.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560208.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ iWatermark Pro 2.00fc4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560203.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Adobe Flash Player 30.0.0.134 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560166.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Internet Download Manager 6.31 Build 3 Final RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560165.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Microsoft Visual Studio 2017 Enterprise 15.7.5 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560160.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ROSA Desktop Fresh XFCE 4.13 1.2 [x32] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560155.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ ReNamer Pro 6.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560145.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Astro Player 1.154 (Unlocked)  - Медиа-плеер [Программа](Andr
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_560128.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Game of Thrones / Игра престолов [Ru/En] (RePack/1.3.0.0) 2012 l VA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560122.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Display Driver Uninstaller 17.0.7.1  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560087.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Anvir Task Manager 8.6.2 Beta + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560081.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Bookends 13.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560070.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Long Arm - Darkly (2018) Project: Mooncircle [FLAC|Lossless|WEB-DL|tracks] <Left
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560067.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Kevin Abstract - ARIZONA BABY (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560065.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Rumpus PRO 8 v8.2.4 + Tether Client 1.0.4  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560062.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ CyberLink PowerDVD Ultra 18.0.1815.62 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560059.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe Acrobat Reader DC 2018.011.20055 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560042.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Microsoft .NET Framework 1.1 - 4.7.2 Final RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560018.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_560013.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Record Super Chart № 199 (2011) [MP3|320 kbps]<House, Trance, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_559997.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Process Lasso Pro 9.0.0.382 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559990.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Opera 46.0.2597.61 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559984.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Soft Organizer 6.10 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559976.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1757744   (38877) от 30.10.2024
-
-Ускорение / Slingshot (2024) BDRip [H.264/1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Группа астронавтов отправляется в смертельно опасную миссию к спутнику Сатурна Титану и пытается сохранить контроль над реальностью.Производство: Венгрия, Индонезия, США / Bluestone Entertainment, Filmsquad, Széchenyi FundsЖанр: Фантастика, триллерРежиссер: Микаэль ХофстрёмАктеры: Кейси Аффлек, Лоренс Фишбёрн, Эмили Бичем, Томер Капон, Дэвид Моррисси, Шарлотта Лёвгрен, Марк Эбулу, Николет Барабаш, Ференц Иван СабоПеревод: Дублированный, Многоголосый профессиональный, Двухголосый профессиональныйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2437EAE11853D85CAB49C3E7682DDCDE7824C430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757597   (38872) от 30.10.2024
-
-Как взломать экзамен / Bad Genius (2024) WEBRip [H.264/1080p] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Частная школа в центре Лос-Анджелеса, куда каждое утро выстраивается караван представительских машин. Здесь учатся дети элиты: банкиров, политиков, кинозвезд. Bce их проблемы давно решены родителями. За исключением одной — надо сдать финальный экзамен. Для этого им нужен кто-то, кому повезло чуть меньше. Кто-то чертовски умный и готовый на все ради места под солнцем. (   Читать дальше...   )Производство: Канада / Little Ray Media, Picture Perfect Federation, PicturestartЖанр: триллерРежиссер: Дж.С. ЛиАктеры: Каллина Лян, Джабари Бэнкс, Тэйлор Хиксон, Сэмюэл Браун, Бенедикт Вонг, Конор Медоус, Синто Д. Мисати, Сара-Джейн Редмонд, Тина Грант, Адам БошенПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CAC93F008FC1D9C5A3ACC55ED9C61725539BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757839   (38869) от 30.10.2024
 
 Ужасающий 3 / Terrifier 3 (2024) WEBRip [H.264/1080p] [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38869.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38824.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38781.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38779.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38778.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38775.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38771.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38717.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38665.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38663.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38659.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38656.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38644.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38640.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38624.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38609.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38576.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38571.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38568.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38555.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38554.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38521.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38520.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38474.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDCDF29C04AE725A358B72A01658A9E78227C0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754051   (38454) от 03.11.2024
+
+Собиратель душ / Longlegs (2024) WEB-DL [H.264/1080p] [Локализованная версия]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1990-е годы, штат Орегон. Агент ФБР Ли Харкер, обладающая чем-то вроде дара ясновидения, начинает заниматься глухим делом без единой зацепки. Десятилетиями в штате происходят похожие трагедии: внезапно отец семейства жестоко убивает родных, потом себя, и в каждом случае среди жертв фигурируют девятилетние дочери. Также на местах преступлений остаются зашифрованные (   Читать дальше...   )Производство: Канада, США / C2 Motion Picture GroupЖанр: триллер, детектив, ужасыРежиссер: Осгуд ПеркинсАктеры: Майка Монро, Николас Кейдж, Блэр Андервуд, Алисия Уитт, Мишель Чхве-Ли, Дакота Долби, Лорен Акала, Кирнан Шипка, Майла Хози, Джейсон Уилльям Дэй, Лиза ЧандлерПеревод: Дублированный (Пифагор), Двухголосый (Кубик в Кубе 18+)Язык озвучки: Русский, английскийСубтитры: Русские (Forced hardsub, 2xFull), английские (SDH), азербайджанские, грузинские, казахскиеПродолжительность: 01:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C699CF84BF82D7AD70E03E44E9F44B3C5B36F823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758400   (38432) от 03.11.2024
+
+Учитель, обещавший море / El maestro que prometio el mar / The Teacher Who Promised the Sea (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38432.jpg" />
+</div>
+
+
+###  Подробнее
+
+1935 год. Молодой учитель Антони Бенайжес приезжает в провинцию Бургос, чтобы преподавать в деревенской школе. С помощью новаторского педагогического метода Антони вдохновляет своих учеников и дает обещание: показать им море, которого они никогда не видели. Но такой свободный и творческий подход не устраивает часть консервативно настроенных родителей.Производство: Испания / Filmax, Institut Català de les Empreses Culturals (ICEC), Instituto de la Cinematografía y de las Artes Audiovisuales (ICAA)Жанр: драма, биографияРежиссер: Патрисия ФонтАктеры: Энрик Окер, Лайа Коста, Луиза Гаваса, Рамон Агирре, Гаэль Апарисио, Альба Эрмосо, Николас Кальво, Антонио Мора, Мило Табоада, Хорхе РочаПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, испанскийСубтитры: Русские (forced, full)Продолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675B0165A20EECCDB270D684EA6E76991A0B7296
 ```
 
 https://mybot314.ru/tekegram_catalog/

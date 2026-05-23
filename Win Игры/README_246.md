@@ -1,29 +1,3 @@
-###  Публикация: 551645   (452348) от 24.09.2012
-
-Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition / Темные притчи. Сёстры Красной Шапочки. Коллекционное издание [Ru] (P) 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Возьмите на себя роль легендарного детектива и одолейте королеву волков в увлекательном продолжении серии игр жанра "я ищу" Dark Parables от Blue Tea Games. Несколько столетий назад волк был повержен и основан орден Сестер в красных капюшонах. Но совсем недавно коварная королева волков заманила сестер в ловушку и планирует натравить опустошающие легионы волков на наш мир...(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DD5DFA0401A81D46FF5692A76D71F1380348F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247407   (452320) от 15.09.2018
 
 Burden (2018) [Ru/En] (1.0) License CODEX
@@ -32,7 +6,7 @@ Burden (2018) [Ru/En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452320.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Beholder (2016) [Ru/Multi] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452282.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Ru/En] (1.0) Repack x
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452262.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition / Темные
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452237.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452195.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Telling Lies (2019) [Ru/Multi] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452190.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Evil Park (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452150.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Rage: Anarchy Edition [Multi3/+] (Steam-Rip/1.0.29.712) 2011 | R.G. Игрома
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452140.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ WARRIORS ALL-STARS (2017) [En/Ja/Ko] (1.0.0.1/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452063.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Way of the Samurai 4 (2015) [En] (1.06.2/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451025.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ The Old House (2020) [Ru/En] (1.0) Steam-Rip CHRONOS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450956.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Haunted Manor 4: The Last Reunion / Призрачное поместье 4: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450716.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Elvenar (2015) [Ru/En] (0.24.1024) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450667.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Teslagrad (2013) [Ru/Multi] (1.4.1) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450662.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Gateways (2012) [En] (1.15) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450216.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License PROPHET [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450127.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450113.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Syndrome (2016) [Ru/Multi] (1.03f) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450000.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Lost Lands 3: The Golden Curse / Затерянные земли 3: Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449990.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Brave: The Video Game [Ru/En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449935.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Farm Expert 2017 (2016) [En] (1.124) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449905.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Stray Cat Crossing (2015) [En] (1.0) Repack ARMENIAC
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449128.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Mystical Riddles 2: Behind Doll Eyes / Мистические загадки 2: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449110.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Teslagrad (2015) [Ru/Multi] (1.4.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448822.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ A.I. Invasion (2015) [En] (1.0) Repack Mr.Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448820.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ A.I. Invasion - футуристический аркадный top-down шут�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37B272935BA118ACF5D68010B26014F8BC8C7944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943247   (448443) от 03.10.2015
+
+Lumber Island - That Special Place (2015) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448443.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: "Lumber Island – That Special Place” это psychedelic horror adventure с видом от первого лица. Сюжет не ведет вас за руку, только самостоятельно исследовав мир вы узнаете историю этого места, или нет. Атмосфера самое важное, вы не увидите на экране ни одной кнопки, я избавился от свойственного этому жанру инветаря что обеспечивает максимальное погружениеТип издания: ЛицензияРазработчик: DeanForgeЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B47D8852BCEE4337AAA47466F4639BCD9C86FAF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

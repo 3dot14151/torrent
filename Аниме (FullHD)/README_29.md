@@ -6,7 +6,7 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585097.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Saint Seiya: Legend of Sanctuary | Рыцари Зодиака (фильм ше�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584662.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NieA_7 | NieA Under 7 / Ния под_семёркой [2000, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584417.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sarusuberi: Miss Hokusai / Дочь Хокусая [2015, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584329.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Appleseed XIII | Яблочное зернышко OVA-2 [2011, OVA, 13 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584302.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Selector Infected WIXOSS | Селектор: Заражение WIXOSS [ТВ-1][
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584210.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaginado | Key и всякое | Кагинадо [ТВ-1] [2021, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583758.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mahouka Koukou no Rettousei / Mahouka / The Irregular at Magic High School / Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583627.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tenkuu no Shiro Laputa / Laputa: The Castle in the Sky / Небесный зам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582520.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580266.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Slow Loop | Медленная петля [2022, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579949.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Evangelion Shin Gekijouban: Ha / Evangelion 2.22: You Can (Not) Advance / Ева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579501.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Evangelion Shin Gekijouban: Jo / Evangelion 1.11: You are (not) alone / Еван
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579428.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | Наша служанка слишком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578116.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ DMC | Detroit Metal City | Detroit Metal City: The Animated Series | Детро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576895.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Gekijouban Ao no Exorcist / Ao no Exorcist The Movie / Синий Экзорци
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576794.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576338.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Shirokuma Cafe | Polar Bear Cafe | Кафе «У Белого Медведя» [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574323.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [ТВ-1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573990.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Bubble | Пузырь [2022, ONA] WebRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573815.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572727.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572620.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword Oratoria |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572307.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Basquash! | Баскваш! [2009,TV, 26] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566987.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Next A-Class [2012, ONA] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566868.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565418.jpg" />
 </div>
 
 

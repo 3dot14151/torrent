@@ -6,7 +6,7 @@ kiloHearts Subscription 2.3.0 VST/VSTi, VST 3/VSTi 3, AAX (x64) RePack by R2R [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36850.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tor Browser Bundle 14.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36839.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36831.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36821.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CyberLink PowerDirector 2025 Ultimate 23.0.1113.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36814.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TweakPower 2.065 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36808.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ JetBrains DataGrip 2024.3 (x64-arm64) Repack by Sitego
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36793.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WinToHDD 6.6 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36789.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Blender 4.2.4 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36779.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2024.07.54
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36777.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PDF24 Creator 11.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36776.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wise Registry Cleaner Pro 11.1.8.723 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36771.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Exacoustics - GHOST 1.0.8 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36748.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Telegram Desktop 5.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36745.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ CrystalDiskInfo 9.5.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36742.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ CrystalDiskMark 8.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36741.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Bandicam 8.0.0.2509 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36739.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ AAF Family DCH Audio Realtek 10.11.9749.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36735.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ inPixio Photo Focus Pro 4.3.8623 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36722.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ WizFile 3.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36701.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Display Driver Uninstaller 18.0.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36699.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ UltraSearch Professional 4.6.0.1091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36693.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ultimaker Cura 5.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36686.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FastFlix 5.8.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36685.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Light Image Resizer 7.1.1.61[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36672.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Microsoft Visual Studio 2022 Enterprise 17.12.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36664.jpg" />
 </div>
 
 

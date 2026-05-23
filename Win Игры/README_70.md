@@ -1,29 +1,3 @@
-###  Публикация: 1350255   (1003100) от 06.01.2020
-
-Outer Wilds (2019) [Ru/Multi] (1.0.4.240) Repack Mr_Weegley
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Outer Wilds — приключения в открытом мире, попытка разгадать тайну неведомой солнечной системы в бесконечно повторяющейся петле времени. На небольшой планете со странным названием Камелёк живёт не менее странная раса четырёхглазых синекожих гуманоидов, которые очень любят изучать космос, а в свободное время — бренчать на музыкальных инструментах. Настоящей цивилизацией (   Читать дальше...   )Тип издания: RepackРазработчик: Mobius DigitalЖанр: Adventure, RPG, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC90C2AF61BED688D5492C263CD68BF53BCE9ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487738   (1003049) от 07.08.2021
 
 Chimeras: What Wishes May Come (2021) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Chimeras: What Wishes May Come (2021) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003049.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dodgeball Academia (2021) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003030.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002880.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Men of War: Assault Squad 2 - Cold War (2019) [Ru/Multi] (1.006.0) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002865.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Heroes of Hammerwatch (2018) [En] (101/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002864.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.2.0267/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002752.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Almost My Floor (2021) [Ru/En] (1.0.1) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002709.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Edge of Reality 6: Mark of Fate / Край Реальности 6: Метка С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002665.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Alienautics (2019) [En] (1.0) Repack Mr_Weegley
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002631.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Octopath Traveler (2019) [Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002452.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Christmas Stories 7: Alice's Adventures / Рождественские исто�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002413.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002364.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Interstellar Space: Genesis (2019) [En] (1.0.8) Repack Mr_Weegley
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002349.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Luxar (2020) [Ru/Multi] (1.0) Repack Mr_Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002344.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lone Survivor: The Director's Cut (2012) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002251.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Rebuild 3: Gangs of Deadsville (2015) [En] (1.6.41) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002196.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.23.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002193.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Mythic Ocean (2020) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002114.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (7142717) License Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001672.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Library of Ruina (2021) [Multi] (1.1.0.5b1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001663.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Foreclosed (2021) [Ru/Multi] (7174262) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001661.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dark Fall: Ghost Vigil (2020) [En] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001503.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip Other s [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001493.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8236/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001491.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ BDSM: Big Drunk Satanic Massacre (2019) [Ru/Multi] (1.0.33) Repack Mr_Weegley [1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001211.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ BDSM: Big Drunk Satanic Massacre (2019) [Ru/Multi] (1.0.33) Repack Mr_Weegley [1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2511E5C32BC6A72E1027E4CE886C0BA97F5D368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352167   (1001203) от 13.01.2020
+
+REFUGE (2020) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра представляет из себя рогалик от третьего лица, сбалансированный элементами слешера и медленного боя с перекатами. В игре, игроку предстоит исследовать открытый мир и уничтожать боссов, тем самым зарабатывая особую валюту, которая сохраняется навсегда и позволяет открывать новые предметы, которые после открытия начнут выпадать в новых забегах, что даёт большую (   Читать дальше...   )Тип издания: LicenseРазработчик: TlySoftЖанр: ActionЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DBEF40D243FD74DEE3F42756142DB539A1A464
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 855316   (100801) от 06.10.2025
-
-В погоне за счастьем / The Pursuit of Happyness (2006) BDRip [1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Крис Гарднер — отец одиночка. Воспитывая пятилетнего сына, Крис изо всех сил старается сделать так, чтобы ребенок рос счастливым. Работая продавцом, он не может оплатить квартиру, и их выселяют.
-Оказавшись на улице, но не желая сдаваться, отец устраивается стажером в брокерскую компанию, рассчитывая получить должность специалиста. Только на протяжении стажировки (   Читать дальше...   )Производство: СШАЖанр: Драма, БиографияРежиссер: Габриэле МуччиноАктеры: Уилл Смит, Джейден Смит, Тэнди Ньютон, Брайан Хау, Джеймс Карен, Дэн Кастелланета, Курт Фуллер, Такайо Фишер, Кевин Уэст, Джордж ЧунгПеревод: Профессиональный дублированныйСубтитры: Английские, русскиеПродолжительность: 01:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B2705C5A34A07158EF516CE7B2169F5F9BA635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 4262   (100798) от 07.10.2025
-
-Персонаж / Stranger Than Fiction (2006) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о жизни Гарольда Крика, налогового инспектора. Гарольд ведёт чрезвычайно монотонную жизнь — встаёт и ложится спать в одно и то же время и даже считает движения зубной щетки, когда чистит зубы. Совершенно неожиданно он начинает слышать голос, который комментирует его действия. Гарольд обращается за помощью к психиатру, но диагноз шизофрения его не (   Читать дальше...   )Жанр: фэнтези, драма, мелодрама, комедияРежиссер: Марк Форстер / Marc ForsterВ ролях: Уилл Феррелл, Мэгги Джилленхол, Эмма Томпсон, Дастин Хоффман, Куин Латифа, Линда Хант, Том Халс, Уильям Дик, Гай Мэсси, Марта ЭспинозаПеревод: Профессиональный (дублированный)Субтитры: нетПродолжительность: 01:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F33C66C4B63760C341F487E5E7A0D2733DF05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971352   (100791) от 06.10.2025
 
 Хороший год / A Good Year (2006) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100791.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100765.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_100600.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_100590.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98555.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94733.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94698.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94613.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91298.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91291.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91232.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91204.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91135.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90952.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90950.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90762.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90730.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90725.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90688.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90686.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90486.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90348.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90347.jpg" />
 </div>
 
 
@@ -659,13 +606,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90311.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Чопорная английская семья воссоединяется, дабы безутешно оплакать своего почившего родственника. Искренне сожалея о смерти обладателя кристальной, по их мнению, души, члены благородного семейства оказываются весьма обескуражены, узнав о прижизненных проделках своего дядюшки. Поведавший все эти забавные истории шантажист отнюдь не намерен держать язык за зубами. Он согласен поспособствовать сохранению репутации аристократов разве что за небольшую, по его словам, сумму с большим количеством нулей.Жанр: КомедияРежиссер: Фрэнк ОзАктеры: Мэтью Макфейден, Кили Хоуз, Энди Найман, Юэн Бремнер, Дэйзи Донован, Алан Тьюдик, Джейн Эшер, Крис Маршалл, Руперт Грейвз, Питер Вон, Томас Уитли, Питер ИганПеревод: ДублированныйЯзык субтитров: Русский, Английский (SDH), ИспанскийПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487179   (90310) от 23.04.2012
+
+Клятва / The Vow (2012) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время медового месяца Пейдж и Лео попадают в автокатастрофу. Пока жена находится в коме, Лео не отходит от ее кровати ни на час, но возвращение девушки к жизни омрачено потерей памяти — она не узнает любимого и не помнит об их романе. И тогда Лео решает заново завоевать сердце Пейдж.Жанр: Драма, МелодрамаРежиссер: Майкл СаксиАктеры: Рэйчел МакАдамс, Ченнинг Татум, Сэм Нил, Скотт Спидман, Джессика Лэнг, Джессика МакНэми, Венди Крюсон, Татьяна Маслани, Лукас Брайант, Джои КлейнПеревод: ДублированныйСубтитры: Русские, Английские - (UTF-8)Язык субтитров: Русские, АнглийскиеПродолжительность: 01:43:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486905   (90304) от 23.04.2012
+
+Дж. Эдгар / J. Edgar (2011) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90304.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение всей жизни Джон Эдгар Гувер поднимался к вершинам власти, чтобы стать самым могущественным человеком в Америке. Будучи главой Федерального бюро расследований, он ни перед чем не останавливался, чтобы защитить свою страну. Пережив восемь президентов и три войны, Гувер вел сражения с угрозами как реальными, так и надуманными, зачастую нарушая правила, чтобы уберечь сограждан от опасности. Он был безжалостен и был героем, причем одновременно; мир восхищался им, что было для него самой желанной, пусть и не материальной, наградой. «Дж. Эдгар» глазами самого Гувера показывает нам его частную и общественную жизнь и отношения с окружающими человека, который мог с тем же успехом исказить правду, с каким он защищал ее в течение всей своей жизни, посвященной воплощению его собственной идеи справедливости, на которую часто влияла темная сторона власти.Жанр: Драма, криминал, биография, историяРежиссер: Клинт ИствудАктеры: Леонардо ДиКаприо, Арми Хаммер, Наоми Уоттс, Джуди Денч, Джош Хэмилтон, Джеффри Пирсон, Шерил Лоусон, Кейтлин Девер, Брэйди Мэтьюз, Ганнер РайтПеревод: Дублированный, Авторский одноголосыйПродолжительность: 02:16:18
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@ NIUBI Partition Editor 7.4.1 Technician Edition [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033454.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MiniTool Partition Wizard Enterprise 12.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032381.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NVIDIA Inspector 1.9.8.1 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031023.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Paragon Hard Disk Manager 17 Business 17.16.6 + BootCD [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011374.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DiskTrix UltimateDefrag 6.1.2.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004051.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ EASEUS Partition Master 16.0 Unlimited Edition by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003692.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.3 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003273.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mem Reduct 3.3.5 (& Portable) RePack by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001219.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Active KillDisk Professional Suite 7.0.4 [Eng]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996594.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Paragon Hard Disk Manager 12 Server 10.1.19.15839 + Boot Media Builder [Русс
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993176.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Opti Drive Control 1.80 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990601.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Paragon Hard Disk Manager 15 Professional 10.1.25.813 + WinPE Recovery Media Bui
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986501.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Paragon HFS+ for Windows 10.5 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986500.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ SMARTHDD 7.1.0.9545 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984054.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Bulldog 0.9.3.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978448.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974457.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Paragon Partition Manager 17.9.1 CE [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960293.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Raxco PerfectDisk Pro Business/Server 14.0 Build 895 RePack by elchupacabra [Ru/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956743.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Abelssoft SSD Fresh 2017 6.1 Retail [En/De]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942492.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Paragon Hard Disk Manager 15 Business 10.1.25.813 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929954.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ HDD Temperature 4.0.25 [Rus/Eng]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921353.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Paragon Alignment Tool 4.0 Build 14819 Professional + Boot Media Builder [Анг
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916011.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Paragon Alignment Tool 4.0 Build 14819 Professional RePack [Русский]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912197.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Windows 11 Compatibility Checker 2.5 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901827.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Unigine Superposition Benchmark 1.1 (Build 8628) Basic Edition [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897981.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Unigine Valley Benchmark 1.0 Basic Edition [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897975.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Daum PotPlayer 1.6.62949 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579183.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AAct 1.7 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579180.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KMSAuto Lite 1.2.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579178.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Daum PotPlayer 1.6.62949 Stable RePack by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579131.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Re-Loader Activator 2.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579129.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Hot Door CADtools 10.1.0 for Adobe Illustrator [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579127.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Toolkit 2.6.1 Stable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579124.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ EZ CD Audio Converter 8.3.2.2 (x64) RePack (& portable) by elchupacabra  [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579068.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CCleaner Professional 5.57.7182 Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579066.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Microsoft Visual Studio 2017 Community 15.9.12 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579061.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ R-Studio 8.0 Build 164761 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579054.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ KMS Tools Portable 12.08.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579046.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ KMSAuto Net 2015 1.4.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579040.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ DVDFab 9.2.0.5 Final Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579007.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Light Image Resizer 4.7.2.0 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579004.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ SQL Dynamite 1.7.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578998.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Bandicam 2.2.4.811 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578995.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ WinToUSB Free 2.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578993.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578977.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ PrivaZer 4.0.44 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578949.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Excite Audio - Lifeline Console 1.0.0 Standalone, VST, VST 3 (x32/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578940.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Wise Disk Cleaner 8.65.612 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578932.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ IObit Smart Defrag 4.2.0.815 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578931.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Bandicam 2.2.4.811 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578920.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578870.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Loaris Trojan Remover 3.2.16.1734 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578852.jpg" />
 </div>
 
 

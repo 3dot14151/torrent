@@ -1,135 +1,3 @@
-###  Публикация: 1213509   (768196) от 17.03.2018
-
-Алфавитный список адресов местных групп Конституционно-демократической партии (1906) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Конституционно-демократическая партия («Партия Народной Свободы», «к.-д. партия», «конституционалисты-демократы», «конституционные демократы», «партия ка-детов», позже «кадеты») — крупная центристская (по другим источникам - представляла левое крыло российского либерализма) политическая партия в России в начале XX века.
-Брошюра содержит алфавитный список адресов (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A95453B24C2A5B237CEE61822AC5FF5D90396CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213510   (768195) от 17.03.2018
-
-С.А. Алфеевский (сост.) | Кустарная и мелкая промышленность и промысловая кооперация (1926) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Собрание декретов, инструкций, циркуляров, разъяснений и прочего по кустарной и мелкой промышленности и промысловой кооперации.Жанр: История Отечества, история права, экономическая историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C6A86DE02824FE688947596388F4AA5D450B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213695   (768190) от 17.03.2018
-
-В.Н. Бочкарев | Очерк истории революционного движения в России (XVII-XX вв.) (1918) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга составилась из ряда небольших курсов, прочитанных автором в течении апреля - июля месяцев 1917г. в Нижегородском городском народном университете, в Московском городском народном университете им. Шанявского, на учительских курсах в Москве и в фабричной аудитории при Никольской мануфактуре Саввы Морозова в Орехове-Зуеве.
-На этих лекциях естесственно (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC47801EC1F64FB294FE48B59E1201B3F2CDB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213692   (768187) от 17.03.2018
-
-Ю.М. Бочаров | Севастопольское восстание (ноябрь 1905 г.) (1925) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Севастопольское восстание — вооружённое выступление матросов Черноморского флота и солдат Севастопольского гарнизона, рабочих порта и Морского завода, произошедшее во время первой русской революции с 11 (24) ноября по 15 (28) ноября 1905 года.Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8C48852694CE37EE2D963215A6E51B581434BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213526   (768180) от 17.03.2018
-
-Боевые предприятия социалистов-революционеров в освещении охранки (1918) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Систематизированные и комментированные эсерами, "нумерованные" труды Спиридовича, написанные им для служебного пользования. С приложением статистики террористических актов из второго выпуска "Памятной книжки социалиста-революционера", изданной нелегально в Париже, в 1914-м году.Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DE9F24E257A3E2A855ED138B683D2A66D02ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213517   (768179) от 17.03.2018
 
 В.Д. Левинский (ред.-изд.) | Альбом Зеркало Кавказа (1902) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768179.jpg" />
 </div>
 
 
@@ -167,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768174.jpg" />
 </div>
 
 
@@ -195,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768170.jpg" />
 </div>
 
 
@@ -222,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768160.jpg" />
 </div>
 
 
@@ -248,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768144.jpg" />
 </div>
 
 
@@ -275,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768119.jpg" />
 </div>
 
 
@@ -302,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767900.jpg" />
 </div>
 
 
@@ -330,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767851.jpg" />
 </div>
 
 
@@ -356,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767845.jpg" />
 </div>
 
 
@@ -382,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767786.jpg" />
 </div>
 
 
@@ -408,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767759.jpg" />
 </div>
 
 
@@ -434,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767682.jpg" />
 </div>
 
 
@@ -460,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767620.jpg" />
 </div>
 
 
@@ -486,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767610.jpg" />
 </div>
 
 
@@ -513,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767606.jpg" />
 </div>
 
 
@@ -539,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767605.jpg" />
 </div>
 
 
@@ -567,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767555.jpg" />
 </div>
 
 
@@ -593,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767495.jpg" />
 </div>
 
 
@@ -620,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767491.jpg" />
 </div>
 
 
@@ -646,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767427.jpg" />
 </div>
 
 
@@ -672,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767411.jpg" />
 </div>
 
 
@@ -684,6 +552,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D0248B2162BA958DE0070FC0402E5F3044116D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213720   (767405) от 18.03.2018
+
+В.Л. Виленский-Сибиряков | Каторга и ссылка в русской революции (1924) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра, посвящённая значению для революции таких видов уголовных наказаний при царизме, как каторга и ссылка.Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE2AFFC6E9295C919C47513C2BE899EA49A46E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213734   (767400) от 18.03.2018
+
+Г.А. Гапон | Священника Георгия Гапона ко всему крестьянскому люду воззвание (1905) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767400.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Скажи мне по совести, русский народ, не правду ли в своём прошении открыто и чистосердечно своему царю, как отцу, мы писали?
+Ты видишь, что помощи и защиты от казнокрадов... исправников, становых, урядников, земских начальников и разных стражников мы у царя, как милости просили. Для кого и зачем под видом податей и налогов у тебя, обнищалого и разорённого русского (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB72C061883992C6FE4D870A2EC25E552D722D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213723   (767371) от 18.03.2018
+
+В.И. Невский (ред.) | Восстание на броненосце "Князь Потемкин Таврический". Воспоминания, материалы и документы (1924) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстание на броненосце «Князь Потёмкин-Таврический» - одно из заметных событий революции 1905—1907 годов в России и первый случай вооружённого мятежа целой воинской части в ходе этой революции. Проходило с 14 (27) июня по 25 июня (8 июля) 1905 года.Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129B452F45EA3BBFDB8CC4968AF2F82DF2D448BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213719   (767369) от 18.03.2018
+
+П.Ф. Куделли, П.И. Кулябко (сост.) | Великий Октябрь. Активные участники и организации. Альбом (1927) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный альбом к десятилетию Великого Октября, изданный Ленинградским истпартом. Содержит множество фотографий и краткие биографии почти всех участников Октябрьской революции.Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B64BEC44E41A2E3B0A998A71C116EB4C0DC5F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213519   (767333) от 18.03.2018
+
+К. Маркс | Теории прибавочной стоимости (4-й том «Капитала») [3 книги] (1978) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767333.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Теории прибавочной стоимости» («Theorien über den Mehrwert»), образующие четвертый том «Капитала» («Историю теории» согласно принятому Марксом в 1867 г. окончательному плану «Капитала»), являются тематическим завершением главного теоретического труда основоположника научного коммунизма.
+
+Они написаны Марксом в период от января 1862 до июля 1863 года. Это произведение (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24A74BC7D90CC7FB6BC6BC35FEE283E185F8B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

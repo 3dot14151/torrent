@@ -6,7 +6,7 @@ Rhinoceros 7 v.7.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234566.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ YT Downloader 7.26.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234553.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ K-Lite Codec Pack Update 17.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234547.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ HitPaw Video Converter for Mac 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234542.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Stats 2.8.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234541.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WinSnap 6.0.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234537.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Adobe Acrobat Reader для PDF 22.4.0.22039 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234535.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ YouCut - Video Editor / YouCut 1.583.1172 Mod by Mixroot, maxi123444, 0x7d [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234526.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ iCompta 6.0.65 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234519.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Benvista PhotoZoom Pro 8.1.0 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234516.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Google Earth Pro 7.3.4.8642 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234513.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ALLPlayer 8.9.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234509.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Firefox Browser 113.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234495.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1305) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234487.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ WinCatalog 2023.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234475.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1106) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234474.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ iA Writer 6.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234467.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ LiteManager 5.1 Free/Pro [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234466.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ AOMEI Backupper Technician Plus 6.9.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234458.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Topaz Video AI 3.2.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234452.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BurnAware Professional 16.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234443.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ HDCleaner 2.049 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234430.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Glary Utilities Pro 5.203.0.232 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234429.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234425.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Glary Utilities Pro 5.203.0.232 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234424.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ MyRadar - Weather Radar Pro 8.49.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234412.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5404.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247005.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246983.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ADB AppControl 1.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246973.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MAGIX Vegas Pro 20.0 Build 411 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246931.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MAGIX Vegas Pro 20.0 Build 411 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246896.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Kaspersky Free 21.14.5.462 Repack by LcHNextGen (19.07.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246888.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.90.6500 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246883.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SamDrivers 23.7 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246756.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Rufus 4.2 (Build 2074) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246742.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246659.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VMWare ThinApp 4.7.1 Build 677178 Final + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246607.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Foxit Reader 5.3.0 Build 0423 Final + Portable [Английский + Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246602.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Okdo Document Converter Professional 4.6 Portable bu Boomer x32/x64 [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246589.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ashampoo WinOptimizer Free 1.0.0 Portable by Valx x32/x64 [Мульти,Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246566.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dictionary .NET 4.8.4506 x32/x64 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246488.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ SAM CoDeC Pack 2012 Best & Player 4.20 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246447.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ LibreOffice 3.5.3 Final [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246407.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Wise Disk Cleaner 7.22 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246393.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ SAM DeCoDeR Pack 2012 Best & Player 4.20 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246372.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ MAX Desktop 25.15.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246179.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Hallo northern sky 4.2.15 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246060.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ LibreWolf 111.0-3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246053.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Apache OpenOffice 4.1.13 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246052.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Icecream Photo Editor 1.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246042.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VMware Workstation 16 Pro 16.2.3 Build 19376536 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246039.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Sandboxie 5.62.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246038.jpg" />
 </div>
 
 

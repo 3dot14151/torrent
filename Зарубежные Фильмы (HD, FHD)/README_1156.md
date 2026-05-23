@@ -1,55 +1,3 @@
-###  Публикация: 1819815   (1243) от 24.09.2025
-
-Особь: Пробуждение / Species: The Awakening (2007) BDRip [H.265/1080p] [10-bit] [Unrated]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Однажды университетский преподаватель Миранда Холландер ненадолго теряет сознание, а приходит в себя посреди кровавого побоища и массы трупов. От своего дяди она узнаёт шокирующую правду: Миранда - клон гибрида человека и пришельца. Вместе с дядей она отправляется в Мексику, чтобы разыскать учёного, который её создал.Производство: США, Мексика / 360 Pictures Inc., Chivata Action Cars, Metro-Goldwyn-Mayer (MGM)Жанр: ужасы, фантастика, боевик, триллер, приключенияРежиссер: Ник ЛионАктеры: Хелена Мэттссон, Бен Кросс, Доминик Китинг, Марлене Фавела, Эди Ареллано, Марко Бакуцци, Жан Буда, Роджер Кадни, Монтсеррат Де Леон, Жерман ФабрегаПеревод: профессиональный двухголосый (R5 / DVD «Двадцатый Век Фокс СНГ»)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D4AF61ABEF34194F27EF2A095E9D3FB7BBD66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819794   (1211) от 24.09.2025
-
-Особь 3 / Species III (2004) BDRip [H.265/1080p] [10-bit] [Unrated]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сара - уже третье поколение получеловеческого-полуинопланетного существа. Это почти совершенная особь, которая была возрождена ренегатом - профессором биохимии Абботом. Жестокая в своих поисках партнера для размножения, Сара обладает удивительной физической силой и способностью преобразовывать своё тело в различные агрессивные формы, выбрасывать щупальца, когти. (   Читать дальше...   )Производство: США / FGM Entertainment, Metro-Goldwyn-Mayer (MGM)Жанр: ужасы, фантастикаРежиссер: Брэд ТернерАктеры: Робин Данн, Роберт Неппер, Санни Мабри, Амелия Кук, Джон Пол Питок, Майкл Уоррен, Кристофер Ним, Патриша Бетун, Джоэль Штоффер, Наташа ХенстриджПеревод: профессиональный двухголосый (НТВ+, SDI Media), авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A60203A8FFC1018D6B21CD8808482DB294D8E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819436   (1188) от 24.09.2025
 
 Мы покорим Манхэттен / We'll Take Manhattan (2012) WEB-DL [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1188.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1168.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1154.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1113.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1110.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1087.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1068.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1042.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1011.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1001.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_855.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_841.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_834.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_820.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_807.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_805.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_703.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_629.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_618.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_613.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_594.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_566.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_423.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_416.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DD04199E115324FDFBA889C85B62496D98F1AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820709   (389) от 28.09.2025
+
+Крутой поворот / Sharp Corner (2024) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джош переезжает в новый загородный дом вместе с женой Рэйчел и шестилетним сыном Максом в надежде на тихую семейную жизнь. На первый взгляд, всё выглядит идеально — вокруг тишина и природа. Но дом находится рядом с дорогой у опасного поворота, и однажды на глазах Джоша и Рэйчел происходит страшная автокатастрофа, в которой погибает человек. А скоро происходит ещё (   Читать дальше...   )Производство: Канада / Alcina Pictures, Shut up & Colour Pictures, Workhorse PicturesЖанр: триллер, драмаРежиссер: Джейсон БакстонАктеры: Бен Фостер, Коби Смолдерс, Уилльям Косович, Гэвин Дреа, Рейд Прайс, Александра Кастильо, Гита Миллер, Джонатан Уоттон, Дэн Летт, Julia DyanПеревод: Дублированный (Велес), многоголосый, двухголосыйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6C3161BE17B507862DF5A2C734E4359CB7F2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820722   (363) от 28.09.2025
+
+Зомбиби, или завали зомбака / Kill Zombie! / Zombibi (2012) BDRip [H.264/1080p] [МVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обломки орбитальной станции «Мир» падают на Амстердам, принеся с собой из космоса смертоносный вирус. Во мгновение ока голландская столица превращается в кормушку для кровожадных толп оживших мертвецов. И где-то посреди всеобщего бардака несколько оболтусов пытаются найти свой путь к спасению.Производство: Нидерланды / Launch Works, Talent United Film & TVЖанр: комедия, ужасыРежиссер: Мартин Смитс, Эрвин ван ден ЭшофАктеры: Яхья Гайер, Мимун Оулед Ради, Гиги Равелли, Серхио Хасселбайнк, Урия Арнхем, Ноэль Дилен, Nadia Poeschmann, Карло Бошхард, Йес-р, Iliass Ojja и др.Перевод: Профессиональный многоголосый (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67EBADEEF625549FC143C8B0C6ACBB1DDF71105
 ```
 
 https://mybot314.ru/tekegram_catalog/

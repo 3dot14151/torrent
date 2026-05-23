@@ -1,355 +1,3 @@
-###  Публикация: 1571109   (210178) от 20.08.2022
-
-Дневная смена / Day Shift (2022) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-История трудолюбивого отца, который пытается обеспечить лучшую жизнь 8-летней дочери. Вот только его дневная работа уборщиком бассейнов — лишь прикрытие. Он зарабатывает, выслеживая и убивая вампиров.Производство: США / 87Eleven Entertainment, Impossible Dream EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Дж.Дж. ПерриАктеры: Джейми Фокс, Дэйв Франко, Наташа Лю Бордиццо, Миган Гуд, Карла Соуса, Стив Хоуи, Скотт Эдкинс, Оливер Мазуччи, Снуп Догг, Эрик ЛанжПеревод: Многоголосый профессиональный, дублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 01:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FBAAD91111D5F4DA169987A4C455A26178B1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571437   (209993) от 22.08.2022
-
-Военные игры / WarGames (1983) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Хакеру повезло: он влез в компьютерную сеть Пентагона и стал играть в «войну». Операторы военного ведомства, а вслед за ними и командование решили, что русские начинают Третью мировую войну, и стали готовить ответный удар. Осознав, ЧТО он натворил, парень хочет прекратить игру, однако сделать это оказывается не так просто.Производство: США / Sherwood Productions, United ArtistsЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Джон БэдэмАктеры: Мэттью Бродерик, Дэбни Коулмен, Джон Вуд, Элли Шиди, Бэрри Корбин, Уанин Клей, Кент Уильямс, Деннис ЛипскомПеревод: Дублированный, многоголосый профессиональный, двухголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4D9ABB5F29B9DD558795DFC563FC9E2C130947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605176   (209774) от 17.01.2023
-
-Мимино (1977) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-«Мимино» — по-грузински «сокол». Так называют друзья героя фильма, летчика Валико Мизандари, по воле режиссера то и дело попадающего в смешные, грустные, а порой драматические ситуации.
-Работая в родном горном селении, Мимино перевозит на вертолете почту, фрукты, овец. Но он давно мечтает о настоящей, большой авиации. Наконец ему удается воплотить свою мечту в жизнь…Производство: CCCP / Мосфильм, Грузия-фильмЖанр: драма, комедияРежиссер: Георгий ДанелияАктеры: Вахтанг Кикабидзе, Фрунзик Мкртчян, Елена Проклова, Евгений Леонов, Руслан Микаберидзе, Закро Сахвадзе, Марина Дюжева, Арчил Гомиашвили, Валентина Титова, Владимир БасовПеревод: Не ребуется (русский)Субтитры: Русские, французские, английскиеПродолжительность: 01:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7294FC249182DC6B3AAD38409D4785A2794D821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580803   (206674) от 03.10.2022
-
-Гарри Гаррисон | Сборник (11 книг). Стальная Крыса (2022) [M4B|AAC, Кирилл Петров и др.]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Серия научно-фантастических юмористических произведений Гарри Гаррисона о похождениях в отдалённом будущем ловкого галактического мошенника Джеймса Боливара Ди Гриза по прозвищу «Скользкий Джим» и «Стальная Крыса»Жанр: ФантастикаФормат: M4BПродолжительность: 81:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A973546D610D5BECBB2D4961374F5B73A607BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582572   (206239) от 10.10.2022
-
-Роман Прокофьев | Стеллар (Книга 9). Прометей (2022) [M4B|AAC,  Алиса Тверская, Олег Кейнз]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Ведомые директивой Прометея, Грэй и верные ему Инкарнаторы отправляются на Черную Луну, чтобы выполнить финальную миссию системы Стеллара. Вместе с Роем Бина Ши им предстоит доставить Ядро в недра аномального планетоида, но для этого придется пройти по старым следам сгинувшего Первого Легиона и узнать, какие тайны скрывает Черная Луна.Жанр: ФантастикаФормат: M4BПродолжительность: 13:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAFAD13C3B2AB2C4560E9DC38280393FA38BAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586084   (204779) от 25.10.2022
-
-Сергей Лукьяненко | Измененные (Тетралогия) (2021-2022) [M4B|AAC, Кирилл Радциг]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Прошло восемь лет, как Земля попала под власть чужаков, уничтоживших Луну и понизивших уровень человеческой цивилизации. Везде появились «Гнезда», где ценой генетической перестройки спасали отданных родителями неизлечимо больных детей. В магазинах-«Комках» можно было приобрести любые товары, но платить за них следовало кристаллами, которые начали возникать в мире. (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 48:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AFA18D640B4DD2BE69869AF12611AECC7739C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230225   (202596) от 18.02.2023
-
-Смешарики. Дежавю (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Крош решает устроить незабываемый день рождения Копатыча — он обращается в агентство «Дежавю», которое обещает своим клиентам удивительные путешествия во времени. Но из-за несоблюдения условий договора всех смешариков раскидывает во времени, а Крошу придется собирать друзей по разным эпохам в компании своего второго «Я» — повзрослевшего и ворчливого Шорка, появившегося (   Читать дальше...   )Производство: Россия / Студия Анимации «Петербург», Art Pictures Studio, Группа Компаний «Рики»Жанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Денис ЧерновАктеры: Павел Деревянко (Крот, озвучка), Антон Виноградов (Крош, озвучка), Сергей Мардарь (Совунья / Кар-Карыч, озвучка), Михаил Черняк (Лосяш / Копатыч / Пин, озвучка), Владимир Постников (Ёжик, озвучка), Светлана Письмиченко (Нюша, озвучка), Вадим Бочанов (Бараш, озвучка), Михаил Хрусталёв (Шорк, озвучка)Перевод: Оригинал (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC97BE61CD0AA18F0DDAC731E6F233DC1A4C1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627998   (199522) от 21.04.2023
-
-Сергей Лукьяненко | Соглашение (Книга 3). Прыжок (2023) [M4B|AAC, Кирилл Радциг]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное продолжение романов «Порог» и «Предел»! Завершение трилогии «Соглашение»!
-Разношерстный, порой и в прямом смысле слова, экипаж корабля «„Твен“» должен выполнить задание сверхцивилизации Ракс. От задания не отказаться, ведь Ракс – это Ракс. Шансов справиться немного. Но иного пути нет. Значит, придется совершить невозможное.Жанр: ФантастикаФормат: M4BПродолжительность: 11:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413E35D9EE41186BF47BE18D12C2228CD9CF2AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789171   (198453) от 13.05.2023
-
-Игорь Тальков - Лирика (Часть первая) (2003) [ALAC|Tracks]<Авторская песня>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Разговоры ни о чем
-02. Моя любовь
-03. Звезда
-04. Ты опоздала(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C9A106A6DC88A80CFFA9FA75268B0756F32704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860670   (192206) от 01.11.2022
-
-Эрих Мария Ремарк | На западном фронте без перемен (2006) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Их вырвали из привычной жизни... Их швырнули в кровавую грязь войны... Когда-то они были юношами, учившимися жить и мыслить. Теперь они - пушечное мясо. Солдаты. И учатся они - выживать и не думать. Тысячи и тысячи навеки лягут на полях Первой мировой. Тысячи и тысячи вернувшихся еще пожалеют, что не легли вместе с убитыми. Но пока что - на Западном фронте все еще (   Читать дальше...   )Жанр: РоманФормат: M4BПродолжительность: 8:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8326DE66330197AEF3AD069A514D93F75D941C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426712   (186015) от 25.11.2020
-
-Би-2 - Бог проклятых (2020) [AAC|~323 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Бог проклятых (3:18)
-02. Бог проклятых (prod. тима ищет свет) (Лиза Громова version) (3:57)
-03. Бог Проклятых (Midnight Faces Version) (3:17)
-04. Бог проклятых (Jukebox Trio) (3:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264DEA4D895F9334F78B14E3CA4B1B734115FF0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426558   (185904) от 25.11.2020
-
-VA - Золотые застольные песни (2006) [AAC|~300 Kbps] <Pop, Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-1.01. Группа "Золотая стрела" - Любо, братцы, любо (5:35)
-1.02. Группа "Черная кошка" - Мой костер (2:43)
-1.03. Группа "Эшелон" - Черный ворон (4:05)
-1.04. Группа "Калитка" - Тонкая рябина (3:28)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 08:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DF58023FCB787CF07B27404BA5DFEB73B433D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426833   (185478) от 26.11.2020
-
-Shygirl - ALIAS (2020) [AAC|~312 Kbps] <Electronic, Grime, Experimental>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-01. TWELVE (2:32)
-02. SLIME (2:39)
-03. FREAK (2:47)
-04. TASTY (2:24)(   Читать дальше...   )Жанр: Electronic, Grime, ExperimentalПродолжительность: 00:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC42C887050A03F79BD64AED348613768136C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426890   (185416) от 26.11.2020
 
 Shakatak - All Around The World - 40th Anniversary Edition (2020) [AAC|~315 Kbps] <Jazz, Funk>
@@ -358,7 +6,7 @@ Shakatak - All Around The World - 40th Anniversary Edition (2020) [AAC|~315 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185416.jpg" />
 </div>
 
 
@@ -387,7 +35,7 @@ BTS - BE (2020) [AAC|~318 Kbps] <kpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185392.jpg" />
 </div>
 
 
@@ -416,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185278.jpg" />
 </div>
 
 
@@ -445,7 +93,7 @@ Parov Stelar - Voodoo Sonic (The Album) (2020) [AAC|~310 Kbps] <Electro, Jazz, S
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185247.jpg" />
 </div>
 
 
@@ -474,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185084.jpg" />
 </div>
 
 
@@ -500,7 +148,7 @@ Koan - Munchausen Trilemma (Side A) (2020) [AAC|~325 Kbps] <Ambient, Chillout, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184520.jpg" />
 </div>
 
 
@@ -529,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184518.jpg" />
 </div>
 
 
@@ -558,7 +206,7 @@ Koan - Munchausen Trilemma (Side B) (2020) [AAC|~320 Kbps] <Ambient, Chillout, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184484.jpg" />
 </div>
 
 
@@ -587,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184474.jpg" />
 </div>
 
 
@@ -616,7 +264,7 @@ VA - Deep Sleep Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184414.jpg" />
 </div>
 
 
@@ -645,7 +293,7 @@ Roxette - Bag Of Trix Vol. 3 (Music From The Roxette Vaults) (2020) [AAC|~336 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184354.jpg" />
 </div>
 
 
@@ -674,7 +322,7 @@ Wayne Static - Pighammer (2011) [AAC|~344 Kbps] <Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184314.jpg" />
 </div>
 
 
@@ -703,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184216.jpg" />
 </div>
 
 
@@ -717,6 +365,383 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF71F6286101BC3DF07F88CD590116BA0B2CF85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427444   (183606) от 28.11.2020
+
+Loudblast - Manifesto (2020) [AAC|~337 Kbps] <Death Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Todestrieb (3:22)
+02. Relentless Horror (2:17)
+03. Erasing Reality (5:11)
+04. The Promethean Fire (3:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327D5E6FD93780FE1C9941A99C69F3000DD3F708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427556   (183564) от 28.11.2020
+
+DJ Sven, Marc Hartman - The Revival (2018) [AAC|~335 Kbps] <Electro, Techno/House, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Is the Music (5:23)
+02. Rhythm in My Immy Bo Home (6:08)
+03. Back in the Days (4:59)
+04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: Electro, Techno/House, DiscoПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80585AEE1E510F3A0CA1826B2C376FF82FB360D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427447   (183535) от 28.11.2020
+
+The Smashing Pumpkins - CYR (2020) [AAC|~318 Kbps] <Alternative, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Colour of Love (4:24)
+02. Confessions of a Dopamine Addict (3:14)
+03. Cyr (4:03)
+04. Dulcet in E (3:22)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344ABC7F79CD0251CFCE45CA88931891A9D2CB17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427507   (183530) от 28.11.2020
+
+VA - Echelon, vol. 1 (2020) [AAC|~291 Kbps] <Rap, Hip Hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vald - Gotaga (2:18)
+02. Suikon Blaz AD - Echelon Music (3:02)
+03. Rafal - Magneto (2:39)
+04. SIRIUS - Après minuit (3:01)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB5051E6E690452F3F6F37F79CE0CAFEDCAF947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427537   (183524) от 28.11.2020
+
+VA - Blue Notes & Jazzy Grooves (2020) [AAC|~319 Kbps] <Chillout, Trip-hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Deviance - Hypnosis (3:26)
+02. Marco Moli - Excuses (4:15)
+03. DJ Deviance - No Ordinairy Love (5:34)
+04. Marco Moli - Beating The Big Drum (5:18)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC377D2903850BF24B4F43E503AE5E57EC2C039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427440   (183514) от 28.11.2020
+
+Sodom - Genesis XIX (2020) [AAC|~333 Kbps] <Thrash Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Superstition (1:03)
+02. Sodom & Gomorrah (4:06)
+03. Euthanasia (3:54)
+04. Genesis XIX (7:09)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327089DD8C53F7EC66CAF5FA1D2A0F0B5255EA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427534   (183510) от 28.11.2020
+
+Chillson, Marc Hartman - Little Bit of Jazz (2020) [AAC|~322 Kbps] <Chillout, Trip-hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just a Little Bit of Jazz (Original Mix) (4:37)
+02. The Closing Book (Original Mix) (4:52)
+03. Six String Jam (Original Mix) (5:14)
+04. Streets of Love (Original Mix) (3:52)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3078CFCAF78DEDBB5628A05A28F852255AD905FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427620   (182529) от 29.11.2020
+
+Marc Hartman - Set You Free (2015) [AAC|~345 Kbps] <Lounge, Ambient, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning (1:46)
+02. Under A Pink Sky (5:56)
+03. For The Love Of Music (6:45)
+04. Set You Free (Song for Wensi) (5:28)(   Читать дальше...   )Жанр: Lounge, Ambient, DowntempoПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48207528FA6B59910E9724BE12A046F72CE4E476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427647   (182524) от 29.11.2020
+
+Marc Hartman - Changes (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Place You've Never Been Before (3:37)
+02. A Simple Song (4:01)
+03. Solid State (4:04)
+04. Listen to Me (4:57)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BEA17FBC07DF6B142614E847AFD8E918EB05340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427802   (182505) от 29.11.2020
+
+VA - Slow Down: Ibiza Grooves (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - Falling Apart (5:09)
+02. Marco Moli - French Love Poem (5:08)
+03. Marco Moli - Just A Fool (3:18)
+04. Marc Hartman - Under My Skin (5:21)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE619F6FB42B919B911C4629A1C5596DB1BA67D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427661   (182500) от 29.11.2020
+
+Marc Hartman - Emission of Love (2016) [AAC|~348 Kbps] <Chillout, Trip-hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peope of Beijing (4:35)
+02. Become the Sky (4:44)
+03. Late Late Summer (6:10)
+04. I Can't Stop (5:14)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8092ECA5FB36DAAFAE8A019963023B730F163C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427792   (182483) от 29.11.2020
+
+Marc Hartman - The 5th Element (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting Closer to My Heart (4:18)
+02. Voices Inside (5:22)
+03. Bright Like the Night (4:58)
+04. Wait for Me (5:32)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788BDC1ECDEB8BDC1EF267479E01E13EA9A364D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427674   (182474) от 29.11.2020
+
+Marc Hartman - Music of the Third Kind (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Fall in Love (4:42)
+02. Into the Stone (4:16)
+03. Hearsay (5:24)
+04. Angels in the Sky (5:15)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B7F5F3B09118DE35BA15D770B190024C74C0D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

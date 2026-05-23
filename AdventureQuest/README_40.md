@@ -1,29 +1,3 @@
-###  Публикация: 1317880   (498428) от 03.08.2019
-
-7th Sector (2019) [Ru/Multi] (1.0.4/dlc) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-7th Sector предлагает Вам погрузиться в загадочный мир киберпанка и преодолеть непростой путь, решая разнообразные технические задачи, сталкиваясь с опасностями и собирая по крупицам информацию о мире и происходящих в нем событиях. В этом путешествии Вам предстоит управлять несколькими "персонажами" со своими уникальными способностями и подключаться к различным (   Читать дальше...   )Тип издания: LicenseРазработчик: Носков СергейЖанр: Adventure, Puzzle, Logic, 3DЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558392B4D41D299A75BC0902C35AB192BA4046C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317015   (496183) от 05.08.2019
 
 60 Seconds! Reatomized (2019) [Ru/Multi] (1.0.377) License PLAZA
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496183.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.65342) Repack DeMax-95
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494714.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Obduction (2016) [Ru/Multi] (1.8.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494385.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Endling - Extinction is Forever (2022) [Ru/Multi] (0.16.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494306.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Event[0] (2016) [En] (1.0/u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493498.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ CYPHER: Cyberpunk Text Adventure [En] (Lossless Repack/1.0) 2012 | SHARINGAN
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492697.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ Silver Chains (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492285.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ The Trail: Frontier Challenge (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491270.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.6.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490014.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.0.536) Repack Covfef
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489427.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ The Long Dark (2017) [Ru/Multi] (1.10) SteamRip R.G. Игроманы [Episode 1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489424.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ The Vanishing of Ethan Carter Redux (2014) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489278.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Ever Forward (2020) [Ru/Multi] (0.1.5/dlc) License GOG [Special Launch Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488972.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ Virginia (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487695.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ Virginia (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487692.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9V) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486020.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ In Fear I Trust (2016) [Ru/Multi] (1.0) Repack Other s [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485063.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386/dlc) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484466.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ Apsulov: End of Gods (2019) [Ru/Multi] (1.0.4) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484456.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ Black Mirror / Черное зеркало Трилогия [Ru] (Repack) 2003-2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484223.jpg" />
 </div>
 
 
@@ -564,7 +538,7 @@ Real Myst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483656.jpg" />
 </div>
 
 
@@ -590,7 +564,7 @@ Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483501.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483297.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ Vernon’s Legacy (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483100.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ Pavilion (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482965.jpg" />
 </div>
 
 
@@ -680,6 +654,32 @@ Pavilion — это адвенчура с элементами пазла, ра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4861BE86673E0E6606B4F293A5626CD26FF20BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056554   (479633) от 22.08.2017
+
+Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Virginia - триллер от первого лица про маленький городок со скелетом в шкафу. В роли начинающего агента ФБР Анны Тарвер вы попытаетесь разыскать пропавшего мальчика. Вместе с опытным агентом Марией Гальперин вы отправитесь в городок Кингдом в округе Бёрджесс, Вирджиния, где бесследно пропал мальчик.Тип издания: RepackРазработчик: Variable StateЖанр: Adventure, 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114AE98A0672FAC698BB6E0F36393F42F08544FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

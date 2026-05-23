@@ -6,7 +6,7 @@ Acronis Backup Advanced 11.7.50220 + BootCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571828.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SolveigMM Video Splitter 6.1.1707.19 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571811.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.2 Build #IU-172.3317.76 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571801.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ R-Studio 7.7 Build 159213 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571739.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ K-Lite Codec Pack Update 11.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571693.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NVIDIA GeForce Experience 2.5.12.11
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571650.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Avira Browser 44.0.2403.89 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571648.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SiSoftware Sandra Business / Personal / Tech Support / Enterprise 2015.07.21.42 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571595.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SoftOrbits Photo Editor 1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571513.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Classic Shell 4.2.3 RC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571498.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Emsisoft Internet Security 10.0.0.5561 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571437.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ EaseUS System GoBack Free 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571436.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ A4ScanDoc 1.9.1.2 Portable by avxhome [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571435.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PIDKey 2.0.9 build 1002 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571433.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ DisplayFusion Pro 7.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571430.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Emsisoft Anti-Malware 10.0.0.5561 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571419.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Re-Loader 1.3 RC 10.0.10240 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571418.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CrystalDiskMark 5.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571342.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571283.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PROMT Freelance 10 Build 9.0.526 + All Dictionaries Collection [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571230.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x86-x64) WZT [Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571229.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571222.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Aiseesoft Total Media Converter Platinum 6.3.10 + Portable by fisher3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_571166.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ CoolUtils PDF Combine 5.1.87 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571056.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VMware Workstation Technology Preview 2012 8.1.790308 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_571046.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Opera 54.0.2952.46 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570915.jpg" />
 </div>
 
 

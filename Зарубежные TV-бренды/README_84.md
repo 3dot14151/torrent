@@ -1,29 +1,3 @@
-###  Публикация: 943836   (444918) от 05.10.2015
-
-Discovery: Разрушители легенд. Спецвыпуск: Команда-А / MythBusters. The A-Team Special (2015) SATRip  (Сезон 15, эпизод 03)  [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464704D34168A067258790252423C86FA05A68A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943835   (444748) от 05.10.2015
 
 Discovery: Разрушители легенд. В поисках утраченных легенд / MythBusters. The Busters of the Lost Myths (2015) SATRip  (Сезон 15, эпизод 02)  [Discovery]
@@ -32,7 +6,7 @@ Discovery: Разрушители легенд. В поисках утрачен
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444748.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG. Тайная семерка Африки / Africa's Secret Seven (2003) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444658.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Discovery: Разрушители легенд. Трансформеры / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444601.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444600.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444486.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443989.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ NGW: Вся правда о крокодилах / The whole truth about crocodi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443578.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ NG. Зеленоглазый леопард / Jade Eyed Leopard (2020) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442721.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ NGW: Грозовые кошки / Storm Cats (2016) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442251.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ NGW: Охота ягуара на побережье / Jaguar Beach Battle (2018
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442248.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ BBC: Ада Лавлейс: первая леди программировани
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441597.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ NGW: Матриархат / Girl Power (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441303.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441168.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440142.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ NG: Возвращение на Титаник / Back to the Titanic (2020) WEB-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439983.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ BBC. Тайные агенты Елизаветы I / Elizabeth I's Secret Agent
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439625.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ NGW: Дикое королевство / Savage Kingdom (2016) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435147.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Discovery: Первые обитатели Америки / America's First Nati
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435144.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ History Channel. Титаник: Тайна раскрыта / Titanic at 100: M
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435139.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ NGW: Волчья династия Йеллоустоуна / Yellowstone Wolf D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434953.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434704.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ BBC. История Христианства / A History of Christianity (2009) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434606.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433472.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ BBC: История хирургии.  Кровавое начало [5 из 5] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433148.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Discovery: Прежде чем мы покорили Землю / Before We Rule
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432893.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Discovery: Прежде чем мы покорили Землю / Before We Rule
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07E92BB4CC0C13314E80C36339732E690A098856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063755   (432153) от 17.10.2016
+
+Discovery. Техногеника. Шагающий экскаватор (2016) HDTVRip [720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шагающий экскаватор «Уралмаш ЭШ 65/100» — самый большой в России и самый мощный в мире экскаватор с традиционным ковшом. Первая цифра в его названии обозначает объем ковша в кубометрах, а вторая — вылет стрелы в метрах. Трудится этот монстр в Тулунском угольном карьере, расположенном в Иркутской области, и из-за невероятных габаритов его издалека видно водителям, (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, ТелепередачаПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667C649EA863204A83EB17A399CCEF7BA7B2339F
 ```
 
 https://mybot314.ru/tekegram_catalog/

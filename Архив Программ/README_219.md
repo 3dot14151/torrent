@@ -6,7 +6,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960514.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blender 2.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960512.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v3.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960475.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960473.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Total Commander 9.50 Extended 20.2 Full / Lite RePack (& Portable) by BurSoft [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960471.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ ABBYY FineReader 15.112.2130 Corporate RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960435.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ MiniTool Partition Wizard Technician 11.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960431.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7237.5000 (2020.02) RePack by KpoJIuK [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960422.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Total Commander 9.50 Titan v.20 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960420.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Windows 10 Enterprise LTSC 1809 (Build 17763.1039) x86/x64 by Sergei Strelec [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960298.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ BELOFF 2020 Lite [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960291.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ oCam Screen Recorder 208.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959878.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ oCam Screen Recorder 208.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959865.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Icecream Ebook Reader 2.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959777.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Wise Care 365 Pro 3.96.357 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959773.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ K-Lite Codec Pack Update 11.8.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959705.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Mozilla Firefox 44.0 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959698.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Wise Care 365 Pro 3.96.357 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959660.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mirillis Splash 2.0.0 Premium Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959604.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Mozilla Firefox 44.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959600.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ JoyoBox Cleaner 5.0.0.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959598.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959594.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CCleaner 5.14.5493 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959540.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Cacheman 10.0.0.1 DC 26.01.2016 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959535.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Vit Registry Fix Pro 12.6.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959534.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Ashampoo Photo Recovery 1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959530.jpg" />
 </div>
 
 

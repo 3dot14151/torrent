@@ -6,7 +6,7 @@ Staatskapelle Berlin - Brahms: Symphonies (2018) [MP3|320 Kbps] <Classical>
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678161.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Royal Philharmonic Orchestra - Symphonic Queen: The Greatest Hits (2016) [FLAC|L
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677939.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The New London Chorale - The Christmas Album (1989) Reissue [FLAC|Lossless|image
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677387.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The New London Chorale - Young Forever 15 Jaar Successen (1996) Compilation [FLA
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677290.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lise Davidsen, Leif Ove Andsnes, Edvard Grieg - Edvard Grieg (2022) [FLAC|Lossle
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676573.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mozart - Le nozze di Figaro (Herbert von Karajan & Vienna Philharmonic Orchestra
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675343.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Berdien Stenberg - Pirouette (1987) [FLAC|Lossless|tracks + .cue] <Classical-cro
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673302.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Grieg - Peer Gynt(Sir Neville Marriner & Academy of St. Martin In The Fields Orc
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673100.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ New London Chorale - Young Christmas (2001) Reissue [FLAC|Lossless|image + .cue]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671523.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Angelica (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Crossover C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671516.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The New London Chorale - The Classic Christmas Collection (1998) [FLAC|Lossless|
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671515.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Piano Cloud Series - Volume Three (2017) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671430.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670680.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - 100 Piano Masterworks (2017) [MP3|320 Kbps] <Classical, Piano>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670638.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - (Hermann Max, Sir Neville Marriner) - J.S. Bach - Magnificat, A. Vivaldi - 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669532.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667432.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Esmerine - 3 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Experi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_667164.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Peaceful Piano (2017) [MP3|320 Kbps] <Classical, Piano>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666490.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ A Silver Mt. Zion - 8 albums (2000-2012) [FLAC|Lossless] <Experimental, Neoclass
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_665813.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ George Frideric Handel - La Maga Abbandonata (Simone Kermes & Maite Beaumont / I
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664150.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Emma Shapplin - 2 Альбома (2002-2003) [FLAC|Lossless]<Modern Classical>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663446.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Schubert - The Piano Sonatas (Wilhelm Kempff) (Vol.1) (4CDs) (2000) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658977.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Joep Beving - Prehension (2017) [MP3|320 Kbps] <Modern Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657707.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Louis Spohr - Double Quartets: St.Martin-in-the-Fields Chamber Ensemble (1998) 2
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656946.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Franz Ignaz Beck - Symphonies: Nicolas Ward & Northern Chamber Orchestra (1996) 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656937.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Wolfgang Amadeus Mozart – Divertimenti KV 136-138, 251: The Amsterdam Baroque 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656830.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Marillion - Sounds That Can’t Be Made (2012) [FLAC|Lossless]<Prog Rock, Art Ro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229373.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ O Yuki Conjugate - Sleepwalker (2019) Auf Abwegen [FLAC|Lossless|tracks+.cue] <A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229367.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Clipboard Manager 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229364.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ NoteBurner Netflix Video Downloader 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229351.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229335.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Mindjet MindManager 2019 v19.1.198 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229327.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Fork 2.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229315.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cisdem Data Recovery 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229306.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Firefox Browser ESR 78.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229283.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Hardcore Top 100 (2018) [MP3|320 Kbps] <Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229279.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Nova 11.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229276.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229261.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ PDF Converter Master 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229237.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Christmas Chillout: Best for the Year 2020 [FLAC|Lossless|WEB-DL|tracks] <E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229220.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ MIDIRenderer 3.8.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229204.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Magic Uneraser Home / Office / Commercial Edition 5.3 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229203.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.28 (2711) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229194.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229193.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Airwave - 20 Years (Ambient Reworks) (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229186.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ apulSoft FX Bundle 11.2020 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229170.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ FBackup 9.4.452 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229169.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Nevercenter CameraBag Photo 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229161.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ BurnAware Professional 13.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229141.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Opera GX 81.0.4196.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229139.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229136.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Pixelmator Pro 3.3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229122.jpg" />
 </div>
 
 

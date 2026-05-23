@@ -6,7 +6,7 @@ VA - Future Sound of Egypt 600 - Sands of Time (Mixed by Aly & Fila & Ciaran Mca
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298745.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ NX-Trance - CY 3000 (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298213.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Magic Island - Music For Balearic People Vol. 9 (Mixed  by Roger Shah) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296823.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Achromania - A Journey Through White Label Trance Vol. 8 (2017) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295223.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Trancemission Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295216.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Recoverworld Radio 016 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295205.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295192.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best Of Deepsink Digital Trance Vol 2 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293744.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Best of Trance 2017, Vol. 06 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293743.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Recoverworld Trance Sessions 17.06 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293740.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293516.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Trance 2019 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293514.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Pure Trance 7 (Mixed by  Kristina Sky & Solarstone & Lostly) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293505.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Trance Travel Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291812.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dream Travel - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291811.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Adedition: Trance Collection Of Amsterdam (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291739.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291738.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Solarstone - One (Limited Edition) (2019) Box Set [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291664.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Stoneface & Terminal - Altered Floors (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291558.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Sarah Lynn - Clear As The Sky: The Best Of (Extended Mixes) (2018) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291554.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Absolute Uplifter (Euphoric Trance) Vol. 2 (2016) [MP3|320 Kbps] <Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290413.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - ReOrder - Iamready (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290031.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Trance Connection Vol.1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290018.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Vocal Trance Gems: Best of (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289950.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - A State of Trance: Future Favorite - Best of (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289831.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Matt Pincer - The NRG Collection (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289448.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1368816   (906485) от 21.03.2020
-
-Бессмертный / L'immortale / The Immortal (2019) BDRemux [H.264/1080p] [МVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Чиро Ди Марцио тонет в тёмных водах Неаполитанского залива. И по мере того, как он погружается всё глубже и глубже, появляются воспоминания. Приглушенные водой звуки сливаются с криками бегущих людей. Это 1980 год, земля дрожит, здание рушится, но под обломками можно услышать крик новорожденного ребенка. Десять лет спустя мы обнаруживаем, что мальчик-сирота выжил (   Читать дальше...   )Производство: Италия, Германия, Cattleya, Vision Distribution, Beta FilmЖанр: Драма, криминалРежиссер: Марко Д’АморАктеры: Марко Д’Амор, Giuseppe Aiello, Сальваторе Д’Онофрио, Gianni Vastarella, Марианна Робустелли, Martina Attanasio, Gennaro Di Colandrea, Нелло Маския, Алексей Гуськов, Нунцио КопполаПеревод: Многоголосый профессиональный (HDRezka studio)Субтитры: Английские, итальянскиеПродолжительность: 01:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADFD99427725EB638EB47960395FBA65A96CE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483238   (906445) от 27.08.2021
-
-Боевой робот номер 4 (Монстры, созданные человеком) / Monsters of Man (2020) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В далёких джунглях Камбоджи ЦРУ проводит несанкционированные испытания боевых роботов с искусственным интеллектом, созданных частной компанией. Расстреливая банду вооружённых наркоторговцев, андроиды уничтожают и жителей лесной деревни, невольными свидетелями чего становится живущий там же бывший морпех и группа американских студентов-медиков, участвующих в волонтёрской (   Читать дальше...   )Производство: Австралия / MRT Films Pty Ltd, Hanuman Films, 11:11 EntertainmentЖанр: Фантастика, боевикРежиссер: Марк ТойяАктеры: Нил МакДонаф, Бретт Тутор, Хосе Росете, Дэвид Хэверти, Пол Хаапаниеми, Райан Хью, Ly Ty, Ma Rynet, Кэйли Чан, Джессика БлэкморПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 02:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D7FCC1740B71953B1C90E9875960290A93B842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 759227   (906412) от 22.02.2014
 
 Хакеры / Hackers (1995) HDTVRip [H.264/720p-LQ] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906412.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906395.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906375.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906355.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906319.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906305.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906303.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906299.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906244.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906241.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906237.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906211.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906182.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906180.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906173.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906101.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906062.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906047.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906045.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905977.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905970.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905962.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905948.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905835.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACE18A49A4670B1E34C487D44519666324DDDBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990579   (905759) от 28.02.2016
+
+В погоне за Эми / Chasing Amy (1997) Blu-ray [VC-1/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой художник теряет голову и ощущение реальности, когда безумно влюбляется в восхитительную красотку, чьи любовные похождения, в том числе и лесбийские, трудно сосчитать. Его лучший друг, он же партнер, очень завистлив и подбрасывает ему всякие доказательства темного прошлого этой легкомысленной особы. Однако влюбленный художник ничего не желает слушать и не (   Читать дальше...   )Производство: США / Too Askew Prod. Inc., View Askew ProductionsЖанр: Драма, Мелодрама, КомедияРежиссер: Кевин СмитАктеры: Бен Аффлек, Джои Лорен Эдамс, Джейсон Ли, Итэн Сапли, Скотт Можер, Кейси Аффлек, Дуайт Юэлл, Гвиневер Тёрнер, Кармен Ллайвелин, Брайан О’Хэллоран, Мэтт Дэймон, Тони Торн, Ребекка Ваксман, Пэрис Петрик, Уэлкер Уайт, Келли Симпкинс, Джон Уиллюнг, Це-Мач Вашингтон, Эрнест О’Доннелл, Джейсон Мьюз, Кевин Смит, Кристин Мосье, Вирджиния СмитПеревод: Профессиональный многоголосый, Профессиональный двухголосый, Авторский Юрий ЖивовПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8A31DB182D47B0D0BA3135796D9C86BBAAD87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990940   (905718) от 28.02.2016
+
+Как заниматься любовью по-английски / How to Make Love Like an Englishman (2014) BDRemux [H.264/1080p] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма вращается вокруг профессора Кембриджского университета, избравшего в качестве своего девиза изречение уайльдовского лорда Генри из «Портрета Дориана Грея»: «Единственный способ отделаться от искушения - уступить ему». Но однажды в жизни героя появляется молодая женщина, ради которой он решает пересмотреть личные приоритеты и подавить гедонистические (   Читать дальше...   )Производство: США PalmStar Media, Southpaw Entertainment, Irish DreamTimeЖанр: Мелодрама, КомедияРежиссер: Том ВонАктеры: Пирс Броснан, Сальма Хайек, Джессика Альба, Малкольм МакДауэлл, Дункан Джойнер, Бен МакКензи, Меррин Данги, Фред Меламед, Иван Сергей, Ломбардо БойярПеревод: Дублированный (Line)Язык субтитров: Английский (Full)Продолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E12684C07D885DC52154537998E1635F3FA8352
 ```
 
 https://mybot314.ru/tekegram_catalog/

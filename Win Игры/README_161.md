@@ -1,29 +1,3 @@
-###  Публикация: 1400513   (718538) от 05.08.2020
-
-Poly Bridge 2 (2020) [Ru/Multi] (1.20) Repack xatab
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый симулятор мостостроения вернулся и стал лучше прежнего! Развивай инженерную смекалку — тебе предстоит провести много часов за разгадыванием увлекательных головоломок! Адриан Тэйленс снова порадует поклонников новым полновесным саундтреком! Расслабься под спокойную музыку, которую полюбили даже критики: тебя ждут 13 совершенно новых треков плюс 18 обновленных (   Читать дальше...   )Тип издания: RepackРазработчик: Dry CactusЖанр: 3D, SimulationЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7EC5A69863597CE4A2BD8BE2B2640841BAE601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399885   (718534) от 05.08.2020
 
 Nancy Drew: Midnight in Salem / Нэнси Дрю: Полночь в Сейлеме (2019) [Ru] (4619837) Unofficial
@@ -32,7 +6,7 @@ Nancy Drew: Midnight in Salem / Нэнси Дрю: Полночь в Сейле�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718534.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.3) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718469.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Armello (2015) [Ru/Multi] (1.4.2/dlc) License SKIDROW
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718247.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ KAPIA (2022) [Ru/Multi] (1.266) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718176.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Scarf (2021) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718172.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Army General (2017) [En/Ge] (1.0.25) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718017.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Obscure Legends: Curse of the Ring / Загадочные легенды: Про
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717488.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Day of the Tentacle Remastered (2016) [En/Multi] (1.3.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717242.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Anima Gate of Memories (2016) [En/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717238.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ FARHOME (2018) [Ru/Multi] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717019.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Road to Hades (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716916.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) Repack xatab [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716908.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Nevertales 8: The Abomination (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716805.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dark Tales 18: Edgar Allan Poe's. The Devil in the Belfry (2020) [En] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716718.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ SCRUTINIZED (2020) [En] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716611.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Necrobarista (2020) [Ru/Multi] (1.00) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716594.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716584.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Hellpoint (2020) [Ru/Multi] (1.01) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716460.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Relicta (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716457.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Phantom Trigger (2017) [En] (Alpha) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715875.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Fear of Clowns (2017) [En] (1.01) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715859.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Vertical Strike Endless Challenge (2017) [En/Jp] (1.0) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715762.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Hot Guns (2017) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715759.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) Repack Other s [Episodes 1-6]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715286.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ DUCATI - 90th Anniversary (2016) [En/Multi] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715125.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ DUCATI - 90th Anniversary (2016) [En/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F7BC301E356C9CA2DC4C2A300E536F0FEA9E2DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219254   (715056) от 13.04.2018
+
+Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В древнем кельтском повествовании молодая девушка по имени Солас (Solas) должна пройти через суровую безжалостную зиму, чтобы исправить ошибки прошлого своей семьи. Solas и White WInter - это атмосферная приключенческая игра с с элементами головоломок и темной историей, которую Солас должна раскрыть.Тип издания: LicenseРазработчик: Savepoint StudiosЖанр: AdventureЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB3F9172CD9441D7DC384DF8D702BCD065AA599
 ```
 
 https://mybot314.ru/tekegram_catalog/

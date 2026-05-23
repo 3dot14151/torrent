@@ -1,29 +1,3 @@
-###  Публикация: 1169220   (403871) от 26.09.2017
-
-Dark Realm: Guardian of Flames / Темный мир 4: Хранитель пламени (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной фантастической серии игр Dark Realm. На этот раз игроку будет противостоять могущественный Император Тьмы, но в нашем арсенале тоже найдется пару магических приемчиков! Начавшееся затмение, ознаменовало возвращение одного из самых опасных злодеев всех времен! Королева Валери - одна из последних Властителей Огня и единственная, кто может (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B27DA2EEC7AB8E390CB959819C828CD4808F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169251   (403743) от 26.09.2017
 
 Raiders of the Broken Planet (2017) [Ru/Multi] (1.0.0.1/dlc) License PLAZA
@@ -32,7 +6,7 @@ Raiders of the Broken Planet (2017) [Ru/Multi] (1.0.0.1/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403743.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ E.Y.E. Divine Cybermancy [Ru] (Repack/1.37) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403305.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ The Wisbey Mystery / Тайна Визби (2016) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403113.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Secret of Great Queens: Old Tower / Тайны Великих Королев: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403067.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ RAID: World War II (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402956.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402952.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Lichdom: Battlemage (2014) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402903.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Danganronpa V3: Killing Harmony (2017) [En/Ja/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402891.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402654.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Medal of Honor: Warfighter - Digital Deluxe Edition [En/Ru] (CrackFix/1.0.0.2) 2
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402650.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ Through the Woods (2016) [Ru/Multi] (1.2) License GOG [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402095.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402093.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ RAID: World War II / RAID: World War 2 (2017) [Ru/En] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402078.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401828.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401687.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ Risen 2. Dark Waters / Risen 2. Тёмные воды [Ru/En/Gr] (RePack/1.0.121
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401677.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ Alicia Quatermain: Secret of the Lost Treasures / Алисия Квотерме�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401215.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ Risen 2: Dark Waters [Ru/En] (RePack/1.1.0.0/3 DLC) 2012 | R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400652.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ Total War Anthology / Антология Total War [Ru/En] (Repack) 2000 - 2012 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399643.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ Awakening 7: The Golden Age / Пробуждение 7: Золотой век (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399425.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ Farming Simulator 2013 [En] (L) 2012 | RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398610.jpg" />
 </div>
 
 
@@ -596,7 +570,7 @@ PuppetShow 8: The Face of Humanity / Шоу марионеток 8: Быть ч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398514.jpg" />
 </div>
 
 
@@ -622,7 +596,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398270.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ RiME (2017) [Ru/Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398263.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (Repack/1.0.0.0.u.1/2 DLC) 2012 | R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397745.jpg" />
 </div>
 
 
@@ -689,6 +663,32 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (Repack/1.0.0.0.u.1/2 DLC) 2012 | R.G. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83173E96362DA0CCBAB2D20C628FD0F9CF53E7A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171101   (397335) от 03.10.2017
+
+Hob (2017) [Ru/Multi] (1.12.2.0/dlc) License CODEX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Torchlight и Torchlight II представляют Hob — захватывающее приключение в прекрасном, но жестоком мире. Проникните в тайны планеты, узнайте правду и исцелите этот мир прежде, чем он погрузится в хаос.Тип издания: LicenseРазработчик: Runic GamesЖанр: Action, Arcade, AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DF528567BD14E304659F9CC9FAF7B8E0957EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

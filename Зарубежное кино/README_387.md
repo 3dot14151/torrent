@@ -1,56 +1,3 @@
-###  Публикация: 294933   (896039) от 13.02.2011
-
-Дон Жуан де Марко / Don Juan DeMarco (1995) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Очень сложно писать о такой картине, так как просто пересказ содержания не даст ничего, а просмотр у каждого вызовет свои собственные, связанные с личной эмоциональностью и опытом ассоциации.
-Современный Дон Жуан ищет свою донну Анну, а не просто коллекционирует победы над женщинами. Он не может жить в реальном мире, так как не может принять его правил. Психиатр (   Читать дальше...   )Жанр: Комедия, Мелодрама, ФэнтезиРежиссер: Джереми Ливен /Jeremy Leven/Актеры: Марлон Брандо /Marlon Brando/, Джонни Депп /Johnny Depp/, Фэй Данауэй /Faye Dunaway/, Рэйчел Тикотин /Rachel Ticotin/, Боб Диши /Bob Dishy/, Талиса Сото /Talisa Soto/Перевод: Многоголосый закадровыйСубтитры: Русские отдельным файломЯзык: Русский / EnПродолжительность: 01:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C000B3E712676CFCC98ED2304A3314DB7AE63869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100023   (895961) от 06.02.2017
-
-Ночь страшного суда / Judgment Night (1993) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Иногда судьба может сыграть довольно злую шутку. Четверо друзей, отправляясь на боксерский матч, не могли даже предположить, что такое может с ними случиться. Всему виной проклятая "пробка", в которой застряла их машина. Чтобы не опаздывать, компания решила "срезать" угол и проехать кратчайшим путем через опасный квартал города. И… оказалась не (   Читать дальше...   )Производство: США, Япония / JVC Entertainment, Largo EntertainmentЖанр: Боевик, Драма, Криминал, ТриллерРежиссер: Стивен ХопкинсАктеры: Эмилио Эстевес, Кьюба Гудинг мл., Дэнис Лири, Стивен Дорфф, Джереми Пивен, Питер Грин, Эрик Шроди, Майкл Уайзмен, Майкл ДеЛоренцо, Релиуэс УэббПеревод: Многоголосый, АвторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 01:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EFCCB2334F55ACD49DD0A06BAB5477A871D5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638393   (895875) от 02.04.2013
 
 Цель номер один / Zero Dark Thirty (2012) BDRip [1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895875.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895843.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895768.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895761.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895753.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895732.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895728.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895697.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895683.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895680.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895584.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895486.jpg" />
 </div>
 
 
@@ -378,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895469.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895453.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895419.jpg" />
 </div>
 
 
@@ -457,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895414.jpg" />
 </div>
 
 
@@ -483,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895393.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895323.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895265.jpg" />
 </div>
 
 
@@ -561,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895247.jpg" />
 </div>
 
 
@@ -587,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895173.jpg" />
 </div>
 
 
@@ -613,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895170.jpg" />
 </div>
 
 
@@ -639,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895155.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895153.jpg" />
 </div>
 
 
@@ -676,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DE4F8A3253098A3895D4381BBCDC36BA4BDA644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493542   (895144) от 03.09.2021
+
+Сколько стоит жизнь? / What Is Life Worth (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895144.jpg" />
+</div>
+
+
+###  Подробнее
+
+После теракта 11 сентября 2001 года адвокат Кеннет Фейнберг назначен главной фонда компенсаций жертвам. Он должен буквально оценить стоимость чужих жизней, чтобы выплатить компенсации. Фейнберг оказывается между двух огней — людьми, ждущими возмещения ущерба, который невозможно оценить, и различными лобби, которые стремятся эти компенсации снизить. Кеннет погружается (   Читать дальше...   )Производство: США / Anonymous Content, Higher Ground Productions, MadRiver Pictures, Paradise City Films, Riverstone Pictures, Royal Viking Entertainment, West Madison Entertainment, Wiffle FilmsЖанр: Драма, биография, историческийРежиссер: Сара КоланджелоАктеры: Майкл Китон, Стэнли Туччи, Эми Райан, Лаура Бенанти, Тейт Донован, Талия Болсам, Крис Тардио, Е.Р. Руис, Сюзанна Шадковски, Виктор СлезакПеревод: Дублированный (Netflix)Субтитры: Русские, английские, украинские (отдельно)Продолжительность: 01:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2BF74F2245B594642D1740B63CEDADEF48F90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370619   (895129) от 28.03.2020
+
+История Мари и трех щенков / Mari to koinu no monogatari / A Tale of Mari and Three Puppies (2007) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895129.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшом посёлке Ямакоси, к несказанной радости своих маленьких хозяев, Аи и Риоты, собака, по имени Мари, производит на свет трех очаровательных щенков. Эти животные становятся бальзамом для раненых детских душ, ведь мама Аи и Риоты умерла, и дети отчаянно тосковали по ней. Жизнь детей снова наполнилась радостью, но впереди их ждало серьёзное испытание.Производство: Япония / Amuse Soft Entertainment, Chukyo TV Broadcasting Company (CTV), Fukuoka BroadcastingЖанр: ДрамаРежиссер: Рюити ИноматаАктеры: Ёсикадзу Эбису, Эйитиро Фунакоси, Рёхэй Хирота, Юкидзиро Хотару, Мао Кобаяси, Акико Мацумото, Хироки Миякэ, Кэндзиро Насимото, Такэхико Оно, Мао СасакиПеревод: Двуголосый любительский (Joss, Gela)Субтитры: Русские, английские, китайские - отдельными файламиПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6EF30AE68B914D6584771590B3EFE0F00FD47E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Windows 10 Pro 1903 (build 18362.239) x64 by vladislays v19.07.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521951.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Earth Seeker [Wii] [NTSC-J] [JAP] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521929.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Acronis BootCD 10PE x86/x64 by naifle (15.08.2018) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521925.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adobe Acrobat Reader DC 2018.011.20058 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521920.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adobe Acrobat Pro DC 2018.011.20058 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521919.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AAct 3.9.2 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521916.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Acrobat Pro DC 2018.011.20058 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521909.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ App Cleaner & Uninstaller Pro 7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521900.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VideoProc Converter 4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521888.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Google Chrome 103.0.5060.66 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521886.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ForkLift 3.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521885.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Keka 1.2.55 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521884.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ MacCleaner 2 PRO 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521830.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ StartAllBack 3.4.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521826.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521822.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ DefenderUI 1.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521820.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521812.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Disparition - Transmutations (2007) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Experim
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521795.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Tales From The Mental Asylum Chapter 3 (Mixed by Indecent Noise) (2015) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521793.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521789.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mozilla Thunderbird 38.2.0 Portable by Portable AppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521788.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ XviD4PSP 7.0.165 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521784.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ David Helpling - Sleeping On The Edge Of The World (1999) [FLAC|tracks+.cue]<Amb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521783.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ XviD4PSP 7.0.164 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521778.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521775.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Angels & Agony - Monument (2015) [MP3|~245 кб/с (V0)]<Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521773.jpg" />
 </div>
 
 

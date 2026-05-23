@@ -1,29 +1,3 @@
-###  Публикация: 1768739   (32975) от 26.12.2024
-
-Mouthwashing (2024) [Ru/Multi] (Build 15980018) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Mouthwashing - хоррор от первого лица об умирающем экипаже грузового космического корабля, потерпевшего крушение. Кто мог предположить, что наш славный капитан Керли способен на такое? Видимо, он решил, что будет правильно, если его команда погибнет вместе с ним. Но некоторые не в состоянии даже нормально совершить самоубийство... Покалеченный, без рук и ног, не (   Читать дальше...   )Тип издания: RepackРазработчик: Wrong OrganЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088B2311F3461551DDA4D7DB2AA257D31A71E182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730040   (32962) от 26.12.2024
 
 Cooking Simulator (2019) [Ru/Multi] (6.0.14/dlc) Scene Rune
@@ -32,7 +6,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.14/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32962.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32954.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32930.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mystery of Myths: Heart of Athens (2024) [Multi] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32924.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Christmas Fables 3: The Wishing Store / Рождественские небыл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32923.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Christmas Stories 13: Clara and the Guiding Star / Рождественские 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32920.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Moon Mystery (2024) [Ru/Multi] (1.2 Build 16746093) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32907.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.2.12.54620) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32905.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32898.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.7b.fix/dlc) Repack Wanterlude [Impe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32890.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32880.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ SPRAWL (2023) [Multi] (1.7) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32873.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32869.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Paranormal Files 12: Fatal Flaw (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32826.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Super Woden GP 2 (2023) [Ru/Multi] (1.3) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32819.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Viscera (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32775.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.0/dlc) Scene Tenoke [Dig
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32771.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32761.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Repack FitGirl [Mother Trucker
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32755.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.63) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32744.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32738.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0331) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32730.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32727.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Trade Conquest (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32658.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0.1.1f/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32653.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Binding of Isaac: Rebirth - это RPG-шутер с элементами и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86E1B5AF22E0B09F037524F15BFAD2011A8B56D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769630   (32644) от 29.12.2024
+
+Open Wheel Manager 2 (2023) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Open Wheel Manager 2 приглашает вас в мир автогонок. Этот стилизованный под ретро-игры симулятор позволит вам окунуться в атмосферу гоночных трасс и попробовать себя в роли менеджера команды. Ваша задача - вывести коллектив на пьедестал почёта. Ради победы придётся пойти на крайние меры и пожертвовать многим. Успех зависит не только от водительского мастерства гонщиков, (   Читать дальше...   )Тип издания: RepackРазработчик: Paprikash GamesЖанр: Гонки, Симуляторы, Спорт, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00F10685890FC33F0C5C44EDDD147178F52B594
 ```
 
 https://mybot314.ru/tekegram_catalog/

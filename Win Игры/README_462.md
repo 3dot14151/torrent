@@ -1,29 +1,3 @@
-###  Публикация: 1749375   (43609) от 14.09.2024
-
-Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Scene Tenoke
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Kingdom Rush Vengeance – это стратегия в реальном времени в жанре «Tower Defense», в которой вам придется возглавить армию могущественного мага и отправиться в череду опаснейших заданий и кровопролитных битв… События игры происходят в небольшом фэнтезийном королевстве, в котором до поры до времени царили мир и порядок. Но возвращение могущественного мага по имени (   Читать дальше...   )Тип издания: SceneРазработчик: Ironhide Game StudioЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141527882C344B55C16F2A8C7E70743ACA3A5D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749384   (43600) от 14.09.2024
 
 Forts (2017) [Ru/Multi] (2.34/dlc) Scene Rune
@@ -32,7 +6,7 @@ Forts (2017) [Ru/Multi] (2.34/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43600.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics (2024) [Ru/Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43595.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ LUNARiA -Virtualized Moonchild- (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43586.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Everlasting Flowers - Where there is a will, there is a way (2024) [Multi] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43582.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Yarimono (2024) [Multi] (1.16) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43579.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43564.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Go Mecha Ball (2024) [Ru/Multi] (20240531) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43553.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Leo: The Firefighter Cat (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43548.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Borderlands: Trilogy (2013-2019) [Ru/Multi] (1.5.0/1.8.5/1.0.9/dlc) Repack dixen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43542.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Mount and Blade: Warband (2010) [Multi] (2.069/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43541.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43533.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43524.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ EVOTINCTION (2024) [Multi] (build 15675746/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43523.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43510.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Stardiver (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43509.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Son and Bone (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43508.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Far Cry 2 (2008) [Ru/En] (1.03) Repack dixen18 [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43507.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ I Am Your Beast (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43501.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics (2024) [Ru/Multi] (1.0) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43496.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43485.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Scen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43480.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Turbo Sliders Unlimited (2022) [En] (1.00/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43478.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Demon's Mirror (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43475.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43469.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ BAKERU (2024) [Multi] (1.0) Repack FitGirl [Soundtrack Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43447.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ BAKERU (2024) [Multi] (1.0) Repack FitGirl [Soundtrack Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DA29D64DE50FE755CF3D2A51B5DE32C5F549727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749596   (43444) от 15.09.2024
+
+Dave the Diver (2023) [Ru/Multi] (1.0.2.1474/dlc) Repack Wagner
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: RepackРазработчик: MINTROCKETЖанр: Adventure, CasualЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3FA0EA4A1AED7704099BE8770177328DED93A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

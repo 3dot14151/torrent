@@ -6,7 +6,7 @@ GForce Software Oberheim OB-E 2.1.1 Standalone, VSTi, VSTi3, AAX (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462089.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ JRiver Media Center 29.0.83 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462087.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462086.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Privacy Eraser Free 5.26.0 Build 4279 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462080.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MyLanViewer 4.19.4 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462058.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Google Chrome 85.0.4183.102 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462039.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Inkscape 1.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462036.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Win10 All Settings 1.4.1.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462023.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ AVG Anti-Virus Free 2013 2013.0.2677 Final [Русский / Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462016.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AOMEI Backupper Technician Plus 6.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462000.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Skype 8.87.0.403 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461953.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Slate Digital - Murda Melodies 1.0.8 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461951.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Wise Disk Cleaner 10.9.1.807 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461944.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Actual Window Manager 8.5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461925.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ SuperBird 45.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461922.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Cent Browser 1.4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461919.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ UC Browser 5.4.5426.1034 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461908.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 12317 (сентябрь 2015) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461903.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ ProduKey Version 1.54 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461898.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ XviD4PSP 6.0.4 DAILY 9381 + Portable (x32) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461896.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ MAGIX VEGAS Movie Studio Platinum 17.0.0.179 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461873.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BluffTitler Ultimate 15.8.1.8 (x64) RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461806.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Sumatra PDF 3.5.15229 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461805.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AIMP 5.03 build 2397 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461803.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Slate Digital - Fresh Air 1.0.8 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461801.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461800.jpg" />
 </div>
 
 

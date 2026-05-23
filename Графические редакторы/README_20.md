@@ -6,7 +6,7 @@
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341750.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dragonframe 4.2.2 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339325.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TwistedBrush Paint Studio 4.16 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336291.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DxO Optics Pro 11.3.0 Build 11759 Elite [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335439.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Animate CC 2019 19.0.0.326 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334045.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Qimage Ultimate (22nd Anniversary Edition) 2020.101 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331888.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ IDPhoto Processor 3.3.5 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330611.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PhotoEQ 1.9.6 RePack by 78Sergey [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330199.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Helicon Remote 3.9.7w [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328714.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Affinity Photo 1.5.0.37 (Beta) [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322462.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ SoftOrbits Easy Photo Denoise 2.0 RePack by вовава [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318810.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ inPixio Photo Eraser 10.4.7612 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317293.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AAA Logo 2014 4.1 + Fonts Portable by poni-koni [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316420.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ CaptureGRID 4 v4.12 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313160.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Photoshop CC 2019 20.0.0.13785 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304415.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Topaz Labs Photoshop Plugins Bundle 2017 (16.11.2017) Repack Pooshock [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298424.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Animate CC and Mobile Device Packaging CC 2018 (18.0.0.107) Portable by Xp
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296749.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Redfield Abstraction TX 1.01 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293764.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Redfield Fractalius 2.80 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293464.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Redfield Unobtanium 1.90 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293462.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dataland CD Label Designer 7.1.0.754 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293126.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Topaz ReMask 5.0.1 (x64) [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290595.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Teorex PhotoScissors 2.1 RePack (& Portable) by Trovel [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290476.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Digital Anarchy Beauty Box PS 4.0.12 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289485.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Adobe Photoshop CC 2019 (20.0.1.17836) (x64) Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288885.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Picture Cutout Guide 3.2.10 Portable by Sitego [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283931.jpg" />
 </div>
 
 

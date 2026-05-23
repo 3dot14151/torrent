@@ -6,7 +6,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688278.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688246.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688238.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687429.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un c
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687345.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687333.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Harry Gregson-Williams - The Zookeeper's Wife / Жена смотрителя з
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687238.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687218.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686767.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686739.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686641.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / De
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686579.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686476.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686470.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686469.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Symphonic Rock (1987) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686462.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686253.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686124.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Traile
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686102.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686101.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685961.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685154.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684857.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684816.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684545.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684333.jpg" />
 </div>
 
 

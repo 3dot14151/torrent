@@ -6,7 +6,7 @@ XMedia Recode 3.3.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358711.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Allavsoft Video Downloader Converter 3.15.2.6499 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358707.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bigasoft Video Downloader Pro 3.15.1.6480 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358704.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358685.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ABBYY Aligner 2.0 (1.0.6.59) RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358682.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Asus GPU Tweak II v1296 (оригинальный диск с драйверам
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358676.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ummy Video Downloader 1.10.3.0 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358586.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Macrorit Partition Expert 5.3.4 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358584.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Viber 9.7.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358575.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FastStone Capture 9.2 (02.10.2019) Final RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358564.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ashampoo WinOptimizer 17.00.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358560.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ MAGIX Movie Edit Pro 2020 Premium 19.0.1.23 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358559.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Google Chrome  62.0.3202.75 Stable Portable by PortableApps (Веб-устано
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358510.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ WinUtilities Professional Edition 12.03 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358464.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.10.5200 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358381.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Nvidia DriverPack v.436.48 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358380.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Dr.Web Security Space 12.0.1.9250 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358369.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ WhatsApp 0.3.1242 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358359.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Macrorit Disk Scanner 4.3.2 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358346.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Google Chrome 62.0.3202.75 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358324.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mem Reduct 3.1.1262 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358273.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ PrivaZer 2.39.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358272.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ocenaudio 3.9.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358252.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ FireAlpaca 2.3.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358248.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Mac Blu-ray Player 2.7.0.1050 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_358215.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Winamp 5.8 Build 3660 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358173.jpg" />
 </div>
 
 

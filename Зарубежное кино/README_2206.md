@@ -1,55 +1,3 @@
-###  Публикация: 1760226   (37431) от 13.11.2024
-
-Треугольник / Triangle (2009) BDRemux [H.264/1080p] [DVO] [Remastered]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Грег приглашает подругу Джесс, молодую мать-одиночку, провести день на яхте в кругу своих друзей. Начавшийся сильный шторм переворачивает судно, и оставшиеся в живых вынуждены дожидаться помощи, цепляясь за перевернутый корпус яхты. Спасение приходит в виде огромного океанского лайнера. Судно оказывается пустым, часы на борту остановились. Однако вскоре становится (   Читать дальше...   )Производство: Великобритания, Австралия, США / Icon Entertainment InternationalЖанр: фантастика, триллерРежиссер: Кристофер СмитАктеры: Мелисса Джордж, Джошуа МакИвор, Джек Тейлор, Майкл Дорман, Генри Никсон, Рейчал Карпани, Эмма Ланг, Лиам Хемсворт, Брайан ПробетсПеревод: Двухголосый профессиональный (R5)Язык озвучки: русский, английскийСубтитры: английские (PGS)Продолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C4D9CC84A4A3ED653B4FB28B15838F67C1EDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760092   (37425) от 13.11.2024
-
-Другой человек / A Different Man (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Начинающий актер Эдвард живет в Нью-Йорке и мечтает о больших ролях и любви окружающих. Чтобы стать чуть ближе к цели, он решается на радикальное хирургическое вмешательство и полностью меняет свою внешность. Мечта о новом лице сбылась, но очень скоро обернулась кошмаром: он теряет роль, для которой был буквально рожден, и с яростью одержимого стремится обрести то, (   Читать дальше...   )Производство: США / A24, Grand Motel Films, Killer FilmsЖанр: драма, комедияРежиссер: Аарон ШимбергАктеры: Себастиан Стэн, Ренате Реинсве, Адам Пирсон, Оуэн Клайн, Малачи Вейр, Лиана Ранси, Джон Китинг, Даг Баррон, Чарли Корсмо, Люси КаминскиПеревод: Многоголосый профессиональный (HDrezka Studio, 1win Studio, RGB)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E73D8D83432419FB48FB3C649AC26CFC678BA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760248   (37410) от 13.11.2024
 
 Дракон: История Брюса Ли / Dragon: The Bruce Lee Story (1993) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37410.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37383.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37334.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37327.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37303.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37261.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37256.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37241.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37160.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37154.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37151.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37142.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37137.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37134.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37121.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37111.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37096.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37087.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37086.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37071.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37067.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37058.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37055.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37054.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C0D9C83F73F2238DFE12B9CED6F466F9BDB175C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760842   (37053) от 17.11.2024
+
+Паранойя / Paranoia (2024) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37053.jpg" />
+</div>
+
+
+###  Подробнее
+
+После клинической смерти девушка Лулу начинает чувствовать, что за ней постоянно следят. Она встречает очаровательного парня по имени Мадс, который способен видеть призраков. Вместе им предстоит разобраться кто или что преследует девушку.Производство: Дания / Don Films, SF Studios ProductionЖанр: ужасы, триллер, детективРежиссер: Кари ВидёАктеры: Зои Брайан Херц, Аугуст Картер, Стран Эзги Бенли, Мартин Готтшальк Аскгледе, Оливер Ду, Матильда Эусебиус, Расмус Хаммерих, Анн Йорт, Томас Хван Х. Андерсен, Сольбьёрг ХёйфельдтПеревод: Дублированный (Кипарис)Язык озвучки: Русский, датскийСубтитры: Русские (Full AI)Продолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FA2F1A111EE08DBCFF0018D600305E5193FA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760818   (37052) от 17.11.2024
+
+Мой сосед — монстр / Your Monster (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Лоры летит под откос — ее бросает парень и она теряет работу мечты. Вернувшись в квартиру, она обнаруживает, что там обосновался весьма дерзкий, но обаятельный монстр. Незваный сосед не намерен освобождать территорию и предлагает сделку: он исчезнет из квартиры, если через две недели Лора найдет в себе силы жить дальше и вновь чувствовать себя счастливой. Но (   Читать дальше...   )Производство: Великобритания, США / Bombo Sports & Entertainment, MermadeЖанр: мелодрама, комедия, фэнтезиРежиссер: Кэролайн ЛиндиАктеры: Мелисса Баррера, Томми Дьюи, Эдмунд Донован, Мэган Фэйхи, Кайла Фостер, Икечукву Уфомаду, Меган Хейли, Брэндон Виктор Диксон, Тэйлор Тренш, Лана ЯнгПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (SDH)Продолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3F4E288D50E3AB5086E5085D459BF795032789
 ```
 
 https://mybot314.ru/tekegram_catalog/

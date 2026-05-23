@@ -6,7 +6,7 @@ Synapse Audio Dune 2.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590821.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Adobe Illustrator CC 2015 19.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590808.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Audition CC 2015 8.0.0.192 Portable by JFK2005 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590806.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ReVision Effects Twixtor Pro 6.2.1 CE RePack by Team VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590802.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ CyberLink AudioDirector Ultra 12.4.2906.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590665.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ IObit Smart Defrag Pro 7.5.0.121 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590658.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Loaris Trojan Remover 3.2.15.1731 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590635.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ IObit Uninstaller Pro 11.5.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590629.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ PIDKey Lite 1.64.4 b23 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590623.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Nitro Pro 13.61.4.62 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590596.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Resource Tuner Business 2.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590592.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Liulanqi 7.5.100.1939 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590491.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ IDrive 6.4.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590490.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ EZ CD Audio Converter 3.0.8.1 Ultimate Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590487.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Polarity 7.0.0 Build 725 [En] (Online-Installer)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590483.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Leibo 5.3.100.10253 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590482.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Daum PotPlayer 1.6.55084 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590457.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590456.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Internet Download Manager 6.23 Build 14 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590455.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ QQ Browser 8.2.4257.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590453.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Daum PotPlayer 1.6.55084 Stable RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590450.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Box Sync 4.0.6447 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590447.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ QQ Browser 9.0.2315.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590440.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ EZ CD Audio Converter 3.0.8.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590413.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Torch Browser 42.0.0.9806 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590408.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Vivaldi 1.0.219.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590401.jpg" />
 </div>
 
 

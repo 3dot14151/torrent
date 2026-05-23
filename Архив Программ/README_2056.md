@@ -6,7 +6,7 @@ Firefox Browser 125.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111296.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Waterfox Current G6.0.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111284.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Q-Dir 11.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111282.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Brave Browser 1.65.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111267.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ YT Downloader 9.7.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111259.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Malwarebytes Windows Firewall Control 6.9.9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111257.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Calibre 7.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111255.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mozilla Thunderbird 115.10.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111254.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CudaText 1.213.0.1 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111246.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.35 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111234.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DiskDigger 2.0.1.3907 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111219.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ WinTools.net Premium 24.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111215.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ByClick Downloader Premium 2.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111211.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Nitro Pro 14.23.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111209.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Perfectly Clear WorkBench 4.6.0.2655 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111207.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Icecream Screen Recorder Pro 7.40 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111204.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Fort Firewall 3.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111196.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Glary Tracks Eraser 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111103.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ RegCool 2.004 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111101.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ OneCommander Pro 3.76.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111094.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Wise Care 365 Pro 6.6.7.637 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111093.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Glary Disk Cleaner 6.0.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111092.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Process Lasso Pro 14.0.2.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111089.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ QOwnNotes 24.4.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111082.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Privacy Eraser Free 6.6.0 Build 4900 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111014.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Firefox Browser 125.0.2 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111013.jpg" />
 </div>
 
 

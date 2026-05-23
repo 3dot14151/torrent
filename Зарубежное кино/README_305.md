@@ -1,57 +1,3 @@
-###  Публикация: 1089645   (950103) от 04.01.2017
-
-Рождественские страшилки / A Christmas Horror Story (2015) BDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассники расследуют загадочное убийство, произошедшее перед сезоном новогодних праздников, семейная пара замечает странное поведение младшего сына после совместной поездки в лес за ёлкой, а другую семью преследует рождественский демон Крампус, и всё это в то время, как на Северном полюсе Санта отбивается от зомби-эльфов.Производство: КанадаЖанр: УжасыРежиссер: Грант Харви, Стивен Хобан, Бретт СалливанАктеры: Уильям Шэтнер, Джордж Бьюза, Роб Арчер, Зои Де Гранд Мезон, Алекс Озеров, Шэннон Кук-Чун, Эми Форсайт, Джефф Кларк, Мишель Нолден, Адриан ХолмсПеревод: Авторский (Юрий Немахов)Субтитры: ОтсутствуютПродолжительность: 01:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A39F71B10C3BD300FAA4A69922DA865C1774A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 173606   (950089) от 07.02.2010
-
-Могучие утята / The Mighty Ducks (1992) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Когда — то в юности адвокат Гордон Бомбей играл в хоккей. Через много лет судьба снова дает ему шанс вернуться в большой спорт. За правонарушение он приговорен городскими властями к общественным работам в качестве тренера детской хоккейной команды, самойхудшей в лиге.
-
-Подопечные Гордона не умеют кататься на коньках, все время промахиваются мимо ворот и созданы только (   Читать дальше...   )Жанр: Комедия, Семейный, СпортРежиссер: Стивен ХерекАктеры: Эмилио Эстевес /Emilio Estevez/, Джосс Эклэнд /Joss Ackland/, Лэйн Смит /Lane Smith/, Хайди Клинг /Heidi Kling/, Джозеф Соммер /Josef Sommer/, Джошуа Джексон /Joshua Jackson/, Элден Рэтлифф /Elden Ratliff/, Шон Уайсс /Shaun Weiss/, Мэтт Дохерти /Matt Doherty/, Брэндон Эдамс /Brandon Adams/, Дж. Д. Дэниэлс /J. D. Daniels/, Эрон Шварц /Aaron Schwartz/, М. С. Гэйни (   Читать дальше...   )Перевод: Одноголосый закадровыйПродолжительность: 1:43:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089412   (950071) от 04.01.2017
 
 Вне времени / Out of Time (2003) BDRip [H.264/1080p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950071.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950049.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950046.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950043.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950041.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950036.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950028.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949942.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949936.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949924.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949920.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949649.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949538.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949527.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949475.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949425.jpg" />
 </div>
 
 
@@ -479,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949402.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949400.jpg" />
 </div>
 
 
@@ -532,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949388.jpg" />
 </div>
 
 
@@ -558,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949380.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949378.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949366.jpg" />
 </div>
 
 
@@ -639,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949356.jpg" />
 </div>
 
 
@@ -666,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949354.jpg" />
 </div>
 
 
@@ -677,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D1022913E553112BA525299D8A9E49C4591F292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362245   (949352) от 23.02.2020
+
+Чёрный ворон / Чорний ворон (2019) WEB-DLRip [H.264] [UKR]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949352.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни и любви холодноярского атамана Ивана по прозвищу Ворон.Производство: Украина, Terminal FX, Kinomania Film Distribution, ТЕТ-ПродакшнЖанр: драма, военный, историяРежиссер: Тарас ТкаченкоАктеры: Тарас Цимбалюк, Ксения Данилова, Андрей Мостренко, Павел Москаль, Наталья Сумская, Зоряна Марченко, Азиз Абдурашидов, Алина Коваленко, Алексей Тритенко, Сергей БабкинПеревод: ОтсутствуетЯзык озвучки: Украинский, русскийСубтитры: Украинские форс. (вшитые)Продолжительность: 01:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864BE590C4379F1FA8070C1EC8C4A33BAC34D7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362363   (949338) от 23.02.2020
+
+Петух и бык / Zhui xiong zhe ye / Cock and Bull (2016) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неподалёку от горной деревушки найдено тело местного жителя с признаками насильственной смерти. Главным подозреваемым становится автослесарь Сон, так как он недавно повздорил с покойным и, вроде бы, угрожал того убить. Пока полиция не особо старается расследовать это дело, Сон решает найти убийцу сам.Производство: Китай, Hehe (Shanghai) PicturesЖанр: Детектив, комедия, триллер, криминалРежиссер: Цао БаопинАктеры: Лю Е, Чжан И, Дуань Бовэнь, Ван Цзывэнь, Тань Чжо, Ван Яньхуэй, Янь Бэй, Сунь Лэй, Ши Нин, Чжан ЮэПеревод: Двуголосый любительский (Franek Monk & Helcia Salvaja)Субтитры: Английские, китайские - hardsub (неотключаемые)Продолжительность: 01:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489AC920A00EF55C5C4CA427C0B28BCD03456125
 ```
 
 https://mybot314.ru/tekegram_catalog/

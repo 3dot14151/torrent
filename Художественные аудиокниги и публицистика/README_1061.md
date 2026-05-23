@@ -1,81 +1,3 @@
-###  Публикация: 1784330   (25108) от 10.03.2025
-
-Юрий Кузнецов | Дверь в 37 год (2025) [MP3, Дмитрий Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Невероятные приключения молодого ученого из Ярославля Ильи Вострикова, когда он, получив в наследство квартиру в центре Москвы, обнаружил потайную дверь. Открыв ее, мужчина оказался в 1937 году. И здесь его ждала разгадка, почему ему досталась ...Жанр: Детектив, попаданцыИздательство: ЛитРес: чтецПродолжительность: 08:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EF90F5441CC5725AADA7540D0077CF9850182F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784296   (25087) от 10.03.2025
-
-Олег Маркеев | Демон власти (2025) [MP3, Crocofant]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Известный автор политических триллеров и мистических детективов — Олег Маркеев — не перестает удивлять своих читателей. На этот раз совместно с учеными Александром Масленниковым и Михаилом Ильиным он предпринял попытку исследовать феномен Власти. Никогда о тайнах, происхождении, эволюции и кризисе Власти не писалось столь ясно, откровенно и убедительно. Как и в полюбившихся (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 07:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8E55E73C3ABC215830046F8DB64F22B23BA63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784399   (25082) от 10.03.2025
-
-Фредерик Форсайт | День Шакала (2004) [MP3, Степан Старчиков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-«День Шакала» (1971) — роман английского писателя Фредерика Форсайта о попытке вождей подпольной организации OAS убить президента Франции Шарля де Голля руками наёмного профессионального убийцы, и о противодействии этой попытке со стороны французских силовых структур.Жанр: Детектив, Приключенческая литератураИздательство: СиДиКомПродолжительность: 11:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EDDB8D80144AE5601BCAF4B3BFE4E664B0865A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784520   (25038) от 11.03.2025
 
 Иван Булавин |S-T-I-K-S. Студент (2025) [MP3, Роман Ефимов]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25038.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25019.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25017.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25001.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24999.jpg" />
 </div>
 
 
@@ -220,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24997.jpg" />
 </div>
 
 
@@ -249,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24996.jpg" />
 </div>
 
 
@@ -278,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24975.jpg" />
 </div>
 
 
@@ -306,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24893.jpg" />
 </div>
 
 
@@ -332,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24794.jpg" />
 </div>
 
 
@@ -358,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24767.jpg" />
 </div>
 
 
@@ -384,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24726.jpg" />
 </div>
 
 
@@ -410,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24402.jpg" />
 </div>
 
 
@@ -437,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24382.jpg" />
 </div>
 
 
@@ -463,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24370.jpg" />
 </div>
 
 
@@ -490,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24360.jpg" />
 </div>
 
 
@@ -519,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24329.jpg" />
 </div>
 
 
@@ -549,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24324.jpg" />
 </div>
 
 
@@ -575,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24316.jpg" />
 </div>
 
 
@@ -602,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24307.jpg" />
 </div>
 
 
@@ -628,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24280.jpg" />
 </div>
 
 
@@ -656,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24270.jpg" />
 </div>
 
 
@@ -682,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24162.jpg" />
 </div>
 
 
@@ -693,6 +615,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E179B487DA363F04FCDF2E91E9158B4F928FB2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786220   (24147) от 19.03.2025
+
+Тимоти Зан | Бомба замедленного действия (2025) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24147.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гарвуд спустя два года работы в проекте „Бэкдроп“, понял, что является центром аномалии и пустился в бега. Возможно это даст ему достаточно времени, чтобы найти решение проблемы и спасти Землю от непоправимых изменений. Но как работать, если у тебя под руками рассыпается буквально любой предмет к которому ты прикасаешься а по твоим следам идут агенты специальной (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 02:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8CC1528EF482FDA80E5473D4857149967E15C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 394082   (24136) от 20.03.2025
+
+Александр Грибоедов | Горе от ума (Аудиоспектакль) (2008) [MP3, Герман Садченков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Антология русской классической литературы.
+Александр Сергеевич Грибоедов (1795–1829) – русский писатель и дипломат.
+Основной идеей создания коллекции «Антология русской классической литературы» стало желание донести до уважаемой публики полный авторский текст великих русских авторов в жанре аудиоспектакля.
+Издатели намеренно не использовали в работе над (   Читать дальше...   )Жанр: Русская литература, классика, комедияИздательство: Квадро-ДискПродолжительность: 02:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBC0E82332203C74C74E032A3B4AE4D0842CAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786412   (24115) от 20.03.2025
+
+Андрей Панченко | Блуждающие огни. Книга 4 (2025) [MP3, Fan12]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случайно попав в космос наш герой сделал много, почти всё, что от него зависело. Уже есть верные друзья, есть враги (куда же без них?), есть цели, ради которых можно рискнуть даже жизнью. Почти готова команда из землян, кровью и огнём добыты корабли, старые правда, повидавшие виды, но этого чертовски мало, чтобы с землянами начали считатся. Да даже просто защитить (   Читать дальше...   )Жанр: Попаданцы в космос, приключения, ФантастикаИздательство: Аудиокнига своими руками (Author.today)Продолжительность: 07:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EBE3682FF8C88878C56763D18C9AF3FBE63084
 ```
 
 https://mybot314.ru/tekegram_catalog/

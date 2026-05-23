@@ -1,29 +1,3 @@
-###  Публикация: 1145418   (584895) от 11.05.2019
-
-The Long Dark Redux (2017) [Ru/Multi] (1.49) SteamRip R.G. Origins [Episode 1-2]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма.Тип издания: SteamRipРазработчик: Hinterland StudioЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: Не озвученаЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4263091478E5906CDF6F62A33CDD20C0AC6DDABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485025   (584505) от 23.05.2022
 
 Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save the World Edition]
@@ -32,7 +6,7 @@ Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save t
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584505.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ LEGO Indiana Jones 2: The Adventure Continues (2010) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583688.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Apartment 666 (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583123.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582748.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582714.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Niko: Through The Dream (2015) [Ru/En] (1.0) RePack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582549.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580050.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577392.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575853.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575843.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ The Long Dark (2017) [Ru/Multi] (1.50) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575733.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Coffee Talk (2020) [Ru/Multi] (1.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573755.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572692.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572315.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ Sephonie (2022) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571838.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Observation (2019) [Multi] (1.04) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570202.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569919.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569914.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ Grim Fandango Remastered (2015) [Ru/En] (1.4.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568422.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ American Fugitive (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568403.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ Gone Home (2013) [Ru/En] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568346.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ Observation (2019) [Ru/Multi] (1.04) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566719.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0.5.1) License GOG [Digital Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566715.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ Dollhouse (2019) [Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564976.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ You Deserve (2016) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564903.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ You Deserve - игра в приключенческом жанре. Вы ник
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45F9B29743C38FA4597FF3D48CEFEF62B19C9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044570   (564670) от 20.08.2016
+
+You Deserve (2016) [En/Es] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564670.jpg" />
+</div>
+
+
+###  Подробнее
+
+You Deserve - игра в приключенческом жанре. Вы никогда не думали, что все, что вы делаете, возможно, вернется к вам назад? Группа подростков преследовала сокурсника из средней школы. В конце концов, молодой человек был не в состоянии больше выносить все эти издевательства и в конечном итоге решил покончить с собой. Кто за это ответит?Тип издания: RepackРазработчик: TGA CompanyЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA15E81667F96E94D09914C5C4028354CD3E860
 ```
 
 https://mybot314.ru/tekegram_catalog/

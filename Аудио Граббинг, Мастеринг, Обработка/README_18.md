@@ -6,7 +6,7 @@ Slate Digital Verbsuite Classics v1.0.3.2 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377717.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adam Monroe Music - Rotary Organ 1.3 VSTi, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376616.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Arturia - Piano V2 2.1.1.1786 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by V
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374739.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ W. A Production - Mutant Reverb v1.0.1 VST, VST3, AAX, x86 x64 Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374389.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Native Instruments - Traktor Scratch Pro 2.10.0.13 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374100.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MediaHuman Audio Converter 1.9.7 (2802) RePack (& Portable) by TryRooM [Multi/Ru
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373660.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Dymai Sound - Proclethya 1.0.9 VSTi, VSTi3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373239.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Sugar Bytes - DrumComputer 1.2.7 VSTi, VSTi 3 (X64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373069.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Arturia - ARP 2600 V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372999.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Arturia - Buchla Easel V 1.2.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372997.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Arturia - DX7 V 1.2.1.1797 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372995.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Nero SoundTrax 14.0.0060 RePack by MKN [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370763.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Arturia - SEM V2 2.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370681.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Arturia - Modular V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370678.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Arturia - Synclavier V 2.0.1.1815 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370674.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Arturia - CS-80 V3 3.3.1.1785 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by V
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370522.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Arturia - Prophet V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370517.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Arturia - Jup-8 V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by V
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370511.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Arturia - Matrix-12 V2 2.3.1.1784 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370501.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Arturia - Analog Lab 3 3.2.1.1819 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370285.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ BABY Audio - I Heart NY Parallel Compressor 1.0.0 VST, VST3, AAX (x86/x64) Retai
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370062.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MIDIRenderer 3.9.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369661.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Minimal Audio - Rift Feedback Lite 1.1.0 VST, VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368608.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Minimal Audio - Rift Filter Lite 1.3.2 VST, VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368605.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Arturia - 3 Preamps & Filters 1.1.0 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368078.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Pulsar Audio - Echorec 1.1.3 VST, VST3, AAX RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368013.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PDF24 Creator 11.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235396.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Visual Studio Code 1.71.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235388.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ TweakNow WinSecret Plus! 4.6.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235387.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ HyperSnap 8.24.03 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235384.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wirecast Pro 15.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235375.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Transcend SSD Scope 4.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235373.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Shotcut 23.05.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235351.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sugar Bytes - DrumComputer 1.3.0 Standalone, VSTi, VSTi 3, AAX RePack by TCD [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235327.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235317.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ FastStone Capture 10.0 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235311.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Phase One Capture One 22 Enterprise 15.3.3.15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235308.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VueScan Pro 9.7.99 (07.05.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235304.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PassMark RAMMon 2.4 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235300.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ultimaker Cura 5.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235297.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ FastStone Capture 10.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235290.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.8a Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235282.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Google Chrome 105.0.5195.127 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235281.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ PotPlayer 220905 (1.7.21800) (x64) Stable RePack (& portable) by 7sh3 (13.09.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235271.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Viber 18.4.0.6 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235262.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ DxO FilmPack 6.11.0 Build 33 Elite (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235259.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Topaz Photo AI 1.3.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235252.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FastCopy 4.2.0 Portable by AlexYar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235248.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Topaz Video AI 3.2.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235244.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VideoSolo Video Converter Ultimate 2.3.10 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235240.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Skype 8.97.0.404 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235234.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ XnViewMP 1.4.5 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235230.jpg" />
 </div>
 
 

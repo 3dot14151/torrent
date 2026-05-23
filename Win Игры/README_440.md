@@ -1,29 +1,3 @@
-###  Публикация: 1256218   (50623) от 09.07.2024
-
-We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-We Happy Few - экшен, приключение, сценой которому служит наводненный наркотиками ретрофутуристический город альтернативной Англии 1960-х. Применяйте навыки маскировки, адаптации и ведения боя. Отыщите выход из этого бредового, подсаженного на Joy мира. We Happy Few - это история небольшой группы отважных и в меру ужасных людей, пытающихся сбежать от жизни в городе (   Читать дальше...   )Тип издания: RepackРазработчик: Compulsion GamesЖанр: Action, Adventure, Open World, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7503B86B0EC69A49F4A396ED7AFADBCD013C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735687   (50614) от 09.07.2024
 
 Shrot (2024) [Multi] (1.2) Repack FitGirl
@@ -32,7 +6,7 @@ Shrot (2024) [Multi] (1.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50614.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ City Bus Manager (2024) [Ru/Multi] (2.0.16/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50607.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Eyes of Destiny (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50596.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50583.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Chained Together (2024) [En] (1.7.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50582.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ HITMAN 3 (III) (2021) [Ru/Multi] (3.190/dlc) Scene Razor 1911 [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50529.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50518.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50471.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Murders on the Yangtze River (2024) [Multi] (1.4.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50452.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ultros (2024) [Multi] (20240403) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50435.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (2.01.31.01) Scene DINOByTES
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50420.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ FlashBack 2 (2023) [Multi] (1.00) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50414.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Whispering Lane: Horror (2024) [Ru/Multi] (1.0) Repack FitGirl [Collector's Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50401.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ With My Past (2024) [Ru/Multi] (20240601) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50394.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50390.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50372.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Tunguska: The Visitation / Тунгуска: Посещение (2021) [Ru/Multi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50370.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50367.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50297.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.11.4448/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50296.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0.2/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50286.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50277.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50271.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Tabletop Simulator (2015) [En] (13.1.1/dlc) Scene Doge [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50269.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ms. Holmes 6: Letter M (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50251.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ms. Holmes 6: Letter M (2024) [En] (1.0) Unofficial [Collector's Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CA2275092AE38D58CD76CC1BF24EBD75AACC340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736411   (50246) от 12.07.2024
+
+SunnySide (2024) [Multi] (1.15.11) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50246.jpg" />
+</div>
+
+
+###  Подробнее
+
+SunnySide показывает приключения молодых ребят, что отправляются в деревенскую местность на территорию Японии. Игроки смогут преодолевать разрыв между традиционными обычаями и современным влиянием, стараясь приобрести гармонию для протагониста. Предстоит заниматься работой на ферме, развивая участок земли в небольшом поселении. Придется обустраивать дом, двор и выращивать (   Читать дальше...   )Тип издания: RepackРазработчик: RainyGamesЖанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D427A97B496416A46CDFA16EF5139F5618496CFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

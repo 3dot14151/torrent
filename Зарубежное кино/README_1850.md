@@ -1,55 +1,3 @@
-###  Публикация: 1670460   (172040) от 20.10.2023
-
-Звук свободы / Sound of Freedom (2023) WEB-DL [H.265/2160p] [SDR, 8-bit] [UKR, EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История Тима Балларда, бывшего агента правительства США, который уволился со службы, чтобы посвятить жизнь спасению детей от сексуального рабства.Производство: США, Мексика / Metanoia, Santa Fe FilmsЖанр: биография, триллер, криминал, драмаРежиссер: Алехандро Гомес МонтевердеАктеры: Джеймс Кэвизел, Билл Кэмп, Хавьер Годино, Ессика Боррото Перримен, Эдуардо Верастеги, Лукас Авила, Кристал Апарисио, Кристофер Аведисьян, Густаво Санчес Парра, Мира СорвиноПеревод: Многоголосый профессиональный (DniproFilm)Язык озвучки: украинский, английскийСубтитры: aнглийские (forced) - hardsubПродолжительность: 02:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862565969C0D702C169A7ECE988AFCB43F996D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670466   (171993) от 20.10.2023
-
-Абсолютный убийца / Totally Killer (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В 1987 году в небольшом городке накануне Хэллоуина маньяк жестокого убил трёх 16-летних девушек, нанеся им по 16 ножевых ранений. Эти преступления так и не были раскрыты. 36 лет спустя маму старшеклассницы Джеми прямо в собственном доме убивает неизвестный. А позже нападает и на саму девушку, но происходит это в фотобудке, из которой её подруга по давним наработкам (   Читать дальше...   )Производство: США / Blumhouse Television, Divide / ConquerЖанр: ужасы, комедия, фантастикаРежиссер: Нахнатчка ХанАктеры: Кирнан Шипка, Оливия Холт, Чарльз Гиллеспи, Локлин Манро, Трой Ли-Энн Джонсон, Лиана Либерато, Келси Мавема, Стефи Чин-Сальво, Анна Диас, Элла ЧхвеПеревод: Многоголосый профессиональный (Цікава Ідея)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (SDH)Продолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138B2745A49D0DCE10E0B51BD5FECC29219F2D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670470   (171992) от 20.10.2023
 
 Абсолютный убийца / Totally Killer (2023) WEB-DL [H.265/2160p] [HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171992.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171988.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171987.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171985.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171980.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171979.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171977.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171976.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171975.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171974.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171967.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171916.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171900.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171899.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171897.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171818.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171812.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171805.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171798.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171795.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171792.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171784.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171725.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171703.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66AB1FE6A27632A3515EF965F3CF8591AFAB1D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670920   (171689) от 22.10.2023
+
+Город ангелов / City of Angels (1998) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ангелы живут не на небесах. Они невидимо присутствуют рядом с людьми, прислушиваясь к их мыслям и направляя их поступки, подбадривая и утешая в минуты отчаяния. Но для них не существует мира человеческих чувств: вкуса черного кофе, боли порезанного пальца или любви. Поэтому некоторых из них так тянет к людям, и порой ангел теряет свои крылья и превращается в простого (   Читать дальше...   )Производство: США, Германия / Atlas Entertainment, Monarchy Enterprises B.V., Regency Enterprises, Taurus Film, Warner Bros. Pictures Co.Жанр: фэнтези, драма, мелодрамаРежиссер: Брэд СилберлингАктеры: Николас Кейдж, Мег Райан, Андре Брогер, Деннис Франц, Колм Фиор, Робин Бартлетт, Джоанна Мерлин, Сара Дэмф, Ронда Дотсон, Найджел ГиббсПеревод: Дублированный (Варус-Видео)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A911D2FE9B4F0364B2B12EB7253C5B4CE6B3C577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670927   (171688) от 22.10.2023
+
+Река Симанто / Shimanto-gawa / Shimanto River (1991) DVD9 [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм основан на автобиографическом романе Сасаямы Кёдзо. Писатель показывает постепенный отказ от традиционной деревенской жизни. В фильме показана путаница героя со смыслом легенд, рассказанных ему старейшинами села.Производство: Япония / VAP Inc., Yamada Right Vision CorporationЖанр: драмаРежиссер: Хидэо ОнтиАктеры: Канако Хигути, Рэндзи Исибаси, Каору Кобаяси, Сатико Кодзима, Коэн Окумура, Сиро Сано, Кин Сугаи, Каори Такахаси, Тэппей ЯмадаПеревод: одноголосый любительский (den904)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95FAC91908A630BE8A496871FAEFEA37839F6B82
 ```
 
 https://mybot314.ru/tekegram_catalog/

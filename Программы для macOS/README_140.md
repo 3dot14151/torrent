@@ -6,7 +6,7 @@ Folder Tidy 2.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190170.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ WiFi Scanner 3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190074.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Omni Toolbox 1.4.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189821.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Network Radar 3.0.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189815.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ OmmWriter 1.67 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189813.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ NXPowerLite Desktop 10 v.10.0.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189802.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ AirFoil+Airfoil Satellite 5.11.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189794.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Exposure Software Blow Up 3 v.3.1.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189779.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ PDF to Word&Document Converter 6.2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189688.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Exposure X7 Bundle v.7.1.8.9 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189664.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Cookie 7.0.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189428.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Bookshelf - Library 6.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189420.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AirMail Pro 5 v.5.6.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189359.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Native Instruments Kontakt 7 v.7.6.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189269.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189173.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Microsoft Office 2021 for Mac LTSC v.16.77 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189063.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Adobe Premiere Pro 2023 v.23.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189059.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Squeezer 2.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188983.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Epiphany WorkFlow II 8.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188981.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ eMail Address Extractor 4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188976.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ SpeakMe 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188972.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Focus Matrix Pro – Task Manager 1.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188926.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Wipr – Ad and Tracker Blocker 1.46 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188912.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Teorex Inpaint 9.2.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188906.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ GitKraken Client Enterprise for Mac 9.8.1 Intel/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188803.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ PCalc 4.10.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188591.jpg" />
 </div>
 
 

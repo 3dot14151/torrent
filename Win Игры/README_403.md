@@ -1,29 +1,3 @@
-###  Публикация: 469167   (82694) от 17.03.2012
-
-The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition / Агенство аномалий. Приют Синдерстоун. Коллекционное издание (P) [Ru] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сиквел мистической игры The Agency of Anomalies от Orneon и Большой рыбы. Спасите души одаренных детей и их опекунов, которые исчезли во время страшного пожара в приюте. Как детективу агентства аномалий, вам предстоит отыскать фантомы и выяснить, кто устроил поджог. Помогите обитателям приюта использовать свои необычайные способности, чтобы разрушить планы таинственного братства и спастись. Исследуйте великолепные локации для поиска скрытых объектов и раскройте мистическую тайну!Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский (любительский перевод)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84947326E00999E9A5BF3AD761B79841C231B52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469513   (82687) от 17.03.2012
 
 Columnof the Maya / Тайна сокровищ майя (P) [Ru] 2012
@@ -32,7 +6,7 @@ Columnof the Maya / Тайна сокровищ майя (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82687.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mobiloid (L) [En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82685.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tunes Jungle Adventure / Нотки: Приключения в джунглях 
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82638.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mystery Chronicles: Murder Among Friends / Загадочное происшес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82598.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Silent Nights: The Pianist Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82195.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Command & Conquer: Red Alert 3 Uprising [Ru] (Rip) 2009 | Fenixx
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82157.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82145.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Pure [Ru] (RePack) 2008 | Naitro
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82120.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Space Sieged (L) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82016.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81926.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Blade Kitten (Р) [Ru] 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81918.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Brink of Consciousness: Dorian Gray Syndrome. Collectors Edition / Край со
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81909.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81764.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81742.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81487.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81180.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Major League Baseball 2K12 (Lossless Repack) [En] 2012 | R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81073.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Katty and Bob: Tropical Rush / Кэти и Боб. Вперед домой (P) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81048.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80908.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Delicious 7: Emily's True Love. Premium Edition / Деликатесы Эмил�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80866.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80807.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Whispers / Шепот (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80746.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80329.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80222.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80068.jpg" />
 </div>
 
 
@@ -673,6 +647,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CFD694B29A339C37974CA24121B43876B886EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462192   (80049) от 04.03.2012
+
+Зенитка (L) [Ru] 2011
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80049.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой мини игре вы командуете зенитным расчетом и уничтожаете вражеские самолеты и десант. Ваша задача сохранить зенитку и ее охранение. В игре пять уровней разной сложности. Сразу мимо вас пролетят двухмоторные Ju-88, которые направляются к своим целям и не будут бомбить вашу зенитку. Затем в бой вступят Ju-87, их основная цель - уничтожить вас! Если вы отобьете и эту атаку, в бой пойдут транспортные самолёты Ju-52, с которых выпрыгнут диверсанты...
+Ваша задача правильно выбрать цель и стрелять, стрелять и стрелять! Самые меткие и ловкие запишут свои имена в онлан таблицу рекордов.Тип издания: ЛицензияЖанр: ArcadeЯзык озвучки: n/aЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C57FD6002DE8F4A9784EA2F1E3B96D0BC14C6F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

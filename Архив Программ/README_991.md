@@ -6,7 +6,7 @@ GoodSync Enterprise 10.9.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547919.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SeaMonkey 2.49.4 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547912.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547903.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547887.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ save2pc Ultimate 5.5.7.1585 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547848.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MediaHuman YouTube Downloader 3.9.9.18 (2106) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547778.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RarmaRadio PRO 2.72.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547775.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ GoodSync Enterprise 10.9.35.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547770.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ClipGrab 3.8.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547767.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Waterfox 56.2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547690.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wise Care 365 Pro 5.3.4 Build 531 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547636.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ IrfanView 4.53 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547563.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Windows 10 x64 DVD Release by StartSoft 06-07 2019 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547507.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ oCam 313.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547277.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Avira Antivirus Free 15.0.19.164 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547272.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Prominy - SR5 Rock Bass v1.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547269.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Registry Life 3.32 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547263.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ AMD Radeon Software Crimson Edition 16.8.3 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547241.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Tipard DVD Ripper 8.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547235.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hotspot Shield Elite 6.20.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547231.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ GetGoodDrums - Matt Halpern Signature Pack v1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547226.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Zoom Player MAX 12.5 Build 1250 Final RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547198.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Re-Loader Activator 3.0 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547197.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Microsoft Windows and Office ISO Download Tool 3.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547192.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Office Tab Enterprise 11.00 RePack by Roonney & HsC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547189.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ AIMP 4.10 Build 1831 Final (Upd.) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547186.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kid3 3.8.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422847.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Balabolka 2.15.0.754 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422716.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Unreal Commander 3.57 Build 1486 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422707.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Stellarium 0.20.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422706.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ FileZilla 3.37.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422653.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ MediaHuman YouTube Downloader 3.9.9.6 (2809) Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422542.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ KiCad 5.1.7_1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422516.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wise Care 365 Pro 3.88.347 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422483.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Bandizip 6.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422463.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Krita 4.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422457.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ LibreOffice Portable 3.6.2 Stable by PortableAppZ [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_422450.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Bandicam 4.6.4.1728 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422426.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ SiSoftware Sandra Personal / Enterprise / Business / Engineer 2015.10.21.50 SP3e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422402.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Radmin VPN 1.1.4166.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422293.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Windows 10 1909 (18363.1082) x64 Home + Pro + Enterprise (3in1) by Brux v.09.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422280.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Wise Care 365 Pro 5.1.8.509 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422275.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Calibre 3.32.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422272.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ YTD Video Downloader PRO 5.9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422271.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ LC Technology RescuePRO Deluxe 5.2.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422267.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ MailWasher Pro 7.11.8 Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422252.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Punto Switcher 4.1.4 Build 568 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422241.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ UltraUXThemePatcher 3.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422130.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ SRWare Iron 21.0.1250.0 Stable + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_422089.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Maxthon Browser 3.0.17.1109 [Мультиязычный, включая русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_422015.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Drop To Floor R20 v1.15 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422003.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Adobe Acrobat XI (v11.0.13) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421990.jpg" />
 </div>
 
 

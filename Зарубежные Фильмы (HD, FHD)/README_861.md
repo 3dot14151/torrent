@@ -1,55 +1,3 @@
-###  Публикация: 1609356   (203145) от 03.02.2023
-
-Любовь — это вечеринка / Lamour est une fete / Paris Pigalle (2018) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Напарники-полицейские Франк и Серж проникают в мир французской порноиндустрии начала 1980-х. Франк и Серж — создатели откровенного шоу под названием «Миродром». Однако напарники по уши в долгах, поэтому решают стать продюсерами небольших дешевых фильмов, которые должны восстановить их финансовое благополучие. Однако стремительный успех этого предприятия вызывает (   Читать дальше...   )Производство: Франция, Бельгия / A Plus Image 8, Ciné, Cinémage 12, Curiosa FilmsЖанр: комедияРежиссер: Седрик АнжеАктеры: Гийом Кане, Жиль Леллуш, Мишель Фо, Камилль Раза, Ксавье Бовуа, Элиза Башир Бей, Инге ван Брюйстегем, Валерия Ников, Жан-Луи Барселона, Ксавье АльканПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, ФранцузскийСубтитры: Русские (Forced, Full), шведскиеПродолжительность: 01:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A99B845D2F42FAAC824557EF7AF4EFAC7889AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609720   (203131) от 04.02.2023
-
-Оборотень: Фильм / Teen Wolf: The Movie (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Появилось новое зло, и только Скотт Макколл может собрать новых союзников и старых друзей, чтобы дать ему отпор.Производство: США, MGM Television, MTV Entertainment Studios, Orion TelevisionЖанр: фэнтези, боевик, триллер, драма, мелодрамаРежиссер: Расселл МалкэйАктеры: Тайлер Пози, Кристал Рид, Холлэнд Роден, Тайлер Хэклин, Шелли Хенниг, ДжейАр Борн, Колтон Хэйнс, Линден Эшби, Мелисса Понцио, Райан КеллиПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA57432CF706B3D7F400A363C129EAED2BBB860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656662   (203103) от 31.08.2023
 
 Секреты сердца / Secretos del corazon / Secrets of the Heart (1997) WEB-DL [H.264/1080p] [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203103.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203095.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203091.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203085.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203084.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203065.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203054.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203050.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203048.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203040.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203035.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203028.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203018.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203015.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203014.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202988.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202973.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202968.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202954.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202896.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202892.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202888.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202875.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202874.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ XIX век. Молодой датский священник отправляе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C2CB55FADABFB1AEB089A801D058C3181709CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611139   (202872) от 10.02.2023
+
+Битва шефов / La vida padre / Two Many Chefs (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микель Инчаусти — молодой и амбициозный шеф-повар из небольшого города Бильбао на севере Испании. Микель мечтает заполучить третью звезду Мишлен для своего ресторана Ataria, известного своим новаторским и авангардным стилем приготовления пищи. Ради этой мечты он работает не покладая рук и поварских ножей, но навязчивая идея лишает его личной жизни, девушки и друзей. (   Читать дальше...   )Производство: Испания, Kowalski Films, Mod ProduccionesЖанр: комедияРежиссер: Хоакин МасонАктеры: Карра Элехальде, Энрик Окер, Меган Монтанер, Ландер Отаола, Марибель Салас, Горка Агинагальде, Янет Сьерра, Мануэль Бурке, Оскар Рейес, Унакс ХейденПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: Русский, испанскийСубтитры: Русские (Forced, full)Продолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EA9E0BDCE8C0D7ADA638AEAA5A7880BA9B5880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611198   (202860) от 10.02.2023
+
+У ночи есть глаза / Natten har ojne / Attachment (2022) WEB-DL [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майя, бывшая датская актриса, влюбляется в Лию, еврейку-ученую из Лондона. У Лии случается загадочный припадок, и Майя возвращается с ней в Лондон, где встречает мать Лии, Хану, которая хранит страшный секрет.Производство: Дания / Nordisk Film ProductionЖанр: ужасыРежиссер: Габриэль Бир ГисласонАктеры: Давид Денсик, Элли Кендрик, Софи Гробель, Жозефин Парк, Катрин Енсениус, Ладо Хаджич, Севик Перл, Хана Шуан, Элинор Знайдер, Филиппа Марселла Олесен ОлссонПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, датскийСубтитры: русские, английские, испанскиеПродолжительность: 01:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8CA5FF5C5629AD42416323DF490821F63A33C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

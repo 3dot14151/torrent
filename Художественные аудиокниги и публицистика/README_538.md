@@ -1,81 +1,3 @@
-###  Публикация: 277086   (465772) от 02.10.2016
-
-Филип Дик | Человек в высоком замке (2007) [MP3, DM (Максим Доронин)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Премия "Хьюго" за лучший научно-фантастический роман. Вторая мировая война завершилась победой Германии и Японии. Европа захвачена немцами, США разделены между странами-победительницами - такова экспозиция романа Ф. Дика "Человек в высоком замке". Однако внутри романа существует еще один роман: некий писатель-анахорет, «Человек в высоком замке», (   Читать дальше...   )Жанр: Фантастика, альтернативная историяПродолжительность: 08:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE79B8832CB4D73C3090F7C88AAF92AE99622E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161689   (465645) от 29.08.2017
-
-Иван Бунин | Грамматика любви (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В рассказе «Грамматика любви» подчеркивается, что любовь — великая ценность. Она возвышенна, чиста и целомудренна. Но картину семейного благополучия, как часто это бывает у И. Бунина, читатель не увидит, потому что человек может испытать счастье лишь на мгновение, но это мгновение останется в душе на всю жизнь.Жанр: Классика, рассказПродолжительность: 00:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E496F5CE562B578F5D0F13BE74577F81AC0847F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321036   (465391) от 21.08.2019
-
-Мишель Бюсси | Помнишь ли ты, Анаис? (2019) [MP3, Алексей Багдасаров, Марина Лисовец]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Четыре детективные повести с легким готическим оттенком от мэтра детективного жанра. Каждая из этих ироничных, теплых и уютных историй удивляет своим внезапным и совершенно неожиданным финалом. Ариана поселилась в этом домике у моря, чтобы вместе с трехлетней дочерью начать новую жизнь. Ее бегство из Парижа слишком напоминает другое – случившееся более ста лет назад, (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A940CFF45BF95ACEB3B41EF3F0EDF522277E2218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161451   (465357) от 29.08.2017
 
 Антон Чиж | Родион Ванзаров (Книга 2). Мёртвый шар (2017) [MP3, Иван Шевелёв]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465357.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465265.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465257.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465256.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464855.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464791.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464780.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464619.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464386.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464345.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464273.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464257.jpg" />
 </div>
 
 
@@ -403,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464171.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464169.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464162.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464156.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464098.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464082.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464045.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464005.jpg" />
 </div>
 
 
@@ -611,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463885.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463879.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463873.jpg" />
 </div>
 
 
@@ -675,6 +597,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:867D8C6CD4ACE5AA5BA4302E8B2B0CD01B22992A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058760   (463793) от 03.10.2016
+
+Елена Михалкова | Расследования Макара Илюшина и Сергея Бабкина (Книга 18). Бумажный занавес, стеклянная корона (2016) [MP3, Ксения Бржезовская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Асе Катунцевой можно только позавидовать: выиграла не просто ужин с кумиром всей страны, а еще и в кругу звезд первой величины! Кто же знал, что вечеринка, начинавшаяся так хорошо, закончится убийством, а блистающий мир шоу-бизнеса, стоит взглянуть на него попристальней, покажет ей свои самые неприглядные стороны. Вдвоем с Макаром Илюшиным им придется погрузиться (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5FD13592CEE37E2A517E20C0599FA23C331F82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058731   (463770) от 03.10.2016
+
+Валентин Пикуль | Битва железных канцлеров (2016) [MP3, Борис Плотников, Игорь Гордин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера. Роман из истории отечественной дипломатии.
+"Я предлагаю сугубо политический роман. Без прикрас. Без вымысла. Без лирики. Роман из истории отечественной дипломатии. Рассказывать о прошлом заманчиво, но нелегко…", - писал в конце ХХ века в предисловии к своему роману, бестселлеру писатель Валентин Пикуль.
+В романе представлены важнейшие события (   Читать дальше...   )Жанр: Историческая. АудиоспектакльИздательство: Радио КультураПродолжительность: 05:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7D3D122983024FA67E46545AAAAC1E06B2ABD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058284   (463766) от 03.10.2016
+
+Майкл Муркок | Скиталец по морям судьбы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элрик Мелнибонэйский, недавно покинувший Остров Драконов, неожиданно встречает корабль, окутанный туманом. На его борту он знакомится с девятнадцатью воинами и слепым капитаном. Он-то и сообщает о задаче, которая стоит перед всеми плывущими на корабле воителями — уничтожить находящиеся на одном из островов колдовские сущности...
+Но на этом его приключения не заканчиваются (   Читать дальше...   )Жанр: Героическое фэнтезиПродолжительность: 05:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF462491E15A78C0674C376A09014D07D89195A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

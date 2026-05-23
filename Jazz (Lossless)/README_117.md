@@ -6,7 +6,7 @@
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662101.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The John Klemmer Quartets - Involvement (2003) Verve [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661958.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Herb Steward / Marky Markowitz - The Three Horns of Herb Steward & Marky's Vibes
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661408.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ The Chet Baker Quintet - Cools Out (1956) 1991 [WavPack|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661404.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Sonny Rollins - Road Shows, vol. 2 (2011) Doxy Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661402.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Chie Ayado & Junior Mance - Only You (1996) 2010, Ewe Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661385.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661194.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660886.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Eric Seva - Body And Blues (2017) Les Z'arts de garonne [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660819.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Lonnie Liston Smith - Loveland (1978) 2016, Sony Music [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660817.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Swingrowers - Outsidein (2018) [FLAC|Lossless|image + .cue] <Jazz, Electro Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660748.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Bobby Hutcherson - Live At Montreux (2012) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660364.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Junior Mance Trio - Happy Time (1962) 1999, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660331.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Billie Holiday - Cheek To Cheek (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660282.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Tom Schuman - Designated Planets (2013) Jazzbridge Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660277.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bill Evans - Autumn Leaves (1969) /2015, Studio Songs Japan/ [FLAC|Lossless]<Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660226.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Lee Morgan - Expoobident (1960) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659847.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Steve Khan - Arrows (1979) 2017, Sony Music [FLAC|Lossless|image + .cue] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659844.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Frank Avitabile - Bemsha Swing (2002) Dreyfus Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659381.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Carla Bley - Looking For America (2003) ECM Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659374.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Rebecca Martin - People Behave Like Ballads (2004) MaxJazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659368.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Nat Adderley - Work Song (2008) [FLAC|Lossless]<Jazz, Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659366.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ The Bill Perkins Big Band - Our Man Woody (1999) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659348.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Bill Tole And His Orchestra - On The Move (1990) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659277.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ The Junior Mance Quintet - Here 'Tis: Play The Music Of Dizzy Gillespie (1992) S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659251.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Weather Report - I Sing The Body Electric (2014) [FLAC|Lossless]<Jazz, Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659225.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Q-Dir 9.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016766.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GPU-Z 2.39.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016762.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ File & Image Uploader 8.1.0 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016757.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FreeFileSync 11.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016756.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FontViewOK 6.88 + Portable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016755.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Comodo Dragon 89.0.4389.128 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016754.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PhotoDiva Pro 3.15 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016662.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VLC Media Player 3.0.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016661.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ArtMoney 8.09.04 Pro / Vip [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016622.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Joplin 1.8.5 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016552.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Google Chrome 90.0.4430.212 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016551.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mozilla FireFox 88.0.1.7794 Portable by JolyAnderson [Multi/Ru] (авторск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016545.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Steinberg - WaveLab Elements 10.0.70 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016538.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Internet Download Manager 6.38 Build 25 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016533.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VLC Media Player 3.0.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016527.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Adobe Audition 2021 14.2.0.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016503.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Adobe After Effects 2021 18.2.0.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016497.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MAGIX Vegas Pro 18.0 Build 527 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016489.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Adobe Acrobat Pro DC 2021.001.20155 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016478.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ FBackup 9.0.271 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016443.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ FireAlpaca 2.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016432.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Opera 76.0.4017.123 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016429.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ K-Lite Codec Pack Update 16.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016422.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Vivaldi 3.8.2259.42 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016418.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Brave Browser 1.24.84 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016415.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ LibreOffice 7.1.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016412.jpg" />
 </div>
 
 

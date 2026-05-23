@@ -6,7 +6,7 @@ Joe Hisaishi - Sonatine (1999) [FLAC|tracks+.cue]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568124.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568053.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Luca Stricagnoli - Luca Stricagnoli (2015) [MP3|320 кб/с] <Instrumental, Acou
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568026.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Wil Bolton - Under A Name That Hides Her (2012) [MP3|320 кб/с]<Meditative, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567596.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567127.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566849.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566821.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Sammy Kershaw - Labor Of Love (1997) [FLAC|Lossless|image + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565994.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Nawang Khechog - The Tibetan Healing Music (2013) [MP3|320 Kbps] <New Age, Yoga>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565916.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Thomas Lemmer - Pure (2016) [MP3|320 Kbps] <Ambient, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565362.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Rachel Laven - Love & Luccheses (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565341.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Katee Kross - Beautiful Dreamer (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565319.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564895.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564594.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Simply Chillout (2005) 4CD[FLAC|image+.cue]<Electronic, Ambient, Pop, Rock,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564488.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pian
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563984.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Joel Kanning - Ubiquitous Frequency Oscillation (UFO) Vol.1,2 (2009-2017) [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563145.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ David & Steve Gordon - Sacred Spirit Drums (1994) [MP3|320 кб/с]<New Age, Nat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562951.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kub
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562947.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Milva & Astor Piazzolla - Live At The "Bouffes Du Nord" (1984) [FLAC|Lossless]<L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562681.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Win Kowa - 6 альбомов (1992 - 2000) [MP3|192, 320 кб,]<New age, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562526.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561847.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561840.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561714.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561671.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ Alan Menken & VA - Aladdin / Аладдин (Оригинальный саунд
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561567.jpg" />
 </div>
 
 

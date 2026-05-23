@@ -6,7 +6,7 @@ Adobe Acrobat Professional DC (v17.9) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729206.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Embarcadero RAD Studio 10.2 Tokyo Architect 25.0.26309.314 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729199.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_729180.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Acronis True Image 2016 19.0.6571 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729170.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Free Studio 6.6.17.530 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728942.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Aiseesoft Screen Recorder 2.2.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728916.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CrystalDiskInfo 8.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728910.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SQL Dynamite 2.1.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728899.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Maxthon Browser 5.2.7.1000 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728891.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Privacy Eraser Free 4.13.0 Build 2002 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728829.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CoolUtils Total Audio Converter 6.1.0.259 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728816.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wise Care 365 Pro 6.1.8.605 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728813.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Wireshark 3.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728812.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Perfectly Clear WorkBench 4.0.1.2233 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728809.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Adobe Character Animator 2022 22.2.0.62 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728799.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ K-Lite Codec Pack Update 13.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728778.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VueScan Pro 9.6.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728769.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ XYplorer 19.70.0000 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728761.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Macrium Reflect v7.2 .4063 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728758.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DVDFab 12.0.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728691.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ FileZilla 3.25.2 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728674.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ IObit Uninstaller Pro 8.3.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728651.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Macrium Reflect v7.2.4063 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728647.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ FastStone MaxView + portable 3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728645.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ FabFilter - Total Bundle 2019.02.19 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728643.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Mirillis Splash v2.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728640.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1356330   (968339) от 08.02.2020
-
-AO Tennis 2 (2020) [Ru/En] (1.0.1422) Repack xatab
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-AO Tennis 2 — уникальная игра, сделанная любителями тенниса для любителей тенниса. Создавайте собственных игроков, стадионы и проводите легендарные матчи. Участвуйте в соревнованиях и займите первую строчку мирового рейтинга в карьерном режиме.Тип издания: RepackРазработчик: Big Ant StudiosЖанр: Спортивные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB460ADDC6A9AAB41BF8188A6D60899E3BF3BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315007   (968333) от 08.02.2020
 
 GOD EATER 3 (2019) [Ru/Multi] (2.40) Repack xatab
@@ -32,7 +6,7 @@ GOD EATER 3 (2019) [Ru/Multi] (2.40) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968333.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Stronghold Kingdoms: Era Worlds (2012) [Ru] (2.0.35.3) License
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968329.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Quest (2015) [En] (1.6.7) Repack Animanyak
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968202.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0/2 DLC) 2012 | R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968092.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967301.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Orcs Must Die! Dilogy / Дилогия. Бей орков! [Ru/En] (RePack) 2011
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965941.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Kona (2017) [Ru/Multi] (14034) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965825.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Guns n Zombies (2014) [Ru/Multi] (1.7/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965252.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Whispering Willows (2014) [Ru/Multi] (1.29) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965248.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Alan Wake + Alan Wake's American Nightmare [Ru/En] (Repack) 2012 | R.G. Revenant
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964915.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Atelier Dusk Trilogy (2020) [Multi] (1.0) License CODEX [Deluxe Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964873.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Ys I & II Chronicles [En] (L) 2013 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964859.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964336.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ TechWars Online (2015) [Ru] (0.160) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964287.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.06.0109) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964281.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.3853173/dlc) SteamRip =nemos= [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963934.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) SteamRip =nemos= [Deluxe Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963892.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.7.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963885.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Victor Vran ARPG (2015) [Ru/En] (2.07.20190131/dlc) Repack Other s [Overkill Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963877.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Generation Streets (2020) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963873.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Cities XL Platinum 2013 [En] (L) 2013 | COGENT
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963680.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ Football Legend (2015) [Ru/En] (2.339.1307) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963229.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ Rising Cities (2013) [Ru] (07.10.2015) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963173.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962815.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ Planet Nomads (2019) [Ru/Multi] (1.0.6.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962802.jpg" />
 </div>
 
 
@@ -674,6 +648,33 @@ Planet Nomads — научно-фантастическая игра с откр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1746E27F51E2331D972043015945F4AC05844A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621351   (962367) от 20.02.2013
+
+Tom Clancy's H.A.W.X. 2 [En] (L) 2010 | TiNYiSO
+
+>>Win Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярного симулятора полетов, в котором представлено еще больше всяческой современной и футуристической технически. В игре вы увидите F-35, бомбы с лазерным наведением и много другого. Полетать предстоит над Москвой, Персидским заливом, Арктикой и Индийским океаном.
+Tom Clancy's H.A.W.X. 2 дает возможность поучаствовать в ближних воздушных баталиях, ночных бомбардировках и нанесении тихих ударов при использовании беспилотных летательных аппаратов. Также вам предстоит совершать взлеты и посадки на базы и авианосцы, а во время некоторых миссий даже дозаправляться прямо в полете.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Simulation / Flight Combat / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB17F11100A7538E240A3A69230E7C7BDF3CC43
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Frank Foster - Leo Rising (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553983.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Keb' Mo' - Oklahoma (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553921.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joe Albany with Warne Marsh - The Right Combination (1957) 1990, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553846.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Fay Claassen - Luck Child (2017) Challenge Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553840.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Richard Van Bergen & Rootbag - Walk On In (2017) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553835.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Red Nichols - 1929 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, New Orl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553782.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Unlimited Voice Company - Gospels und phantasievolle Lieder (1995) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553534.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ David 'Fathead' Newman & Marchel Ivery - Blue Greens & Beans (1990) Remaster, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553132.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Cannonball Adderley Quintet - Music, You All (1972) 2016, Real Gone Music[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553131.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Fattburger - Time Will Tell (1989) [FLAC|Lossless|image + .cue] <Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553128.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bobby Hutcherson - Un Poco Loco (1980) 1999, Koch Jazz[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553125.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Christopher Hollyday - And I'll Sing Once More (1992) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553123.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Denise Donatelli - Find A Heart (2015) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553120.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nanna Baudelaire - Wild Ones (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553117.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Organ Freeman - Organ Freeman (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553064.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Carl Anderson - Heavy Weather Sunlight Again (1994) [FLAC|Lossless|image + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553061.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Billy Cobham - Spectrum (1973) 1992, Remasters Series [WavPack|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553039.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The Girl from Ipanema: The Antonio Carlos Jobim Songbook (1995) [WavPack|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552950.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Red Nichols - 1929 - 1930 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552945.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Illinois Jacquet - The Illinois Jacquet Story: It's Wild (1944 - 1951) 2002, Pro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552523.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Christian McBride Trio - Out Here (2013) Mack Avenue [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552522.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Brother Jack McDuff - The Best Of The Concord Years (1992 - 2001) 2CD, 2003, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552521.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Rosemary Clooney - Demi-Centennial (1995) Concord Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552520.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Royal Southern Brotherhood - 5 альбомов (2012 - 2016) [FLAC|Lossless|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552412.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Simon McBride - 4 альбома (2008 - 2012) [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552400.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Christian McBride Big Band - Bringin' It (2017) Mack Avenue Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552236.jpg" />
 </div>
 
 

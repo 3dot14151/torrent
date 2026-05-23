@@ -1,113 +1,3 @@
-###  Публикация: 951367   (362611) от 29.10.2015
-
-Project Sylpheed: Arc of Deception (2007) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G. GamePress
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Project Sylpheed является духовным наследником shoot 'em up серии Silpheed. Действие игры разворачивается в 2632 году, через пятьсот лет после того, как люди покинули солнечную систему. За это время было колонизировано и терраформировано 11 звездных систем, а правление сосредоточилось в руках. Terra Central Government. Колонисты четырех звездных систем, не желая (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Game ArtsЖанр: Simulators / SpaceЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53F1BE024BAE880D2676C9802DE47348B687520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576721   (362268) от 17.11.2012
-
-Transformers: Fall of Cybertron [Xbox 360] [Region Free] [RUS] [XGD3 / LT+2.0] (2012)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сражение за планету Кибертрон вступает в решающую фазу. Жестокие Десептиконы и противостоящие им Автоботы готовятся к последнему удару, который должен поставить финальную точку в затянувшемся конфликте. Станьте свидетелем и непосредственным участником величайших событий в истории эпической саги о Трансформерах, управляя самыми популярными разумными машинами всех времен.
-В новом игровом блокбастере вас ожидает невиданный масштаб разрушений. Перед вами откроются мрачные страницы угасания древней цивилизации, погрязшей в ужасах войны на уничтожение. Используйте уникальные способности Трансформеров, чтобы выйти победителем из схватки с несокрушимой формой Т-Рекса от Смельчака и легендарными Боевиконами. Крушите врагов в захватывающей одиночной кампании, посвященной обеим сторонам конфликта или бросьте вызов соперникам в сетевой игре!Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F844927D0941DF11FD016BA00AA4B6B358AB3C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576683   (362265) от 17.11.2012
-
-LEGO The Lord of the Rings [Wii] [MULTI4] (2012)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концептуально LEGO The Lord of the Rings предлагает все тот же суповой набор развлечений, что и тысяча игр с мясистой биркой LEGO до нее. В качестве декораций и сюжетного фона тут предсказуемо используются материалы из кинотрилогии «Властелин Колец». На правах пластмассовых фигурок, условно копирующих персонажей из трех фильмов Питера Джексона, игрокам предстоит поскитаться по Средиземью, посетить шахты Мории, миновать черные ворота Мордора и, естественно, уничтожить зловещее кольцо. Развлекать путников по мере того, как они будут сплавляться по сюжетному руслу всей трилогии, суждено угловатым оркам, Балрогу и прочей фэнтезийной живности, фигурировавшей в кинолентах.
-
-В плане игровой механики народ может рассчитывать на «кооператив», простенькую боевку, понятную «всем возрастам», фирменный юмор, непритязательные головоломки и целую бригаду легко узнаваемых героев – Фродо, Арагорн, Гэндальф, Леголас, Гимли, Боромир, Сэм, Мэрри и Пиппин непременно засветятся в LEGO The Lord of the Rings.Жанр: Action-adventure, open worldЯзык интерфейса: MULTI4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51E7D7E7C6AF87C36417427769441F1CB7402BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576794   (362261) от 17.11.2012
-
-Geronimo Stilton in the Kingdom of Fantasy The Videogame [PSP] [ENG] (2011)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Джеронимо Стилтону в увлекательном путешествии по семи землям, входящим в Фантастическое королевство. Все семь частей королевства наполнены головоломками и загадками, а также таинственными существами, играющими свою роль в этой захватывающей истории.
-Приключение начинается в Королевстве ведьм, где вам придется решать загадки карликового великана, помогать незадачливому рыцарю искать доспехи и даже сражаться с хищными растениями! Игра «Джеронимо Стилтон в Фантастическом королевстве» - захватывающее приключение для игроков всех возрастов!
-Вы окажетесь в красочном и живом мире. У каждого обитателя сказочной страны свой яркий и неповторимый характер, и вы не раз от души рассмеетесь, выполняя задания – будь то чтение книг для впечатлительного паука или поиск хрустального шара для гиппогрифа...
-В своем путешествии Джеронимо и Scribblehopper встретят русалок, драконов, пикси, гномов и многих других удивительных существ. Поможете ли вы этим отважным героям спасти Цветочка?Жанр: Quest, AdventureЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD32279BE4A42BB45306F19716DD0220A5031FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574815   (362170) от 17.11.2012
 
 Tokyo Jungle [PS3] [ENG] [NTSC] [FIXED FOR 3.55] (2012)
@@ -116,7 +6,7 @@ Tokyo Jungle [PS3] [ENG] [NTSC] [FIXED FOR 3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362170.jpg" />
 </div>
 
 
@@ -142,7 +32,7 @@ Indivisible (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362082.jpg" />
 </div>
 
 
@@ -168,7 +58,7 @@ Tiny Troopers: Joint Ops (2014) [PS3] [USA] 4.21 [PSN / 1.01 / 1 DLC] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356464.jpg" />
 </div>
 
 
@@ -194,7 +84,7 @@ The Testament of Sherlock Holmes [PS3] [RUSSOUND] [PAL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354625.jpg" />
 </div>
 
 
@@ -220,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354482.jpg" />
 </div>
 
 
@@ -246,7 +136,7 @@ Sleeping Dogs (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352888.jpg" />
 </div>
 
 
@@ -273,7 +163,7 @@ Killzone Trilogy (2012) [PS3] [EUR] 3.40 [Repack / 1.0 / 1.29 / 1.14] [Ru/En/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352717.jpg" />
 </div>
 
 
@@ -299,7 +189,7 @@ inFamous / Дурная Репутация [PS3] [EUR] [RUSSOUND] [3.55] [Cobra 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352148.jpg" />
 </div>
 
 
@@ -325,7 +215,7 @@ Need for Speed: Rivals [XBOX360] [JtagRIP] [RUSSOUND] [Freeboot] (2013) | R.G.X3
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352145.jpg" />
 </div>
 
 
@@ -351,7 +241,7 @@ Legendary (2008) [PS3] [EUR] 2.42 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351866.jpg" />
 </div>
 
 
@@ -377,7 +267,7 @@ The Witch and the Hundred Knight (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351864.jpg" />
 </div>
 
 
@@ -403,7 +293,7 @@ Resident Evil Code: Veronica X (2001) [PS3] [USA] 4.85 [HEN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351766.jpg" />
 </div>
 
 
@@ -429,7 +319,7 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 4.21 [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351461.jpg" />
 </div>
 
 
@@ -455,7 +345,7 @@ God of War Collection (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350526.jpg" />
 </div>
 
 
@@ -482,7 +372,7 @@ Thronebreaker: The Witcher Tales (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350500.jpg" />
 </div>
 
 
@@ -509,7 +399,7 @@ Bully: Scholarship Edition [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350019.jpg" />
 </div>
 
 
@@ -535,7 +425,7 @@ Nickelodeon Dance 2 [Xbox 360] [ENG] [Region free] [Kinect] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349673.jpg" />
 </div>
 
 
@@ -561,7 +451,7 @@ RPCS3 + 4.89 Firmware + Rusty PSN - эмулятор PS3 с необходимы
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349516.jpg" />
 </div>
 
 
@@ -589,7 +479,7 @@ Saints Row IV: Game of the Century Edition [PS3] [EUR] [En] [4.55] [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349025.jpg" />
 </div>
 
 
@@ -615,7 +505,7 @@ The Adventures of Tintin: Secret of the Unicorn (2011) [Xbox360] [RegionFree] [F
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348428.jpg" />
 </div>
 
 
@@ -641,7 +531,7 @@ Dragon Fin Soup (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348406.jpg" />
 </div>
 
 
@@ -667,7 +557,7 @@ Pokken Tournament (2016) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347010.jpg" />
 </div>
 
 
@@ -680,6 +570,113 @@ Pokken Tournament (2016) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0DC6804206FA37C56765E3BAE0490C9DCFCA00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073238   (346883) от 15.11.2016
+
+LEGO Jurassic World (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динозавр и человек — два вида, которых разделяют 65 миллионов лет эволюции, — неожиданно столкнутся друг с другом в игре LEGO® Jurassic World™ для Wii U! Приготовьтесь к приключениям, экшену и классическому юмору LEGO, продвигаясь по сюжету, основанному на всех четырех фильмах популярной франшизы.
+
+Играйте в одиночку или объедините силы с другом и снова погрузитесь (   Читать дальше...   )Тип издания: LicenseРазработчик: TT GamesЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F829398EB9010F5F796CB9E0FCDF975DAB46476A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953656   (346370) от 05.11.2015
+
+Rugby World Cup 2015 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в захватывающий мир регби с официальной видеоигрой Rugby World Cup 2015. Выберите одну из 20 команд и участвуйте в престижном турнире. Победите в Чемпионате мира, или создайте свой чемпионат!
+Голоса Стюарта Барнса и Майлса Харрисона перенесут вас на стадион! Вам доступны все движения: толчки руками, ложные пасы, дроп-голы, захваты, короткие пасы, реализации. (   Читать дальше...   )Тип издания: UnofficialРазработчик: HB StudiosЖанр: Sport / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C96DAC0E56E11CCA560F3646E99D4E2A566513C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953897   (346335) от 05.11.2015
+
+The Peanuts Movie: Snoopy's Grand Adventure (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учавствуйте в грандиозном приключении вместе со Снупи и помогите ему найти Чарли Брауна и всех его друзей. В приключении ему помогут Вудсток и бигль-скауты, позволяя Снупи получать новые способности и выполнять особые приемы. Кооперативный режим: вместе с другом вы можете управлять Снупи и Вудстоком одновременно! Простота и доступность: незатейливое управление, позволяющее (   Читать дальше...   )Тип издания: LicenseРазработчик: Behaviour InteractiveЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C374E7321FC36D9A066ECDB6819BE794DE1983DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418729   (346279) от 25.10.2020
+
+Pumpkin Jack (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.8] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346279.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тыквенный Джек» — это дикая, но симпотишная 3D-игра, в которой вы перевоплощаетесь в Джека, фантастического Повелителя Тыкв! Сюжет игры вращается вокруг нашего героя, которому теперь прямо в канун Хэллоуина предстоит отправиться в длинное и опасное путешествие, в котором его будут ждать сражения, головоломки, испытания, и многое-многое другое, ну а вам же в новые (   Читать дальше...   )Тип издания: LicenseРазработчик: Nicolas MeyssonnierЖанр: Экшн, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780B3D45339F7B3DAAE9B16791A1F622CACCC921
 ```
 
 https://mybot314.ru/tekegram_catalog/

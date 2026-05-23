@@ -1,58 +1,3 @@
-###  Публикация: 1707367   (62821) от 16.03.2024
-
-Melon VPN - Secure Proxy VPN 8.0.002 Mod By FreeApkexe [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Melon VPN - это быстрый, неограниченный, стабильный и полезный VPN (виртуальная частная сеть).
-Обходите ограничения местоположения на сверхбыстрых скоростях.
-Обходите географические ограничения и интернет-фильтры, пока вы на работе или в школе.
-Наслаждайтесь несколькими прокси-серверами и несколькими режимами VPN, чтобы обойти заблокированные веб-сайты и приложения, (   Читать дальше...   )Тип издания: ModРазработчик: Inf Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9066AB74A79EBB83743C39B7BBAB8CC144198443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707310   (62782) от 16.03.2024
-
-WPS Office + PDF v18.7.6 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.03.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDBE192FE17420C452C47F48F6F2A9194A8C9E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707311   (62771) от 16.03.2024
 
 ToonMe v0.7.3 Mod by Mixroot [Ru/Multi]
@@ -61,7 +6,7 @@ ToonMe v0.7.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62771.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ Psiphon Pro 393 Mod by AzadNet [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62768.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ Easy Voice Recorder - Pro / Простой диктофон Про v2.8.7 Mod by
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62741.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ Easy Notes 1.2.24.0309 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62656.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62580.jpg" />
 </div>
 
 
@@ -192,7 +137,7 @@ Rutube v29.1.1 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62554.jpg" />
 </div>
 
 
@@ -218,7 +163,7 @@ DailyArt - Daily Dose of Art v3.2.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62535.jpg" />
 </div>
 
 
@@ -244,7 +189,7 @@ UniBook - Аудиокниги v0.9.6 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62463.jpg" />
 </div>
 
 
@@ -270,7 +215,7 @@ AR Ruler App: Линейка Рулетка v2.7.11 Mod by srajawwal09 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62462.jpg" />
 </div>
 
 
@@ -296,7 +241,7 @@ Photomath v8.36.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62387.jpg" />
 </div>
 
 
@@ -322,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62362.jpg" />
 </div>
 
 
@@ -351,7 +296,7 @@ Pencil Photo Sketch : Drawing v2.0.69 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62323.jpg" />
 </div>
 
 
@@ -377,7 +322,7 @@ Blur Photo v6.2 Mod by Dymonyxx [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62257.jpg" />
 </div>
 
 
@@ -403,7 +348,7 @@ GIF Maker - GIF Editor 1.8.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62238.jpg" />
 </div>
 
 
@@ -429,7 +374,7 @@ PrinterShare Mobile Print v12.14.10 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62066.jpg" />
 </div>
 
 
@@ -455,7 +400,7 @@ Thenx v5.50 [En] Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62019.jpg" />
 </div>
 
 
@@ -481,7 +426,7 @@ CapCut - Video Editor v11.5.0 b11100500 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61883.jpg" />
 </div>
 
 
@@ -507,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61876.jpg" />
 </div>
 
 
@@ -533,7 +478,7 @@ PicWish: AI Photo Editor v1.6.8 Mod by Raju054 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61875.jpg" />
 </div>
 
 
@@ -560,7 +505,7 @@ ColorNote - Блокнот заметки v4.4.9 Free + Mod by  Dymonyxx [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61845.jpg" />
 </div>
 
 
@@ -586,7 +531,7 @@ All-In-One Offline Maps v3.15 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61579.jpg" />
 </div>
 
 
@@ -612,7 +557,7 @@ Moon+ Reader Pro v9.2 (build 902004) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61543.jpg" />
 </div>
 
 
@@ -638,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61529.jpg" />
 </div>
 
 
@@ -664,7 +609,7 @@ BZ Напоминания и Дни Рождения PRO v3.3.7 Mod by Alex.Stra
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61480.jpg" />
 </div>
 
 
@@ -675,6 +620,58 @@ BZ Напоминания и Дни Рождения PRO v3.3.7 Mod by Alex.Stra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F8EF90A904DA7DFA0D270149D31F7DD109C6A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710791   (61479) от 28.03.2024
+
+Все заболевания (Offline) v5.0 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61479.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом словаре все болезни расположены в алфавитном порядке и содержат заболевания с краткой информацией и симптомами,  чтобы было легче понять понять о том, что это за болезни. Это очень полезный и удобный справочник. К Вашим услугам самая подробная информация о любой интересующей болезни - от банальной простуды до сложнейших генетических патологий.Тип издания: PremiumРелиз состоялся: 27.03.2024Разработчик: ufostudioПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7295AC6893B33F68DC44B6E0D32CD1D9F917FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711512   (61183) от 31.03.2024
+
+Picsart AI Photo Editor, Video v24.6.4 Final Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к сообществу Picsart, насчитывающему более 150 миллионов авторов по всему миру. С помощью фоторедактора и видеоредактора Picsart AI вы сможете воплотить свои творческие идеи в жизнь. Создавайте с помощью инструментов искусственного интеллекта, создавайте коллажи профессионального уровня, создавайте и добавляйте наклейки, быстро удаляйте и меняйте (   Читать дальше...   )Тип издания: Full / GoldРелиз состоялся: 29.03.2024Разработчик: PicsArt, Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

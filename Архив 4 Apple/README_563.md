@@ -6,7 +6,7 @@ Smooze 1.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213786.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DVD-Cloner 2023 for Mac 7.0  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213779.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WiFiSpoof 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213775.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Colibri 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213771.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Duplicate File Finder Pro 7 v.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213766.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sync Folders Pro 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213763.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ DupeZap 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213762.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ EdgeView 2 v2.900 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213757.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Scherlokk - Files finder 4 v4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213753.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ TextSoap 8 v8.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213745.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mirror for Roku TV 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213743.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ UniConverter 11.6.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213741.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ A Better Finder Attributes 7 v7.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213738.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Blocs 3.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213736.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Grid 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213728.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Disk Xray 2.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213725.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ PullTube 1.8.5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213720.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213718.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Dark Mode for Safari 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213716.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ PaintCode 3 v3.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213715.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Dynamic Wallpaper Engine 15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213712.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ DEVONthink Pro Office/Server 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213689.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Kiwi for Gmail 2.0.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213686.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ iThoughtsX 5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213682.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ WiFi Explorer 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213670.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Wondershare PDFelement Pro 7.5.4.2797 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213656.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Telegram for Android 9.2.0 (2956) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174529.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vivaldi for Android 5.5.2807.43  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174441.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Telegram for Android 9.2.1 (2962) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173973.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SnapEdit - AI photo editor 4.9.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173181.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Dict Box - Английский словарь v8.8.1 Mod by Alex.Strannik [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172984.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VPN Russia - VPN сервера в России 1.175 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172953.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ vpnify - Безлимитный VPN 2.1.4.9 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172948.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.3 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172779.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Bazaart: Photo Editor & Graphic Design v2.2.8 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172645.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ XY VPN - Security Proxy VPN 4.7.216 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172438.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Moon+ Reader Pro v8.5 (build 805000) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172286.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Photo Studio PRO v2.6.4.2022 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171907.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PhotoRoom v4.7.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171903.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sense V2 Flip Clock & Weather v6.35.4 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171849.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Sense flip clock & weather v6.34.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171846.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Fitify: Фитнес тренировки дома 1.58.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171699.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.0.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171693.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VPN Russia - VPN сервера в России 1.176 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171676.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Speedtest от Ookla 5.2.1 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171248.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Speedtest от Ookla 5.2.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171231.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Speedtest от Ookla 5.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171222.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Busuu - изучение языков 31.3.2(828895) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171213.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Lucky Patcher 10.9.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171207.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Busuu - изучение языков 31.3.2(828895) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171195.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Duolingo: изучай языки 5.125.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171185.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.41
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171177.jpg" />
 </div>
 
 

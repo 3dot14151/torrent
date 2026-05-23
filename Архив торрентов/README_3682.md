@@ -6,7 +6,7 @@ NVIDIA GeForce Desktop Game Ready 531.61 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240509.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Performance Index 64 Pro 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240507.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 11 Manager 1.1.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240505.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MEmu 8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240499.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Topaz Photo AI 1.3.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240482.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Viber 20.2.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240475.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ KLS Backup 2021 Professional 11.0.0.9 x64 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240471.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wise Folder Hider Pro 4.4.3.202 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240459.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PCDJ DEX PRO 3 v.3.20.3.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240452.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VirtualBox 6.1.34 Build 150636 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240449.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Radiant Photo 1.1.1.267 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240448.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Vivaldi 5.7.2921.68 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240443.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PCalc 4.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240442.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Soulver 3 v3.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240441.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ RJ TextEd 15.85.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240436.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Contacts Journal CRM 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240435.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ GrandTotal 6 v6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240432.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Windows 11 Manager 1.1.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240429.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Fort Firewall 3.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240427.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wondershare PDFelement 9.5.8.2267 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240426.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Emurasoft EmEditor Professional 22.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240424.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Clipboard Manager 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240413.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ WindowManager 10.10.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240401.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Icecream PDF Editor PRO 2.71 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240396.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ DSLR Assistant 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240390.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Soulver 3 v.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240386.jpg" />
 </div>
 
 

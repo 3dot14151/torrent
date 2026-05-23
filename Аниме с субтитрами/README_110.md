@@ -6,7 +6,7 @@ Rakudai Kishi no Cavalry / Rakudai Kishi no Eiyuutan / Chivalry of a Failed Knig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144358.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Touken Ranbu: Hanamaru / Дикая пляска мечей: Ханамару [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144013.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Watashi ga Motete Dousunda / Kiss Him, Not Me / Целуй его, а не ме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143958.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Drifters | Скитальцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143779.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes | Как госпо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143724.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143705.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sora to Umi no Aida | Between the Sky and Sea | Между небом и мор�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143696.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Conception / Зачатие [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143686.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143646.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Keijo!!!!!!!! / Кейджо !!!!!!!! [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143558.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143484.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Kino no Tabi: The Beautiful World - The Animated Series | Kino`s Journey: The Be
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143267.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Code:Realize Sousei no Himegimi | Код понимания: Страж пере
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143249.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Элег�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143238.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Assault Lily: Bouquet | Штурмовая Лилия: Букет [2020, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143153.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Golden Kamuy (2020) | Золотое божество [ТВ-3][2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143133.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Visual Prison | Визуальная тюрьма [2021, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142979.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Iwa Kakeru! Sport Climbing Girls | Скалолазки [2020, TV, 12 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142929.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Mama wa Shougaku Yonensei / Mama is a 4th Grader / Мама-четверокла
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142900.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142472.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Anitore! EX / Anime de Training! EX / Тренировки с аниме! [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142461.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Magic-Kyun! Renaissance / Магия-кюн: Ренессанс [2016, TV, 13 и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142274.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Ushio to Tora / Усио и Тора [ТВ-1] [2015, TV, 26 из 26] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142151.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Sono Toki, Kanojo wa. | И тогда она... [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142048.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141921.jpg" />
 </div>
 
 

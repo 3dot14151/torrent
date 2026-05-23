@@ -6,7 +6,7 @@ Allavsoft Video Downloader Converter 3.23.6.7816 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014227.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sound Control 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014224.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DjVu Reader Pro 2.5.2 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014212.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ iToolab UnlockGo 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014209.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Waltr Pro 1.0.89 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014199.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ DxO PureRAW 1.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014167.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Capture One 21 Pro Pro v14.2.0.136 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014158.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Audirvana 3.5.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014141.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ ABBYY FineReader PDF Viewer for Mac 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014136.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Feeder 4 v4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014062.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Cardhop 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014052.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ PhotoSweeper X 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014051.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Money Pro - Personal Finance 2.7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014034.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014018.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Linguist 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014008.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Gemini 2: The Duplicate Finder 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013985.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ DxO PureRAW 1.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013971.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Keep It 1.10.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013890.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Scrutiny 10 v10.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013889.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Optimage 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013873.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Scherlokk - Files finder 4 v4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013089.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ RAW Power 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013086.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ GoodTask 6.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013085.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ A Better Finder Rename 11 v11.34 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013081.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Texpad 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013080.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Micromat Drive Scope 1.2.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013075.jpg" />
 </div>
 
 

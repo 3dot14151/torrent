@@ -6,7 +6,7 @@ GPU Caps Viewer 1.49.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175010.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft Video Converter Ultimate 10.6.8 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175007.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RustDesk 1.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175006.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.2 Build 2 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174998.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Download Master 7.0.1.1709 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174995.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Disk Drill Enterprise 4.1.206 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174993.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Cent Browser 4.3.9.226 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174990.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Final Cut Pro X 10.6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174983.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ NirLauncher Package 1.23.36 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174978.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ CleanMyMac X 4.14.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174976.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Soul Knight v2.9.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174973.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Skype 8.92.0.204 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174955.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Bridge 2021 11.0 incl. ARC13.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174953.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Revo Uninstaller Pro 5.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174949.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ WinTools.net Premium 23.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174937.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Victoria 5.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174932.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ WinTools.net 23.0 Classic / Professional / Premium RePack (& Portable) by TryRoo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174922.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Capture One 21 Pro 14.0.0.275 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174901.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Room Arranger 9.7.1.629 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174879.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ AOMEI Backupper Pro 7.1.1 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174858.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Keep It 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174841.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ OmniGraffle Pro 7 v7.18.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174838.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dato 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174832.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Isekai Maou to Shoukan Shoujo Dorei Majutsu | How NOT to Summon a Demon Lord | �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174829.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ File List Export 2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174828.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ SpamSieve 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174826.jpg" />
 </div>
 
 

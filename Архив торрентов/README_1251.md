@@ -6,7 +6,7 @@ Tomcats In Tokyo - Sweet Gloomy Home (2003) Limited Edition [FLAC|Lossless|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771984.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ExpanDrive 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771982.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Windows Repair (All In One) 3.1.2 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771964.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Mate Translate – переводчик 4.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771927.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Ant Download Manager PRO 1.7.5 Build 49189 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771924.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Renamer 5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771921.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Icebreaker International - Trein Maersk: A Report to the NATOarts Board of Direc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771920.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771919.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771917.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Mp3tag 2.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771910.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Steve Hackett - At The Edge Of Light (2019) Scene [FLAC|Lossless|tracks] <Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771909.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Nicholson1968 | Подкасты (2015-2018) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771904.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Proxeeus - Non​-​Euclidean Geometry (2018) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771903.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Macgo Blu-ray Player Pro 3.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771902.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Novicorp WinToFlash 0.8.0117 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771893.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771890.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ PrivaZer 3.0.43 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771861.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ WiFi Signal 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771857.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Athentech Perfectly Clear + Essentials + WorkBench 3.5.7.1164 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771856.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Mozilla Firefox ESR 52.7.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771848.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - A State Of Trance Top 20: March 2018 (Miami Edition) (Selected by Armin Van
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771844.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771841.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771840.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Maxthon Browser 5.2.7.300 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771824.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Initial Audio - Reverse 1.0.3 VST, VST2, VST3 (x86/x64) RETAiL [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771822.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Beyond Oasis - The Story Of Thor 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771812.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 531284   (558334) от 04.08.2012
-
-Manhunt 2 [Ru] (RePack) 2009 l R.G. Element Arts
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-PC-версия второй части кровавого триллера — одной из самых скандальных игр в истории мировой индустрии развлечений.
-В ходе секретных лабораторных испытаний произошла роковая ошибка, приведшая к катастрофическим последствиям. Из всех участников неудачного эксперимента уцелели двое пациентов — Даниель Лэм и Лео Каспер. Теперь «Проект Пикмана» не остановится ни перед чем, чтобы уничтожить свидетелей и скрыть правду о случившемся.
-Последние шесть лет ты находился в психиатрической клинике. Открыв глаза, ты видишь человека в белом халате. Его тело медленно оседает на пол. Из твоих дрожащих рук падает окровавленный шприц. Что происходит ? Как ты здесь очутился ? Кто ты такой ?
-Двери открыты. Это твой единственный шанс на спасение. Когда-то тебя лишили права на жизнь. Пришло время его вернуть(   Читать дальше...   )Тип издания: RePackРазработчик: Rockstar London, Rockstar Toronto, Rockstar NorthЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA534F90C644F5A5A2567EFADF8CB6282B748E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305181   (558175) от 29.05.2019
 
 Witches' Legacy 5: Slumbering Darkness / Наследие ведьм 5: Притаившись во мраке (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -35,7 +6,7 @@ Witches' Legacy 5: Slumbering Darkness / Наследие ведьм 5: Прит
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558175.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ China: Mao's legacy (2019) [Ru/En] (1.0.2) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557759.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557751.jpg" />
 </div>
 
 
@@ -113,7 +84,7 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557660.jpg" />
 </div>
 
 
@@ -139,7 +110,7 @@ Solstice Chronicles: MIA (2017) [Ru/En] (1.02) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557553.jpg" />
 </div>
 
 
@@ -165,7 +136,7 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557500.jpg" />
 </div>
 
 
@@ -191,7 +162,7 @@ Conclusion (2016) [Ru/En] (1.0.2) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557490.jpg" />
 </div>
 
 
@@ -218,7 +189,7 @@ Conclusion (2016) [Ru/En] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557485.jpg" />
 </div>
 
 
@@ -245,7 +216,7 @@ The Free Ones (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557169.jpg" />
 </div>
 
 
@@ -271,7 +242,7 @@ Ms. Holmes: The Monster of the Baskervilles (2019) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557039.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Royal Legends 2: Raised in Exile / Королевские легенды 2: Ди
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556998.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556904.jpg" />
 </div>
 
 
@@ -349,7 +320,7 @@ City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556892.jpg" />
 </div>
 
 
@@ -375,7 +346,7 @@ Dead Reckoning 7: Sleight of Murder / Точный расчет 7: Ловкос�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556887.jpg" />
 </div>
 
 
@@ -401,7 +372,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.0 Build 8904334) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556854.jpg" />
 </div>
 
 
@@ -427,7 +398,7 @@ Delta Squad (2019) [Multi] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556815.jpg" />
 </div>
 
 
@@ -453,7 +424,7 @@ Tempest: Pirate Action RPG (2016) [Ru/Multi] (1.3/dlc) License PLAZA [Pirate Edi
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556813.jpg" />
 </div>
 
 
@@ -479,7 +450,7 @@ Yakuza Kiwami 2 (2019) [En] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556765.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ Infinite Mini Golf (2017) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556704.jpg" />
 </div>
 
 
@@ -531,7 +502,7 @@ Dreamfall Chapters: The Final Cut (2017) [En/Ge/Fr] (5.7.2.1) Repack R.G. Cataly
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556694.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556690.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Pressure Overdrive (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556662.jpg" />
 </div>
 
 
@@ -609,7 +580,7 @@ Halcyon 6: Starbase Commander (2016) [En] (1.3.1.9) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556647.jpg" />
 </div>
 
 
@@ -635,7 +606,7 @@ Mars or Die! (2018) [Ru/Multi] (1.1.1) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556484.jpg" />
 </div>
 
 
@@ -661,7 +632,7 @@ SUPERHOT (2016) [Ru/Multi] (13.07.18) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556483.jpg" />
 </div>
 
 
@@ -672,6 +643,32 @@ SUPERHOT (2016) [Ru/Multi] (13.07.18) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD6F736E98E0A4BA1104AC60C14ADD56C1BFF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125554   (556480) от 14.07.2018
+
+The Signal From Tölva (2017) [En] (1.0.65) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит на неизвестной планете, откуда идет мистический сигнал. Сама планета населена роботами, которых можно без проблем взломать из укромного места и потом управлять ими. Если же робот умирает, то вы можете подключиться без особых проблем к другому. В игре вы можете исследовать планету, свободно по ней перемещаться и пытаться понять, что это за (   Читать дальше...   )Тип издания: LicenseРазработчик: Big RobotЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E647C262E41F9546137069671553A859EAD9B6C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

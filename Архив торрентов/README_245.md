@@ -6,7 +6,7 @@ Windows 10 Manager 3.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001242.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Farming Simulator 20 v0.0.0.52 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001240.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Warhammer 40,000: Freeblade v5.6.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001239.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Advanced SystemCare Ultimate 13.0.1.85 Final (с антивирусом) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001237.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001234.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ EASEUS Partition Master 13.8 Unlimited Edition RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001230.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Total Commander Ultima Prime 7.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001229.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001227.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Need for Speed: Hot Pursuit v2.0.28 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001218.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Lacey Free Music & Video Downloader 2.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001179.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CherryPlayer 3.3.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001171.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ CherryPlayer 3.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001167.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Opera 78.0.4093.147 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001159.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ReviverSoft Registry Reviver 4.23.2.14 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001153.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ FabFilter - Total Bundle 2021.05.07 VST, VST3, AAX (x86/x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001139.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Emanated (1999) Emanate [FLAC|Lossless|tracks + .cue] <IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001124.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Cisdem Document Reader 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001123.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ ExactScan Pro 20.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001122.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Music Collector Pro 20.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001099.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AirRadar 5 v5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001098.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Book Collector Pro 20.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001097.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Movie Collector Pro 20.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001096.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ UltraEdit 20.00.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001095.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Fanny - Strange Planes Spray Cancers On Winnipeg (2004) Sublight [FLAC|Lossless|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001094.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ The [Law-Rah] Collective - Field Of View (2012) Ant-Zen [FLAC|Lossless|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001093.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Swinsian 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001091.jpg" />
 </div>
 
 

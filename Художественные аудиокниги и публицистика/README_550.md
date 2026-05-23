@@ -1,81 +1,3 @@
-###  Публикация: 1061044   (448092) от 10.10.2016
-
-Валентин Пикуль | Баязет (2016) [MP3, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Исторический роман «Баязет» посвящен одному из самых ярких эпизодов русско-турецкой войны 1877–1878 годов – обороне немногочисленным русским гарнизоном крепости Баязет. Роман основан на реальных событиях, но имена некоторых героев заменены вымышленными. Он состоит из двух частей, каждая из которых содержит по четыре главы. В первой части Валентин Пикуль изложил историю (   Читать дальше...   )Жанр: Исторический романИздательство: АРДИСПродолжительность: 21:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD6C06B04436B8C9B5F605487AE21CA23D6269A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163681   (448013) от 06.09.2017
-
-Елена Звёздная | Мой личный враг (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самое худшее для ведьмы — встретить мага. Самое удачное для мага — заполучить ведьму, чтобы безраздельно пользоваться ее неограниченным ресурсом. И вот тринадцать беззащитных ведьмочек отправляют заканчивать обучение туда, где им хочется оказаться в последнюю очередь — в Академию прикладной магии. Но ведь ведьма — это звучит гордо! А потому самоуверенным магам достанутся (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 07:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716464160ADB7376FD761934F4C920054281B52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552396   (447920) от 26.09.2012
-
-Дмитрий Емец | Месть Валькирий [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Валькирия не может полюбить. Валькирия обязана принять вызов, кем бы он ни был брошен. Никто из встречавших валькирию прежде никогда не узнает ее. Иначе тайна защитит себя сама, и всякий услышавший ее умрет. Валькирию-ослушницу ждет суд Двенадцати». Таков непреложный закон. Убив в поединке полуночную ведьму, Ирка бросает вызов мраку. Уничтожить валькирию-одиночку (   Читать дальше...   )Жанр: Фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429FA4FDBFAB21A1CE0CFBA8C3962DAA88EC1EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163734   (447869) от 06.09.2017
 
 Василий Сахаров | Солдат (2017) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447869.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447626.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ Bregnev и др. | Страшные истории [Сборник № 2] (2019 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447485.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447352.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447336.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447292.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447288.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447224.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447198.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447139.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447111.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447107.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447005.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446836.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446801.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446570.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446524.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446518.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446516.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446506.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446388.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446378.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446211.jpg" />
 </div>
 
 
@@ -675,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67F6339E15596EA3AF71E41C99627C0FA040E870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322230   (446168) от 30.08.2019
+
+Владислав Морозов | Бей врага в его логове! Русский десант в Америку (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446168.jpg" />
+</div>
+
+
+###  Подробнее
+
+2017 год. США доигрались с огнем до ограниченной ядерной войны. Американская агрессия в Сирии и Иране отозвалась исламским восстанием в Европе и спровоцировала обмен тактическими ядерными ударами в Корее, Индии и на Ближнем Востоке. Мир балансирует на грани тотальной катастрофы, выживая по законам военного времени.
+
+Устоит ли Россия в огне Четвертой Мировой? Способен (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 10:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87C0BFB7C84CB695DE27593C81D3B393DA2B382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133885   (446060) от 07.09.2017
+
+Лев Толстой | Война и мир. Герои и автор (1976) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446060.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой постановке авторы прослеживают развитие взаимоотношений между главными героями романа - Андреем Болконским и Наташей Ростовой. В качестве иллюстрации включены наиболее яркие инсценированные страницы эпопеи, характеризующие эту сюжетную линию.Жанр: Радиоспектакль, отечественная классикаПродолжительность: 01:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8086FD46FC57339045AEBAA5933FA7637F2A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322553   (446043) от 30.08.2019
+
+Колин Типпинг | Радикальное Прощение (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более чем вероятно, что эта книга изменит вашу жизнь. Она поможет вам полностью пересмотреть свои взгляды на собственное прошлое и настоящее. В отличие от других форм прощения, истинное прощение легко достижимо и происходит практически мгновенно. После этого вы можете отказаться от роли жертвы, распахнуть свое сердце и повысить уровень жизненных вибраций. Предлагаемые (   Читать дальше...   )Жанр: Практическая эзотерикаПродолжительность: 07:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF78D59B46E11E23B9325C863F553E6F2AF4096
 ```
 
 https://mybot314.ru/tekegram_catalog/

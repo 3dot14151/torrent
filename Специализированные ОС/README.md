@@ -7,7 +7,7 @@ SystemRescue v13.00 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064295.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Parted Magic 2026.03.20 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061977.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ openmediavault 8.0.4 [amd64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053458.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cisco Modelling Lab 2.9.1 [x86_64] 1xDVD+.OVA
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049113.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mikrotik Router OS 7.20.6 [x86] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049082.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ unRAID OS Pro 6.11.5 [x64] ZIP образ для USB Flash Driver
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043303.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036928.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ SystemRescueCD 8.0.2 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020552.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ FreeNAS 11.3-U5 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018149.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ XigmaNAS 12.2.0.4.8311 [x64] 1xCD+4xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017634.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Parted Magic 2019.12.24 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003128.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ XigmaNAS-x64-LiveCD-12.1.0.4.7091 1xCD 12.1.0.4.7091 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992990.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Parted Magic 2016.01.06 [i686, amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970299.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963943.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Parted Magic 2020.02.23 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947646.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944870.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ SystemRescueCD 6.1.0 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939177.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Parted Magic 2016-03-02 [x86, x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889086.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Parted Magic 2017.09.05 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805906.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Parted Magic 2018.01.08 [i686_amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794532.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Parted Magic 2016-04-26 [x86, x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793264.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Parted Magic 2019.01.03 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790875.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ NAS4Free build 11.1.0.4.5127 amd64 1xCD 3xIMG BUILD 11.1.0.4.5127 [amd64 (64-bit
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778904.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SystemRescueCD 6.1.6 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764364.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764354.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764277.jpg" />
 </div>
 
 

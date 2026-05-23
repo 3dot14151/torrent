@@ -6,7 +6,7 @@ VA - Electronic Positivity Dance Plus Vol.2 (2016) [MP3|320 кб/с] <House, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823633.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gabriel and Dresden - Toolroom Knights Mix2 (2007 original) [MP3|256 kbps]<House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_823256.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Pool House 2017 (Cool Deep House For The Poolside) (2017) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823002.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - The Big Ones Vol.8 (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821703.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Re:Recommended - Progressive House Edition Vol.7 (2016) [MP3|320 кб/с] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821511.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821174.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Progressive House Components (2016) [MP3|320 кб/с] <House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819902.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819900.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819899.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819898.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Black Hole House Music 04 - 16 (2016) [MP3|320 кб/с] <House, Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819895.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - In Between Worlds Vol.2 (2017) [MP3|320 Kbps] <House, Progressive House, El
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819378.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Forever Chillout Set Collection (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819373.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Tropical & Future House Workout (2020) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819282.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Big Top Winter (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819207.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - Mega Dance Party 2017 (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819109.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ DJ JIM - Electro Speed 01-30 (2006-2016) (Обновляемая) [MP3|160-320 k
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818707.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - New Year Party 2017 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818509.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Blow It Up (2016) [MP3|320 кб/с] <House, Progressive House, Electro Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818098.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Summer Deep (2016) [MP3|320 кб/с] <Minimal House, Deep House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818094.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Mayday: Twenty Five (2016) [MP3|256 кб/с] <House, Progressive House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817847.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - 35 Best Body Building Hits 2021 (Fitness Version) [MP3|320 Kbps] <House, Da
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817636.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Beach Deep House (2017) [MP3|320 Kbps] <Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817343.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Daft Punk - Random Access Memories (2013) [MP3|320 кб/с]<Electronic, House, D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817145.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Cub Session Rush Hour Vol.10 (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816111.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ VA - Venera Music Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816041.jpg" />
 </div>
 
 

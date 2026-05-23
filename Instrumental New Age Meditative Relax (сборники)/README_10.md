@@ -6,7 +6,7 @@ The Exotic Guitars - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528655.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Ambient Area: Selected Downtempo Works (2017) [MP3|320 Kbps] <Downtempo, Am
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525158.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA-Танцуют все! - Популярные танцы народов ми�
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519849.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Hit Parade XX Century Instrumental Music (2CD) (1994) [MP3|320 кб/с]<Ins
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515620.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Ricky King - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513479.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Rock instrumental classics (2008) [MP3|160-320 кб/с]<Rock/Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512314.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Acoustic Chill Songs (2015) [MP3|320 кб/с]<Instrumental, Acoustic, Guita
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511838.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - The Best Of Ambient Vol 1-5 [Compiled by Zebyte] (2015) [MP3|224-320 кб/�
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510717.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Chill Acoustic Pop Playlist Eighteen Smooth and Chilled Tracks [In The Mood
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510182.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Ultimate Acoustic Covers Playlist [In The Mood] (2015) [MP3|320 кб/с
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510054.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Jacob Gurevitsch - Lovers in Paris (2015) [MP3|320 кб/с]<new age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499247.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Enigmatic History (2010) [MP3|256 кб/с]<World music, World beat, New Age
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499178.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Orchester Anthony Ventura - Compilation (2022) [MP3|320 Kbps] <Easy Listening, I
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496647.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - New Age Style - Enigmatic 27 (2017) [MP3|320 Kbps] <New age, Enigmatic>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491551.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Lounge Instrumental (9 CD) (2012) [MP3|320 кб/с]<Lounge, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484250.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Магия гитары (2003) [MP3|320 кб/с]<Instrumental, Acoustic Gui
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482902.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Cafe Music. Collection (9CD) (1999-2005) [MP3|192-320 кб/с]<Instrumental
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482766.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Cocktail Jazz (Relaxing After a Hard Day Sipping a Drink and Chilling with 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481815.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Golden Accordion (2012) [MP3|320 кб/с]<instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476288.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Native American Lounge Bar (2020) 5CD [MP3|320 Kbps] <Native American, Enig
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474637.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Michel Pepe - Ocean de Lumiere (2015) [MP3|320 кб/с]<New Age, Meditative, Rel
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471300.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Инструментальная музыка (2012) vol. № 73 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469545.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Инструментальная музыка (2012) vol. № 72 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469544.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Инструментальная музыка (2012) vol. № 71 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469444.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Инструментальная музыка (2012) vol. № 74 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466898.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ VA - Great Classic Guitar Songs - Best Instrumental Music to Chill (2015) [MP3|3
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466734.jpg" />
 </div>
 
 

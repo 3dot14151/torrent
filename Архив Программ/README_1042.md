@@ -6,7 +6,7 @@ Adobe Photoshop CC 2018 (19.1.5.61161) (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517830.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Victoria 4.68b SSD Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517816.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DAEMON Tools Ultra 5.5.1.1072 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517767.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517743.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ AV Uninstall Tools Pack 2012.08 [Русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517703.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ ImgDrive 1.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517654.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Allavsoft Video Downloader Converter 3.24.8.8216 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517646.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Icecream PDF Editor PRO 2.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517593.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VIA High Definition Audio Driver 10.800a [multi+rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517482.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Reanimator Live CD/USB (x86) 03.07.2011 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517426.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ XviD4PSP 7.0.167 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517404.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517396.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Mozilla Firefox 41.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517395.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ FlipBuilder Flip PDF 4.3.9 DC 20.08.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517352.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Vivaldi 1.0.252.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517351.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Apowersoft Screen Recorder Pro 2.0.6 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517337.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Google Chrome 44.0.2403.157 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517307.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Notepad++ 6.8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517304.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ IObit Smart Defrag 4.2.1.817 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517302.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ MyLanViewer 4.19.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517268.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Chromodo Browser 44.5.7.268 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517260.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Efficcess Pro 5.0 build 505 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517259.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Google Chrome 44.0.2403.157 Enterprise (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517254.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Icecream Video Editor 1.29 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517224.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ E-on PlantFactory Producer 2015.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517208.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Honeyview 5.13 Build 4627 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517201.jpg" />
 </div>
 
 

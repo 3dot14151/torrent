@@ -1,55 +1,3 @@
-###  Публикация: 992994   (172152) от 19.10.2023
-
-50 языков / 50 languages v14.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В 50 языков (www.50languages.com) содержится 100 уроков, дающих возможность начинающим выучить базовую лексику. Бесплатное приложение содержит 30 уроков. Даже не имея достаточных знаний на данный момент, Вы очень быстро научитесь свободно говорить короткими предложениями в реальных жизненных ситуациях. В 50 языков методом получения быстрых результатов является сочетание (   Читать дальше...   )Тип издания: FullРелиз состоялся: 20.11.2022Разработчик: 50languages.comПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62FC3820DDFC90AD63903E0304BEF12E08F895B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670481   (172049) от 20.10.2023
-
-Enhance it v4.1.7 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Enhance it" - это лучшее приложение для редактирования фотографий, позволяющее улучшить их качество и разрешение. Помимо инструментов ретуширования изображений, приложение использует ИИ для автоматического исправления дефектов фотографий, их восстановления и повышения качества. Для любой проблемы доступно большое количество инструментов на основе ИИ. Хотите (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 16.10.2023Разработчик: Battery Stats SaverПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1018D3B30B908C4BD0B5C0949A7D5CC2D9D2385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670581   (171888) от 21.10.2023
 
 Окружающие звуки - Звуки природы для сна v2.12.4 Mod by Pradzee [Ru/Multi]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171888.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Moon+ Reader Pro v8.5 (build 805000) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171859.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171724.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Measure map v1.2.62 Mod by Alien, derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171698.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171673.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171666.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ tvQuickActions Pro 3.3.1 Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171341.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ YouTube Music ReVanced 6.23.54 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171316.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ Shamdo  v1.3.1216 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170982.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ Dictionary / Словарь PRO v16 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170958.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ Daff Moon Phase (Фазы Луны) v3.49 Mod by shv7net [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170956.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ Vanced Tube v5.5.80.106 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170955.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170929.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ Firewall Security AI - No Root 2.3.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170921.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ Anti Spy Detector - Spyware 5.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170885.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170612.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ Call Notes Pro  v20.11.7 [Ru/Multi] - заметки и другая инфор�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170251.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169636.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ Picture Bird - Bird Identifier v2.9.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169587.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169579.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ Picture Fish - Fish Identifier v2.4.15 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169550.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ Business Calendar v2.44.0 + Lite Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169234.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ PicWish: AI Photo Editor v1.5.6 Mod by Raju054 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169205.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ Wink Plus ATV v1.5.0.3 Mod [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169137.jpg" />
 </div>
 
 
@@ -682,6 +630,58 @@ Wink Plus ATV v1.5.0.3 Mod [Ru] (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71F81006ED81DCDC90F269536E9648EC7082FEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826478   (169105) от 19.10.2025
+
+PowerDirector – Video Editor v15.8.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.10.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C9167BBC73DC0A1C34F5F18658C571B08B8DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515553   (168987) от 07.12.2021
+
+Учебник По Устройству Автомобиля v1.0.7 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приступая к работе над данным приложением, мы ставили перед собой цель в максимально доступной форме изложить достаточно непростой теоретический курс по устройству автомобиля. Знание основ строения транспортных средств снабдит начинающего водителя уверенностью в том, что он сможет контролировать ситуацию в случае какой-либо поломки, прогнозировать объем необходимых (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 30 августа 2021 г.Разработчик: Monolith publisherПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCBC0223E98AFD3ED0FB01FBA8D4E72D812D2CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

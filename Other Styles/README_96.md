@@ -6,7 +6,7 @@ Era - Arielle Dombasle By Era (2013) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546333.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pavlo & Remigio - Guitarradas (2015) Single [MP3|320 Kbps] <New Age, Flamenco, I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546195.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Artur Mena - Sabia Medicina (2013) [MP3|192 Kbps] <World: South American>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545735.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Stive Morgan - Flights In Dream (2016) [MP3|320 Kbps] <New Age, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545598.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545449.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|25
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544847.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Medwyn Goodall - Kissed by the Sun (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544784.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544605.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Simon Daum - Of One Heart (2018) [MP3|320 Kbps] <Instrumental, Piano, New age>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544603.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Zack Hemsey - (Discography) (2006-2014) [FLAC|Lossless|WEB-DL|tracks]<Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544542.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <L
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543810.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543764.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ivonne Alexander - Benevolence (2015) [MP3|320 кб/с]<Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543086.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543031.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|W
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542654.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542653.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542536.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Latino Brazilian Party (Top Hits) (2017) [MP3|320 Kbps] <Latin Music>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542524.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Simon Daum - Awaited (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542424.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542289.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542043.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Astor Piazzolla - Edicion Critica (2005) 7CD [FLAC|Lossless]<Latihin, Tango>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541830.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Ocean Waves For Sleep - Collection Of Ocean Sounds (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541573.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Kaan Luum - Potala Mousse (2015) [MP3|320 кб/с]<New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541322.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Claude Ciari - Sentimental (2003) [FLAC|Lossless]<Instrumental, Guitar>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541109.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ VA - LOVE Instrumentals (2002) [FLAC|image+.cue]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541102.jpg" />
 </div>
 
 

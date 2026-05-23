@@ -1,56 +1,3 @@
-###  Публикация: 1591255   (187442) от 17.11.2022
-
-Ocean Aquarium v1.1 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Ocean Aquarium - это живые обои. Вы можете увидеть 3D рыб в реальном времени!
-Смотри, расслабься и успокойся. Лучше всего для телефонов. Портретный режим.Тип издания: ProРелиз состоялся: 06.08.2020Разработчик: maxelus.netПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6ED5B2F40A0C53EF6407905F27A7039294629F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662486   (187433) от 19.09.2023
-
-Universal Copy v6.3.5 Мод by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Universal Copy — это самый быстрый способ копировать текст на Android, даже из приложений, которые не позволяют вам копировать, или внутри изображений. Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.09.2023Разработчик: Camel CorporationПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A551C1F644AECC9E8AEE39C007FB19ED37AC3435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591134   (187412) от 17.11.2022
 
 English-Russian Dictionary v3.4.1 [Ru/En]
@@ -59,7 +6,7 @@ English-Russian Dictionary v3.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187412.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ Camera ZOOM FX Premium v6.3.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187387.jpg" />
 </div>
 
 
@@ -115,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187375.jpg" />
 </div>
 
 
@@ -141,7 +88,7 @@ PDF Utils v15.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187319.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ Shopping List SoftList v2.6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187156.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ XY VPN - Security Proxy VPN 4.7.199 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187060.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186958.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ ALTLAS: Trails, Maps & Hike 3.3.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186819.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ Dictionary 15.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186773.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ The Clock: Alarm Clock & Timer 8.4.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186730.jpg" />
 </div>
 
 
@@ -326,7 +273,7 @@ WiFi Analyzer v4.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186702.jpg" />
 </div>
 
 
@@ -352,7 +299,7 @@ FineReader Pro: PDF Scanner v15.2.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186627.jpg" />
 </div>
 
 
@@ -381,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186304.jpg" />
 </div>
 
 
@@ -407,7 +354,7 @@ Photo Sherlock v1.107 Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186233.jpg" />
 </div>
 
 
@@ -433,7 +380,7 @@ YouCut - Видеоредактор v1.592.1175 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186224.jpg" />
 </div>
 
 
@@ -459,7 +406,7 @@ The Wolf v2.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_185942.jpg" />
 </div>
 
 
@@ -485,7 +432,7 @@ HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукопис
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185925.jpg" />
 </div>
 
 
@@ -511,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185888.jpg" />
 </div>
 
 
@@ -537,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185222.jpg" />
 </div>
 
 
@@ -563,7 +510,7 @@ Ultimate Background Eraser v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184954.jpg" />
 </div>
 
 
@@ -589,7 +536,7 @@ DNS Changer Fast&Secure Surf 1.2.8 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184486.jpg" />
 </div>
 
 
@@ -615,7 +562,7 @@ Universal Copy v6.3.5 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183842.jpg" />
 </div>
 
 
@@ -641,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183017.jpg" />
 </div>
 
 
@@ -667,7 +614,7 @@ Space Marshals 3 v1.3.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183013.jpg" />
 </div>
 
 
@@ -678,6 +625,58 @@ Space Marshals – веселая и интересная  игра в жанр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C7DA726978B01F73B7EFCFA9D565CDCD4D6B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427499   (182873) от 28.11.2020
+
+Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шутер про Вторую Мировую Войну. Выбирайте противоборствующую сторону. Снаряжайте оружие и в битву, вас ждёт захватывающий онлайн шутер с игроками со всего мира с красивой и проработанной графикой.Тип издания: ПираткаРелиз состоялся: 20 ноября 2020 г.Разработчик: XDEVS LTDПоддерживаемая ОС: Android 5.0 и вышеЖанр: Action (Экшен), Shooter (Шутер)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58C3C22B6F6E2C1E09F352FF7D0223919C19008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427651   (182161) от 29.11.2020
+
+Head Soccer LaLiga 2021 v6.2.5 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Head Soccer LaLiga 2021 - Best Soccer Games - крутой спортивный проект в котором геймеры смогут насладиться футбольными поединками. Не матчами, турнирами и прочим, а именно поединками.Тип издания: ПираткаРелиз состоялся: 26 ноября 2020 г.Разработчик: La Liga Nacional de Fútbol ProfesionalПоддерживаемая ОС: Android 5.0 и вышеЖанр: Sports (Спортивная игра)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250FAFEA7E4862F192D9EB5094C2111713095A17
 ```
 
 https://mybot314.ru/tekegram_catalog/

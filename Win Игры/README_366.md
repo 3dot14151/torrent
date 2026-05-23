@@ -1,29 +1,3 @@
-###  Публикация: 1516876   (154752) от 19.12.2021
-
-Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Это небольшая побочная история скрытности и решения головоломок со знакомыми персонажами и сеттингом из классического приключения Studio Pixel. После того, как Балрог забирает рождественские подарки, украденные Чабой, трусливый Мимига по имени Санта должен проникнуть в каждый дом и вернуть пропавшие пакеты. Проходя на цыпочках мимо кроватей спящих жителей и избегая (   Читать дальше...   )Тип издания: LicenseРазработчик: Nicalis, Inc.Жанр: Приключение, Головоломка, СтелсЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23890AA3ECF1B54B9118974E4BECB09B97963671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518338   (154680) от 19.12.2021
 
 Webbed (2021) [Ru/Multi] (1.04b) License GOG
@@ -32,7 +6,7 @@ Webbed (2021) [Ru/Multi] (1.04b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154680.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Vikings - Wolves of Midgard (2017) [Ru/En] (2.1/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154649.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154588.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.5.13528/dlc) Repack xatab [Collector'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154569.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Looking for Aliens (2021) [Ru/Multi] (1.0.8) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154560.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Garfield Kart - Furious Racing (2019) [Multi] (20191220) Repack Butter_
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154533.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154529.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154485.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Far Kingdoms: Awakening Quest (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154071.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Christmas Wonderland 11 / Рождество. Страна Чудес 11 (2020) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154044.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ League of Light 7: Growing Threat (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153955.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Christmas Spirit 2: Mother Goose's Untold Tales / Дух Рождества 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153898.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (2.08/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153720.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.5.766.8713/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153711.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Autonauts (2019) [Ru/Multi] (140.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153673.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153670.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Awakener: Forgotten Oath (2023) [Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153658.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153572.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Legions of Ashworld (2014) [En] (1.0.2) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153439.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Braid (2009) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153383.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Titan Station (2022) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153259.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ StarCrawlers (2017) [En] (1.1.2) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153196.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Infliction (2018) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153029.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153010.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153001.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4650FA79C3E6AF9C0DA14B907B39C4F284E36E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194908   (152923) от 26.12.2017
+
+Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели игры Homeworld приглашают вас возглавить экспедицию, с которой всё началось. Стратегия 'Deserts of Kharak: A Homeworld Story' сделана студией Blackbird Interactive, состоящей из разработчиков игр Homeworld и Company of Heroes. В игре вам предстоит посетить пустыню Кхарак, где за каждой дюной кроется опасность. В ходе кампании Deserts of Kharak далеко в (   Читать дальше...   )Тип издания: LicenseРазработчик: Blackbird InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16A72B0617859DE1919867789774AA25EE9900C
 ```
 
 https://mybot314.ru/tekegram_catalog/

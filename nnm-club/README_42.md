@@ -1,58 +1,3 @@
-###  Публикация: 1870458   (1069099) от 
-
-YouTube канал "green lamp public domain" - Старые Зарубежные Фильмы (1903-1968) WEBRip [H.264]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции YouTube канала "green lamp public domain" / UCFcI8lexe5s0eNfRxxFKvZA по состоянию на февраль 2020 года.
-
-Канал "green lamp public domain" был открыт в 2015 году, удалён 19 августа 2021 года.
-За 6 лет было опубликовано около 550 фильмов, большую часть из которых удалось сохранить для данной раздачи.Производство: СШАЖанр: история, драма, комедия, немое киноЯзык озвучки: Английский, русский, немое киноСубтитры: Английские интертитры, русские встроенныеПродолжительность: 403:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7CE7E898992750E80217317DD855CBD0184F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869872   (1069098) от 
-
-Брошенный / Neglected (2025) Telecine [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В свой первый официальный день на пенсии детектив Шоу оказывается втянут в самый страшный кошмар своей жизни. В участок приходит окровавленный подросток Эй-Джей и делает шокирующее признание: он заживо похоронил сына Шоу. Пока кислород в тайной могиле стремительно заканчивается, бывший детектив вынужден вновь погрузиться в расследование серии жестоких убийств.Производство: США / Latigo FilmsCali, Wood Pictures, BondIt Media CapitalЖанр: боевик, криминал, триллер, детективРежиссер: Дэвид ЛипперАктеры: Джош Дюамель, Елена Санчес, Дилан Спроус, Тиль Швайгер, Кипп Трайббл, Дэвид Липпер, Корбин Питтс, Джереми Лондон, Джейсон Лондон, Кристин УоллеттПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:03Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCE43C686F6B1F50BE56FFEF543E1D0902094E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870502   (1069097) от 
 
 Борис Романовский | Князь в перспективе. Князь из картины (Книги 1-14) (2025-2026) [MP3, Вадим Пугачев] [Обновляемая]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069097.jpg" />
 </div>
 
 
@@ -90,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069096.jpg" />
 </div>
 
 
@@ -119,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069095.jpg" />
 </div>
 
 
@@ -148,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069094.jpg" />
 </div>
 
 
@@ -177,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069093.jpg" />
 </div>
 
 
@@ -206,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069092.jpg" />
 </div>
 
 
@@ -233,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069091.jpg" />
 </div>
 
 
@@ -260,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069090.jpg" />
 </div>
 
 
@@ -286,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069089.jpg" />
 </div>
 
 
@@ -312,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069088.jpg" />
 </div>
 
 
@@ -338,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069087.jpg" />
 </div>
 
 
@@ -364,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069086.jpg" />
 </div>
 
 
@@ -392,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069085.jpg" />
 </div>
 
 
@@ -421,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069084.jpg" />
 </div>
 
 
@@ -450,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069083.jpg" />
 </div>
 
 
@@ -478,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069082.jpg" />
 </div>
 
 
@@ -506,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069081.jpg" />
 </div>
 
 
@@ -532,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069080.jpg" />
 </div>
 
 
@@ -558,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069079.jpg" />
 </div>
 
 
@@ -587,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069078.jpg" />
 </div>
 
 
@@ -616,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069077.jpg" />
 </div>
 
 
@@ -644,7 +589,7 @@ Yoen017 | Избранные (2026) [MP3, Игорь Демидов]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069076.jpg" />
 </div>
 
 
@@ -671,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069075.jpg" />
 </div>
 
 
@@ -699,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069074.jpg" />
 </div>
 
 
@@ -710,6 +655,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98F10AF677B9DFB84D136311356661A04FBE6676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870427   (1069073) от 
+
+Август Туманов | Джокер Чернобога (Книга 5) (2026) [MP3, Пожилой Ксеноморф]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069073.jpg" />
+</div>
+
+
+###  Подробнее
+
+В моём резюме было одно слово: «решала».
+Я решал проблемы. Окончательно.
+Пока одна из них не решила меня — предали, убили, закрыли вопрос.
+Открываю глаза — новый работодатель. Древнее божество. Контракт простой: моя жизнь в обмен на мою радость. Я посмеялся — какая ещё радость? Сделка идеальная.(   Читать дальше...   )Жанр: фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3FB1C7DAD8FB05382686F328A2440BB2BBC488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870425   (1069072) от 
+
+Август Туманов | Джокер Чернобога (Книга 4) (2026) [MP3, Пожилой Ксеноморф]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069072.jpg" />
+</div>
+
+
+###  Подробнее
+
+В моём резюме было одно слово: «решала».
+Я решал проблемы. Окончательно.
+Пока одна из них не решила меня — предали, убили, закрыли вопрос.
+Открываю глаза — новый работодатель. Древнее божество. Контракт простой: моя жизнь в обмен на мою радость. Я посмеялся — какая ещё радость? Сделка идеальная.(   Читать дальше...   )Жанр: фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A03666A65DEE4E21B1A0C590018293999BC0E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

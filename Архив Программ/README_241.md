@@ -6,7 +6,7 @@ Google Chrome 48.0.2564.103 Stable Portable by PortableApps (Веб-устано
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945387.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Reminder 1.22.59 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945376.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comodo Dragon 46.9.15.425 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945338.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TeamSpeak 3.0.10 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945313.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Connectify Dispatch 4.3.0.26370 (Includes Connectify Hotspot PRO) [Англий�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945310.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Cent Browser 1.7.6.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945302.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wise PC 1stAid 1.47.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945293.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Aiseesoft Burnova 1.3.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945266.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ BurnAware Professional 8.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945265.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ FileZilla 3.47.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945244.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Opera 67.0.3575.31 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945235.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Process Hacker 2.37 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945231.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ IObit Smart Defrag Pro 6.4.5.105 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945230.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adguard 6.0.188.974 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945215.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Wise Registry Cleaner 8.83.563 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945210.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Hornil StylePix 2.0.1.0 + portable  [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945199.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ WinSnap 5.2.2 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945198.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Aiseesoft Screen Recorder 2.1.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945197.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ JetBrains ReSharper Ultimate 2019.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945193.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ RogueKiller Anti-Malware 14.2.1.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945190.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Google Chrome 48.0.2564.103 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945158.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ PortableApps.com Platform 16.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945147.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Opera 67.0.3575.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945145.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ AVG AntiVirus 2016 16.41.7442 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945135.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Adguard 6.0.185.962 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945128.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ IObit Driver Booster Pro 7.3.0.665 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945106.jpg" />
 </div>
 
 

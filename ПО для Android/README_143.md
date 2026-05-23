@@ -1,55 +1,3 @@
-###  Публикация: 1789850   (22283) от 06.04.2025
-
-InColor: Coloring & Drawing v6.5.4 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-С разнообразными интересными страницами для окрашивания, ваш Android в одно мгновение превратится в идеальный инструмент для расслабления и совершенствования навыков рисования. Имитация реальных мазков краски и звука, замечательная функция наложения градиента, предоставляет вам самый реалистичный опыт окрашивания. Инновационный способ управления, идеально подходит (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.04.2025Разработчик: EyewindПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD437CAF641765CE12B8FD4D23DD7C1529EF5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790251   (22091) от 08.04.2025
-
-CCleaner Pro: ПО для очистки 25.07.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - один из самых известных и популярных инструментов для очистки пространства мобильного устройства. С его помощью можно удалять ненужные файлы, освобождать место, анализировать состояние системы и с высокой степенью безопасности находиться в интернете, а так же многие другое. С данной программой пользователи получат практически полный контроль над гаджетом (   Читать дальше...   )Тип издания: ProРелиз состоялся: 07.04.2025Разработчик: PiriformПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E64CB64DD6F92DD7FA451E39DC92F6934F2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790582   (21964) от 09.04.2025
 
 Dict Box - Английский словарь v8.9.9 Mod by Alex.Strannik [Ru/Multi]
@@ -58,7 +6,7 @@ Dict Box - Английский словарь v8.9.9 Mod by Alex.Strannik [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21964.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Password Safe and Manager v8.2.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21784.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ PhotoRoom v2025.15.02 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21751.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21700.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Instant Translate On Screen / Перевод с экрана v7.0.09885 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21655.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21622.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ tTorrent Pro  v1.8.10 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21356.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21350.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ SoundHound ∞ - Music Discovery v10.4.8 Paid by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21248.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ RAR for Android v7.11 build 127 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20923.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20807.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20771.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20584.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.61
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20490.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ NekoBox for Android 1.3.9 [Ru] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20348.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19959.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ Translator / Мгновенный перевод речи v11.3.0 Mod by Alex.St
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19725.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ Stellarium Plus - Star Map v1.14.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19689.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ MyLifeOrganized 4 Pro 4.5.1 [Ru/Multi] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19314.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ GIF Maker - GIF Editor v3.0.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19241.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18819.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ CCleaner Pro: ПО для очистки 25.08.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18752.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ WPS Office + PDF v18.17.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18738.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ EPIK - AI Photo & Video Editor 5.6.22 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18724.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ EPIK - весьма и весьма функциональный фоторед�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56EEABE87D371698E45F8090E5ED1FDB0D635B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796612   (18674) от 11.05.2025
+
+Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в царство отдыха, превратив свой телевизор в прекрасный камин! Идеально подходит для успокоения перед сном или для расслабления в гостиной! Blaze предоставляет 6 тщательно отобранных каминов с красивой графикой и профессионально проработанным звуком. Камины могут быть представлены в формате HD или Ultra HD, в зависимости от вашего телевизора. С каминами (   Читать дальше...   )Тип издания: FullРелиз состоялся: 10.05.2025Разработчик: PirinelПоддерживаемая ОС: Android 5.0+, Android TVЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796261   (18652) от 11.05.2025
+
+TickTick: Список дел и задачи v7.6.6.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18652.jpg" />
+</div>
+
+
+###  Подробнее
+
+TickTick — это ваш личный мощный инструмент продуктивности, разработанный для упрощения вашей жизни и повышения вашей эффективности. Этот многомерный менеджер задач объединяет все ваши дела, расписания и напоминания в одном интуитивно понятном пространстве, позволяя управлять временем и задачами без проблем, будь то дома, на работе или в пути. Откройте для себя эффективный (   Читать дальше...   )Тип издания: ProРелиз состоялся: 11.05.2025Разработчик: TickTick LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D28F1B5FA3D728891FEA32D089F5C12D94AB444
 ```
 
 https://mybot314.ru/tekegram_catalog/

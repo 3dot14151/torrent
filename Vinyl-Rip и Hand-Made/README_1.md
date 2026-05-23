@@ -6,7 +6,7 @@ Tool - Studio Albums (7 releases) (1991-2019) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061228.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Seven Impale - Studio Albums (4 releases) (2013-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061224.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Delibes / Chopin - Douglas (Berliner Philharmoniker, Herbert von Karajan) - Copp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061042.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Skeeter Davis and Bobby Bare - Tunes For Two (1965) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060778.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Twenty-Five Years Of Royal Variety At The London Palladium 1930 - 1973 (197
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060650.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ebony Tears - Studio Albums (3 releases) (1997-2001) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060567.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Tammy Wynette - In Love (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060539.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Boston Pops Orchestra • Arthur Fiedler - Classical Music For People Who Hate C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059790.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Max Bygraves - Max Bygraves (1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059760.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mason - Studio Albums (3 releases) (2013-2025) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059424.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Peter Katin, London Philharmonic Orchestra, John Pritchard - Tchaikovsky / Litol
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059237.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Susperia - Studio Albums (7 releases) (2001-2018) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059157.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Armageddon (Sweden) - Studio Albums (5 releases) (1997-2016) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058677.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Abhorrent Decimation - Studio Albums (3 releases) (2013-2017) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058676.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Cleo Laine - The Platinum Collection Of Cleo Laine (1981) Series The Platinum Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058675.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Country Dreams (1983) [FLAC|Lossless|image + .cue] <Folk, Country>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058640.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Cathedral - Studio Albums (15 releases) (1991-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058533.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ghosts of Jupiter - Studio Albums (4 releases) (2011-2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058190.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Handel, The Academy Of St. Martin-in-the-Fields - Concerto (1979) cond. Neville 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057984.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Rotting Christ (Sakis Tolis; χ ξ ς') - Studio Albums (20 releases) (1991-2026
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057602.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and othe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057272.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Callisto - Studio Albums (5 releases) (2002-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057177.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Spiritual Beggars - Studio Albums (9 releases) (1994-2016) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057126.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Music For Pleasure - Hot Hits 9 (1971) Cover versions of chart songs from 1971 [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057125.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Carl Belew - Carl Belew (1960) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057114.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Duets Country Style (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057113.jpg" />
 </div>
 
 

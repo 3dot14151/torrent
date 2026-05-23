@@ -1,55 +1,3 @@
-###  Публикация: 1469658   (1016284) от 13.05.2021
-
-GIF Maker Pro 1.7.66 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Теперь вы можете создавать/редактировать бесплатные, четкие, простые, быстрые, плавные и не испорченные водяными знаками GIF анимации. С помощью красивого и мощного интерфейса, вы сможете без каких-либо водяных знаков - конвертировать видео и набор изображений в GIF, редактировать GIF, создавать GIF прямо с камеры вашего устройства, сжимать GIF файлы, поворачивать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.10.2020Разработчик: GIF Maker & GIF Editor & Video MakerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4CA9026D8853D8C1B093B444B4A404AED6868A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469708   (1016253) от 13.05.2021
-
-nPlayer Pro 1.7.7.7_191219 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Нет необходимости конвертировать видео в формат MP4 для просмотра на мобильном устройстве. С nPlayer вы сможете просматривать видео в любом формате. Одним касанием пальца Вы сможете управлять воспроизведением, субтитрами, громкостью и яркостью.Тип издания: ProРелиз состоялся: 10.01.2020Разработчик: Newin Inc.Поддерживаемая ОС: Android 4.2+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C910980879A9AC661476934079D4F5369D142F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469764   (1016060) от 14.05.2021
 
 Polaris Office Pro 9.0.12 [Ru/En]
@@ -58,7 +6,7 @@ Polaris Office Pro 9.0.12 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016060.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015716.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Avee Music Player (Pro) 1.2.101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015601.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015286.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015265.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015098.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015093.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015092.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014906.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ Picture Insect v2.2 [Ru/Multi] - Bug Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014772.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ Photographer's companion v1.9.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014749.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ Geometryx: Геометрия - Расчёты и формулы v3.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014723.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Hotspot Shield Free VPN v8.7.0 Elite [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014712.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ Mobile Observatory - Astronomy v2.75 / 3 v3.3.5d Pro  [En] - вся информ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014709.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ Audiomack v6.4.0 [Ru/Multi] - скачайте музыку для оффлай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014499.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ Launcher 10 - Лаунчер стилизованный под Windows 2.7.31 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014419.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014313.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ txtpad+ 3.1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014208.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ TonalEnergy Tuner and Metronome v1.9.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014197.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ chomp SMS 8.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014191.jpg" />
 </div>
 
 
@@ -588,7 +536,7 @@ Material Status Bar 10.23 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014177.jpg" />
 </div>
 
 
@@ -614,7 +562,7 @@ Amber Weather (Янтарная погода) 4.7.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014172.jpg" />
 </div>
 
 
@@ -640,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014074.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013981.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:583051F7724B30392296A9EA43F2164706F686F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473017   (1013966) от 27.05.2021
+
+Быстрый блокнот / Fast Notepad 2.0.9 Mod by yuri_k33 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый блокнот обладает минималистичным дизайном, поэтому пользователя не будут отвлекать разные ненужные детали. Пользоваться такой записной книжкой очень удобно. Она предназначена для быстрого введения небольших сообщений, которые в дальнейшем понадобятся. Внешне и по функциональным возможностям, блокнот напоминает привычный многим Windows блокнот. Отличается (   Читать дальше...   )Тип издания: ModРелиз состоялся: 09.02.2016Разработчик: IGORПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3498D03960984EFCF98186314FF5A7D46E95E9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473180   (1013808) от 28.05.2021
+
+Быстрый блокнот / Fast Notepad 5.79 Mod by AlexxVp [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и легкий блокнот с папками, паролем, ночным режимом, поиском и резервным копированием. Из названия следует что приложение работает очень быстро, имеет малый вес и предназначено для мгновенных записей, сохраняя при этом самые важные функции, которые могу пригодится в любой момент времени.Тип издания: ModРелиз состоялся: 21.05.2021Разработчик: Simple Apps.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E051594FBA2E6798EE043A222E83ADB7D894F100
 ```
 
 https://mybot314.ru/tekegram_catalog/

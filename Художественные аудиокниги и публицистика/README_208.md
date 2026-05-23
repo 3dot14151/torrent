@@ -1,60 +1,3 @@
-###  Публикация: 288943   (919998) от 30.01.2011
-
-Олег Рой | Мир над пропастью [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-На одной из станций московского метро есть скульптура собаки. О ней ходят легенды. Говорят, если загадать желание и потереть ее нос – то желание исполнится. Издалека он блестит, затертый до желтизны…
-Конечно, Игорь не верил в эти детские приметы, понимал, что уже никогда не вернуть былое счастье, не воскресить погибших жену и дочку. И все же однажды он оказался возле бронзового друга человека.
-Игорь загадал невозможное – возвращение своих близких… И судьба почти выполнила его просьбу! Правда, капризы ее на этом не закончились…Жанр: проза
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE898F3C3095CBF5EADB5CD2B5278AFAFABB032B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 82668   (919753) от 29.01.2015
-
-А.Кристи, В.Шекспир | Золотой фонд радиоспектаклей часть 5 [1993] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Уильям Шекспир «Ромео и Джульетта» — постановка А.Баталова.
-В ролях: А.Баталов, А.Джигарханян, Е.Герасимов, И.Костолевский и другие заслуженные и народные артисты
-
-Агата Кристи «Происшествие в старом замке»(   Читать дальше...   )Жанр: Радио Спектакль
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 632416   (919604) от 20.03.2013
 
 Брэм Стокер | Дракула (2013) [MP3]
@@ -63,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919604.jpg" />
 </div>
 
 
@@ -89,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919361.jpg" />
 </div>
 
 
@@ -115,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919351.jpg" />
 </div>
 
 
@@ -141,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919337.jpg" />
 </div>
 
 
@@ -167,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919324.jpg" />
 </div>
 
 
@@ -193,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919314.jpg" />
 </div>
 
 
@@ -219,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919299.jpg" />
 </div>
 
 
@@ -245,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919285.jpg" />
 </div>
 
 
@@ -271,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919269.jpg" />
 </div>
 
 
@@ -297,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919255.jpg" />
 </div>
 
 
@@ -323,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919218.jpg" />
 </div>
 
 
@@ -349,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919216.jpg" />
 </div>
 
 
@@ -375,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919210.jpg" />
 </div>
 
 
@@ -402,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919203.jpg" />
 </div>
 
 
@@ -428,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919200.jpg" />
 </div>
 
 
@@ -454,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919191.jpg" />
 </div>
 
 
@@ -480,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919119.jpg" />
 </div>
 
 
@@ -506,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919100.jpg" />
 </div>
 
 
@@ -532,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919097.jpg" />
 </div>
 
 
@@ -558,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919089.jpg" />
 </div>
 
 
@@ -584,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919073.jpg" />
 </div>
 
 
@@ -611,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918990.jpg" />
 </div>
 
 
@@ -637,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918866.jpg" />
 </div>
 
 
@@ -663,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918758.jpg" />
 </div>
 
 
@@ -674,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4273F186D8DBDFF0ACD9CDB18936325C816B13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367080   (918653) от 14.03.2020
+
+Вячеслав Кумин | Колонисты 1-2; Лотерея. Приз (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно прошли те времена, когда люди сами стремились к звездам, чтобы заселить иные неизвестные миры. Теперь их приходится высылать с перенаселенной Земли почти насильственно, методом случайного выбора, или «Лотереи». Потенциальные колонисты всеми силами противятся этому, держатся за Землю, уходя в грязь подземелья городов, становясь «крысами».Жанр: Боевая фантастика, космическая фантастикаПродолжительность: 11:11:24; 09:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C51021A8604C08B62819149AFA1551E2B909D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367120   (918649) от 14.03.2020
+
+Стивен Кинг | Колдун и кристалл (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на перепутье судьбы, где открываются по Слову таинственные двери в иные миры, а будущее, предсказанное великой колодой Таро, может быть изменено, но цена тому будет страшной. Добро пожаловать на дальние Тропы Лучей, что соединяют порталы, ограничивающие Срединный Мир! Но берегись – ибо в тех краях живы древние боги и кровавые порождения Мрака, люди (   Читать дальше...   )Жанр: Фэнтези, триллерПродолжительность: 31:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F87E868C564D8F21AD2E9029D9D94A123394B55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Nomad: Megalo Box 2 | Мегалобокс [ТВ-2] [2021, TV, 13 из 13] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199883.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ UniteUp! | Объединяйтесь! [2023, TV, 12 +3R] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199688.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Isekai Ojisan | Uncle from Another World | Перерождение Дяди [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199561.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Uma Musume: Pretty Derby - Road to the Top / Девушки-лошадки: Ми
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198371.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Koisuru Tenshi Angelique: Kagayaki no Ashita | Анжелика [ТВ-2] [2007, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197783.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Muv-Luv Alternative The Animation | Мав-Лав: Альтернатива [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197623.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197619.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Natsu e no Tunnel, Sayonara no Deguchi | The Tunnel to Summer, the Exit of Goodb
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197566.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197529.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kuma Kuma Kuma Bear Punch / Ми-ми-ми-мишка 2 [2023, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196871.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ My Home Hero | Мой домашний герой [2023, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196857.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Isekai wa Smartphone to Tomo ni. 2 | В другом мире со смартф�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196814.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Kizuna no Allele | Аллель Кидзуны [2023, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196764.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Skip to Loafer | Skip and Loafer | Долой безделье! [2023, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196763.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196747.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Konosuba: An Explosion on this Wonderful World! | Kono Subarashii Sekai ni Bakue
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196714.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Watashi no Yuri wa Oshigoto Desu! / Yuri Is My Job! / Юри — это моя �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196675.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Birdie Wing: Golf Girls' Story (2023) | История гольфисток [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196642.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Tonikaku Kawaii 2 / Tonikawa: Over the Moon for You 2 / Красавица: Ун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196622.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196609.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Megami no Cafe Terrace / The Cafe Terrace and Its Goddesses / Терраса к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196596.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Mahou Shoujo Magical Destroyers | Magical Girl Destroyers | Девочки-во�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196595.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Edomae Elf | Otaku Elf | Эльф-отаку [2023, TV, 12 эп.] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196593.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Rokudou no Onna-tachi | Rokudo's Bad Girls | Плохие девчонки Ро�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196587.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо-сан �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196581.jpg" />
 </div>
 
 

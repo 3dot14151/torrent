@@ -6,7 +6,7 @@ Terry Evans - Live Like a Hurricane (2003) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829205.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Troy Redfern - Dirt Blues Ritual (2017) [FLAC|Lossless|tracks + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828149.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thorbjorn Risager & The Black Tornado - Discography 8CD (2007 -2017) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827974.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dennis Jones - Pleasure & Pain (2009) [FLAC|Lossless|tracks + .cue] <Blues, Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827168.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tedeschi Trucks Band - Live From The Fox Oakland (2017) [FLAC|Lossless|tracks + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826644.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Santana - Blessings and Miracles (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826617.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chicken Shack - Stan Would Rather Go Live (2004) Live, 2008, Angel Air Records [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826542.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Samantha Fish - Chills & Fever (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826459.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dennis Jones - Passion For The Blues (2006) [FLAC|Lossless|tracks + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825479.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dennis Jones - Both Sides of the Track (2016) [FLAC|Lossless|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825470.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ James Brown – I'm Real (1988) [FLAC|Lossless|tracks + .cue]<Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825142.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kenny Neal - Bloodline (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824966.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Duke Robillard - Blues Full Circle (2016) [FLAC|Lossless|image + .cue] <Blues, M
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824963.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Robin Trower - Where You Are Going To (2016) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824874.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Lancaster - Say Goodbye To Trouble (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824872.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Mick Clarke - Crazy Arms (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824741.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ James Cotton with  Joe Louis Walker &  Charlie Haden - Deep In The Blues (1996) 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824364.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Malaya Blue - Heartsick (2016) [FLAC|Lossless|image + .cue] <Blues, Jazzy Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823556.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Randy Volin & The Hard Ones - Detroit Thang (2014) [FLAC|Lossless|WEB-DL|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823003.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ben Poole - Everything I want (2010) EP [FLAC|Lossless|tracks + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823001.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Jennifer Holliday - The Song Is You (2013) [FLAC|Lossless|tracks + .cue] <Soul, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822996.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sean Chambers - Trouble & Whiskey (2017) [FLAC|Lossless|tracks] <Electric Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822907.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Spirit Level - Kolossi Blues (2014) [FLAC|Lossless|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821619.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Shane Dwight Blues Band - Boogie King (2001) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821173.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Rockocola - Rockocola (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821168.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Willie Phoenix & The Soul Underground - Blues My Soul (2016) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819745.jpg" />
 </div>
 
 

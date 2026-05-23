@@ -6,7 +6,7 @@ Cockos - REAPER 6.02 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AMD Radeon Software Adrenalin 2020 Edition 20.12.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163697.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DoYourData Start Menu Pro 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163696.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Program Uninstaller 2.3.9.143 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163692.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe After Effects 2024 v.24.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163689.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Comodo Dragon 79.0.3945.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163682.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163676.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Olly James - Live @ Rave Culture Liveset, Netherlands (2021-12-05) [MP3|320 Kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163671.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Bandicam 5.0.0.1796 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163667.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ SILKYPIX Developer Studio Pro 10E v10.0.17.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163664.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ IObit Driver Booster Pro 11.1.0.26 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163663.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ YTD Video Downloader PRO 5.9.13.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163661.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Emurasoft EmEditor Professional 19.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163660.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163641.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Pocket cleaner Pro 1.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163638.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ ON1 Photo RAW 2020 14.0.1.8289 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163621.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ FileMaker Pro 19 v19.4.2.204 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163620.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ TreeSize Professional 8.0.3.1507 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163614.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Opera 65.0.3467.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163612.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ FabFilter Total Bundle v9.12.2021 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163602.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Spy x Family | Семья шпиона [2022, TV, 24 из 25] WEBRip 1080p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163601.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ AIDA64 Extreme / Engineer / Business 6.85.6300 RePack (& Portable) by TryRooM [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163594.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PreSonus - Studio One Professional 4.6.0.55605 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163577.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ DMG Canvas 3.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163570.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Things 3 v.3.19.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163565.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ KMSAuto++ Portable 1.7.8 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163560.jpg" />
 </div>
 
 

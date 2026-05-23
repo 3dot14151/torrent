@@ -6,7 +6,7 @@ PrivaZer 3.0.33 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275968.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 11.2018
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275944.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cumulative Update KB3205386 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275906.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275898.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Ashampoo Snap 11.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275890.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ GetDataBack for FAT & NTFS 4.0.0.1 +portable [Английский, Немецк
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275888.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Defraggler 2.01.239 [ML/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275886.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Ashampoo WinOptimizer 7.23 [ML/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275876.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ LibreOffice 5.4.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275868.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Waterfox 56.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275861.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ O&O DiskImage Professional 12.0 Build 118 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275821.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Vidiot 0.3.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275808.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ ZD Soft Screen Recorder 10.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275799.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ qBittorrent 3.3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275791.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Cyberfox 50.1.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275789.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Zentimo xStorage Manager 1.1.6.1072 Final [Мульти (Русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275766.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Calibre 3.13.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275757.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ FastStone Capture 8.7 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275752.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ IsoBuster 2.8.5 Business License + Portable [ML/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275744.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Cumulative Update KB3205383 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275697.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Cumulative Update KB3206632 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275696.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Cyberfox 50.1.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275692.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ SRWare Iron 55.0.2900.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275689.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Desktop Icon Toy 4.5 [Eng/Ger/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275678.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Portable Mail.Ru Agent 5.7.3796 [Only RuS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275670.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ MAGIX Vegas Pro 17.0 Build 353 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275652.jpg" />
 </div>
 
 

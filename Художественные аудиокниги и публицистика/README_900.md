@@ -1,87 +1,3 @@
-###  Публикация: 359805   (124617) от 03.01.2024
-
-Уильям Шекспир | Сонеты (2008) [MP3, Родион Приходько]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Школьная библиотека.
-Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
-Это – сонеты Шекспира, венец английской лирики (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: АудиокнигаПродолжительность: 02:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4258BD0BE5150B87AD4476CEB7A7F818DC322D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359800   (124604) от 03.01.2024
-
-Уильям Шекспир | Ромео и Джульетта. Гамлет (2004) [MP3, Ирина Ерисанова, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Зарубежная классика. Литературные чтения.
-Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения.
-«Ромео и Джульетта», «печальнейшая на свете повесть» о двух юных влюбленных, ценой своей смерти примиряющих издавна враждовавшие веронские семейства Монтекки и Капулетти – первая значительная трагедия Уильяма Шекспира. Остродраматические коллизии (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: Студия «АРДИС»Продолжительность: 07:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957E36A6384126F2A855E4132ABC17F5A0EFECA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689722   (124601) от 03.01.2024
-
-Родион Кораблев | Другая сторона (Том 1). Адаптация. Часть 2 (2023) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Внеземная цивилизация предлагает людям сделку – освоение Другой Стороны и добычу ее ресурсов в обмен на технологии и знания. Так человечество открывает новую вселенную, дарующую необычные возможности.
-
-Алекс – начинающий старатель, впервые отправляется на Другую Сторону, но в процессе перехода попадает в неизведанную и крайне опасную область, откуда можно выбраться (   Читать дальше...   )Жанр: LitRPG, Боевая фантастикаИздательство: ЛитРесПродолжительность: 08:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92510CA4507746A3FD08305160AAF153619B01D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689679   (124599) от 03.01.2024
 
 Алексей Широков | СССР 2010 (Книга 3). Пионер – ты в ответе за всё! (2023) [MP3, Антон Макаров]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124599.jpg" />
 </div>
 
 
@@ -117,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124592.jpg" />
 </div>
 
 
@@ -146,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124589.jpg" />
 </div>
 
 
@@ -174,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124585.jpg" />
 </div>
 
 
@@ -201,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124580.jpg" />
 </div>
 
 
@@ -227,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124574.jpg" />
 </div>
 
 
@@ -254,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124573.jpg" />
 </div>
 
 
@@ -282,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124570.jpg" />
 </div>
 
 
@@ -310,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124557.jpg" />
 </div>
 
 
@@ -336,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124550.jpg" />
 </div>
 
 
@@ -362,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124549.jpg" />
 </div>
 
 
@@ -389,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124533.jpg" />
 </div>
 
 
@@ -416,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124532.jpg" />
 </div>
 
 
@@ -444,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124531.jpg" />
 </div>
 
 
@@ -472,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124530.jpg" />
 </div>
 
 
@@ -499,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124508.jpg" />
 </div>
 
 
@@ -527,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124507.jpg" />
 </div>
 
 
@@ -555,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124471.jpg" />
 </div>
 
 
@@ -581,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124469.jpg" />
 </div>
 
 
@@ -607,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124426.jpg" />
 </div>
 
 
@@ -636,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124421.jpg" />
 </div>
 
 
@@ -662,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124384.jpg" />
 </div>
 
 
@@ -688,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124365.jpg" />
 </div>
 
 
@@ -699,6 +615,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDF6AEDFE17D6B7F3C9922E49B9B20A8D6BA1A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689796   (124359) от 04.01.2024
+
+Лев Лурье | Лекция «Москва – Петербург. 13 отличий» (2019) [MP3, Лев Лурье]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124359.jpg" />
+</div>
+
+
+###  Подробнее
+
+На лекции Льва Лурье, посвящённой различиям Петербурга и Москвы, вы узнаете, чем так гордятся петербуржцы, что теряют москвичи, а также о том, каковы истоки этого вечного противостояния. Так уж сложилось, что два этих главных города нашей родины всё время противопоставлялись друг другу и конкурировали между собой. Везло то одному, то другому по очереди, в зависимости (   Читать дальше...   )Жанр: Публицистика, культурология, историяИздательство: Лекторий "Прямая Речь"Продолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E5581449A5D26B7EA170DD4B750301006BAF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689938   (124348) от 04.01.2024
+
+Уильям Шекспир | Мера за меру (2005) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+«Мера за меру» – последняя и самая циничная комедия Шекспира. Театральные (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: Вира-М (аудио)Продолжительность: 03:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA181CA13250455AB4B115C2F79EEC69EBCF04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689921   (124346) от 04.01.2024
+
+Уильям Шекспир | Комедия ошибок. Бесплодные усилия любви (2007) [MP3, Геннадий Бортников, Олег Борисов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+Представляем вниманию слушателей (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: СиДиКом, Элитайл, ГостелерадиофондПродолжительность: 04:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD1FB422EEAAA421E44959BA52A412BD7132DE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

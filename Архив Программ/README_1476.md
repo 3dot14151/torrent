@@ -6,7 +6,7 @@ Axure RP Pro, Team, Enterprise 8.1.0.3381 Full Version [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285457.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CyberLink PowerDVD Ultra 18.0.2307.62 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285456.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kaspersky Free Antivirus 19.0.0.1088 (c) Repack by LcHNextGen (20.11.2018) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285447.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIDA64 Extreme|Engineer|Business|Network Audit 5.99.4900 RePack (& Portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285436.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Format Factory 4.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285435.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Driver Booster Pro 6.1.0.136 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285434.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SolidWorks Premium Edition 2017 SP 1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285397.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Macrium Reflect v7.2.4523 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285362.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Epic Privacy Browser 62.0.3202.94 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285348.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ dBpowerAMP Music Converter 16.3 Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285347.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Daum PotPlayer 1.7.5545 Stable RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285339.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Internet Download Manager 6.25 Build 5 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285333.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wise Care 365 Pro 3.93.351 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285318.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Skype 7.16.73.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285316.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wise Disk Cleaner 8.86.624 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285310.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Google Chrome 47.0.2526.80 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285300.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ K-Lite Codec Pack Update 11.7.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285296.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Google Chrome 47.0.2526.80 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285291.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Tor Browser Bundle 9.0 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285230.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ TeamViewer 14.7.1965 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285225.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft Silverlight 5.1.41105.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285213.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Zoner Photo Studio Professional 18 Build 6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285208.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Guitar Pro 7 v7.0.6 Build 810 x86 + SoundBanks v1.0.69 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285189.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Adobe Photoshop CC 2018. 19.0.1.190 (х86) + Plugins Portable by Deodatto [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285184.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ DFX Audio Enhancer 12.014 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285128.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VMware Workstation 12 Pro 12.1.0 build 3272444 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285088.jpg" />
 </div>
 
 

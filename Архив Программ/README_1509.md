@@ -6,7 +6,7 @@ Opera 57.0.3098.91 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266648.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Geek Uninstaller 1.4.5 Build 133 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266584.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pale Moon 28.2.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266561.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ACDSee Photo Studio Ultimate 2018 v11.1 Build 1272 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266538.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics Disk Defrag Pro 4.9.6.0 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266517.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Auslogics Anti-Malware 1.19.0.0 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266513.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Flash Player 32.0.0.101 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266498.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ High-Logic FontCreator Professional Edition 11.5.0.2430 RePack by tolyan76 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266477.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MAGIX Photostory Deluxe 2019 v.18.1.2.30 + Content Pack Repack by AZBUKASOFTA [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266461.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Auslogics Driver Updater 1.18.0.0 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266437.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MAGIX Movie Edit Pro Premium 2019 v.18.0.1.213 + Content Pack Repack by AZBUKASO
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266429.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BELOFF 2018.12 Lite v2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266345.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ESET NOD32 Internet Security 12.0.31.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266289.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ FireAlpaca 2.2.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266161.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ocenaudio 3.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266117.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Torch Browser 69.0.0.2990 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266105.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ AusLogics Disk Defrag Ultimate 4.11.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266104.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ SamDrivers 19.11 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266075.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ PicPick 5.0.7 Pro + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266072.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Google Chrome 78.0.3904.108 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266070.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Display Driver Uninstaller 18.0.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266064.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Luminar 4.0.0.4880 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266029.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Process Explorer 16.30 Portable by Portable RUS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266025.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Luminar 4.0.0.4880 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266022.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ WinRAR 5.80 Beta 4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266013.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ USB Safely Remove 4.4.2.1087 RePack by Habetdin [2010,русский+англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266009.jpg" />
 </div>
 
 

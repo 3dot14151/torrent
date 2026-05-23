@@ -6,7 +6,7 @@ Dism++ 10.1.4.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816866.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Autodesk AutoCAD Electrical 2017 HF1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816861.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RuntimePack 16.4.17 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816859.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NVIDIA GeForce 364.96 Hotfix driver [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816856.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SamDrivers 16.4 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816854.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.04) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816852.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ oCam 379.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816790.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Error Lookup 2.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816737.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816731.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Webroot SecureAnywhere AntiVirus for Gamers 9.0.29.38 (акция Comss) Web-ins
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816708.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Windows 10 Pro x64 v.1909.18363.815 2in1 April 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816703.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Acrobat Reader DC 2020.009.20063 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816700.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AMD Radeon Software Crimson ReLive Edition 17.3.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816643.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tenorshare Any Data Recovery Pro 5.5.0.0 RePack by tolyan76 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816636.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ JetBrains RubyMine 2017.1 Build #RM-171.3780.96 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816630.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Comodo Cloud Antivirus 1.10.412605.476 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816628.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Araxis Merge 2014.4565 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816614.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adobe Acrobat Pro DC 2020.009.20063 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816602.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Cumulative Update KB4016635 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816546.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Cumulative Update KB4016637 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816545.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Wire 2.12.2729 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816542.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Chrome Cleanup 17.97.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816541.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ JetBrains DataGrip 2017.1 Build #DB-171.3780.102 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816537.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Acoustica Mixcraft Pro Studio 7.1.264 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816521.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Internet Download Manager 6.28 Build 1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816483.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Form Pilot Office 2.53 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816481.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1756246   (39054) от 28.10.2024
-
-Neva (2024) [Ru/Multi] (1.02) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Эмоциональное приключение Neva сделала та же команда разработчиков, которая выпустила игру GRIS, тепло принятую критиками и полюбившуюся игрокам. Главная героиня Neva - девушка Альба, которая после встречи с тёмными силами оказалась связана с любопытным волчонком. Вместе они отправляются в опасное путешествие по некогда прекрасному умирающему миру. Альба и волчонок (   Читать дальше...   )Тип издания: RepackРазработчик: Nomada StudioЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C1A284079C42A49CBB336E82325B7495277797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757578   (39022) от 28.10.2024
 
 The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
@@ -32,7 +6,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39022.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39019.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39017.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Devilated (2021) [Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38968.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pure Rock Crawling (2018) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38965.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38940.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38936.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38886.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38885.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38882.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.0973) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38879.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38875.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.0.82) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38858.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38857.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Crime Boss: Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38856.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38854.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38851.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38849.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38833.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Brotato (2022) [Ru/Multi] (1.1.3.0/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38832.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Deadly Days (2019) [Ru/Multi] (1.7.0f2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38807.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38780.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Jujutsu Kaisen: Cursed Clash (2024) [Multi] (20240925/dlc) Scene Tenoke [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38776.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Riot Operator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38761.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.9.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38751.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Blockbuster Inc. погружает вас в самое сердце Голли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECAF636EA73BE0F47D065A2FB719CEC385CADDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758110   (38748) от 31.10.2024
+
+Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38748.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире Subnautica ваше судно потерпело крушение в океанической местности, и в ней есть всего одна прямая линия - вниз, ко дну. Пейзажи вокруг вас озаряются солнцем, коралловые рифы красиво переливаются под солнцем, пока вы медленно тонете в сторону бесконечной темноты пространства. Исследование огромного открытого мира позволяет не только окунуться под толщу воды (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Google Chrome 53.0.2785.89 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547185.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent 3.4.8 Build 42548  Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547184.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 53.0.2785.89 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547182.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics BoostSpeed 9.0.0.0 DC 27.08.2016 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547151.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics Driver Updater 1.9.0.0 DC 26.08.2016 RePack (& Portable) by TryRooM [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547102.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mipony 2.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547097.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Stardock Start10 1.5 RePack by Tyran [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547095.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Office Tab Enterprise 11.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547064.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bandizip 6.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547012.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Glary Utilities Pro 5.122.0.147 Repack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547006.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Stardock WindowBlinds 10.7 Beta 1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546978.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Waterfox 56.2.11 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546953.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Master PDF Editor 5.4.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546947.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BELOFF 2018.8 Medium [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546921.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Victoria 4.66b SSD Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546914.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ JetBrains Rider 2019.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546899.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Brave Browser 0.65.121 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546888.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ IObit Uninstaller Pro 8.6.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546886.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ JetBrains ReSharper Ultimate 2019.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546884.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ KeePassXC 2.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546883.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WinUtilities Professional Edition 15.74 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546881.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Opera GX 60.0.3255.51199 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546838.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ W10Privacy 3.3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546836.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Topaz Adjust AI 1.0.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546827.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Serif Affinity Designer 1.7.1.404 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546779.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ WhatsApp 0.3.3330 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546766.jpg" />
 </div>
 
 

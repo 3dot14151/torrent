@@ -1,29 +1,3 @@
-###  Публикация: 1613728   (202573) от 19.02.2023
-
-Secret Agent HD (2021) [En] (1.0.5) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Переиздание классической игры. Основным нововведением стало улучшение графики, визуальных эффектов и текстур окружения, юнитов и объектов. Пользователь берёт управление над агентом 006 и проведет его через множественные смертельно опасные территории. Предстоит пройти аркадные испытания и решить десятки головоломок. HD версия включает дополнительный Эпизод, открывающий (   Читать дальше...   )Тип издания: LicenseРазработчик: Emberheart GamesЖанр: Экшны, Аркада, ПлатформерЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D520EDA5D761E88737DEF61AB64F7EF9361908C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613719   (202569) от 19.02.2023
 
 SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
@@ -32,7 +6,7 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202569.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Spindle (2025) [Multi] (1.0.3) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202481.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202471.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202460.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack dixen18 [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202459.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20076054/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202458.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-26) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202456.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Niche - a genetics survival game (2016) [Ru/Multi] (1.2.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202455.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202454.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202453.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Onirism (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202452.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202442.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202441.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Jenny LeClue - Detectivu (2019) [Ru/Multi] (2.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202440.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ One Hand Clapping (2021) [Ru/Multi] (1.0.41 Release.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202439.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202438.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ EMOTIONLESS: The Last Ticket (2025) [Ru/Multi] (1.071025) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202399.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ EMOTIONLESS: The Last Ticket (2025) [Ru/Multi] (1.071025) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202398.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mushroom Hunter World (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202397.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202396.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Prototype 2 (2012) [Ru] (Build 19788008/dlc) Repack Yaroslav98 [Radnet Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202395.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hordelord (2025) [Ru/Multi] (16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202394.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Midnight Scenes: The Highway (2020) [Ru/Multi] (1.27a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202384.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ GODBREAKERS (2025) [Ru/Multi] (Build 20302905/dlc) Repack Let'sРlay [Juice Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202375.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Terminus: Zombie Survivors (2021) [Ru/Multi] (1.2.0.108/dlc) Repack FitGirl [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202372.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Terminus: Zombie Survivors - пошаговая игра на выживание
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0348FA4CBDD7506D014C93460DCA3065736FEF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830302   (202371) от 26.10.2025
+
+The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack Other s
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202371.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Outer Worlds 2 - долгожданное продолжение титулованной научно-фантастической ролевой игры от первого лица от Obsidian Entertainment (оцените эти эпитеты!) Пора выделить время в расписании - готовьтесь к захватывающему приключению с новой командой и новым оружием в новой колонии, где поджидают новые враги! Кто на новенькое?Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6F927161274B2568552B3FB836EB1ABE8A8DFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1572937   (416073) от 29.08.2022
-
-Starless (2022) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Starless — это стелс-экшен, где вы в роли одной из колонисток пробираетесь по мрачным коридорам космического ковчега. Ваши главные союзники — осторожность и расчётливость. Если колонистка погибнет, её место займет следующая, но количество людей на борту ограничено. Каждая смерть — это серьёзная угроза для миссии флотилии, так как малое количество людей не сможет (   Читать дальше...   )Тип издания: RepackРазработчик: Petr SapozhnikovЖанр: Stealth-Action, Puzzle, Arcade, 2DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78B0B55F5A1F6D883F06E0BBD9FEF5190447033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551650   (416064) от 29.08.2022
 
 Best Month Ever! (2022) [Ru/Multi] (1.0.0_020) License GOG
@@ -32,7 +6,7 @@ Best Month Ever! (2022) [Ru/Multi] (1.0.0_020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416064.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Amaranthine Voyage 5: The Orb of Purity (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415971.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415906.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Jotun (2015) [Ru/Multi] (11-09-2019) License GOG [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415901.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Medford Asylum - Paranormal Case (2015) [En/Multi] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415739.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Planets Under Attack [Ru/Multi8] (P) 2012 l THETA
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415724.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Demolish & Build Company 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415649.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Sky Break (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415645.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Spellforce 2: Demons Of The Past (2014) [Ru/En] (2.68.5408) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415643.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Mystery Expedition: Prisoners Of Ice / Роковая экспедиция: Пл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415402.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Revived Legends: Titan's Revenge / Ожившие легенды: Месть т�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415325.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) License GOG [Alone Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415293.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Immortal Realms: Vampire Wars (2020) [Multi] (1.01) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415291.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Pine (2019) [Ru/Multi] (Patch 13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415284.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Castle Crashers (2012) [Ru/Multi] (2.1/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415216.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Shadows: Heretic Kingdoms (2014) [Ru/En/De] (1.0.0.8172) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415212.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Wasteland 2: Director's Cut (2014) [Ru/En] (1.0/upd1) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415143.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ StarDrive 2 (2015) [Ru/En] (1.1e/dlc) Repack xatab [Digital Deluxe]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415131.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Lost Lands: A Hidden Object Adventure (2017) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414523.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Cadenza 6: The Following (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414325.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (1.0) License [20th Anniversa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414111.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414063.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ Overloop (2022) [En] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414009.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Human Fall Flat (2016) [Ru/Multi] (1.1.2G) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413577.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Saints Row Дилогия [En/Ru] (Repack) 2009-2011 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413397.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ Saints Row: The Third отдает в ваши руки банду «Святы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F29381DE0C503D88C069E6C16E23FB19B574129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412872   (413318) от 01.10.2020
+
+Resident Evil 3 (2020) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil 3 – полностью обновленный ремейк хоррор-экшена Resident Evil 3: Nemesis, в котором вам вновь предстоит выступить в роли Джилл Валентайн и попытаться выбраться из города Раккун-сити, чтобы сбежать от безжалостного Немезиса.Тип издания: LicenseРазработчик: CAPCOM Co.Жанр: Action, Horror, 3rd PersonЯзык озвучки: Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E8FA3AF8BECFB9289F3B11C350E05130BA4E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

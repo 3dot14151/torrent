@@ -1,29 +1,3 @@
-###  Публикация: 485213   (89432) от 19.04.2012
-
-Cases of Stolen Beauty / Дело об украденной красоте (P) [Ru] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит поучаствовать в невероятном приключении - раскрыть заговор тысячелетия. Ева Сандерс, талантливая журналистка, сама того не зная, становится центром загадочных событий. Сначала она не придает этому значения, но когда неприятности начинают преследовать ее, она решается разобраться в том, что ее окружает. Сможете ли вы раскрыть сложный и запутанный заговор? Оказавшись в нужном месте в нужное время, вы запустили механизм, который только вы и в состоянии остановить...(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485162   (89367) от 19.04.2012
 
 PuppetShow 4: Return to Joyville Collector's Edition (P) [En] 2012
@@ -32,7 +6,7 @@ PuppetShow 4: Return to Joyville Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89367.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89142.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ There & Back (L) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89104.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89084.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88918.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88916.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ NBA 2K11 Fans Edition {1.0.1} (RePack) [Ru] 2010 | Naitro
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88883.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Jewel Legends: Tree of Life (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88693.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Hidden Mysteries: Return to Titanic (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88631.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Victorian Mysteries 2: The Yellow Room (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88539.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Police Force (RePack) [Ru] 2012 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88529.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition / Тайны ду�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88483.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Avernum: Escape from the Pit (P) [En] 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88315.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88288.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Big Kahuna Reef 3 (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88251.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Secrets of the Titanic - 1912 - 2012 (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88160.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизац
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88112.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ JoJo's Fashion Show 3: World Tour Express / Модный показ 3. Миро�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88078.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87914.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87910.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87858.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87675.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87628.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Tumble Jumble (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87548.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Cannon Fodder 3 [Ru] (RePack) 2012 l Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87501.jpg" />
 </div>
 
 
@@ -671,6 +645,33 @@ Cannon Fodder 3 – тактический экшен, унаследовавш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5817D0D686273AA7316FFEAF088FC4560378FF3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480255   (87497) от 09.04.2012
+
+Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра, продолжающая традиции знаменитой серии «В тылу врага 2» и исторической стратегии «Черные бушлаты».
+ Стратегия в реальном времени «Штрафбат» создана на основе мемуаров фронтовиков и других документальных материалов. В ней раскрыта история отдельного штрафного (офицерского) батальона Центрального, а впоследствии Белорусского, фронта.(   Читать дальше...   )Тип издания: RePackРазработчик: 1С-СофтКлабЖанр: Strategy (Real-time / Tactical) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E8F98F5239CB2D1AFFAF887E5D90F30FA5EC66
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Video Plus 1.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442393.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fantastical 2 - Calendar and Reminders 2.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441961.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mountain Duck 1.5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441957.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kardnote - Daily Note-Taking with Markdown 1.0.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441843.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Business Card Shop 7.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441762.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Mountain Duck 2.0.0 (7169) [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441514.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ CrossOver 15.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441405.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ qBittorrent 3.3.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441317.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Deliveries 3.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440959.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Glyphs 3 v 3.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440480.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Publisher Plus 1.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439813.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Micromat ATOMIC 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439801.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ BitMedic AntiVirus - Malware & Adware Security 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439419.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ SopoTube for YouTube + AdBlock 1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439316.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Data Rescue Pro 4.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438786.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ MaCleaner X 14.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438502.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ TeoreX PhotoStitcher 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438472.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ DMG Master 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438375.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Teorex Inpaint 9.2.2 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438292.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Aiseesoft Mac Video Downloader 3.3.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437679.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Paragon NTFS 12.2.313 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437542.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CameraBag Cinema 3.0.000 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436948.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Flame Painter 3 Pro 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436605.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Rebelle 1.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436602.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ MKVtools 2.4 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436276.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Alien Skin Bokeh 2.0.0.339 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436261.jpg" />
 </div>
 
 

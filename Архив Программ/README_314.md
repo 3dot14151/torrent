@@ -6,7 +6,7 @@ TeamViewer Free 11.0.56083 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895305.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macrorit Partition Expert 5.7.1 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895295.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Macrorit Disk Scanner 4.3.8 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895271.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Atlantis Word Processor 4.1.3.3 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895260.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nero Burning ROM 2016 17.0.8.0 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895181.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ UnHackMe 7.95 Build 495 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895177.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VirtualBox 5.0.16 r105871 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895158.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Skylum Luminar AI 1.4.1.8361 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895156.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mirillis Action! 4.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895132.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Punto Switcher 4.2.2 Build 1034 Final RePack by elchupacabra (05.03.2016) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895123.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ PrivaZer 3.0.95.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895110.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Windows 7 Enterprise SP1 x64 RU [GX 28.08.21] by geepnozeex [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895101.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Opera GX 67.0.3575.105 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895078.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895077.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ LibreOffice 6.4.2.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895062.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CoolUtils Total Doc Converter 5.1.0.228 (Repack & Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895055.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ USDownloader 1.3.5.9 Portable (27.03.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895052.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Nero Burning ROM 2016 17.0.8.0 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895051.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ IObit Smart Defrag Pro 6.5.0.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895031.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Cyberduck 7.3.0 Build 32621 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895028.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mp3tag 3.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895025.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PDFsam Basic 4.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895013.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Iridium Browser 48.2 Extra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895005.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ BELOFF [dp] 2020.03.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895000.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Display Driver Uninstaller 18.0.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894970.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ TeamViewer 11.0.56083 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894968.jpg" />
 </div>
 
 

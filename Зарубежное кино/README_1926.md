@@ -1,55 +1,3 @@
-###  Публикация: 969515   (146937) от 27.12.2015
-
-Сайпресс Крик / Cypress Creek (2014) BDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Четыре подружки решили на выходных съездить в лес, в один заброшенный дом. Они даже и представить себе не могли, чем закончится эта поездка…Производство: СШАЖанр: Ужасы, КомедияРежиссер: Майкл КрамАктеры: Шэнон Снедден, Джошуа Винч, Джори Гилл, Тейлор ЛиЭнн Грэхэм, Джессика Уиллис, Дилан Элфорд, Дэрилл Арельяно, Ричард С. Блейк, Карли Буш, Джералд Крам, Майкл Крам, Лоррэйн Юбэнк, Джейсон МакРобертс, Скотт РамсиПеревод: Авторский (одноголосый, закадровый) Андрей ДольскийСубтитры: ОтсутствуютПродолжительность: 01:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F45F8AA68C4862D47E23A53E3B63DEC2982C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519159   (146936) от 25.12.2021
-
-Одиннадцатая глава / Di Shi Yi Hui / The Eleventh Chapter (2019) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-30 лет назад Ма Фули совершил преступление, за которое понёс строгое наказание. И именно сейчас местная театральная труппа во главе с режиссёром, запросто цитирующим различных классиков от Чехова до Ибсена, решила поставить спектакль по мотивам произошедшего. Ма Фули явно не в восторге от того, что кто-то ворошит его прошлое, да и само преступление, оказывается, (   Читать дальше...   )Производство: Китай, Tianjin Maoyan Weiying Culture Media, Tencent Pictures, Dong Shen PicturesЖанр: Драма, комедияРежиссер: Чэнь ЦзяньбиньАктеры: Чэнь Цзяньбинь, Чжоу Сюнь, Да Пэн, Лия Доу, Чунь Ся, Сун Цзя, Хуан Цзяньсинь, Ван СюэбинПеревод: Двуголосый любительский (Творческое объединение «Храм тысячи струн»)Субтитры: Английские, китайские - hardsub (неотключаемые)Продолжительность: 01:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E252194DB296B20D45747FD7F3932F6426BF70D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271925   (146935) от 25.12.2018
 
 Стёпка (2012) WEBRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146935.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146920.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146863.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146854.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146840.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146834.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146826.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146775.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146773.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146757.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146717.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146703.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146697.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146677.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146664.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146649.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146598.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146591.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146579.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146568.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146562.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146558.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146549.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146546.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0E7268B9143CDFC59F330B8084E114EC9137116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270470   (146545) от 25.12.2018
+
+Знакомство с Факерами / Meet the Fockers (2004) BDRip [H.265/1080p] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Бёрнс наконец-то дает согласие на свадьбу своей дочери Пэм Бёрнс с Грэгом Факером. Подготовка к торжеству идет полным ходом, но есть нюанс. Бёрнсы хотят познакомиться с семьей Факеров. Совместные выходные в доме родителей жениха — очередное испытание для Грэга. Сможет ли он не выпасть из "круга доверия", в который попал с большим трудом?Производство: США, DreamWorks SKG, Everyman Pictures, Tribeca Productions, Universal PicturesЖанр: Комедия, МелодрамаРежиссер: Джей РоучАктеры: Роберт Де Ниро, Бен Стиллер, Дастин Хоффман, Барбра Стрейзанд, Блит Дэннер, Тери Поло, Оуэн Уилсон, Спенсер Пикрен, Брэдли Пикрен, Аланна ЮбакПеревод: Дублированный (Лицензия)Субтитры: Русские (полные)Продолжительность: 01:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D140D98F838100E73CC104F65AD48C8143EC788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678186   (146542) от 20.11.2023
+
+Узбечка / Uzbechka / O’zbek Qizi / Uzbek qizi (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна, 1943 год, Калининский фронт. Девушки-снайперы проходят боевое крещение. Выпускницы стрелковой школы впервые на фронте. Одна из них — восемнадцатилетняя узбечка Джамиля.Производство: Узбекистан, Беларусь / Сinema of Сentral Аsia, Беларусьфильм,  Агентство кинематографии УзбекистанаЖанр: военный, драмаРежиссер: Акбар БектурдыевАктеры: Айсенем Юсупова, Зулхумор Муминова, Мухаммадисо Абдулхаиров, Фарход Худойбердиев, Александра Алексеева, Елизавета Шукова, Милана Иванова, Олег Тактаров, Йигитали МамаджановПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: Русские (hardsub на Узбекскую речь)Продолжительность: 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56366ACDBDE3AB895C9526055FAC547F1D13020D
 ```
 
 https://mybot314.ru/tekegram_catalog/

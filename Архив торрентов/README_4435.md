@@ -6,7 +6,7 @@ BoltAI 1.13.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117936.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sandboxie 5.68.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117935.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ djay - DJ App & AI Mixer 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117923.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dropover for Mac 4.13.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117919.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FSNotes 6.6.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117914.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ EazyDraw 11.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117913.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Boinx FotoMagico Pro 6 v.6.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117912.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Clip Studio Paint EX 2.3.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117888.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Adobe Acrobat Reader 2023.008.20533.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117885.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Corel VideoStudio Ultimate 2023 26.1.0.268 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117874.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Revo Uninstaller Pro 5.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117871.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Deepin 20.9 [x64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117867.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Psiphon 3 build 181 (12.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117865.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Wondershare UniConverter Ultimate 15.5.0.9 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117860.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Process Lasso Pro 12.5.0.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117845.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Viber 22.0.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117841.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117836.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AVS Video Software 13.9.6.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117833.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NVIDIA GeForce Desktop Game Ready 551.52 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117832.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Process Lasso Pro 12.5.0.38 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117827.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Q-Dir 11.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117823.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Wise Care 365 Pro 6.6.5.635 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117822.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Revo Uninstaller Pro 5.2.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117820.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ TechTool Pro 19 v.19.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117808.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Directory List & Print Pro 4.29 + Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117807.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Infuse PRO 7.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117803.jpg" />
 </div>
 
 

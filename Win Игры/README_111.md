@@ -1,29 +1,3 @@
-###  Публикация: 1006473   (828296) от 11.04.2016
-
-Caravanserail (2016) [Ru/Multi] (1.0) Repack DARKSiDERS
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Caravanserail - это аркадная торговая стратегия в духе Pirates!, в которой игроки управляют караванами, покупая, продавая и устанавливая свои цены на товары.Тип издания: RepackРазработчик: Jerome BodinЖанр: Strategy, ArcadeЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26C4E46AF3F66482DB100FC718767493064138F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006404   (828215) от 11.04.2016
 
 Resilience: Wave Survival (2015) [En] (Build 26) License PLAZA
@@ -32,7 +6,7 @@ Resilience: Wave Survival (2015) [En] (Build 26) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828215.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ GUILTY GEAR  2 -OVERTURE- (2016) [En/Multi] (1.0.0.520) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828209.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Halloween Chronicles 4: Behind the Door (2021) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828141.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827794.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Riftbreaker (2021) [Ru/Multi] (7526729) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827762.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.16.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827760.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Virtual Rides 3  (2017) [Multi] (1.0.1) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827616.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827613.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Revenants [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827602.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Monochroma (2014) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827529.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Codex of Victory (2017) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827522.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Jet Set Knights (2016) [En] (1.0) Rip Unleashed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826529.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Julai (2016) [En] (1.0) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826426.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Aeon Must Die! (2021) [Ru/Multi] (1.14) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826221.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dungeon Encounters (2021) [Multi] (7222979) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826217.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.0.0.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826215.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Lumione (2021) [Ru/Multi] (7518609) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826129.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Living Legends Remastered: Ice Rose (2020) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826027.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825899.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Emergency 2017 (2016) [Ru] (3.0.2) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825821.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack xata
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825817.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Waking the Glares - Chapters I and II (2017) [En/It] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825811.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ascender (2017) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825810.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Tenth Line (2017) [En] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825805.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Gang Beasts (2014) [En] (0.5.5) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825671.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Gang Beasts – это инди-игра, в которой вам придет�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0C754A56153F172EA3502FBE187BFFF6A7C3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196169   (825536) от 01.01.2018
+
+Outlast Dilogy (2013-2017) [Ru/Multi] Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outlast 2 представляет вашему вниманию Sullivan Knoth и его последователей, которые оставили наш грешный мир позади, чтобы положить начало Вратам Храма, городу, скрытому от цивилизации, в далекой глуши. Knoth и его группа, готовятся к испытаниям конца света, и вы находитесь прямо в центре этих событий. Вы - Blake Langermann, оператор работающий со своей женой, Lynn.Тип издания: RepackРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8916575CC34F2485169474A75A2BA7170B1BFBB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

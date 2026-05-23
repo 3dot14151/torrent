@@ -6,7 +6,7 @@ Creaks (2020) [Ru/Multi] (1.0.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021982.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (2.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021978.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Scarlet Hood and the Wicked Wood (2021) [Ru/Multi] (1.0.0c) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021845.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Children of Morta (2019) [Ru/Multi] (1.2.55/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021838.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cozy Grove (2021) [Ru/Multi] (1.5.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021655.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021491.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ADD (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021476.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mundaun (2021) [Ru/Multi] (1.0.207) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021068.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Don't Be Afraid (2020) [Ru/Multi] (1.002) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020230.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Shattering (2020) [Ru/Multi] (1.1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019726.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2/2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019358.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ S.W.A.N.: Chernobyl Unexplored (2021) [Ru/Multi] (1.0.1160.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018669.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Maid of Sker (2020) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018662.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Falconeer (2020) [Ru/Multi] (1.4.0.1/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018480.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Beholder (2016) [Ru/Multi] (1.6.0.12741/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017969.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Signifier (2020) [Ru/Multi] (1.101) License GOG [Director's Cut Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017965.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016856.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016630.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Inherit the Earth: Quest for the Orb (1994) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016525.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.71/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016477.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Papetura (2021) [Graphic] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016340.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016054.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Tohu (2021) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014305.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Essays on Empathy (2021) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014285.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Rainswept (2019) [En] (1.1.5a/1.1.4a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013948.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Larger Than Light (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013655.jpg" />
 </div>
 
 

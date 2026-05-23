@@ -1,29 +1,3 @@
-###  Публикация: 1799692   (16401) от 29.05.2025
-
-ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack FitGirl [Last Wish Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-ENDLESS Dungeon - это уникальный тактический roguelite-экшен с элементами tower defense, действие которого происходит в отмеченной наградами вселенной ENDLESS. Исследуйте давно заброшенную космическую станцию в одиночку или с друзьями в сетевом режиме. Соберите отряд героев из экипажа разбившегося корабля и защитите кристалл от бесконечной орды врагов... или погибните (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Экшены, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC66A4A7C77378BC44CA8FAD23609B2434842F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799654   (16397) от 29.05.2025
 
 Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen [Ultra Edition]
@@ -32,7 +6,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16397.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.104) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16393.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.9.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16362.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Artifact Seeker Resurrection (2024) [Ru/Multi] (1.4.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16343.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16341.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16336.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack FitGirl [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16335.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Megaquarium (2018) [Ru/Multi] (4.2.5g/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16330.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.15.1/dlc) Repack Let'sРlay [Complete Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16322.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16316.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16310.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16286.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Galacticare (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Full Coverage Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16280.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16275.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Psychoscopy (2022) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16253.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16233.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16217.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16214.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene T
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16209.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.9.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16192.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ ANTONBLAST (2024) [En] (1.1.2с) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16188.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16187.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Astral Ascent (2023) [Ru/Multi] (1075/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16185.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Terraformers (2022) [Ru/Multi] (1.6.21/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16177.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16168.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D257D91C4456B54FFC00B6C277901B13B413D9B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800008   (16163) от 31.05.2025
+
+Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disney Illusion Island - это двухмерное приключение для всей семьи, нарисованное от руки. Игрокам предстоит исследовать цельный и неразрывный мир острова Монот: подняться к высоким горным вершинам и спуститься к корням, уходящим глубоко в землю, попутно открывая новые способности, решая загадки и знакомясь с замечательными и необычными персонажами.Тип издания: RepackРазработчик: Dlala StudiosЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4885744B78D58015FB03EDAD494D645D7D966CFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

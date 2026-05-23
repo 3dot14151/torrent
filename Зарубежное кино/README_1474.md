@@ -1,57 +1,3 @@
-###  Публикация: 273190   (276914) от 20.12.2010
-
-Подарок на Рождество / Jingle All the Way (1996) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ужасно занятый на работе отец постоянно опаздывает на семейные мероприятия. После очередной «неявки» на выступление собственного сына по карате он обещает купить ему на Рождество суперигрушку — Турбомена и, естественно, в суете рождественских хлопот благополучно забывает об обещании.
-И вот начинается лихорадочная гонка за упомянутой игрушкой в самый последний день. Но уж больно много желающих, а игрушек осталось всего ничего.Жанр: Комедия, Приключения, СемейныйРежиссер: Брайан ЛевантАктеры: Арнольд Шварценеггер, Джеймс Белуши, Фил Хартмен, Рита Уилсон, Роберт Конрад, Мартин Мулл, Джейк Ллойд, Э.Дж. Де Ла Пена, Лорейн Ньюмен и др.Перевод: Многоголосый закадровый [20 век Фокс СНГ]
-Одноголосый Ю. ЖивовПродолжительность: 1:33:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187843   (276874) от 30.11.2017
-
-Бриллиантовый полицейский / Blue Streak (1999) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Непревзойденный эксперт по открыванию сейфов Майлс Логан выйдя из тюрьмы, направляется прямо в полицию. Перед арестом он спрятал свой бесценный бриллиант на стройке, которая теперь превратилась в полицейский участок. Чтобы вернуть украденное, Майлс становится полицейским, и, как назло, он вынужден участвовать в самых настоящих расследованиях. Неисправимый рецидивист (   Читать дальше...   )Производство: США, Германия / Columbia Pictures, IndieProd Company Productions, Blue Streak ProductionsЖанр: Боевик, Триллер, КомедияРежиссер: Лес МэйфилдАктеры: Мартин Лоуренс, Люк Уилсон, Питер Грин, Дэйв Шаппелл, Николь Ари Паркер, Грэм Беккел, Роберт Миранда, Олек Крупа, Саверио Гуэрра, Ричард С. СарафьянПеревод: Дублированный, Многоголосый закадровый x2, Одноголосый закадровый x2Субтитры: русские, английскиеПродолжительность: 01:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91548F6898552F8EDF051E93DB1635E375BCF1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187719   (276863) от 30.11.2017
 
 Женщина в песках / Suna no onna (1964) DVDRip [VO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276863.jpg" />
 </div>
 
 
@@ -88,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276858.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276851.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276833.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276832.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276824.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276822.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276815.jpg" />
 </div>
 
 
@@ -270,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276814.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276785.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276777.jpg" />
 </div>
 
 
@@ -351,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276761.jpg" />
 </div>
 
 
@@ -377,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276751.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276750.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276749.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276739.jpg" />
 </div>
 
 
@@ -482,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276737.jpg" />
 </div>
 
 
@@ -508,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276734.jpg" />
 </div>
 
 
@@ -534,7 +480,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276704.jpg" />
 </div>
 
 
@@ -560,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276690.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276668.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276608.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276493.jpg" />
 </div>
 
 
@@ -665,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276411.jpg" />
 </div>
 
 
@@ -676,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8BDFD350B1E0BF6EF17F3EBE9C4A1F85F8B3A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264904   (276349) от 26.11.2018
+
+Мой путь / Mai wei / My Way (2011) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чжун Щик мечтал принять участие в олимпийском марафоне, а Тацуо был лучшим бегуном Японии. Все изменил один день. Чжун Щик был призван служить в японскую армию, где как по велению судьбы он встречает Тацуо, который в то время уже был там командующим. Вдвоем они оказались участниками Второй мировой войны и носили форму Японии, СССР и даже Германии, прежде чем наконец (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, Directors, SK PlanetЖанр: Боевик, Драма, Военный, ИсторияРежиссер: Канг Дже ГюАктеры: Чан Дон Гюн, Дзё Одагири, Фань Бинбин, Ким Инквон, Han Seung-Hyeon, Jin-seok Yang, Ji-han Do, Hee-won Kim, Ли Ён Хи, Ji-woong WiПеревод: Одноголосый закадровый, Двуголосый закадровыйСубтитры: русскиеПродолжительность: 02:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC07C33A4F6D3C52F7C9236B1B840284C9DCBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265246   (276281) от 26.11.2018
+
+Над небесами / Beyond The Sky  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276281.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день, когда Крису исполнилось 7 лет, его мать, поругавшись с отцом, ушла из дома и не вернулась. Отец-алкоголик всю жизнь считал, что супругу забрали инопланетяне, поэтому уже взрослым Крис посвятил жизнь разоблачению так называемых похищений. Вместе с оператором он едет на конвент, чтобы взять интервью у людей, имевших подобный опыт. Там документалисты знакомятся (   Читать дальше...   )Производство: США / Elysian Fields EntertainmentЖанр: фантастика, триллер, детективРежиссер: Фулвио СеститоАктеры: Райан Карнес, Джордан Хинсон, Клод Дюамель, Мартин Сенсмейер, Дон Старк, Петер Стормаре, Милтон Чи, Трэвис Уолтон, Ди Уоллес-Стоун, Даниэль Бургио, Джоди Бентли, Джесси МитчеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30554B9DC65D83F372EF26539ADCD4B5605A3E28
 ```
 
 https://mybot314.ru/tekegram_catalog/

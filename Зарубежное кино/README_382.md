@@ -1,55 +1,3 @@
-###  Публикация: 1100407   (899055) от 04.02.2017
-
-Между ангелом и бесом / Les anges gardiens (1995) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Герою Жерара Депардье, преуспевающему владельцу кабарэ со стриптизом, звонит из Гонконга друг из бурного прошлого, в котором их связывает долгом солдатской дружбы своевременно брошенная граната. Он просит его взять 20 процентов от суммы в 30 млн долларов и семилетнего мальчика-китайца с тем, чтобы доставить к матери в Париж. Договорить друг не успевает - его размазывают (   Читать дальше...   )Производство: Франция / Gaumont International, Funny Films, Vaudeville ProductionsЖанр: Фэнтези, Мелодрама, Комедия, КриминалРежиссер: Жан-Мари ПуареАктеры: Жерар Депардье, Кристиан Клавье, Ева Гримальди, Ив Ранье, Александр Эксимо, Лоран Жандрон, Ева Герцигова, Жан Шампьон, Анна Гейлор, Натали СежанПеревод: Многоголосый закадровый, Двуголосый закадровыйЯзык субтитров: Русский, Английский, ФранцузскийПродолжительность: 01:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520291F075BF066E8F19460E4ED7E2D8C1037E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100375   (899049) от 04.02.2017
-
-Усадьба Хауардс-Энд (Усадьба Говардс Энд) / Howards End (1992) Blu-ray [H.264/1080p] [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Англии в начале XX века. История рассказывает о трёх семействах, представляющих три разных класса. Уилкоксы — богатые капиталисты, представляют класс, заменяющий старую аристократию. Сёстры Шлегель представляют просвещённую буржуазию. Басты принадлежат к низам среднего класса. Фильм посредством показа перехода дома «Говардс-Энд» от одного владельца (   Читать дальше...   )Производство: Великобритания, Япония, Cinema Ten Corporation, Film Four InternationalЖанр: Мелодрама, комедияРежиссер: Джеймс АйвориАктеры: Энтони Хопкинс, Ванесса Редгрейв, Хелена Бонем Картер, Эмма Томпсон, Джеймс Уилби, Сэмюэл Уэст, Джемма Рэдгрэйв, Никола Даффетт, Сьюзи Линдеман, Эдриэн Росс Магенти, Прунелла СкэйлисПеревод: Профессиональный (многоголосый, закадровый), Авторский (одноголосый, закадровый)Продолжительность: 02:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE26680C5019192FFBA57204761E1CA588A74EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100636   (899047) от 04.02.2017
 
 Щедрость Перрье / Perrier's Bounty (2009) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899047.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898942.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898938.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898937.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898861.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898850.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898785.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898778.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898774.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898764.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898753.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898745.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898742.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898734.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898658.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898655.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898644.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898640.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898630.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898592.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898591.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898590.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898582.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898559.jpg" />
 </div>
 
 
@@ -673,6 +621,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FBB7C78BC1A829BFD74895349B763C6A065D8F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492905   (898547) от 01.09.2021
+
+Кодекс киллера / The Protege (2021) WED-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898547.jpg" />
+</div>
+
+
+###  Подробнее
+
+С самого детства она знает, как убивать и со временем именно это становится ее ремеслом. В своем деле Анна — профессионал, так как обучалась у лучшего из наемников. После смерти наставника ассасины выходят на тропу войны, но и девушка, обученная различным видам единоборства, готова принять вызов. В ее арсенале не только оружие и ножи, но еще и искусство соблазнителя. (   Читать дальше...   )Производство: США, Великобритания / Arthur Sarkissian Productions, Campbell Grobman Films, Fourteen Films, Millennium Media, Seven Stars Film Studios, Signature PicturesЖанр: Триллер, криминал, боевикРежиссер: Мартин КэмпбеллАктеры: Сэмюэл Л. Джексон, Майкл Китон, Мэгги Кью, Дэвид Ринтул, Патрик Мэлахайд, Рэй Фиарон, Ори Феффер, Роберт Патрик, Флорин Пьерсик мл., Тудор КирилэПеревод: Любительский двухголосый (Pazl Voice) Tnx.KinoPubЯзык озвучки: Русский, АнглийскийСубтитры: Английские (forced, full)Продолжительность: 01:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A0414D2E090BBF7173C4F7C3938DD8F9888EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992708   (898493) от 03.03.2016
+
+Молодость / Youth (2015) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэд — прославленный композитор и дирижер, вопреки просьбам Ее Величества, отказывается выступить на дне рождения принца Филиппа, и на это у него есть веская причина. Мик, оскароносный режиссер, вовсю работает над новым сценарием «фильма-откровения», но дело не слишком спорится.
+Фрэд и Мик уже полвека дружат, смеются над собой и дивятся красоте и несправедливости (   Читать дальше...   )Производство: Италия, Франция, Великобритания, Швейцария / Barbary Films, Bundesamt für Kultur (EDI), C-Films AGЖанр: драма, комедияРежиссер: Паоло СоррентиноАктеры: Майкл Кейн, Харви Кейтель, Рэйчел Вайс, Пол Дано, Джейн Фонда, Марк Козелек, Роберт Ситалер, Алекс МакКуин, Луна Зимич Мийович, Том ЛипинскиПеревод: Дублированный (Лицензия R5)Язык субтитров: РусскийПродолжительность: 02:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF69635528D42770F0F84470059740CBBA9B6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

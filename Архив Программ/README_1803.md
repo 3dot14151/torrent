@@ -6,7 +6,7 @@ IsMyLcdOK 5.45 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187067.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IsMyHdOK 3.93 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187057.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VMware Workstation Player 17.0.0 Build 20800274 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187054.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VirtualBox 7.0.4 Build 154605 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187036.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Supermium 118.0.5991.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187033.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Topaz Video AI 3.5.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187025.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Uninstall Tool 3.7.3 Build 5719 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187012.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Ventoy 1.0.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187008.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ON1 Photo RAW 2023 17.0.2.13102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187006.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wise Data Recovery Pro 6.1.4.496 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187004.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Planet VPN 1.4.04.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186997.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186990.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Illustrator 2023 27.0.1.620 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186984.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.898]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186982.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VMware Workstation 17 Pro 17.0.0 Build 20800274 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186979.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Reg Organizer 9.30 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186971.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Windows 10 Pro VL x64 22Н2 (build 19045.2311) by ivandubskoj 17.11.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186967.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Phase One Capture One 23 Enterprise 16.2.5.1588 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186957.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Adobe Photoshop 2022 23.5.3.848 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186954.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Adobe Photoshop 2023 24.0.1.112 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186951.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ MediaHuman YouTube Downloader 3.9.9.76 (1811) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186856.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ File & Image Uploader 8.2.6 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186852.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Auslogics Disk Defrag Pro 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186842.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186833.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Skype 8.104.0.207 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186829.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ DesktopOK 11.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186824.jpg" />
 </div>
 
 

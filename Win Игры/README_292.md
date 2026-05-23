@@ -1,29 +1,3 @@
-###  Публикация: 1078933   (276627) от 13.12.2016
-
-Maize (2016) [En] (1.0.1310) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Maize – приключение с видом от первого лица, рассказывающее о событиях, причиной которых стало неправильное понимание заметки от правительства США двумя учеными. В результате был выведен сорт разумной кукурузы, и эта самая кукуруза – не самое нелепое, что есть в игре. Игрокам предстоит исследовать заброшенную ферму и не столь уж и заброшенную подземную исследовательскую (   Читать дальше...   )Тип издания: LicenseРазработчик: Finish Line GamesЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A1A2FD5B14A4AEC30F9CEF70ED45E9F3412DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082587   (276623) от 13.12.2016
 
 Warhammer 40,000: Dawn of War II: Retribution (2011) [Ru/Multi] (3.19.1.10320/dlc) SteamRip R.G. Игроманы
@@ -32,7 +6,7 @@ Warhammer 40,000: Dawn of War II: Retribution (2011) [Ru/Multi] (3.19.1.10320/dl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276623.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Secrets of Great Queens 2: Regicide / Тайны великих королев 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276413.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Chasm (2018) [En] (1.043) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276184.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Pro Evolution Soccer 2019 (2018) [Ru/Multi] (1.0) License CPY
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276074.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Moons of Madness (2019) [Ru/Multi] (1.01) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275637.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Butter_
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275621.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Unholy Heights (2013) [En/Jp] (20171109) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275618.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275555.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Magic: The Gathering Arena (2018) [Ru/Multi] (1864.739803) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275546.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Need for Speed: SHIFT (2009) [Ru/Multi] (1.02) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275539.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275454.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Bombshell (2016) [En] (1.2.10466) License GOG [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275433.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Infinite Air with Mark McMorris (2016) [En] (1.0) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275426.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275419.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275416.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275408.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Resident Evil: Revelations (2013) [Ru/Multi] (1.0/upd4/dlc) Repack Other s [Comp
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275375.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Space Rift NON VR (2016) [En] (1.0) License CODEX [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275360.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.0.6/dlc) Repack Covfefe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275072.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Lost: Via Domus / Lost. Остаться в живых (2008) [Ru/En] (1.0) Lice
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274965.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Warlock. Master Of The Arcane (2012) [Ru] (1.4.1.56/dlc) Repack Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274961.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Rite of Passage 9: Bloodlines (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274746.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274598.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Aerie - Spirit of the Forest / Эри - дух леса (P) [Ru] 2010
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274585.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274499.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083198   (274495) от 15.12.2016
+
+Lost Lands 4: The Wanderer / Затерянные земли 4: Скиталец (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274495.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих лет моряки и пираты Затерянных земель рассказывали о редком появлении корабля-призрака во время шторма. Видение сразу же исчезало, как только человек понимал, что оно реально! Но воспоминания о необычной встрече еще долго жили - так появлялись легенды:  об огромном осьминоге, управляющем кораблем, о капитане-призраке, о проклятии Ярла и злой ведьме.Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924D4801CF643864AC8C7FCAFBAC44B38CE3AA5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

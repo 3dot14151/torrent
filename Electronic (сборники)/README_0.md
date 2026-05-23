@@ -1,32 +1,3 @@
-###  Публикация: 1852266   (1055854) от 07.02.2026
-
-VA - Chill House. Terrace Mix (2024) [MP3|320 Kbps] <Chill-House, Deep-House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-001. Planetopia - City Lights - (01:56)
- 002. Alena Kita - Alive - (02:01)
- 003. Grafine - Breathing - (02:02)
- 004. Galter - Give It - (02:04)(   Читать дальше...   )Жанр: Chill-House, Deep-House, ElectroПродолжительность: 10:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDE955A7D15BD02432A2668BB18A287E313FE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852104   (1055680) от 06.02.2026
 
 VA - Ibiza Megamix (2025) [MP3|320 Kbps] <House, Electronic, Dance>
@@ -35,7 +6,7 @@ VA - Ibiza Megamix (2025) [MP3|320 Kbps] <House, Electronic, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055680.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Spacesynth Forever 6 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055341.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Vocal Trance NNM 7 (2026) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055011.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Record Super Chart 31.01.2026 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054955.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Yello & Dieter Meier & Boris Blank best (1980-2024) [MP3|320 Kbps] <electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054622.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Jupiter Panic - Collection [MP3|320 Kbps] <New Age, Ambient>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054052.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ CosmoDance - Collection (2026) [MP3|320 Kbps] <Spacesynth, Synthdance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053747.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051073.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Beat, Bass, Melody vol.4 (mixed by Dj V) (2025) [MP3|320 Kbps] <Euro Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050657.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050416.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050403.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Marius - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Deep Chill House, Ai
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049544.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049542.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048893.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048892.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048702.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048392.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048234.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - No name compilation part 22 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048232.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Sardø - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048231.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Sardø - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048230.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - 60 minutes. Old School Dance Music vol.32 (mixed by Dj V) (2025) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047588.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - No name compilation part 19 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047027.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Reteox - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046825.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ LIYNA - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046813.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ LIYNA - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E9FCF1AAD1D33001D1D45960325EB4BBB0871CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839782   (1046781) от 30.11.2025
+
+VA - Record Super Chart 29.11.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shouse & Cub Sport - Only You (2:57)
+02. Lady Gaga - The Dead Dance (3:48)
+03. disco lines & tinashe - no broke boys (2:18)
+04. Ava Max - Don’t Click Play (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D7B56D1D00518A28E30FD76D641EC4340A74FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

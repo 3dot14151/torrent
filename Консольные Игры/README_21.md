@@ -1,110 +1,3 @@
-###  Публикация: 1020427   (744613) от 26.05.2016
-
-Sonic Lost World (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит на острове Затерянный Хекс.
-
-Главный герой игры, Соник, собирается остановить группу существ под названием Смертельная Шестёрка, которая хочет высосать всю энергию своей планеты и с её помощью установить власть над миром. Помогают ежу его лучший друг лисёнок Тейлз, а также главный враг, доктор Эггман.Тип издания: LicenseРазработчик: Sonic TeamЖанр: Platformer, Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90ACC5750D7BD915C26DBF22E05FC6B5359891D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020340   (744607) от 26.05.2016
-
-NES Remix (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в эпоху ретро и взгляните под новым углом на некоторые знаменитые имена! В NES™ Remix вас ждет встреча с 16 легендарными играми Nintendo. Перепрыгивайте бочки в классической аркаде Donkey Kong, собирайте рупии в The Legend of Zelda, выполняйте акробатические трюки в Excitebike!
-Заработав звезды, вы сможете разблокировать дополнительные уровни. Именно на (   Читать дальше...   )Тип издания: eShopРазработчик: indieszeroЖанр: Action, ArcadeЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764E05B2C9351F8E08AC2DAA5EB1A6BFB59BB1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020546   (744426) от 26.05.2016
-
-Need for Speed: Most Wanted U (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Мulti]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Садитесь в водительское кресло и пристегните ремни безопасности! Самая безумная гонка вашей жизни ждет вас в игре Need for Speed Most Wanted U для Wii U. Промчитесь по улицам открытого города и соревнуйтесь с друзьями за обладание самого престижного звания: Most Wanted.Тип издания: LicenseРазработчик: Criterion GamesЖанр: Sports, RacingЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EBD4A9C52D6D1DD589AF1770A8D3C0508C88EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396767   (743781) от 17.07.2020
-
-Super Smash Bros. Brawl Project M (2015) [Wii] [USA] 4.3Е [Repack / 3.6+mf] [En]
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Специальное издание для Wii, популярной файтинг-серии. В Super Smash Bros. Brawl сойдутся самые популярные герои, среди которых вы встретите Mario, Snake и других... Продолжение великой серии аркадных файтингов; до европейского дебюта Brawl продано уже более 5 миллионов копий игры! Культовые герои игр Nintendo, SEGA и Konami - Марио, Пикачу, Соник, Солид Снейк и (   Читать дальше...   )Тип издания: RepackРазработчик: Game ArtsЖанр: FightingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690431D21976A987EA54AD31D23839DA5AD84BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281965   (743172) от 13.02.2019
 
 F.E.A.R. 3 (2011) [PS3] [EUR] 3.60 [OFW] [DLC] [Repack] [Ru/Multi]
@@ -113,7 +6,7 @@ F.E.A.R. 3 (2011) [PS3] [EUR] 3.60 [OFW] [DLC] [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743172.jpg" />
 </div>
 
 
@@ -139,7 +32,7 @@ Super Mario Party (2018) [Switch] [EUR] 6.0.0 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743162.jpg" />
 </div>
 
 
@@ -166,7 +59,7 @@ Costume Quest 2 (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743064.jpg" />
 </div>
 
 
@@ -192,7 +85,7 @@ SoulCalibur Broken Destiny [PS3] [Eng/Rus] [NTSC] (2009)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742681.jpg" />
 </div>
 
 
@@ -218,7 +111,7 @@ Bully: Scholarship Edition (2008) [Xbox360] [Region Free] FreeBoot [Unofficial] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739474.jpg" />
 </div>
 
 
@@ -244,7 +137,7 @@ RAGE (2011) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License / 3 DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739447.jpg" />
 </div>
 
 
@@ -271,7 +164,7 @@ Tales of Graces f / Сказания Милосердия б (2012) [PS3] [EUR] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739442.jpg" />
 </div>
 
 
@@ -297,7 +190,7 @@ Tales of Graces f / Сказания Милосердия б (Undub) (2012) [PS3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739436.jpg" />
 </div>
 
 
@@ -323,7 +216,7 @@ The Amazing Spider-Man / Новый Человек-Паук (2012) [PS3] [EUR] 4
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736958.jpg" />
 </div>
 
 
@@ -349,7 +242,7 @@ DARK SOULS II: Scholar of the First Sin (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735295.jpg" />
 </div>
 
 
@@ -375,7 +268,7 @@ Mortal Kombat vs DC Universe [USA] [En] [2.50] [Cobra ODE / E3 ODE PRO ISO] (200
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735007.jpg" />
 </div>
 
 
@@ -401,7 +294,7 @@ M&M's Adventure [Wii] [English] [NTSC-U] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734578.jpg" />
 </div>
 
 
@@ -427,7 +320,7 @@ Ratatouille / Рататуй (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734377.jpg" />
 </div>
 
 
@@ -453,7 +346,7 @@ Ice Age 4: Continental Drift - Arctic Games / Ледниковый период 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734373.jpg" />
 </div>
 
 
@@ -479,7 +372,7 @@ Cars 2 / Тачки 2 (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO] [License]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734358.jpg" />
 </div>
 
 
@@ -505,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730292.jpg" />
 </div>
 
 
@@ -531,7 +424,7 @@ Final Exam (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730288.jpg" />
 </div>
 
 
@@ -557,7 +450,7 @@ Resident Evil: Revelations (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729303.jpg" />
 </div>
 
 
@@ -585,7 +478,7 @@ WALL-E / ВАЛЛ-И (2008) [PS3] [EUR] 2.35 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728445.jpg" />
 </div>
 
 
@@ -611,7 +504,7 @@ GoldenEye 007: Reloaded (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727291.jpg" />
 </div>
 
 
@@ -639,7 +532,7 @@ The Elder Scrolls III Morrowind GOTY (2003) [Xbox] [RegionFree] FreeBoot [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727288.jpg" />
 </div>
 
 
@@ -665,7 +558,7 @@ Battle: Los Angeles (2011) [PS3] [USA] 3.55 [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726289.jpg" />
 </div>
 
 
@@ -676,6 +569,112 @@ Battle: Los Angeles (2011) [PS3] [USA] 3.55 [PSN] [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9760779F69E933812FF17C25AEE99D534DB2A869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023274   (725731) от 04.06.2016
+
+Trine 2: Director's Cut (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trine 2: Director’s Cut — это куда больше, чем обыкновенный двумерный платформер. Игра объединяет в себе и головоломные загадки, и стремительные бои, так что скучно не будет никому. Исследуйте фантастические места, неподражаемо отрисованные в высоком разрешении, и проникнитесь историей о героях и злодеях, одновременно сражаясь с врагами и решая загадки с реалистичными (   Читать дальше...   )Тип издания: eShopРазработчик: FrozenbyteЖанр: Action, Adventure, Arcade, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C376FEFAC42C14F0EB294E64ACB4AF0328715554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023285   (725724) от 04.06.2016
+
+Trine: Enchanted Edition (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trine Enchanted Edition рассказывает историю трех героев: мага Амадеуса, рыцаря Понтиуса и воровки Зои. Связанные магией волшебного Триединства, герои должны помочь друг другу, преодолевая препятствия и разгадывая головоломки в мире, опирающемся на интерактивную физику. Сразитесь с нежитью и ее прислужниками и восстановите мир в королевстве!Тип издания: eShopРазработчик: FrozenbyteЖанр: Action, Adventure, Arcade, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5CE7BAB77F84EC43144171526E68CD0CDC8E8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023380   (725615) от 04.06.2016
+
+SteamWorld Dig (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725615.jpg" />
+</div>
+
+
+###  Подробнее
+
+SteamWorld Dig — это платформенная игра-копалка. Играйте за Расти, робота-рудокопа, который прибыл в старый шахтерский городок, который потихоньку приходит в упадок. Спускайтесь под землю, собирая сокровища и прорывая ход к древнему злу, ждущему в глубинах…
+
+Исследуйте подземный мир, полный тайн, сокровищ и ужасов. Найдите останки человеческой цивилизации — дегенеративную (   Читать дальше...   )Тип издания: eShopРазработчик: Image & FormЖанр: PlatformerЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA2C7B36E5C6292D7EB3DAE8CC22FF3ABB7ECBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023370   (725545) от 04.06.2016
+
+DuckTales: Remastered (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создать теорию — Утиную Историю! DuckTales: Remastered, римейк в высоком разрешении игры DuckTales для NES. Присоединитесь к Скруджу Макдаку и его племянникам Билли, Вилли и Дилли и побывайте в экзотических уголках света. Помогите им добыть пять Легендарных кладов. Классический игровой процесс эпохи восьмибитных платформ, запомнившийся многим игрокам, по-прежнему (   Читать дальше...   )Тип издания: RepackРазработчик: WayForwardЖанр: PlatformerЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC7907C60FF4BD90D870B0DFD4F8A2E45ECF47BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1282806   (742458) от 14.02.2019
-
-VA - Songs Of Freedom (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Bermooda - Unsterblich
-002. Akeem Garrison - Run From
-003. Ardian Bujupi - Cika Cika
-004. Atterny - Rough & Tuff(   Читать дальше...   )Жанр: Reggae, Dub, SkaПродолжительность: 09:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C286CD8AC2DB388F7F37A9287454D8F5814BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282804   (742455) от 14.02.2019
 
 VA - Situations: Rap New Generation (2019) [MP3|320 Kbps] <Rap, Hip Hop>
@@ -35,7 +6,7 @@ VA - Situations: Rap New Generation (2019) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742455.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Music For Everyone - Vocal Trance & Progressive Vol.5 (2016) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742423.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - The Last Sun Rays (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742345.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Trance 100 World Fashion (2018) [MP3|320 Kbps] <Harmonic, Emotional, Tunefu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742264.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742261.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ L.A. Guns - Kiss Of Death (2022) 2xCD, Japanese Edition, Compilation [MP3|320 Kb
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742245.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Come Down: Relaxing Lounge (2016) [MP3|320 кб/с] <Relaxing, Lounge, Chil
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742195.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Позитивный заряд радио Шансон 2 (2016) [MP3|256 �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742188.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Дискотека 2018 Dance Club Vol. 177 от NNNB (2018) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741611.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - German Top 100 Single Charts 17.07.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741367.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - The Official UK Top 40 Singles Chart 17.07.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741366.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Disco Charm: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741258.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Топовая сотня весенняя. Версия № 2 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741121.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Весенняя 100-ка популярных треков. Сборник
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741116.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Yoga Spirits: Wellness Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741083.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741011.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - DabSTEP Mistik MiX by zXz. Vol.1 (2013-2014) [MP3|192 кб/с] <DubStep, Gl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740993.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Музыкальный заряд бодрости 3 (2016) [MP3|256 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740979.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Psy Trance Timewarp (2018) [MP3|320 Kbps] <Psy Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740946.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Весенний хит супер популярный 9 (2016) [MP3|256 �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740885.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Most Beautiful Classics: Modern Compositions and Piano Solos (2016) [MP3|32
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740881.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Зайцев.нет Лучшие новинки Февраля 2019 [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740876.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Louisiana Red - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740800.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Nu Disco Indie Dance (2016) [MP3|320 кб/с] <Indie Dance, Nu Disco, House
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740794.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Summer Of Jazz: Smooth Beach Cafe Lounge Grooves For Easy Listening (2016) 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740781.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Summer Of Jazz: Smooth Beach Cafe Lounge Grooves For Easy Listening (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:115FF35FF8F06A2382FA806060BEFE6A5C8242FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217727   (740755) от 06.04.2018
+
+VA - City Dances: Top 150 DJ (2018) [MP3|272-320 Kbps] <Electro House, Club, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pedro Mirano - Nine Floors (Original Mix)
+002. Alan Walker Feat. Noah Cyrus - All Falls Down
+003. Darius & Finlay Feat. Mr. Shamm - Discotek People
+004. Starjack & Collini - Up (Arnold Palmer Remix Edit)(   Читать дальше...   )Жанр: Electro House, Club, EurodanceПродолжительность: 12:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C676CF27D5C934547B61BFC539446D19526D0DC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

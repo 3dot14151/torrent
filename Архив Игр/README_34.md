@@ -6,7 +6,7 @@ City Car Driving (2016) [Ru] (1.5.8) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593426.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Green Hell (2018) [Ru/En] (0.5.5) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593071.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Youropa (2018) [Ru/Multi] (22925) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592820.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Forest (2014) [Ru/En] (0.19C) Repack xGhost [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592186.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Forest (2014) [En] (0.19с) Repack Crisis2010 [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591721.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.1.1b/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591702.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Zombie Army Trilogy (2015) [Ru/En] (1.6.5.01) Repack R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590275.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Reborn Online (2013) [Ru/En] (2015.07.02) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590274.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.7) Repack D!akov
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589021.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ukiyo no Shishi (2015) [PS3] [JPN] 4.65 [License] [Jp]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588544.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Book of Demons (2016) [En] (0.71.10232+) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588097.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ SpaceEngine (2016) [Ru/Multi] (0.9.8.0) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588000.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Plants vs. Zombies (P) [Ru/Ge] 2009
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587783.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ World of Tanks (2010) [Ru] (0.9.9) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587609.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587599.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Crashlands (2016) [En] (1.1.11.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587124.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Cloning Clyde (P) [En] 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586020.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585587.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584618.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Post Apocalyptic Mayhem [Ru] (RePack/upd3) 2011 | shidow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583631.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mystery Case Files: The Malgrave Incident [Wii] [NTSC] [Eng] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582912.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Scythe (2018) [Ru/Multi] (1.7.30/dlc) License GOG [Digital Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582655.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.100.5260/6dlc) SteamRip R.G. Игрома�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582213.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Age of Empires II HD (2013) [Ru/Multi] (3.7.2608.0/dlc) SteamRip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581260.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Dex (2015) [En/Multi] (5.2.1.1/dlc) License GOG [Enhanced Version]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581223.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580670.jpg" />
 </div>
 
 

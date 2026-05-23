@@ -6,7 +6,7 @@ CENTUM (2025) [Ru/Multi] (2.4445.1138) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052747.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052344.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ UnderRail (2015) [Ru/En] (1.3.0.17/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052240.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.5.1/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052052.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.1.3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052046.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dragon Ruins (2024) [Multi] (251206) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051978.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Salt and Sanctuary (2016) [Ru/Multi] (1.0.2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051958.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Salt and Sacrifice (2023) [Ru/Multi] (2.0.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051957.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dreamed Away (2025) [Ru/Multi] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051759.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051683.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Paranoia: Happiness is Mandatory (2023) [Ru/Multi] (Build 12698814) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051593.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051586.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Drakensang: The Dark Eye (2008) [En] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051374.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051372.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051371.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.11.18.994fa78/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051074.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ UltraGirl Alters (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051053.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack CoronerLemur [Game of the Year E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050929.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Lovely Lady RPG (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050906.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ STAR OCEAN THE DIVINE FORCE (2022) [Ru/Multi] (01.01 Build 23063/dlc) Repack Let
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050580.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050529.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ SKALD: Against the Black Priory (2024) [Ru/En] (1.0.7e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050515.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Ru/Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050365.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ ENDER LILIES: Quietus of the Knights (2021) [Ru/Multi] (1.1.6_13932) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050327.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050326.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980.0/dlc) Repack seleZen [Game of the Year Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050076.jpg" />
 </div>
 
 

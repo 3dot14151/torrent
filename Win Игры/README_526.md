@@ -1,29 +1,3 @@
-###  Публикация: 1785311   (24447) от 17.03.2025
-
-Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remastered Collection]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Примерно 25 лет назад Command & Conquer и Red Alert определили вектор развития игр жанра стратегии в реальном времени. Сегодня благодаря стараниям бывших разработчиков из Westwood Studios, которые теперь трудятся в команде Petroglyph, вы можете насладиться переизданием этих шедевров в качестве 4K.Тип издания: RepackРазработчик: Petroglyph, Lemon Sky StudiosЖанр: СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596617   (24443) от 17.03.2025
 
 Learning Factory (2021) [Ru/Multi] (1.1.4a) License GOG
@@ -32,7 +6,7 @@ Learning Factory (2021) [Ru/Multi] (1.1.4a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24443.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24433.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24426.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24416.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Oasis Mission: Colony Sim (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24415.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24410.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ethereal Abyss (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24401.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Eldrador Creatures Shadowfall (2025) [Multi] (20250131) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24399.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24397.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Siberian Way (2025) [Ru/En] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24396.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Other s [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24390.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Potion Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24379.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Castlevania Dominus Collection (2024) [Multi] (1.003.000) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24374.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Out of the Park Baseball 26 (2025) [Multi] (26.1 Build 39) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24364.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24353.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24320.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.32.1.24) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24310.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24309.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24304.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24302.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.113250.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24267.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Candy & Toys Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24248.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Chernobylite Complete Edition (2019) [Ru/Multi] (50563/dlc) Repack Let'sРlay [P
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24240.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dungeon Tycoon (2024) [Ru/Multi] (1.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24232.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24229.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ RRed Dead Redemption 2 – приключенческий шутер от тре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E7808C526AE59053CB3C0AD99FA07A138853BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784253   (24228) от 19.03.2025
+
+Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытайте ошеломительные моменты, погружаясь в разнообразные миры Split Fiction, новаторского совместного приключения от студии, создавшей It Takes Two - игру года 2021. Мио и Зоя - писательницы-антиподы: одна пишет научную фантастику, другая - фэнтези. Они оказываются заперты в собственных сюжетах, после того, как их подключили к машине, созданной, чтобы украсть (   Читать дальше...   )Тип издания: RepackРазработчик: Hazelight StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5814B893471F3BD3E3E71144FE8AD00F27E1CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1007539   (820648) от 15.04.2016
-
-Outland (2014) [Ru/Multi] (1.13) Repack R.G. Механики
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Outland — это динамичный платформер, в котором игроку предстоит отправиться в эпическое приключение и использовать силы света и тьмы для того, чтобы спасти мир от сил хаоса. Между балансом и хаосом встал один человек, который способен возвести мост, отделяющий одно от другого. В противном случае, мир будет разрушен. Outland — это амбициозный 2D-платформер с прекрасным (   Читать дальше...   )Тип издания: RepackРазработчик: HousemarqueЖанр: Action, Adventure, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D65EE35AF9CAB4482C829FA6A9DF842F8808CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196668   (820613) от 04.01.2018
 
 Dead Link: Pages Torn / Цепи смерти: Обрывки страниц (2017) [Ru] (1.0) Unofficial
@@ -32,7 +6,7 @@ Dead Link: Pages Torn / Цепи смерти: Обрывки страниц (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820613.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Tyranny (2016) [Ru/Multi] (1.0.4.0048/dlc) SteamRip Let'sPlay [Overlord Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820216.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Infinite Crisis (2014) [Ru/Multi] (0200.0014.7203.8136) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820165.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru/En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820139.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Cyber Manhunt (2021) [Multi] (1.3.30/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819071.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ The Alien Cube (2021) [Ru/Multi] (1.0) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818913.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Mad Games Tycoon (2015) [Ru/Multi] (0.160414B) Repack Dante159
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818829.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Granado Espada Europe (2006) [Ru/En] (25.86.30) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818827.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Automata Empire (2016) [En] (1.0) Repack John2s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_818822.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ The Club [Ru/En] (Р)  2008
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818733.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ Worst Case Z (2016) [En/De] (1.0) License CODE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818716.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Grim Tales 18: The Generous Gift / Страшные сказки 18: Щедры�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818693.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd46/dlc) License PLAZA [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818645.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Owlboy (2016) [Ru/Multi] (1.3.6550.38509) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818513.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.0.74) SteamRip Let'sPlay [Digital Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_818459.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818401.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Blades Of Time (2012) [Ru/Multi] (1.6/dlc) SteamRip Let'sPlay [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818391.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ White Night (2015) [Ru/En] (1.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818369.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Impostor Factory (2021) [Ru/Multi] (1.0) License GOG [The Screw-It-Just-Gimme-Ev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817490.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Persian Nights 2: The Moonlight Veil (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817089.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ Driver: San Francisco (2011) [Ru/En] (1.04) Rip xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816751.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ VODKA (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816740.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack xatab (обновл
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816591.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816583.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ MewnBase (2017) [Ru/En] (0.34.1) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816462.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ MewnBase (2017) [Ru/En] (0.34.1) Repack VseTop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB53207CE0FDBB4F36E3F602BFF5723CB4CC126C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882990   (816437) от 29.03.2015
+
+F1 Race Stars (2012) [Ru/Multi] (1.1/13dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые звезды и команды FORMULA ONE™ ждут вас в новом мире гонок, полном развлечений! Устремитесь к клетчатому флажку на знаменитых трассах, к которым мы добавили захватывающие дух прыжки и хитрые короткие пути, собирайте и используйте множество потрясающих бонусов, чтобы обойти соперников! Играйте вместе с друзьями на разделенном экране (до четырех участников) или онлайн с игроками по всему миру (до 12 участников). Участвуйте в разнообразных чемпионатах в режиме карьеры. F1 RACE STARS™ – самый скоростной путь (   Читать дальше...   )Тип издания: RepackРазработчик: CodemastersЖанр: Arcade / Racing / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Бразильский, Испанский, Итальянский, Немецкий, Польский, Французский, ЯпонскийЯзык интерфейса: Русский, Английский, Бразильский, Испанский, Итальянский, Немецкий, Польский, Французский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F660D08A41E99A0154A34C8F8645FCCCD524BBAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

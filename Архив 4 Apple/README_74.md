@@ -6,7 +6,7 @@ MacFamilyTree 7.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985553.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985552.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Vectorworks 2016 v.21.0.0 (278524) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985321.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Duke Nukem Forever [Native] [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985108.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Civilization V: Campaign Edition - 1.0.7 [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985055.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Corel Painter 12.2 Service Pack 1 [Multi/Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985038.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ CaptureGRID 4 v4.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984986.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Studies 1.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984982.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ BetterTouchTool 3 v3.240 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984979.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ MediaHuman Youtube Downloader 3.9.9.32  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984974.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ UltraCompare 20.00.0.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984930.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Elmedia Player Pro 7.9  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984861.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Smart Shooter 4 v4.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984813.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ ForkLift 3.3.8 (199) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984756.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ TG Pro (Temperature Gauge Pro) 2.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984691.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ RightFont 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984588.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Yate 3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984542.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Downie 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984471.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Disk Diet 5.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984373.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Audirvana Plus 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984364.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984208.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nik Software Complete Collection by Google 1.2.11.1307.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984048.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ BBEdit 11.1.4 (3780) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983430.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ TG Pro (Temperature Gauge Pro) 2.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983349.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ DropSync 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983339.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Unclutter 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983215.jpg" />
 </div>
 
 

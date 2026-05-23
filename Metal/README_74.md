@@ -6,7 +6,7 @@ Wovenwar - Honor Is Dead (2016) [MP3|320 Kbps] <Alternative Metal, Melodic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376251.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Trivium - The Sin and the Sentence (2017) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376126.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dark Tranquillity - Atoma (2016) Limited Edition [MP3|320 Kbps] <Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375672.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nightwish - Imaginaerum (The Score) (2012) [MP3|320 kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375022.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Veil Of Maya - False Idol (2017) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374340.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Spirit Adrift - Enlightened In Eternity (2020) [MP3|320 Kbps] <Doom Metal, Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374296.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Vader - The Empire (2016) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373859.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Hellyeah - Welcome Home (2019) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372561.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ KMFDM - Paradise (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-Industrial>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372427.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Steel Panther - 5 Studio Albums, 2 Live Albums, Other Tracks (2009-2019) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371872.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Motley Crue - Carnival Of Sins (2006) 2CD, Live [MP3|320 кб/с]<Glam Metal, Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371409.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ In Flames - Sounds From The Heart Of Gothenburg (2016) Live [MP3|320 Kbps] <Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371308.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Motley Crue - The End: Live in Los Angeles (2016) Live [MP3|320 кб/с]<Glam Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371291.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Born of Osiris - Soul Sphere (2015) [MP3|320 кб/с]<Progressive Metalcore, Tec
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370237.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Hallatar - No Stars Upon The Bridge (2017) [MP3|320 Kbps] <Doom Metal, Dark Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370140.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Masters Of Disguise - Alpha/Omega (2017) [MP3|320 Kbps] <Power Metal, Speed Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369994.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Naufragant - A Short Life (2022) [Mp3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368489.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Pagandom - Hurt as a Shadow (2016) [MP3|320 Kbps] <Technical Thrash, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367005.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Painted In Exile - The Ordeal (2016) [MP3|320 Kbps] <Progressive Death Metal, Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367004.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Pighead - Until All Flesh Decays (2016) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367002.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Scarecrow Avenue - Medusa (2016) [MP3|320 Kbps] <Alt.Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366999.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Starkill - Shadow Sleep (2016) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366885.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Blindead - Ascension (2016) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366884.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Retador - Retador (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366629.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Lacuna Coil - Black Anima (2019) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365870.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Changing Yesterday - Alive (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364657.jpg" />
 </div>
 
 

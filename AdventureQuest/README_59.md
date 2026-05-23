@@ -1,29 +1,3 @@
-###  Публикация: 1623318   (200513) от 01.04.2023
-
-Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Солнечные ветры обдувают ваше лицо, когда мистические силы проталкивают величественный галеон сквозь атмосферу в эфир пространства Реальности. Выглянув за пределы палубы, вы будете потрясены красотой удаляющейся планеты Торил, родины Забытых Королевств. "Корабль начеку!" - кричит наблюдатель. Ужасный силуэт "улитки" - военного корабля неоги - (   Читать дальше...   )Тип издания: LicenseРазработчик: CybertechЖанр: Ролевая игра, ПриключениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEFFEB117C65913D8FFC6EB339C87826DCFD891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624575   (200193) от 06.04.2023
 
 Oxide Room 104 (2022) [Ru/Multi] (1.0.5) Repack Other s
@@ -32,7 +6,7 @@ Oxide Room 104 (2022) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200193.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Neighbours Back From Hell (2020) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200003.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Before I Forget (2020) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198871.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Everlight: Of Magic & Power / Хроники Мелвина. Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198799.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Backfirewall_ (2023) [Ru/Multi] (10567133) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198540.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Infliction: Extended Cut (2018) [Ru/Multi] (3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198170.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Hello Goodboy (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197562.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Killer Frequency (2023) [Ru/Multi] (1.0) Scene Rune [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197467.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197357.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Voodoo Detective (2022) [En] (0.0.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197309.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Basements n' Basilisks: Storms of Sorcery (2023) [Multi] (1.2.1(9)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197280.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Scorn (2022) [Ru/Multi] (1.2.2.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197262.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.01.1279966) Scene Tenoke [Soundtr
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197205.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (11394767) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197187.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Deadly Delivery (2023) [En] (Build 11444090) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197127.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dordogne (2023) [Ru/Multi] (1.12.15) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196974.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196905.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Case of the Golden Idol (2022) [En] (2.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196728.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Forgotten Fields (2021) [En] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196592.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Unwording (2023) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196565.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196453.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Livestream: Escape from Hotel Izanami (2023) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196353.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196310.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Sludge Life 2 (2023) [Ru/Multi] (230630) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196286.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196276.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE44695C59A01682F72A87B096E6B05C8EF51AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645148   (196026) от 08.07.2023
+
+The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра о тайне неизвестного, действие которой происходит на запретном острове, полном ужасов. Основанная на работах Г.Ф. Лавкрафта, история включает в себя многие из его самых известных творений. Игроки увидят мир глазами Эндрю, отца, ищущего свою потерянную дочь. Погружаясь всё глубже, вы столкнётесь с неопределимыми трудностями, которые заставят вас усомниться в (   Читать дальше...   )Тип издания: SceneРазработчик: Ares DragonisЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Греческий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Греческий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035ACB762F4E1429FB33A5A559DA530E31DB66E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

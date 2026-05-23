@@ -6,7 +6,7 @@ UltraISO Premium Edition 9.6.5.3237 DC 22.07.2015 RePack (& Portable) by Trovel 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542226.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JetBrains DataGrip 2017.2  Build #DB-172.3544.109 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542197.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Loaris Trojan Remover 3.0.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542128.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SoftPerfect NetWorx 6.2.2.18215 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542126.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Box Sync 4.0.7702 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542098.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MAGIX Sound Forge Pro 11.0 Build 341 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542090.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ JetBrains PyCharm Professional 2017.2 Build #PY-172.3317.103 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542077.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Q-Dir 6.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542020.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ XYplorer 17.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542011.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ pCloud Drive 3.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542008.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PowerArchiver 2018 Pro 18.00.58 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542001.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ R-Drive Image Technician 6.2 Build 6206 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542000.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Microsoft Visual Studio 2017 Community 15.7.6 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541992.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Simple Port Forwarding Pro 3.5.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541951.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Rufus 2.11 (Build 994) Beta 2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541926.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Kaspersky Lab Products Remover 1.0.1141 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541913.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ HyperSnap 8.16.15 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541903.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BluffTitler Ultimate 14.2.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541897.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ JRiver Media Center 25.0.68 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541896.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Advanced Renamer 3.84 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541887.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kaspersky Anti-Virus 2013 13.0.1.4141 Beta [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541842.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Opera Unofficial 12.01.1532 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541828.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Any Video Converter Ultimate 6.0.1 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541821.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Microsoft Windows and Office ISO Download Tool 3.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541817.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Cimaware OfficeFIX Professional 6.116 Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541810.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Vegasaur 2.7 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541808.jpg" />
 </div>
 
 

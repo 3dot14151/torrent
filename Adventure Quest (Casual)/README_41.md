@@ -6,7 +6,7 @@ Redemption Cemetery 7: Clock of Fate (2015) [En] Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427159.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Elly Cooper and the City of Antiquity (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427156.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Whispered Secrets 4: Golden Silence / Нашептанные Секреты 4: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426932.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ League of Light 3: Silent Mountain / Лига Света 3: Безмолвная
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426922.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Keeper of Antiques 3: The Last Will / Антиквар 3: Последняя
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426273.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Living Legends Remastered: Ice Rose / Живые легенды. Переизд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425397.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Secret City: London Calling / Тайный город: Лондон вызыва
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424330.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition / Месть �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423856.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Grim Tales 19: Heritage (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422834.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dark Tales 18: Edgar Allan Poe's The Devil in the Belfry / Тёмные исто
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422505.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Whispered Secrets: The Story of Tideville Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422104.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Breath of Darkness - Dollhaven Mystery (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420387.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Grim Tales 17: Guest From The Future / Страшные сказки 17: Гос�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420327.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Living Legends 7: Fallen Sky / Живые легенды 7: Падшие неб�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419954.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Nevertales 4: Legends / Несказки 4: Легенда (2015) [Ru] Unofficia
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419904.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Myths Of The World 12: Fire Of Olympus / Мифы народов мира 12: О
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419104.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dark City 3: Vienna (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418672.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Being a DIK - Season 1 & 2 (2020) [En] (0.4.8.14/dlc) Repack Other s [18+]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418337.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Keep Talking and Nobody Explodes (2015) [En] (1.0.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417439.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Maze of Realities 2: Reflection of Light / Лабиринт Реальносте
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416494.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Amaranthine Voyage 5: The Orb of Purity (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415971.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Medford Asylum - Paranormal Case (2015) [En/Multi] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415739.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mystery Expedition: Prisoners Of Ice / Роковая экспедиция: Пл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415402.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Revived Legends: Titan's Revenge / Ожившие легенды: Месть т�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415325.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Lost Lands: A Hidden Object Adventure (2017) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414523.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Cadenza 6: The Following (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414325.jpg" />
 </div>
 
 

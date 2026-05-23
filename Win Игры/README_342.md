@@ -1,29 +1,3 @@
-###  Публикация: 1651913   (194560) от 08.08.2023
-
-The Last Shot (2023) [Ru/Multi] (Build 10586224) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-The Last Shot – платформерная адвенчура, действие которой происходит в дизельпанковом мире. Большой милитаристский город живет в режиме нескончаемой войны. Протагонист - не избранный супергерой, а обыкновенный инженер-механик. Он трудится на заводе, который производит снаряды для огромных пушек и различные механизмы к ним. Однажды привычный распорядок его дня нарушается: (   Читать дальше...   )Тип издания: SceneРазработчик: Rumata LabЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FCE61824EFB9446ADE34FC3E193D5829B480E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652263   (194539) от 10.08.2023
 
 One More Island (2022) [Multi] (1.8.1) License GOG
@@ -32,7 +6,7 @@ One More Island (2022) [Multi] (1.8.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194539.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ANVIL (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194526.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ TailQuest Defense (2023) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194524.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mato Anomalies (2023) [Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194512.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ MAD WAY (2023) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194468.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194450.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Pinball FX3 (2017) [Multi] (1.0.26.0/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194396.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Scarlet Nexus (2021) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194364.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Dark City 8: Kyiv / Мрачный город 8: Киев (2023) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194349.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194346.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Do Not Feed the Monkeys 2099 (2023) [Ru/Multi] (1.0.19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194321.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.009/dlc) License GOG [Hero Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194315.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194314.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Mail Time (2023) [Multi] (1.00.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194309.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Greyhill Incident (2023) [Ru/Multi] (1.0.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194292.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194289.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ultimate Epic Battle Simulator 2 (2023) [En] (1.0fixed) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194260.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194249.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sugar Sweet Temptation (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194246.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194244.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Neon Noodles - Cyberpunk Kitchen Automation (2023) [Ru/Multi] (0.9.71) License G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194234.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.2.274/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194207.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194193.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194171.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194087.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6837806E8676EE8A969A4421B2B560AEC626E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651792   (194059) от 19.08.2023
+
+The Master's Pupil (2023) [En] (1.1.4) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194059.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Master's Pupil - видеоигра с ручной раскраской, предлагающая геймерам исследовать глаз знаменитого французского художника Клода Моне. Проект представляет собой головоломку, в которой юзерам предстоит помочь герою завершить работу над некоторыми из его величайших шедевров, преодолевая при этом трудности его жизни и катаракту. Тайтл состоит из 12 уровней, каждый (   Читать дальше...   )Тип издания: SceneРазработчик: Pat NaoumЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94475EED4DF2EA86602122709098D90DCF2E39E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

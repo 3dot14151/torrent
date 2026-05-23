@@ -1,55 +1,3 @@
-###  Публикация: 1447362   (1031766) от 13.02.2021
-
-Любовь на троих / Endings, Beginnings (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк — бунтарь и плохиш, непредсказуемый и рисковый, Джек — чуткий и внимательный интеллектуал. Два полюса, между которыми разрывается художница Дафна, словно проживая две разные версии своей жизни. Но пришло время сделать выбор.Производство: США, Корея Южная / CJ EntertainmentЖанр: МелодрамаРежиссер: Дрейк ДоримусАктеры: Шейлин Вудли, Джейми Дорнан, Себастиан Стэн, Мэттью Грей Гублер, Линдсей Слоун, Шамир Андерсон, Шерри Кола, Уэнди Мэлик, Кира Седжвик, Дженис ЛиЭнн БраунПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 01:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCACC36A905F4AF57AB6F323D34050FD9640441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440101   (1031762) от 13.02.2021
-
-Подруги поневоле / Sweethearts (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Мало того, что ограбление, которое планировала Мэл, пошло не по плану, так ещё и её заложница – Фрэнни, оказалась крайне впечатлительной особой, склонной к паническим атакам. И теперь, когда на хвосте копы, уже не понятно кто в этой паре является большей жертвой. Но, несмотря на всю разницу между ними, у этих двух девушек есть что-то общее. И в какой-то момент они (   Читать дальше...   )Производство: Германия / Warner Bros. Film Productions Germany, Hellinger / Doll FilmproduktionЖанр: Мелодрама, комедия, криминалРежиссер: Каролина ХерфуртАктеры: Каролина Херфурт, Ханна Херцшпрунг, Аннеке Ким Сарнау, Фредерик Лау, Рональд Церфельд, Луна Арвен Крюгер, Фредерик Линкеманн, Давид Шюттер, Мона Пирзад, Нилам ФарукПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BF92B846F85A310A59B2ED8CDD4B0CA00074AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447516   (1031757) от 13.02.2021
 
 Ловец снов / Dreamcatcher (2003) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031757.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031749.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031748.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031741.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031738.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031735.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031719.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031717.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031636.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031602.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031597.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031581.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031579.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031569.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031568.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031566.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031564.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031560.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031557.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031535.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031523.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031521.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031513.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031486.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9E4517633F7F01AB1B7EC9146B2F869B8743108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600038   (1031484) от 14.02.2021
+
+День Святого Валентина / Valentine's Day (2010) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьбы многих влюбленных и одиноких сердец в Лос-Анджелесе переплетаются в ожидании одного единственного Дня — Дня Всех Влюбленных — Дня Святого Валентина.Жанр: Мелодрама, КомедияРежиссер: Гэрри МаршаллАктеры: Джессика Альба, Кэти Бейтс, Джессика Бил, Брэдли Купер, Эрик Дэйн, Патрик Демпси, Гектор Элизондо, Джейми Фокс, Дженнифер Гарнер, Тофер Грейс, Энн Хэтэуэй, Картер Дженкинс, Эштон Катчер, Куин Латифа, Тэйлор Лотнер, Джордж Лопез, Эмма Робертс, Джулия Робертс, Тейлор СвифтПеревод: ДублированныйЯзык субтитров: Русский (полные, форсированные), АнглийскийПродолжительность: 02:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFEC30B4005269B05A905A144674E3D87FB1D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440692   (1031483) от 14.02.2021
+
+Охранник для дочери / Sara (1997) WEBRip [H.264/720p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший спецназовец Леон очень крут в своем деле, когда не пьян. А пьян он в последнее время всегда. В таком виде он и предстал перед своим нанимателем - боссом местной мафии, который в данный момент сдерживает осаду конкурентов и ищет профессионального охранника для своей 16-летней дочери Сары. Несмотря ни на что Леон был нанят. Он действительно оказался лучшим, (   Читать дальше...   )Производство: Польша / Hertiage FilmsЖанр: Боевик, драма, мелодрама, криминалРежиссер: Мацей ШлесицкиАктеры: Богуслав Линда, Агнешка Влодарчик, Цезары Пазура, Марек Перепецко, Станислав Брудны, Славомир Сулей, Дорота Мацейевска, Як Рекниц, Кжиштоф Кумор, Станислав ПенксикПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, ПольскийСубтитры: русские, английские, итальянские - UTF-8, английские, немецкие - VobSubПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBAA87EDB41AC5CB7F561698210CD826690E156F
 ```
 
 https://mybot314.ru/tekegram_catalog/

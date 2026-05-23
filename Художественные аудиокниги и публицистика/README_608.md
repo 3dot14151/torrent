@@ -1,83 +1,3 @@
-###  Публикация: 1578352   (347596) от 22.09.2022
-
-Дарио Тонани | Мир9 (Книга 1). Хроники ржавчины и песка (2022) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лауреат Premio Italia и премии Cassiopea за лучший научно‑фантастический итальянский роман.
-
-Это Мир9, смертельная планета, совершенно чуждая человеку. Здесь под песками скрываются миллионы неожиданностей, которые только и ждут своих жертв; прячутся невиданные монстры, огромные и зловещие. Здесь таинственная болезнь поражает плоть, превращая ее в сталь, исполинские (   Читать дальше...   )Жанр: Зарубежная фантастика, Космическая фантастика, Научная фантастикаПродолжительность: 13:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A7CFB3B9963F5C5B2C603A951050435E03F409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329868   (347537) от 07.10.2019
-
-Антон Текшин | GoodGame (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Их с самого начала не принимали всерьёз. Размороженные должны были стать расходным материалом, но по дикой прихоти судьбы смогли пережить собственных хозяев. Одни принялись покорять неприветливый мир будущего, исчезая один за другим. Другие решили затаиться, не подозревая, что этим лишь отсрочивают неизбежный конец. Само существование поддельных личностей несёт угрозу (   Читать дальше...   )Жанр: LitRPG, Боевая фантастика, Космическая фантастикаПродолжительность: 13:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC53C29C280F82765162F37D0D2E92EA01215994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071976   (347515) от 15.11.2016
-
-Генрих Эрлих | Последний штрафбат Гитлера. Гибель богов (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Завершение фронтового пути Russisch Deutscher — русского немца, Юргена Вольфа, который в 1945 году с боями прошел от Вислы до Одера и от Одера до Берлина. Но если для советских солдат это были дороги победы, то для него — путь поражения. Потому что, родившись на Волге, он вырос в гитлеровской Германии. Потому что он носит немецкую форму и служит в 570-м штрафном (   Читать дальше...   )Жанр: Историческая военная прозаПродолжительность: 09:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DD39AE3EB32DD6AAE70120ADAD6168AA4F23B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579436   (347504) от 23.11.2012
 
 Антон Чехов и др. | Классика русского юмористического рассказа (Выпуск 2) (2012) [MP3, Александр Бордуков  и др.]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347504.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347409.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347395.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347391.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347280.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347272.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347020.jpg" />
 </div>
 
 
@@ -271,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347019.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346945.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346798.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346700.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346590.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346536.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346448.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346332.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346282.jpg" />
 </div>
 
 
@@ -506,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346278.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346141.jpg" />
 </div>
 
 
@@ -559,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346131.jpg" />
 </div>
 
 
@@ -585,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345849.jpg" />
 </div>
 
 
@@ -613,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345846.jpg" />
 </div>
 
 
@@ -639,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345837.jpg" />
 </div>
 
 
@@ -665,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345835.jpg" />
 </div>
 
 
@@ -676,6 +596,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:524EB31B5F27E9B56EA2E8C1D7EEE8339CF5C9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257178   (345791) от 26.10.2018
+
+Вадим Кожевников | В полдень на солнечной стороне (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман известного советского писателя В. Кожевникова «В полдень на солнечной стороне» посвящен подвигу советских людей в годы воины как в тылу, так и на фронте, первым мирным годам восстановления разрушенного хозяйства. В романе прослеживаются судьбы разных людей: от рядового до командующего армией, от токаря до директора завода. В какой бы обстановке ни показывал (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 24:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C02F694751B40B116C30C4E8EFF893CBE39F111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330043   (345746) от 08.10.2019
+
+Лев Лубнин | Районная Теща (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга избранных произведений писателя, посвящённых нашему времени, советским людям, жизни деревни 50-60-х годов. Раскрывая темы в острых общественных и бытовых столкновениях, автор с любовью пишет о честных тружениках, людях щедрого сердца, обличает тех, кому дорога лишь своя корысть и карьераЖанр: Cоветская прозаПродолжительность: 13:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25945985BF0B9B83F54827DD81BD1AD49B13C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072250   (345708) от 16.11.2016
+
+Гилберт Кийт Честертон | Рассказы, эссе (1997) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гилберту Кийту Честертону (1874-1936) были подвластны различные жанры, но в нашей стране он известен прежде всего как автор детективных историй о патере Брауне. Перу Г.К. Честертона принадлежат также и задорные, авантюрные романы о людях смелых, веселых, азартных. Герои Г.К. Честертона покоряют своей неординарностью, стремлением вырваться из скучной обыденности и (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 18:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE645617087EAC81CE92FDD8577863DB032B586
 ```
 
 https://mybot314.ru/tekegram_catalog/

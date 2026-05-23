@@ -6,7 +6,7 @@ Kepa - Divine morphine (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803027.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Alan Parsons Project - Tales of Mystery and Imagination : Adgar Allan Poe (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802962.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chicago - Love Songs (2005) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802944.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Robert Palmer - Sneakin' Sally Through The Alley (1974) Reissue, 1990 [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802863.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Robert Fripp (ex-King Crimson) - The League Of Gentlemen-God Save The King (1985
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802851.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Anubis - Homeless (2020) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802747.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jeff Kelly - When the World Was Younger (2020) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802628.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Circle Of Mud - Circle of Mud (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802619.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ National Radio Station - Pisco Sour In Arizona (2021) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802618.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Davy Knowles - What Happens Next (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802615.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Donavon Frankenreiter - Donavon Frankenreiter (2004) [FLAC|Lossless|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802551.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eric Johnson - Seven Worlds (1998) [APE|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802335.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Primitive Instinct - One Man's Refuge (2012) [FLAC|Lossless|tracks] <Prog Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802163.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jimmy Page, John Paul Jones, John Bonham - Rock And Roll Highway (2007) [APE|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802119.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Starset - Vessels (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Sympho
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801921.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Little Hag - Leash (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801808.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Anubis - Different Stories (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801752.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dymond Bright - Rebirth Of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801746.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John E Vistic - Under The Volcano (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801740.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ This Winter Machine - Kites (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801735.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ringo Starr - Zoom In (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801649.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Compact Disc Club - The Rock Party [4CD Box Set] (1996) [FLAC|Lossless]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801547.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Elektradrive - Elektradrive (1995) [APE|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801283.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Four Horsemen - Nobody Said It Was Easy (1991) [APE|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801266.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Grand Funk - All The Girls In The World Beware!!! (1974) remaster, 2017, Hybrid 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801227.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bob Dylan - Triplicate (2017) 3CD Digipack [FLAC|Lossless|tracks + .cue] <Folk-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801217.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1104723   (870907) от 20.02.2017
-
-Настоящие женщины всегда в теле / Real Women Have Curves (2002) HDTV [H.264/1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жизнеутверждающая история о юной девушке Ане из мексиканского квартала Лос-Анджелеса, вступающей во взрослую жизнь, полную соблазнов и разочарований. Разрываясь между своими амбициями и культурным бэкграундом, Ана отказывается от своей мечты. Но надолго ли ее хватит? На кинофестивале «Санденс» исполнительницу главной роли Америку Ферреро отметили специальным призом (   Читать дальше...   )Производство: США / HBO Films, Newmarket Films, LaVoo ProductionsЖанр: Драма, КомедияРежиссер: Патрисия КардосоАктеры: Америка Феррера, Лупе Онтиверос, Ингрид Олиу, Джордж Лопес, Брайан Сайтс, Соледад Ст. Хилейр, Лурдес Перес, Хорхе Сервера мл., Фелипе Де Альба, Хосе Херардо Самора мл.Перевод: Многоголосый закадровый, профессиональный (NovaMedia)Продолжительность: 01:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D569908641CD47937AFCD12AEE409D6C760BDD83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106424   (870903) от 20.02.2017
-
-Супер Брис / Brice 3 (2016) BDRip [H.264/1080p] [Чистый звук]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Брис получает звонок с просьбой о помощи от закадычного друга Мариуса. Эксцентричный серфер-блондин мчится на другую сторону мира, чтобы выручить приятеля.Производство: Франция, Canal+Жанр: КомедияРежиссер: Джеймс ЮтАктеры: Жан Дюжарден, Кловис Корнийяк, Бруно Саломон, Элбан Ленуар, Ноэль Перна, Луи-До де Ланкесэ, Жан-Мишель Лами, Ида Дюфур, Самюэль Бенар, Стелла ТротондаПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:33:07Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE0169556FE386A3A49295D01ED8323CDA246CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106501   (870896) от 20.02.2017
 
 И проиграли бой / In Dubious Battle (2016) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870896.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870813.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870805.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870800.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870795.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870793.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870615.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870581.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870520.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870503.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870478.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870426.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870261.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870254.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870219.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869943.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869808.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869676.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869655.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869649.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869551.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869539.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869518.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869516.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04652441E2023C7E36E029ADA173B2BD59C79A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496654   (869513) от 19.09.2021
+
+Ограбление в Лондоне / Gunned Down (2017) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Криган - профессиональный преступник и грабитель. Он хочет отомстить людям, которые убили его отца и присвоили себе деньги от последнего грабежа. Преследуя виновных и скрываясь от полиции, он перебирается из мрачного Лондона в испанскую Марбелью, где продолжает разгадывать тайны, окружающие его семью. Преследуемый бандами Лондона и коррумпированным полицейским (   Читать дальше...   )Производство: Великобритания / Impact Entertainment, Red Rock Entertainment, Screen 360Жанр: Боевик, триллерРежиссер: Марк МакКуинАктеры: Крэйг Фэйрбрасс, Джеймс Космо, Мем Ферда, Ник Моран, Стивен Беркофф, Роланд Манукян, Натали Кокс, Тони Денхам, Эдди Веббер, Джордж РуссоПеревод: Многоголосый профессиональный (IVI)Язык озвучки: Русский, украинский, английскийСубтитры: ОтсутствуютПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66873136AFB49BE994988B32D4CCB75B42AF32D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496819   (869512) от 19.09.2021
+
+За гранью жизни / Out of Death (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотограф Шеннон Мэтерс невольно становится свидетелем сделки с наркотиками, во время которой полицейские убивают неизвестного. Она успевает сделать несколько снимков, но ее замечают. Шеннон удается бежать, но преступные копы идут за ней по пятам. Егерь Джек Харрис, офицер полиции в отставке, помогает ей укрыться от преследования, но можно ли доверять ему?Производство: США / Emmett/Furla/Oasis Films (EFO Films), SSS Entertainment, BondIt Media CapitalЖанр: Триллер, криминалРежиссер: Майк БёрнсАктеры: Джейми Кинг, Брюс Уиллис, Лорин Кент, Келли Грейсон, Меган Леонард, Майкл Сироу, Тайлер Джон Олсон, Оливер Тревена, Майк Бёрнс, Адам Уэль ПоттерПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02976534CD94FFD4A4279BA69729EA5A3D2F2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

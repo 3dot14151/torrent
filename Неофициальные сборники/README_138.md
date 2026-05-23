@@ -1,32 +1,3 @@
-###  Публикация: 1377934   (848264) от 24.04.2020
-
-VA - Карантин 2 (Когда остался дома) (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1.Alex Baker - Bloom (3:21)
-2.Alex Baker - Wander (3:30)
-3.Chillout Lounge Ibiza - Gliding (Free as a Bird Verson) (5:23)
-4.Corre - Cycles (4:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F627DA339C12BF01EEAA7095C18B269C00F42CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377981   (848041) от 24.04.2020
 
 VA - The purest Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -35,7 +6,7 @@ VA - The purest Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848041.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Paul McCartney - 100% Paul McCartney (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848031.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Promo Only Express Audio DFF February Week 02 (2021) [MP3|320 Kbps] <Hip-Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847965.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Ronnie James Dio - 100% Dio (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847954.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847753.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Mega Дискотека 80-90-х В Современной Обработк
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847751.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - I Can See Through You: 60s Psychedelic Rock & Garage Beat Rarities Vol.3 (2
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847678.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Music News vol.137 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847598.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Masters Of Hardcore Chapter XLIII Magnum Opus (2CD) (2021) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847466.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Радио Рекорд Dance 2021 Выпуск 2 [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847454.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Сентябрь) (2021
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847357.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - German Top 100 Single Charts  01.10.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847284.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Trance Traveling 75 (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847215.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ VA - Наша весна с радио Шансон (2016) [MP3|256 кб/с] <Ш
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847011.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ VA - Звездный удар XXXL (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846997.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ VA - Lets Get Fit Running Music (2016) [MP3|320 кб/с] <House, Progressive, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846927.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ VA - I Love Ballads - Part V (2016) [MP3|256 кб/с] <Pop, Rock, Chanson>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846922.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ VA - The House of Jazz Vol.1: The Best Lounge and Jazz Music for your Evening (2
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846850.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ VA - Популярные весенние хиты (2016) [MP3|256 кб/с] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846846.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ VA - Society Clubbing Smashing House (2017) [MP3|247-320 Kbps] <Dance, Club, Fun
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846800.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ VA - Зайцев нет. 1 апреля. День дурака (2016) [MP3|184-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846762.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ VA - Woman’s Day (2017) [MP3|320 Kbps] <Pop , R&B , Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846746.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ VA - The Passion Of Reggaeton: February Mix (2017) [MP3|320 Kbps] <Reggaeton, La
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846738.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ VA - Самый новый хит в машину. Версия 50/50 (2016) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846661.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ VA - Jazz Masters: Biggest Hits (2014) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846656.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ VA - Jazz Masters: Biggest Hits (2014) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:403F2D867C17616A67C4BF84140B55965F3C42F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111811   (846655) от 06.03.2017
+
+Александр Вестов - MP3 Play (2014) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пацаны
+02. Напьюсь я дождем
+03. Оттепель
+04. Боже, помоги(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194DE9D2BDF1E53893E13241D1705624BBA3B4A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

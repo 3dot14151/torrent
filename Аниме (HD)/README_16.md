@@ -6,7 +6,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12] BDrip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700601.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ IS: Infinite Stratos / Необъятные Небеса [ТВ-1] [2011, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698550.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Seiken no Blacksmith / The Sacred Blacksmith / Божественный Кузн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696754.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Crusher Joe: The OVA's / Крушила Джо OVA 1 и 2 [1989, OVA, 2] BDRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695039.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Senjou no Valkyria / Valkyria Chronicles / Хроники Валькирии [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_694787.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Rozen Maiden Zuruckspulen | Rozen Maiden ~2013~ | Девы Розена (2013) [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694217.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho | Muhyo & Roji's Bureau of Supernatur
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691982.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691666.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688109.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Marie and Gali / Мари и Гали (второй сезон) [2010, TV, 30 ep
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686795.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684570.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru | My Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684220.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Terraformars: Revenge / Терраформеры [ТВ-2] [2016, TV, 13 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681758.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Hundred / Хандред [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681626.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Konosuba OVA | Kono Subarashii Sekai ni Shukufuku o! OVA | Этот замеча
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679986.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679774.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mahou Tsukai no Yome | The Ancient Magus' Bride | Невеста чародея 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678703.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Kagewani: Shou [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677953.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Kiznaiver [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677945.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bungou Stray Dogs | Бродячие псы литературы [2016, TV, 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677933.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kuma Miko / Жрица и медведь [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673925.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ High School Fleet / Hai-Furi / Морская школа [2016, TV, 12] HDTV 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673673.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Tanaka-kun wa Itsumo Kedaruge / Всегда вялый Танака-кун [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671732.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress [2016, TV, 12] HDTV 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671578.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Mini Toji | Katana Maidens: Mini Toji | Мини-жрицы [2019, TV, 10 + SP] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670135.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670128.jpg" />
 </div>
 
 

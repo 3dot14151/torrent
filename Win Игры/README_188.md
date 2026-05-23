@@ -1,29 +1,3 @@
-###  Публикация: 519911   (634518) от 07.07.2012
-
-Distant Worlds [En] (RePack/1.0.2) 2010 | R.G. R3PacK
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Distant Worlds с самого начала подкупает своим невероятным масштабом. Мы эту мысль решили высказать в первую очередь. А все потому, что глобальная карта у бюджетной 4X-стратегии за авторством Code Force настолько огромна, что на ее полное исследование придется пожертвовать где-то... страшно сказать, сколько времени. Если вы соскучились по олдскульным космическим приключениям с умиротворяющей динамикой, неспешностью улитки и вселенскими размерами в прямом смысле этого слова, то Distant Worlds точно для вас.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time / Grand strategy)Язык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE90350411A84CB4800C609C4329F33E424FB6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034784   (634038) от 13.07.2016
 
 MechaGore (2016) [Ru/Multi] (1.6) License HI2U
@@ -32,7 +6,7 @@ MechaGore (2016) [Ru/Multi] (1.6) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634038.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dark Dimensions 7: Blade Master / Темные измерения 7: Масте�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633946.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Labyrinths of the World 2: Forbidden Muse (2015) [En] Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633860.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ MilitAnt (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633815.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Salt and Sanctuary (2016) [Ru/Multi] (1.0.0.5) Repack Valdeni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633812.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Gold Pack]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633810.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Demon Hunter 5: Ascendance / Охотник на демонов 5: Тайна м
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633491.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ J.U.L.I.A. - Among The Stars (2014) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632839.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Constructor (2017) [Multi] (1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632832.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Bunker 58 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632828.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Blades of Time. Limited Edition  (Steam-Rip) [Ru/Multi7] 2012 | R.G. Игром�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632757.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ MechaGore (2016) [Ru/Multi] (1.6) SteamRip ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632055.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Old Village Simulator 1962 / Farm Machines Championships Русификатор 
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631961.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631931.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631929.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ Ghostbusters (2016) [En/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631906.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Shtriga: Summer Camp / Штрига: Летний лагерь (2014) [Ru] (1.0)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631698.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ Moonlighter (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631517.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Agony (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631515.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Urban Trial Playground (2019) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631393.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631389.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631379.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_631293.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Hitman: Absolution (2012) [Ru/Multi] (1.0.447.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631241.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Spirits of Mystery 8: Illusions / Тайны духов 8: Иллюзии (2017)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631208.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ Spirits of Mystery 8: Illusions / Тайны духов 8: Иллюзии (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB897552FC229D57637EA2D7ADC9839B8B31C1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143952   (631191) от 20.06.2017
+
+Moto Racer 4 (2016) [Ru/Multi] (1.0/dlc) License STEAMPUNKS
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moto Racer 4 - это продолжение легендарной серии мотогоночных игр, которое возьмет из прошлых игр все самое лучшее, и все это будет приправлено современным игровым движком Unreal Engine 4 и графикой. Игроков ждет не только мотокросс, но и гонки на мощных спортивных байках по спортивным трекам и скоростным трассам.Тип издания: LicenseРазработчик: Artefacts StudiosЖанр: Arcade, Racing (Motorcycles), 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B5522027E597EA4FAD7990C2F1B025FBACD6DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

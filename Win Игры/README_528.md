@@ -1,29 +1,3 @@
-###  Публикация: 1631922   (23919) от 22.03.2025
-
-Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Curse of the Sea Rats - двумерная метроидвания, рассказывающая настоящую пиратскую историю об отважных боевых крысах. Как шутят разработчики игры, приключенческая игра с элементами крысоидвании. История начинается в тот момент, когда ведьма-пиратка превращает весь экипаж корабля в крыс. Теперь героям необходимо отправиться в насыщенное событиями приключение, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Petoons StudioЖанр: Экшны, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB01B57E3A4BEB8BC3E67946F286AFCF9CC9E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738957   (23917) от 22.03.2025
 
 The Operator (2024) [Ru/Multi] (5091) License GOG
@@ -32,7 +6,7 @@ The Operator (2024) [Ru/Multi] (5091) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23917.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23916.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23903.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23902.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23899.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Kaiserpunk (2025) [Ru/Multi] (build 17798436) RePack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23897.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23888.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23887.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Lost Lands X / Затерянные земли Х (2025) [Ru] (1.0) Unofficial [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23877.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23875.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23871.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Bass Defense: Rhythm Meets Strategy (2024) [Mutli] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23868.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Cataclismo (2024) [Ru/Multi] (1.0.0.33.199) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23855.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23822.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Sims Legacy Collection (2025) [Ru/En] (1.0.0.139/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23821.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23818.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23816.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23801.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Contraband Police (2023) [Ru/Multi] (Build 17173236) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23799.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23796.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23792.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23786.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Battlefield 4 (2013) [Ru/Multi] (1.8.2.48475) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23785.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23767.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23764.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B948B5B1ED681644040277F5A366A981FD94068C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786972   (23762) от 23.03.2025
+
+Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack FitGirl [Supporter Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведите свою империю к мировому господству в Kaiserpunk - масштабном градостроительном симуляторе, действие которого разворачиваются в альтернативной вселенной, где из пепла Первой мировой войны восстали многочисленные города-государства, жаждущие власти.Тип издания: RePackРазработчик: Overseer GamesЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AEE4DB6BFFECF3408B8DD1E56AB005EBC93DA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

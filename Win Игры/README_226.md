@@ -1,29 +1,3 @@
-###  Публикация: 1157223   (525877) от 10.08.2017
-
-Vermillion Watch 3. Order Zero (2017) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы начинаете расследование по краже редкого антиквариата, но быстро понимаете, что это больше, чем мелкая кража.Пришло время объединится с друзьями и найти преступника, который терроризирует Лондон.Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7616C749FBA2EABFFA7950981E3B0FBA6DAA971C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157212   (525870) от 10.08.2017
 
 Dark Tales 11: Edgar Allan Poe's Lenore [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Dark Tales 11: Edgar Allan Poe's Lenore [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525870.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Grim Tales 13: The White Lady (2017) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525866.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Forgotten Faces (2017) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525809.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ From Shadows (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525795.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Myth Seekers: The Legacy of Vulcan / Искатели мифов: Насле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525469.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sea of Lies 5: Beneath the Surface / Море лжи 5: Тайны глубин 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525168.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Queen's Quest 2: Stories of Forgotten Past / Королевский квест 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525156.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Deltaplan Simulator (2017) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525125.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ The King Of Attention / Король внимания (2011) [Ru] (1.0.1) Licens
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524851.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Nevertales 6. Forgotten Pages (2017) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524764.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Off the Record 4: Liberty Stone / Не для печати 4: Камень св�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524727.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Maze 3: Nightmare Realm (2017) [En] (1.0) Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524718.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Myths of the World 12. Fire of Olympus [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524713.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Crusader Kings II (2012) [Ru/Multi] (2.4.1/dlc) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524691.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Mystery Case Files 12: Key To Ravenhearst / За семью печатями 12:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524661.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Phantom Trigger (2017) [Ru/Multi] (02082017) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524400.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Black The Fall (2017) [Ru/En/Ge] (5.5.2) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524391.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ The Surge (2017) [Ru/Multi] (1.0/dlc) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524291.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Guild of Dungeoneering (2015) [En] (1.02) Repack CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523819.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Dark Tales 15: Edgar Allan Poe's. Speaking with the Dead / Тёмные исто
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523694.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Assassin's Creed: Brotherhood / Assassin's Creed: Братство крови [R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523612.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Detectives United: Origins / Детективное агенство: Исток
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523517.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Irony Curtain: From Matryoshka with Love (2019) [Multi] (1.0.5) License GOG [Rev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523434.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Haunted Train 2: Frozen in Time / Поезд привидений 2: Замор�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523160.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Attrition Nuclear Domination (2015) [En] (5.0.2.721524) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523115.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Attrition Nuclear Domination (2015) [En] (5.0.2.721524) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CDFB3B406EB1904B08079B1EEA30D7562C61BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927959   (523048) от 15.08.2015
+
+Royal Bounty HD (2015) [Ru/Multi] (1.0.0.210) Repack MasterDarkness
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Royal Bounty HD - приятный подарок для поклонников серий Heroes of Might and Magic и King's Bounty. Игра разрабатывается Brian Kemper, человеком непосредственно участвовавшем в создании HoMM 3 и 4. Royal Bounty HD сделана для ценителей старых приключенческих RPG в духе King's Bounty (1990).Тип издания: RepackРазработчик: iosoftwareЖанр: RPG / IsometricЯзык озвучки: -/-Язык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Чешский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Чешский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276930BC8B5012383B219317BB5D5FDCB2B956F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,112 +1,3 @@
-###  Публикация: 566534   (397815) от 28.10.2012
-
-Мельница - Дикие Травы в СК "Олимпийский" (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Фолк-РокРежиссер: Роман Бутовский, Юрий ФроловскийПродолжительность: 01:52:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566997   (397665) от 28.10.2012
-
-День выборов (спектакль) (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Запись одноименного спектакля «Квартета И».
-
-Коллектив «Как бы Радио» получает от олигарха-владельца радиостанции, могущественного Эммануила Гедеоновича новое задание – провести предвыборную кампанию и "сделать рейтинг" абсолютно бесперспективному кандидату в губернаторы одной из областей на Средней Волге. Приказы начальства не обсуждаются, они выполняются быстро и беспрекословно.Жанр: Спектакль, комедияРежиссер: Сергей ПетрейковАктеры: Леонид Барац, Александр Демидов, Ростислав Хаит, Анна Касаткина-Барац, Михаил Козырев, Дмитрий Марьянов, Камиль Ларин, Нонна Гришаева, Максим Виторган, Василий Уткин, Алексей Кортнев, Алексей Хардиков, Александр Жигалкин, Федор Добронравов, Георгий Мартиросян, Людмила Кругликова, Елена Шевченко, Максим Лихачев, Роман Мамаев, Павел Черемисин, Дмитрий Чувелев, Сергей Чекрыжов, Павел ГонинПродолжительность: 03:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891D749104A8A8AB7DF39AACB4CEC4A1FF7421A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715095   (397403) от 25.10.2013
-
-Joe Cocker – Fire it Up Live (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концерт «Fire it Up» состоялся в ходе европейского тура Джо Кокера на Lanxess Arena в Кёльне в апреле 2013 года. Джо Кокер - английский певец, работающий в жанрах блюз и рок. Его визитной карточкой является низкий хриплый баритон. Жемчужины его репертуара — блюзовые баллады «My Father’s Son», «Unchain My Heart», «You Can Leave Your Hat On», «N'oubliez jamais».01. I Come In Peace Live
-02. Feelin' Alright Live
-03. The Letter Live
-04. When The Night Comes Live(   Читать дальше...   )Производство: Германия / Sony BMG Music EntertainmentЖанр: Rock, Blues-Rock, Blue-Eyed SoulРежиссер: Ник Викхэм / Nick WickhamПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221670D96B9035DFA1D595FAF0B7502BE65237B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567222   (396982) от 29.10.2012
-
-Вечно живые (2 серии из 2) (1976) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДрамаРежиссер: Олег ЕфремовАктеры: Олег Даль, Олег Ефремов, Станислав Садальский, Александр Вокач, Людмила Иванова, Юрий Богатырев, Марина Неёлова, Игорь Кваша, Елена Коренева Лилия ТолмачеваПродолжительность: 1 серия: 01:10:25,  2 серия: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F4700F195B38C7F3AC5A97B6490D58F14379F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567079   (396921) от 29.10.2012
 
 Twisted Sister - Live At The Astoria (2008) DVD9
@@ -115,7 +6,7 @@ Twisted Sister - Live At The Astoria (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396921.jpg" />
 </div>
 
 
@@ -150,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396819.jpg" />
 </div>
 
 
@@ -177,7 +68,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396550.jpg" />
 </div>
 
 
@@ -206,7 +97,7 @@ Manowar - The Day The Earth Shook - The Absolute Power (2006) 2*DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395788.jpg" />
 </div>
 
 
@@ -240,7 +131,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395716.jpg" />
 </div>
 
 
@@ -266,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395617.jpg" />
 </div>
 
 
@@ -295,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395610.jpg" />
 </div>
 
 
@@ -324,7 +215,7 @@ Scorpions - World Wide Live (1985) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395211.jpg" />
 </div>
 
 
@@ -350,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394688.jpg" />
 </div>
 
 
@@ -376,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394595.jpg" />
 </div>
 
 
@@ -406,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394148.jpg" />
 </div>
 
 
@@ -435,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394085.jpg" />
 </div>
 
 
@@ -464,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393317.jpg" />
 </div>
 
 
@@ -493,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392909.jpg" />
 </div>
 
 
@@ -522,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392749.jpg" />
 </div>
 
 
@@ -552,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392666.jpg" />
 </div>
 
 
@@ -581,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392624.jpg" />
 </div>
 
 
@@ -608,7 +499,7 @@ Pinkpop - The Vintage Years 1970-1974 (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392038.jpg" />
 </div>
 
 
@@ -639,7 +530,7 @@ Pirupa - Party Non Stop (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391680.jpg" />
 </div>
 
 
@@ -665,7 +556,7 @@ The Concert For New York City (2001) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391141.jpg" />
 </div>
 
 
@@ -694,7 +585,7 @@ Status Quo: Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390899.jpg" />
 </div>
 
 
@@ -723,7 +614,7 @@ No Doubt - Looking Hot (2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390885.jpg" />
 </div>
 
 
@@ -734,6 +625,110 @@ No Doubt - Looking Hot (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F8E4BF0867F3F359B22D80EFFF125A50D0492B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570422   (390207) от 05.11.2012
+
+Daniel Bedingfield - Secret Fear (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7FEE134A1DA073E6FDD9288AC2B86186C88535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570622   (390111) от 05.11.2012
+
+Mungo Jerry - Video Collection (70-77) (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё одна забытая британская рок-группа 70-х и если кто не видел и тем более не слышал этих веселых и жизнерадостных парней то непременно советую посмотреть этот сборник с ранними песнями!Жанр: Музыка,Glam RockПродолжительность: 00:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80695A7B4C954BA9909C486C27D7D5B992ACE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570817   (389243) от 06.11.2012
+
+Christina Aguilera - Your Body (2012) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F72ADF9B96CBC0FCD00AF52A444AD5DDD566CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571524   (388270) от 07.11.2012
+
+Space RockerZ & Ellie lawson - Under The Same Sky (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FD97FCDB8D88360ACE155F76385251609529BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

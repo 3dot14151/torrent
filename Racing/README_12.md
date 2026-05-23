@@ -6,7 +6,7 @@ Need for Speed: Heat (2019) [Ru/En] (1.0.60.7040/dlc) Repack Decepticon [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250879.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Wanterlude [Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250354.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack FitGirl [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250347.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Scene voices38 [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249360.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Necros [Deluxe E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249337.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Death Rally [En] (RePack) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249274.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GRID (2019) [Ru/Multi] (1.0.122.743/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248543.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Monster Energy Supercross - The Official Videogame (2018) [Multi] (1.0/dlc) Lice
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228424.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Project CARS 2 (2017) [Ru/Multi] (7.1.0.1.1108/dlc) Repack dixen18 [Deluxe Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227094.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225360.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ CyberTaxi (2020) [En] (10.24xyz) License TiNYiSO
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216672.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.7.1.0.1/dlc) Repack R.G. Механики [D
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216636.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Test Drive®: Ferrari Racing Legends [En] (RePack) 2012 | R.G.Games
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216156.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ FlatOut (2005) [Multi] (1.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216026.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MXGP 2021 - The Official Motocross Videogame (2021) [Multi] (1.0b7737829) Licens
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214544.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.8.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214481.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Driver: Parallel Lines (2007) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208740.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Automobilista 2 (2020) [Multi] (1.4.5.2.2247/dlc) License FLT [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203250.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202460.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202438.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Smurfs Kart (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201895.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Monster Energy Supercross - The Official Videogame 6 (2023) [Multi] (1.0) Licens
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200733.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717/dlc) Repack FitGirl [Gold Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200578.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199748.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Can't Drive This (2021) [Ru/Multi] (1.0) Scene SKiDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198866.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Absolute Drift (2015) [En] (5f6049d) License GOG [Zen Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195437.jpg" />
 </div>
 
 

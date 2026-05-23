@@ -1,55 +1,3 @@
-###  Публикация: 1436587   (1043020) от 01.01.2021
-
-Покорение башен v22.00.54G [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Покорение башен - одна из лучших TD-стратегий, в которой сражения происходят стенка на стенку. По сюжету житель деревеньки случайно наткнулся на портал в другой мир, из которого потом повалила враждебная нечисть.Тип издания: Пиратка (Мод - много денег!Релиз состоялся: 28 декабря 2020 г.Разработчик: Titan Mobile LLCПоддерживаемая ОС: Android 4.1 и вышеЖанр: СтратегияЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E0CC66E9A7F09939F7E472C8B64578D32D775C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436591   (1043017) от 01.01.2021
-
-StrikeBox: Sandbox & Shooter v1.4.6 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-StrikeBox: Sandbox & Shooter - шутер с симпатичной трехмерной графикой, динамичными перестрелками и большим оружейным арсеналом, в котором друг другу будут противостоять две команды.Тип издания: Пиратка (Мод - много денег)Релиз состоялся: 28 декабря 2020 г.Разработчик: ChaloAppsПоддерживаемая ОС: Android 4.4 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591E6DE4E85F6E6900AC96738CAC2C562D10C295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436605   (1043006) от 01.01.2021
 
 Учимся читать по слогам и буквам v3.0 [Ru]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043006.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Eternium v1.5.32 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043005.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042860.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Stickman Dragon Fight v1.1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042785.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Solar System Scope v3.2.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042730.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042423.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Free Guitar Tuner v4.0.0 Premium [En] - Fender Tune
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042261.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ MobiDic Guitar Chords v2.6 Pro [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042250.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042236.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ FINAL FANTASY III v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042212.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Garmin: TOPO Great Britain v2 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042098.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Garmin: Adria TOPO v5 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042089.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ Folio v3.6.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042006.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ GnaCAD v2.8.48 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041995.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041987.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ Best Fiends Stars v2.5.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041941.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041704.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041697.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ Grand War European Conqueror v3.3.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041686.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ CHUCHEL v2.0.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041597.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041553.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ Don't Push The Wrong Button 2 v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041458.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041308.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ Bike Computer v1.8.4.2 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041041.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ Bike Computer v1.8.4.2 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:102E6A6D4192B1F5D8F482B0A1C4576CCFC13F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438569   (1040848) от 09.01.2021
+
+Levelhead v100.0.38 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Levelhead - вы несете ответственность за подготовку вашего робота-доставщика GR-18 к любой ситуации. Создавайте свои уровни в интуитивно понятном редакторе в мастерской, а затем представляйте их всему миру. Стройте невероятные устройства и штуковины, создавайте приключения, для которых нужны и мозги, и реакция, или просто делайте уровни с приятной музыкой для отдыха (   Читать дальше...   )Тип издания: Пиратка (Куплена)Релиз состоялся: 6 января 2021 г.Разработчик: Butterscotch ShenanigansПоддерживаемая ОС: Android 5.0 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A253D0DB0A993D837D85C3420A6B3ED6D7E7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438455   (1040731) от 09.01.2021
+
+Vengeance RPG v1.2.1 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vengeance RPG – одиночная ролевая игра на андроид, где вы погрузитесь в увлекательную историю, сопровождающуюся красивой музыкой и атмосферой. Возьмите под свой контроль главного героя игры и отправляйтесь в путешествие по мрачным и живописным местам которое будет вознаграждено поиском легендарных и мифических предметов.Тип издания: Пиратка (Мод)Релиз состоялся: 4 января 2021 г.Разработчик: DimasjkTVПоддерживаемая ОС: Android 5.0 и вышеЖанр: Ролевая играЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45250CA518CB6B5301851D4E13018280F374BB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ XMind 22.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243528.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DirEqual 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243521.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243516.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ FileAssistant 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243515.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ ARTY - Tomorrowland Friendship Mix (2021-03-18) [MP3|320 Kbps] <Big Room, Dance,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243514.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Hard Disk Sentinel Pro 6.01.4 Build 12540 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243513.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ MesaExif 2.4.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243509.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nox App Player 7.0.5.6000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243505.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243504.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ DxO FilmPack 6.1.1 Build 219 Elite [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243493.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ DxO PureRAW 2.0.1 Build 1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243480.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AweEraser 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243479.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Amadeus Pro 2.6.2 (2228) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243471.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Advanced SystemCare Pro 15.3.0.227 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243470.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Soulver 3.1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243464.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Art Files 3 v3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243457.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ PDF-XChange PRO 9.3.360.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243456.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ EF Commander 2023.04+ + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243455.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Spotify 1.2.8.907 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243447.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Cirez D(Eric Prydz) - Live @ Seismic Dance Event, United States (Beats 1 Eric Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243443.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ DP Animation Maker 3.5.16 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243440.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Chromium 111.0.5563.147 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243439.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ TG Pro (Temperature Gauge Pro) 2.67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243430.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ PrivaZer 4.0.69 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243427.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Cisdem Data Recovery 6.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243426.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ R-Studio Technician 9.2 Build 191144 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243416.jpg" />
 </div>
 
 

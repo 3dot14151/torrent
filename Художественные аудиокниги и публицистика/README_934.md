@@ -1,83 +1,3 @@
-###  Публикация: 1710363   (112704) от 26.03.2024
-
-Чингиз Абдуллаев | Дронго (Книга 09). Закон негодяев (2024) [MP3, Наталья Кашина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Депутат Государственной Думы Лазарев застрелен прямо в здании Думы. Пуля настигает и Мосешвили – могущественного уголовного авторитета. На улицах Москвы вот – вот вспыхнет война между кавказским и славянскими группировками. Дронго, криминалистик – аналитик, – один из тех, кто способен укротить взбесившееся криминальное чудовище. Безжалостно расправляясь с теми, кто (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 11:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72254D2489AEB3642C78EB3DEC33379B73B532A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710681   (112700) от 27.03.2024
-
-Кирилл Тесленок | Граф Булгаков (Книга 3). Блеск Отражения (2024) [MP3, Никита Степаненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Блеск Отражения» – роман Кирилла Тесленока, третья книга цикла «Граф Булгаков», жанр бояръ-аниме, попаданцы в магические миры, боевое фэнтези.
-
-Отражение пробудилось, и это открывает для меня совершенно невероятные возможности. Но и проблемы становятся всё жестче! Я должен спасти князя Омутова, отстоять свой титул графа, покорить Аномалию Архидемон… и чего от меня (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-аниме, ПопаданцыИздательство: ИДДКПродолжительность: 09:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD2EAFF604BBD88F49DBF94B8B1813055273C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710663   (112699) от 27.03.2024
-
-Юрий Тарарев, Александр Тарарев | Милкомеда (Книга 6). Рубеж забвения (2024) [MP3, Евгений Бабинцев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Звездная империя бурлит, борьба за власть не утихает. Кварты осмелели и готовятся захватить власть в империи, сместив императора, а потом и вовсе, уничтожить Солем. Но появляется новый игрок – Оры, которые способны дать достойный отпор Квартам. Ситуация накаляется и грозит обернуться полномасштабной войной внутри самой Звездной империи.Тем временем Королева Тормов (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9FFD8284625F30A2A61B36F31BD190083AD6351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710667   (112692) от 27.03.2024
 
 Сергей Савинов, Антон Емельянов | Девять смертных грехов (Книга 1) (2023) [MP3, Петров Никита, (Петроник)]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112692.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112689.jpg" />
 </div>
 
 
@@ -142,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112688.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112679.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ Findroid | ArGate (Книга 1). Покоритель иного мира (2024
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112675.jpg" />
 </div>
 
 
@@ -222,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112674.jpg" />
 </div>
 
 
@@ -250,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112651.jpg" />
 </div>
 
 
@@ -277,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112630.jpg" />
 </div>
 
 
@@ -303,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112617.jpg" />
 </div>
 
 
@@ -329,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112612.jpg" />
 </div>
 
 
@@ -355,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112605.jpg" />
 </div>
 
 
@@ -381,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112604.jpg" />
 </div>
 
 
@@ -407,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112598.jpg" />
 </div>
 
 
@@ -433,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112575.jpg" />
 </div>
 
 
@@ -461,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112557.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112553.jpg" />
 </div>
 
 
@@ -513,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112550.jpg" />
 </div>
 
 
@@ -539,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112547.jpg" />
 </div>
 
 
@@ -565,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112512.jpg" />
 </div>
 
 
@@ -593,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112511.jpg" />
 </div>
 
 
@@ -621,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112509.jpg" />
 </div>
 
 
@@ -649,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112508.jpg" />
 </div>
 
 
@@ -675,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112491.jpg" />
 </div>
 
 
@@ -686,6 +606,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38F23307E6E0340F19947BF36F807517E4FB6214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711740   (112385) от 31.03.2024
+
+Стивен Робинетт | Не ждали (2024) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112385.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Хеллбент-4 отправился больше трехсот лет назад в составе эскадры кораблей-роботов для защиты Земли от инопланетной расы. Схватка была молниеносной, ни от захватчиков ни от эскадры не осталось ничего. Один только Хеллбент уцелел и его компьютер принял решение возвращаться на Землю, где его совершенно не ждали..." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3202DD9A97BFBD93092BC53D9768F989F1356706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711636   (112368) от 31.03.2024
+
+Чингиз Абдуллаев | Дронго (Книга 80). Среда обитания (2024) [MP3, Маня Настина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часть капитала крупного российского бизнесмена Льва Деменштейна, миллиардера, входящего в сотню богатейших людей страны, кто-то решил присвоить себе. Афера фактически беспроигрышная, ведь на руках у шантажистов убедительнейший компромат – целая кипа документов, порочащих честь и достоинство олигарха. Но у Деменштейна тоже имеется «козырь в рукаве» – знаменитый эксперт-аналитик (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЛитРес: чтецПродолжительность: 06:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32F2C9023C9075BAEEE27074806BDC6790D907B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711640   (112361) от 31.03.2024
+
+Чингиз Абдуллаев | Дронго (Книга 40). Путь воина (2023) [MP3, Павел Апостолов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восток – дело тонкое. А японцы – и вовсе особый мир. Европейцу их не понять. Эксперт-аналитик Дронго, прибыв в Токио для расследования убийства, сталкивается не только с криминальной загадкой, но и с загадкой японской души. По всем раскладам никто из подозреваемых – респектабельных банкиров – убийцей быть не мог. И тем не менее трупы есть. Но, в самом деле, не «ниндзя» (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 10:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88BFF9DF8C118F22E4B00CC1A28E6397B5E3E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

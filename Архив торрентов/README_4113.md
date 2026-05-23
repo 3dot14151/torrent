@@ -6,7 +6,7 @@ Iris 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171604.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EdgeView 4.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171602.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Clipboard Manager 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171600.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TinkerTool System 8 v.8.86 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171598.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Sound Siphon 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171594.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ A Better Finder Rename 12.02 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171593.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AltTab 6.63.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171592.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Mellel 5 v.5.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171585.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Final Draft 12 v.12.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171582.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PD (Progressive Downloader) 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171577.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Get Backup Pro 3 v.3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171576.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Things 3 v.3.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171575.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ EditReady 23.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171571.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sketch 98.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171567.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Principle 6.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171559.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Topaz Photo AI for Mac 2.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171558.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ DxO ViewPoint 4 for Mac v.4.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171555.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ O&O DiskImage Professional 18.4 Build 334 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171552.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VueScan Pro 9.8.19 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171550.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wondershare PDFelement 10.1.3.2510 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171546.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ TechSmith Camtasia 2023 Studio 2023.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171544.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ K-Lite Codec Pack Update 17.8.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171537.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Revo Uninstaller Pro 5.2.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171536.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Aiseesoft Video Converter Ultimate 10.7.30 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171532.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Wondershare PDFelement 10.1.3.2510 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171530.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Revo Uninstaller Pro 5.2.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171526.jpg" />
 </div>
 
 

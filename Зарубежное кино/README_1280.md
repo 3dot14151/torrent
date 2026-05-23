@@ -1,58 +1,3 @@
-###  Публикация: 569420   (391511) от 03.11.2012
-
-Свидание вслепую / Blind Dating (2006) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма — Денни Валдессекки, молодой человек 22 лет, красивый, умный и очаровательный, но слепой от рождения. Однако он не отчаивается и не считает себя слепым. Он живёт активной жизнью, развивает в себе остальные чувства, которыми природа не обделила его: слух, обоняние и интуицию: играет в баскетбол, на звук посылая мяч в корзину; любит слушать фильмы и угадывать внешность киногероев, безошибочно определяет запахи духов. Он собирается стать адвокатом, ведь адвокат должен уметь читать в душах людей, а Денни это удаётся как никому. Его окружает дружная и заботливая итальянская семья, которая поддерживает его во всём...Жанр: Мелодрама, КомедияРежиссер: Джеймс КичАктеры: Крис Пайн, Эдди Кэй Томас, Анджали Джей, Джейн Сеймур, Дженни Элден, Джудит Бенезра, Мейтри Брендон, Скип Карлсон, Кэтерин ФлиннПеревод: ДублированныйПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABAD61AFF129A474B1130C31D150A94473251535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569952   (391495) от 03.11.2012
-
-Сайлент Хилл / Silent Hill (2006) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодая мать, отчаявшись найти лекарство от таинственного заболевания своей дочери Шэрон, отказывается отдать ее в психиатрическую лечебницу. Вместе с Шэрон она отправляется в Сайлент Хилл, город, название которого ее дочь постоянно твердит во сне.
- Несмотря на сопротивление мужа, Роуз убеждена, что найдет там ответы, в которых так нуждается. Но когда они подъезжают к заброшенному городу, на дороге появляется таинственная фигура, Роуз резко тормозит, и машина попадает в аварию… Придя в себя, она обнаруживает, что Шэрон исчезла…
-В компании упрямой женщины-полицейской из городка неподалеку Роуз отправляется на поиски своего ребенка в Сайлент Хилл, место, непохожее ни на одно другое: город покрыт туманом, его населяют странные, проклятые создания, и время от времени он погружается во Мрак, который буквально меняет все, к чему прикасается…
-В поисках дочери Роуз узнает об истории Сайлент Хилла, его пуританском прошлом, полном насилия, и причинах проклятия, висящего над городом. Она понимает, ее ребенок — лишь часть (   Читать дальше...   )Жанр: Ужасы, ДетективРежиссер: Кристоф ГансАктеры: Джодель Ферланд, Рада Митчелл, Шон Бин, Лори Холден, Дебора Карла Унгер, Эллис КриджПеревод: ДублированныйПродолжительность: 02:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60968FF2FAD55014014CE2DF0BA3FF16D5919BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569855   (391437) от 03.11.2012
 
 Перед рассветом / Before Sunrise (1995) [H.264] DVDRip
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391437.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391416.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390964.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390953.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390942.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390819.jpg" />
 </div>
 
 
@@ -218,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390764.jpg" />
 </div>
 
 
@@ -244,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390601.jpg" />
 </div>
 
 
@@ -270,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390597.jpg" />
 </div>
 
 
@@ -298,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_390539.jpg" />
 </div>
 
 
@@ -325,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390287.jpg" />
 </div>
 
 
@@ -351,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390223.jpg" />
 </div>
 
 
@@ -377,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390222.jpg" />
 </div>
 
 
@@ -403,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390182.jpg" />
 </div>
 
 
@@ -429,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390168.jpg" />
 </div>
 
 
@@ -455,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390167.jpg" />
 </div>
 
 
@@ -481,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390104.jpg" />
 </div>
 
 
@@ -507,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390079.jpg" />
 </div>
 
 
@@ -533,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390057.jpg" />
 </div>
 
 
@@ -559,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390054.jpg" />
 </div>
 
 
@@ -585,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390039.jpg" />
 </div>
 
 
@@ -611,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390036.jpg" />
 </div>
 
 
@@ -637,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390034.jpg" />
 </div>
 
 
@@ -665,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390026.jpg" />
 </div>
 
 
@@ -678,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ADC2B1A45B6118A9FA4DCECDD948F263D2E4EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717514   (390010) от 02.11.2013
+
+Сироп / Syrup (2012) BDRip [720p] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амбициозный молодой человек, сотрудник крупной компании, производящей газированные напитки, придумывает блестящий план на миллион американских долларов. План заключается в разработке и продвижении нового напитка, который сделает его значительно богаче и продвинет на самую вершину карьерной лестницы. Однако на пути у осуществления этого великолепного плана есть одно (   Читать дальше...   )Производство: США |  Lila 9th Productions, Windward EntertainmentЖанр: Драма, Мелодрама, КомедияРежиссер: Арам РаппапортАктеры: Эмбер Хёрд, Шайло Фернандес, Келлан Латс, Бриттани Сноу, Хуан Луис Асеведо, Кёрсти Элли, Джолин Андерсон, Макс Бэрри, Кэти Блейк, Закари Бут ...Перевод: Дублированный (Чистый звук)Язык субтитров: Русский, Английский (Full, SDH)Продолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4EEC881934EAB64B5D3FCEB9C2ADD808C49B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717005   (389965) от 02.11.2013
+
+Заклятие / The Conjuring (2013) Blu-Ray [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389965.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе картины лежит реальная история семьи Перрон, которые утверждали, что жили в окружении привидений, как добрых, так и злых. Духи населяли дом на Род-Айленде, в котором Перроны проживали в семидесятых годах XX века.Производство: США / Evergreen Media Group, New Line Cinema, Safran CompanyЖанр: Ужасы, Триллер, БиографияРежиссер: Джеймс ВанАктеры: Вера Фармига, Патрик Уилсон, Рон Ливингстон, Лили Тейлор, Шэнли Касвелл, Хейли МакФарланд, Джои Кинг, Маккензи Фой, Кайла Дивер, Шэннон Кук-ЧунПеревод: ДублированныйЯзык субтитров: Английский (PGS), Арабский (PGS), Китайский (PGS), Чешский (PGS), Греческий (PGS), Иврит (PGS), Итальянский (PGS), Корейский (PGS), Польский (PGS), Португальский (PGS), Румынский (PGS), Русский (PGS), Испанский (PGS), Тайский (PGS), Турецкий (PGS)Продолжительность: 01:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A808E88B0CA839814FFB830CA629CEF34FD4F5E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

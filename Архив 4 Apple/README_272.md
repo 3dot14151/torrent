@@ -6,7 +6,7 @@ DCommander 3 Premium v3.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701588.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Omni Toolbox 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701568.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Noir – Dark Mode for Safari 2022.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701564.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ PhoneRescue for iOS 3.7.2.1019.03.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701472.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Unite 4 v4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701384.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Easy Data Transform 1.25.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701379.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Wondershare PDFelement Pro 8.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701264.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Downie 2.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701256.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ FabFilter Total Bundle v23.02.2022 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701245.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ AnyTrans for iOS 7.0.4.20190306 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701211.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Permute 2.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701153.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Aurora Blu-ray Player 2.15.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701152.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ DaVinci Resolve Studio 15.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700934.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Flux 7.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700842.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Feeder 3.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700835.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ iMazing 2.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700799.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Video Editor MovieMator Pro – Movie & Film Maker! 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700718.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Serial Box 04-2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700678.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ KeyKey 2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700647.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ TechSmith Snagit 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700631.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ TextMate 2.0-rc.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700628.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Feeder 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700510.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Swinsian 1.12 (280) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700400.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Color Finale Pro 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700191.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ SQLPro Studio 2020.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700055.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Movavi Video Converter 6.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699954.jpg" />
 </div>
 
 

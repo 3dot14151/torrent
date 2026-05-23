@@ -6,7 +6,7 @@ Charlie Byrd - Brazilian Byrd 1965 (2009) Sony Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827832.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Konstantin Klashtorni - 7 X 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827829.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Konstantin Klashtorni - Groove Jazz N Chill #7 (2019) Chillaxing Jazz KolleKtion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827738.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mike Nock Quartet - In Out And Around (1978) Remaster, 2015, Solid Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827301.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Joe Zawinul - Zawinul (1970) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827249.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Abbey Lincoln - Abbey Is Blue (1959) Remaster,2005,Riverside Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827248.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Pharoah Sanders - Village Of The Pharoahs & Wisdom Through Music (1973) 2011, Ve
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827247.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Doctor Jazz's Universal Remedy! - Release 1.0 (2004) Unofficial Release [APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827245.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Glenn Miller Orchestra - In The Digital Mood (1984) Digital Mastering [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827089.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Les McCann - Relationships: The Les McCann Anthology (1960 - 1972) 2CD, 1993, Rh
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826819.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Martial Solal - Big Band (1984) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826779.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Woody Shaw - Field Recordings Of A Jazz Master (1975, 1980,1981) 2012, Internati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826775.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Houston Person - Broken Windows, Empty Hallways (1972) 2004, Prestige [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826774.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Carolyn Leonhart - Steal The Moon (2000) Sunnyside Communications [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826773.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Organissimo - Waiting For The Boogaloo Sisters… (2003) Big O Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826772.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Harry Allen Quartet - London Date (2016) Trio Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826768.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Michel Camilo & Tomatito - Spain (2000) Universal [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826662.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Clifford Brown & Max Roach - Brown and Roach Incorporated (1954) 2004, Universal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826660.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Miles Davis - In Person, Friday Night At The Blackhawk, San Francisco, Volume 1 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826659.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Fred Astaire - The Essential Collection (1933-1952) 2CD, 2006, Avid Entertainmen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826658.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Michel Camilo & Tomatito - Spain Again (2006) Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826657.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sonny Rollins And Coleman Hawkins - Sonny Meets Hawk!: The Two Giants Of The Ten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826650.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Miles Davis - Kind Of Blue (1962) Remaster, 1987, CBS [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826456.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dakota Staton - Dakota At Storyville 1961 (1991) Collectables [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826336.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Dave Brubeck Quartet - Jazz At Oberlin 1953 (2003) Fantasy [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826334.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Stan Getz & Charlie Byrd - Jazz Samba 1962 (2013) Analogue Productions [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826249.jpg" />
 </div>
 
 

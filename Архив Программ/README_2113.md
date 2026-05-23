@@ -6,7 +6,7 @@ GIMP 2.10.36-1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63691.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pepakura Designer 5.0.19 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63689.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Process Lasso Pro 14.0.0.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63688.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinRAR 7.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63653.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DefenderKiller 11.3 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63633.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CyberLink PowerDirector 2024 Ultimate 22.2.2705.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63601.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Native Instruments - Kontakt 7.8.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63585.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Duplicate File Finder Pro 2401 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63515.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FinePrint 11.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63498.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FileMenu Tools 8.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63478.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FileMenu Tools 8.4.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63476.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63469.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ CyberLink PowerDVD Ultra 23.0.1406.62 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63466.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MobaXterm 24.0 build 5204 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63446.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v3 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63442.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Defender Remover Portable 12.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63435.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ TrustViewer 2.11.2.5136 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63411.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ OneCommander Pro 3.71.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63407.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0309) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63397.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Supermium 122.0.6261.85 Hotfix (R2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63396.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Telegram Desktop 4.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63387.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Music Collection 3.6.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63384.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ HiBit Uninstaller 3.1.95 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63374.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63365.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Windows 10 PRO AIO 20H1 / 20H2 / 21H1 / 21H2 /22H2 by Ghost Spectre 1904X.4046 x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63359.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ CorelDRAW Graphics Suite 2024 25.0.0.230 (x64) Portable by conservator [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63353.jpg" />
 </div>
 
 

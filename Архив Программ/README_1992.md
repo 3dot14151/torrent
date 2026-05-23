@@ -6,7 +6,7 @@ FBackup 9.9.846 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127621.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127520.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jetbrains WebStorm 2023.3.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127472.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Jetbrains IntelliJ IDEA Ultimate 2023.3.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127471.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DefenderKiller 11.0.8 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127343.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ALLPlayer 9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127327.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Defender Remover Portable 12.6.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127320.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Planet VPN 2.6.1.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127317.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Multi Commander Full Edition 13.3 Build 2969 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127302.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ HopToDesk 1.40.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127285.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127281.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CherryTree 1.0.4.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127266.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ StaxRip 2.30.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127261.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Free Hex Editor Neo 7.40.00.8622 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127256.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Draw.io 22.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127255.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ RisohEditor 5.7.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127254.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ f.lux v4.130 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127251.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Music Collection 3.6.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127250.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Imagine 1.3.8 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127248.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ GeoGebra 6.0.817.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127240.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Text Editor Pro 28.3.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127233.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ FL Studio Producer Edition 21.2.2.3914 - All Plugins Edition (Rev.1) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127190.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Adobe Photoshop 2024 25.3.1.241 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127183.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Kingston SSD Manager 1.5.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127137.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ SplitCam 10.7.24 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127115.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ HWiNFO 7.68 Build 5300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127102.jpg" />
 </div>
 
 

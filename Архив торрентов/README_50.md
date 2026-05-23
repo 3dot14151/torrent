@@ -6,7 +6,7 @@ ExifEditor 1.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038535.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MarsEdit 4 v4.4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038534.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Export for iTunes 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038533.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Color Code Copy 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038532.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DropSync 3 v3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038530.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Smooze 1.9.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038529.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sound Grinder Pro 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038527.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ USBclean 3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038525.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Disk Xray 2.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038524.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038521.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Q-Dir 9.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038514.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Yeiskomp Leisurely Trance - Jan 2020 (2021) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038509.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Miss Lava - Doom Machine (2021) [FLAC 2.0|44.1/24|tracks + .cue|WEB-DL] <Stoner 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038508.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Free Download Manager 6.13.2.3510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038502.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ HDCleaner 1.325 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038501.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Nothing But... Trance Masters Vol.15 (2021) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038500.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Master PDF Editor 5.7.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038490.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Tor Browser Bundle 12.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038485.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ WinPE 11 Sergei Strelec x64 2023.02.18 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038481.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 10.0.2045.0 (21.02.2023) RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038469.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ FileZilla 3.52.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038466.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ File & Image Uploader 8.0.6 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038465.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ PicPick 5.1.4 Pro + portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038462.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Music Collection 3.3.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038461.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Inkscape 1.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038457.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VueScan Pro 9.7.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038454.jpg" />
 </div>
 
 

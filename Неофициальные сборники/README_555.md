@@ -1,32 +1,3 @@
-###  Публикация: 1625561   (255294) от 11.04.2023
-
-VA - Лучшие рок баллады 20-го века Vol.1 (2023) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin - Take My Breath Away (04:17)
-02. Billy Idol - Sweet Sixteen (04:15)
-03. Damn Yankees  - High Enough (04:46)
-04. Dire Straits - Romeo And Juliet (06:00)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 02:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C914AAB8BA6DCA789D2D78045D8676642559069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627336   (255059) от 18.04.2023
 
 VA - Disco Party Weekend Plays (2023) [MP3|320 Kbps] <Indie Dance, Soulful, Disco, Chicago House>
@@ -35,7 +6,7 @@ VA - Disco Party Weekend Plays (2023) [MP3|320 Kbps] <Indie Dance, Soulful, Disc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255059.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Disco Generation Freedom (2023) [MP3|320 Kbps] <Disco, House, Soulful, Nu-D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255017.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Vocal Melodic House For U (2023) [MP3|320 Kbps] <Progressive House, Techno 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254945.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Swing Jazz Wonder Of Romance (2023) [MP3|320 Kbps] <Swing Jazz, Nu Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254918.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254917.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Понемногу отовсюду by Yuridar #O-P-Q (1962-2023) Compilati
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254899.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Remix NNM 6 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254507.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Shazam Хит-парад Top 100 Russia 09.05.2023 (2023) [MP3|256-320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254449.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Зарубежные Новинки Vol.51 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254344.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ VA - Energy Super Dance Vol.7 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254330.jpg" />
 </div>
 
 
@@ -337,7 +308,7 @@ VA - Avto Club Май Vol.6 (2012) [MP3|320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254304.jpg" />
 </div>
 
 
@@ -372,7 +343,7 @@ VA - No name compilation electronic vocal (2025) [MP3|320 Kbps] <Electronic, Voc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254255.jpg" />
 </div>
 
 
@@ -401,7 +372,7 @@ Jumanov - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254254.jpg" />
 </div>
 
 
@@ -430,7 +401,7 @@ Romantic Dreams - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254246.jpg" />
 </div>
 
 
@@ -459,7 +430,7 @@ VA - Blues by Can Soulful Blues Ballad Favorites Collection (2025) [MP3|320 Kbps
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254244.jpg" />
 </div>
 
 
@@ -488,7 +459,7 @@ VA - Музыка для хорошей компании Vol 3 (2012) [MP3|256 �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254014.jpg" />
 </div>
 
 
@@ -523,7 +494,7 @@ VA - Сборник тяжёлых песен 9 (2012) [MP3|128-320 кб/с]<Met
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253989.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ VA - Ministry of Sound: Louder! (2012) [MP3|320 кб/с]<Dubstep, Drum & Bass, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253955.jpg" />
 </div>
 
 
@@ -593,7 +564,7 @@ VA - Клубные Новинки Vol.80 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253933.jpg" />
 </div>
 
 
@@ -628,7 +599,7 @@ VA - Клубный драйвовый музон (2012) [MP3|224-256 кб/с]<D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253929.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ VA - Trance Maniacs Party: Uplifting Breeze #38 (17.04.2012) [MP3|320 кб/с]<T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253915.jpg" />
 </div>
 
 
@@ -698,7 +669,7 @@ VA - Avto Club Май Vol.5 (2012) [MP3|320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253899.jpg" />
 </div>
 
 
@@ -733,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253838.jpg" />
 </div>
 
 
@@ -768,7 +739,7 @@ VA - Лирика. Зарубежные Медляки - 1 (2012) [MP3|320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253785.jpg" />
 </div>
 
 
@@ -803,7 +774,7 @@ VA - Рок в Авто (2012) [MP3|160-320 кб/с]<Heavy Metal , Hard Rock , G
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253783.jpg" />
 </div>
 
 
@@ -817,6 +788,41 @@ VA - Рок в Авто (2012) [MP3|160-320 кб/с]<Heavy Metal , Hard Rock , G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ECC6580AA6B9B54AF411DAE9B5A62284E22433C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497669   (253764) от 17.05.2012
+
+VA - Летний Союз Новинок 50\50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Balan - Люби
+02. DJ Rynno feat. Sylvia - Love (Radio Edit)
+03. Beyond Vibes ft. Raluca Nastase - Step Into The Light (Radio Edit)
+04. Марсель - Иди Ко Мне
+05. Karmin - Walking On The Moon
+06. Даша Суворова - Над Землёй
+07. Diana Vickers - Boy In Paris
+08. MMDance - Баня (Discomania Remix)
+09. Keane - The Boys
+10. Климат и Аня Добрыднева - Глаза В Глаза2012Жанр: PopПродолжительность: 06:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9FAD8AF793519D8A487B09484AE02729EE80F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

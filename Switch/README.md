@@ -7,7 +7,7 @@ Terminator 2D: NO FATE (2025) [Switch] [USA] 20.5.0, Atmosphere 1.9.5 [License] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048259.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Immortals Fenyx Rising (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.1.0 / DLC
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034760.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Super Mario 3D World + Bowser's Fury (2021) [Switch] [USA] 10.2.0 [NSZ] [License
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029835.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Sid Meier's Civilization VI (2018) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.11
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028574.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Need for Speed: Hot Pursuit Remastered (2020) [Switch] [USA] 10.2.0 [NSZ] [Licen
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028573.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Ghosts 'n Goblins Resurrection (2021) [Switch] [USA] 10.2.0 [NSP] [License / 1.0
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025692.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Little Nightmares II (2021) [Switch] [USA] 10.2.0 [NSZ] [License / 1.3 / DLC] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025690.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Crash Bandicoot: 4 It's About Time (2021) [Switch] [USA] 10.2.0 [NSZ] [License /
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021475.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Splatoon 2 (2017) [Switch] [EUR] 10.2.0 [NSZ] [License / DLC / 5.4.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021472.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Monster Hunter Rise (2021) [Switch] [USA] 11.0.1 [NSP] [License / 2.0.0 / DLC] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018485.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bayonetta (2018) [Switch] [EUR] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011736.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bayonetta 2 (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011731.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dr. Kawashima’s Brain Training for Nintendo Switch (2020) [Switch] [USA] 9.0.1
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003117.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Silence (2019) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.1] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002892.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Okami HD (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002359.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Just Dance 2020 (2019) [Switch] [USA] 9.1.0 [NSP] [License / v262144] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988715.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Call of Juarez: Gunslinger (2019) [Switch] [USA] 9.1.0 [NSZ] [License / 1.0.5] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979623.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Assassin's Creed III Remastered (2019) [Switch] [EUR] 8.1.0 [NSZ] [License / DLC
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975045.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Evoland: Legendary Edition (2019) [Switch] [USA] 9.1.0 [NSZ] [Unofficial / 1.0.5
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972728.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Darksiders Genesis (2020) [Switch] [USA] 9.1.0 [NSP] [License / 1.0.1] [Ru/Multi
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962873.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Metro Redux (2020) [Switch] [USA] 9.1.0 [NSZ] [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940435.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Bulletstorm: Duke of Switch Edition (2019) [Switch] [NSP] [8.1.0] [License] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928575.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Naruto Shippuden: Ultimate Ninja Storm 4 Road To Boruto (2020) [Switch] [EUR] 9.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838916.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Diablo III: Eternal Collection (2018) [Switch] [USA] 10.2.0 [NSP] [License / 2.7
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837627.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ The Legend of Zelda: Skyward Sword HD (2021) [Switch] [USA] 11.0.0 [NSZ] [Licens
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801302.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Grand Theft Auto: The Trilogy The Definitive Edition (2021) [Switch] [USA] 13.0.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792549.jpg" />
 </div>
 
 

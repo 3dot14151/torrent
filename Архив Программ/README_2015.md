@@ -6,7 +6,7 @@ WizTree Enterprise 4.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120807.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Multi Commander Full Edition 13.5 Build 2983 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120711.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mp3tag 3.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120699.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kaspersky 21.16.6.467 Standard | Plus | Premium [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120581.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Waves Ultimate 2024.01.24 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120545.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Supermium 121.0.6167.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120544.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ableton - Live Suite 11.3.21 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120541.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Volume2 1.1.9.466 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120539.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ PreSonus Studio One 6 Professional 6.5.2 + Extensions [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120536.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ GoldWave 6.80 (x64) Portable by Spirit Summer [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120528.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ExtraDisks 24.1.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120527.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ XtraTools Professional 24.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120517.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ OneCommander Pro 3.67.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120511.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Universal USB Installer 2.0.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120499.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Minimal Audio - Effect Bundle 2024.01 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120485.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ WinMerge 2.16.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120479.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Opera One 106.0.4998.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120475.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Text Editor Pro 28.4.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120468.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ RJ TextEd 16.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120462.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MusicBrainz Picard 2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120460.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Opera GX 106.0.4998.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120455.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Adobe Photoshop 2024 25.4.0.319 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120362.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ DNS Changer 2.1.12 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120356.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.5 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120354.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Adobe Photoshop 2024 25.4.0.319 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120343.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Malwarebytes Windows Firewall Control 6.9.9.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120341.jpg" />
 </div>
 
 

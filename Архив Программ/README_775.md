@@ -6,7 +6,7 @@ Sony Sound Forge Pro v10.0d Build 503 Final [Английский+Русифик
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656250.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656245.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SpeedyFox 2.0.12 Build 85 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656227.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Uninstall Tool 3.4.3 Build 5410 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656218.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ eRightSoft SUPER 2015 build 65 + Recorder RePack by CUTA [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656217.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Transmission-Qt Win 2.84.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656216.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Media Player Classic Home Cinema 1.7.9 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656211.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ KMSAuto Helper Lite 1.0.2 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656208.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AutoPlay Menu Builder 7.3 Build 2399 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656207.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ ACDSee Ultimate 8.2 Build 406 (x64) RePack by Loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656204.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656200.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NVIDIA GeForce Desktop 353.06 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656197.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Passcape Software Reset Windows Password Advanced Edition 5.1.3.559 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656193.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Video Copilot Heat Distortion 1.0.30 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656191.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ACDSee Pro 8.2 Build 287 (x86/x64) RePack by Loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656189.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ ACDSee Pro 8.2 Build 287 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656181.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Photoshop Lightroom 6.0.1 Registered & Unattended RePack by alexagf [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656176.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Media Player Classic Home Cinema 1.7.9 Stable RePack (& portable) by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656175.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ K-Lite Codec Pack 11.2.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656173.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Adobe Photoshop Lightroom 6.0.1 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656169.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ ACDSee Ultimate 8.2 Build 406 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656160.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Uninstall Tool 3.4.3 Build 5410 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656156.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Windows 10 Enterprise Insider Preview 10.0.10130 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656152.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Windows 7 Ultimate SP1 x86/x64 Beslam™ Edition V.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656150.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ AIMP 5.02 Build 2369 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656129.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ PortableApps.com Platform 21.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656125.jpg" />
 </div>
 
 

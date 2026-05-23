@@ -1,29 +1,3 @@
-###  Публикация: 1653095   (213527) от 19.08.2023
-
-Turbo Overkill (2023) [Ru/Multi] (1.00) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Turbo Overkill 1.0 наконец-то здесь! Ноги, руки, велосипеды — бензопилы повсюду! Они понадобятся вам, чтобы очистить Рай, которым управляет Син (супер-ИИ), троица охотников за головами (Моу, Потрошитель и Джаз) и около 150 000 усиленных киберпанков. Лучший FPS от Apogee со времен Duke Nukem 3D. Удачной охоты, сэр!Тип издания: RepackРазработчик: Trigger Happy InteractiveЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9271D506AECF8343A8FB2B5B4F4688499A7322E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654307   (213497) от 20.08.2023
 
 Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
@@ -32,7 +6,7 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213497.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Black Skylands (2021) [Ru/Multi] (1.0.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213496.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213464.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213448.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dispatch (2025) [Ru/Multi] (1.0.15103/dlc) Repack Necros [Digital Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213423.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fantasy Mosaics 53: Mysterious Cosmos (2022) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213277.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Please Fix The Road (2022) [Ru/Multi] (1.1.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213245.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Strange Investigations 2: Two For Solitaire / Удивительные расс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212860.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (s106) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212772.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212767.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Banner Saga (2014) [Ru/Multi] (2.60.02) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212762.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212739.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212660.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Beneath (2025) [Ru/Multi] (20251024 v2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212593.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Happy Holidays 4: Trick or Treat / Счастливые праздники 4: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212545.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212531.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212529.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Master of Command (2025) [Ru/Multi] (Build 20565020) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212435.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16507r) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212426.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Wanterlude [Di
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212424.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Riftbreaker (2021) [Ru/Multi] (SVN_31432/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212308.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Mari and Bayu - The Road Home (2022) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212279.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212184.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212167.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Heretic + Hexen (2025) [Ru/Multi] (Update 1) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212166.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Heretic и Hexen, созданные студией Raven Software на моди
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E45D24E9CD845BE4AD1FAF7167E2E55CDD03A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831499   (212143) от 28.10.2025
+
+Relicta (2020) [Ru/Multi] (1.10/dlc) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Relicta - основанная на законах физики головоломка с видом от первого лица. Раскройте тайны базы «Чандра», меняя магнетизм и гравитацию. Вы одни на Луне. Чтобы спасти дочь, вам придется полагаться на свой ум...Тип издания: RepackРазработчик: Mighty PolygonЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252141291A28A21BB9964F8679F09E50B77DF31C
 ```
 
 https://mybot314.ru/tekegram_catalog/

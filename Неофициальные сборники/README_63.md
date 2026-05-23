@@ -1,32 +1,3 @@
-###  Публикация: 1357892   (971916) от 05.02.2020
-
-VA - Catalyst: Basslife DnB (2020) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-001. L.E.G.E.N.D. - Like That (Original Mix)
-002. Fuj - Deep Exile (Original Mix)
-003. Battery - Transistor Bass
-004. Smuggler Feat. Dubflex - Be Careful(   Читать дальше...   )Жанр: Drum And Bass, Bassline, DubstepПродолжительность: 07:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0963CC3D9F66D7AA471B9782368D2CE87D599CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357771   (971907) от 05.02.2020
 
 VA - Luxury Deep House (2020) [MP3|320 Kbps] <Deep, Chill House>
@@ -35,7 +6,7 @@ VA - Luxury Deep House (2020) [MP3|320 Kbps] <Deep, Chill House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971907.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Trap Sound: Experimental Electronic (2020) [MP3|320 Kbps] <Electronic, Synt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971900.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Luxury Soul (2016) [MP3|320 кб/с] <R&B, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971855.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Music Collection Vol.2 (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971729.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - не Громкие новинки недели 54 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971537.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - 500 Лучших И Самых Ярких Композиций За 10 Ле
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971523.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Дискотека 2016 Dance Club Vol. 147 от NNNB (2016) [MP3|320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971487.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - From Sunset to Sunrise, Vol. 3 (20 Midnight Lounge Tunes) (2016) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970996.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Best Chillhouse Tunes for Everyday (2016) [MP3|320 кб/с] <House,Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970994.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Super Bomb Electro 55 (2015) [MP3|320 кб/с] <Electro House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970992.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Fly to the Sky Fines Selection Of First Class Chillout Music (2016) [MP3|32
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970991.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Super Bomb Electro: The Best Hit 13 (2016) [MP3|320 кб/с] <Electro House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970987.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Beatport Indie Dance / Nu Disco Top 100 December 2015 (2016) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970943.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Lounge Music For Your Soul (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chi
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970939.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - I Love Italo Disco ot Vitaly 72 - 4 (2015) [MP3|320 кб/с] <Italo-Disco, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970938.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Top 100 Sounds Inception Massive DJs (2016) [MP3|320 кб/с] <Club, House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970928.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Disco Party Nights (2016) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970872.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Вечное движение с лучшими хитами радио Ш�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970869.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - 100 Greatest BRIT Awards Winners (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970630.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Beatport Top 100 (15.01.2016) [MP3|320 кб/с] <House, Electro, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970472.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970466.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Top 100 Самые скачиваемые треки (2013) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970333.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ VA - Promo DJ Top 100 Remixes Winter 2015-2016 (2016) [MP3|320 кб/с] <Club Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970186.jpg" />
 </div>
 
 
@@ -706,7 +677,7 @@ VA - Winter Chill Essentials (2016) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969844.jpg" />
 </div>
 
 
@@ -735,7 +706,7 @@ VA - Super Bomb Electro 54 (2015) [MP3|320 кб/с] <Electro House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969841.jpg" />
 </div>
 
 
@@ -749,6 +720,35 @@ VA - Super Bomb Electro 54 (2015) [MP3|320 кб/с] <Electro House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976472   (969837) от 17.01.2016
+
+VA - Super Bomb Electro 53 (2015) [MP3|320 кб/с] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3rd Prototype & Daav One vs. Ummet Ozcan - Raise Your Blinded (3rd Prototype Edit) (6:15)
+02. ACTI - Sleenker (Original Mix) (6:56)
+03. Antoan & Fernando - Kick It (Club Mix) (5:17)
+04. Artistic Raw - Domino (Original Mix) (4:42)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76EB485F3BA60A076AA5F608ADA9181905D643C
 ```
 
 https://mybot314.ru/tekegram_catalog/

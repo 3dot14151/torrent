@@ -6,7 +6,7 @@ The Foundry MARI 3.0 v1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229640.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander 10.52 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229634.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GPU-Z 0.8.6 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229623.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Android Studio Dolphin 2021.3.1.17 Patch 1 Build #AI-213.7172.25.2113.9123335 + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229603.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ USB Protection & Recovery 1.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229568.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adobe Photoshop 2023 24.7.0.643 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229566.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ WinToUSB Technician 7.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229556.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229509.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Luxion Keyshot Pro 6.0.266 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229508.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Next Limit RealFlow 2015 9.1.1.0186 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229501.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ ExamDiff Pro Master Edition 10.0.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229464.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Windows 7 Pro SP1 x64 JAWS15 для незрячих. 2015.12.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229460.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ DVDFab 9.0.1.5 Final RePack (& portable) by KpoJIuK [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229415.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ ReviverSoft Driver Reviver 5.3.2.50 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229406.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Privacy Eraser Free 5.5.0 Build 3721 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229376.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Mindjet MindManager 2019 v19.1.198 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229327.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Firefox Browser ESR 78.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229283.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ MIDIRenderer 3.8.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229204.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Magic Uneraser Home / Office / Commercial Edition 5.3 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229203.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.28 (2711) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229194.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ apulSoft FX Bundle 11.2020 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229170.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FBackup 9.4.452 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229169.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ BurnAware Professional 13.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229141.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Opera GX 81.0.4196.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229139.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ SpyHunter 4.20.9.4533 RePack (& Portable) by D!akov (12.12.2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229119.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Active@ File Recovery 18.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229118.jpg" />
 </div>
 
 

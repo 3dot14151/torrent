@@ -6,7 +6,7 @@ Bandicam 3.4.4.1264 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575598.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FBackup 9.7.613 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575574.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 05.2019
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575553.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Internet Download Manager 6.23 Build 17 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575473.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Maelstrom 42.0.1.36 Beta DC 22.07.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575472.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ FanControl V117 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575465.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MAGIX Sound Forge Pro 16.0 Build 106 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575461.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ImgDrive 1.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575453.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ CyberLink PhotoDirector Ultra 13.6.2926 (x64) Portable by rsloadNET [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575450.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wise Care 365 Pro 3.75.335 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575424.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ CloneBD 1.0.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575422.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Internet Download Manager 6.23 Build 17 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575375.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Punto Switcher 4.1.0 Build 432 Final RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575368.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ORPALIS PDF Reducer Professional 2.0.2 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575326.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Macgo Windows Blu-ray Player 2.16.0.2030 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575324.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Aiseesoft Blu-ray Player 6.3.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575320.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Google Chrome 44.0.2403.107 Enterprise x86/x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575315.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ iDeer Blu-ray Player 1.10.4.2001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575313.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Leawo Blu-ray Player 1.9.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575307.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Internet Download Manager 6.23 Build 17 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575284.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Process Lasso Pro 8.6.1.6 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575274.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Punto Switcher 4.1.0 Build 432 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575268.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Xilisoft Video Converter Ultimate 7.8.9 Build 20150724 RePack (& Portable) by el
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575163.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ WinISO Standard 6.2.0.4590 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_575084.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Wise Care 365 Pro 1.76.132 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_575058.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ save2pc Ultimate 4.22 Build 1348 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_575031.jpg" />
 </div>
 
 

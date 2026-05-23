@@ -1,29 +1,3 @@
-###  Публикация: 1271971   (147036) от 25.12.2018
-
-The Seven Chambers (2018) [En] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Космос меняет судьбу жителей Земли каждый день. Элазэйд не верила в астрологию, но сила планет и созвездий вошла в ее жизнь как и многие предыдущие жизни независимо от того, что она думала. После травмы в результате беспорядков в Лондоне она впадает в кому. В своем подсознании она переживает прошлую жизнь воина Хайленда, где после прочтения отрывка древнего текста (   Читать дальше...   )Тип издания: UnofficialРазработчик: Three Headed Eagle, Cateia Game, Goldfinch StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BD21649DD49A81567630263A463C12F7AC9F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434847   (147018) от 26.12.2020
 
 Super Meat Boy Forever (2020) [Ru/Multi] (1.0) License CODEX
@@ -32,7 +6,7 @@ Super Meat Boy Forever (2020) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147018.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ms. Holmes 3: The Adventure of the McKirk Ritual (2021) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147004.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Waking Mars [En] (L) 2012 | -JAGUAR-
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146967.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mystery of the Ancients 8: No Escape (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146943.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ PuppetShow 15: Porcelain Smile (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146856.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Hidden Expedition 17: The Altar of Lies / Секретная экспедици�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146849.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ March of Shrooms (2023) [En] (m309e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146794.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Oxygen Cocktail (2023) [Ru/Multi] (1.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146617.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Hitman 2 (2018) [Ru/Multi] (2.72.0hf/dlc) Repack xatab [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146590.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146587.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Eternal Magic (2017) [Ru] (20.12.2019-0.5.23.ru) License Russian OBT
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146571.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146547.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Boiling Point: Road to Hell (2023) [Multi] (130759) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146379.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Death's Gambit (2018) [Multi] (1.2) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146369.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.47) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146339.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.03.00) Repack R.G. Catalyst
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146215.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146187.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146157.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ BioShock Remastered (2016) [Multi] (1.0.122872) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146116.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Command & Conquer Generals Zero Hour: World War II (2013) [Ru/En] (0.27) Repack/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146107.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Deadfall Adventures (2013) [Ru/En] (1.0.0.16352/dlc/tr) Repack =nemos= [Digital 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146102.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145967.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145884.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145793.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145640.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A045EBB3C9AB2D39974E352DC955D0CDFB7A074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087293   (145630) от 27.12.2016
+
+Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир рухнул. Надежды нет. Нельзя начать все с чистого листа. Остались только выжившие. Игра «Deadlight» рассказывает историю Рэндэла Уэйна — человека, ищущего свою семью в Сиэтле после событий 1980-х годов, во время которых вся жизнь на Земле была уничтожена.Тип издания: LicenseРазработчик: Tequila WorksЖанр: Action, Survival Horror, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:372CFC49215430A76E5ABB9FBB2F4EEB174EB8CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

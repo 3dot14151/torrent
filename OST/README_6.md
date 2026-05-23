@@ -6,7 +6,7 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805364.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805242.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Clinton Shorter - The Expanse / Пространство - Season One (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805123.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805013.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805005.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802092.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801881.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800552.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800503.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоров�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800500.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800494.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800424.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mark Mancina, VA - Moana / Моана (Оригинальный саундтре
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800324.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800022.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799196.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799183.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798852.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793960.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Henry Jackman - Первый мститель Противостояние / Cap
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793453.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793430.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788587.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785910.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack 2 (2020) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784247.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Fifty Shades Freed (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783770.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781784.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778944.jpg" />
 </div>
 
 

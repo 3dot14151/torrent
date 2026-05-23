@@ -1,29 +1,3 @@
-###  Публикация: 935483   (498196) от 09.09.2015
-
-Act of Aggression (2015) [En/Multi] (1.1) Official CODEX [Update 1]
-
->>Win Игры
->>Patch/Tweak/Trainer/Other для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Act of Aggression – стратегия в реальном времени, действие которой разворачивается в недалеком будущем в 2020-х годах. Игра сталкивает между собой три крупные фракции, сражающиеся за свои интересы. В результате того, что многие государства обанкротились, в мире случился массовый экономический кризис.Тип издания: Перепакованный официальный патчРазработчик: Eugen Systems
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E48D345C4C138E73FE3A3D447C4DF9D9E375E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935595   (498124) от 09.09.2015
 
 Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) License PLAZA
@@ -32,7 +6,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498124.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mystery Tales 3: Alaskan Wild (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497493.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Rite of Passage 4: The Lost Tides / Обряд посвящения 4: Проп�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497154.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mystic Legacy: The Great Ring / Мистическое наследие: Вла�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497120.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hamilton's Great Adventure (2011) [En/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497088.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Legends of Pegasus [Ru/En/Multi4] (Repack/1.0.0.4115) 2012 | R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496909.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Ball / The Ball: Оружие мертвых [Ru] (RePack/1.0.6698.0) 2010 |
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496900.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Pacific Storm: Allies / Стальные монстры: Союзники [Ru] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496530.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Haunted Manor 4: The Last Reunion / Особняк с призраками 4. В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496507.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496183.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496173.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Deadnaut (2014) [En] (1.2.3G) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495883.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Chimeras 2: The Signs of Prophecy / Химеры 2: Знаки пророчес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495693.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Dark Tales 8: Edgar Allan Poe's The Tell-tale Heart / Темные истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495679.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Amaranthine Voyage 5: The Orb of Purity / Вечное путешествие 5:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495676.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Frozen State (2016) [Ru/Multi] (1.00.271) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495671.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Insane Robots (2018) [En] (1.0.7/dlc) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495452.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Invasion 2: Doomed / Вторжение 2: Обреченные (2016) [Ru] (1.0
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495417.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Cross of the Dutchman (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495403.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Uventa (2018) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495351.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Minecraft (Server/12w34b) [En] 2012
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494988.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Death to Spies / Смерть шпионам Дилогия  [Ru] (RePack) 2007-
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494942.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ Binary Domain [Ru/En] (RePack/u2) 2012 l R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494878.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ Gatling Gears [En] (RePack) 2011 | DyNaMiTe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494809.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.65342) Repack DeMax-95
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494714.jpg" />
 </div>
 
 
@@ -680,6 +654,32 @@ Wind Peaks - это поисковая игра, вручную нарисова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FE05F58CA645C01DC420021ABD344847710F184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177285   (494385) от 06.08.2019
+
+Obduction (2016) [Ru/Multi] (1.8.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая адвенчура от авторов Myst и Riven. Obduction представляет собой классическую приключенческую игра с видом от первого лица на движке Unreal Engine 4. Нам предстоит путешествовать по удивительным, ярким локациям практически в полном одиночестве. Важным нововведением станет то, что история будет рассказываться через игровой процесс, а не с помощью видеороликов.Тип издания: LicenseРазработчик: Cyan Inc.Жанр: Adventure, 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B297E9331FF37A180713509A3CA5FF88D59CF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

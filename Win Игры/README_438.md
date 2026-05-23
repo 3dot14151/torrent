@@ -1,29 +1,3 @@
-###  Публикация: 1734462   (51212) от 03.07.2024
-
-STUFFED (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-STUFFED - это процедурно-генерируемый шутер от первого лица, действие которого происходит во сне маленькой девочки. Играя за плюшевого медвежонка, вы будете сражаться с кошмарами, защищая свою хозяйку. Играйте в одиночку или с друзьями в режиме совместной игры до 4 участников.Тип издания: RepackРазработчик: Waving Bear StudioЖанр: Экшены, Казуальные игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7B78AB22DEE0C0FEEAB8C75A44D12ACD88F8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734335   (51209) от 03.07.2024
 
 Supreme Ruler 2030 (2023) [Multi] (1303/dlc) Scene Tenoke
@@ -32,7 +6,7 @@ Supreme Ruler 2030 (2023) [Multi] (1303/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51209.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51208.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51194.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51156.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ IXION (2022) [Ru/Multi] (1.0.7.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51155.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Winkeltje: The Little Shop (2022) [Ru/Multi] (10793/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51152.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ KUNAI (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51151.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Good Company (2020) [Ru/Multi] (1.1.01/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51150.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ FlashBack 2 (2023) [Multi] (20240521) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51146.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ SlavicPunk: Oldtimer (2023) [Ru/Multi] (1.3.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51145.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51139.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Mountains of Madness (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51112.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51110.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ CRUELTY (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51106.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Monster Bash HD (2021) [En] (1.1.5.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51087.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Cookie Cutter (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51085.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Fish Game (2023) [En] (00.02.79) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51057.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51055.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Crystal Caves HD (2020) [En] (1.1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51045.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51044.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Forge Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51035.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51006.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51003.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51002.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51001.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ My Horse: Bonded Spirits ставит вас на место маловероя�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FAC8D1583F0EED384990200413920A6EAE57EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257962   (50942) от 06.07.2024
+
+Frozen Synapse 2 (2018) [En] (108) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frozen Synapse 2 предлагает классический для стратегий игровой процесс с одним существенным отличием: события игры разворачиваются внутри огромного процедурно сгенерированного города. Мы называем такой подход «тактикой открытого мира» - он сочетает в себе элементы масштабной стратегии и пошаговых боёв. В одиночной игре вам предстоит защитить город Гейст Маркова от (   Читать дальше...   )Тип издания: LicenseРазработчик: Mode 7Жанр: Стратегия, Пошаговая, ТактическаяЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269687001B92C5CD0B97298E2AE652F537185AAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

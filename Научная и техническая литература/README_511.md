@@ -1,134 +1,3 @@
-###  Публикация: 1424478   (226743) от 17.11.2020
-
-С.А.  Миленина | Электротехника, электроника и схемотехника 2-е изд. (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрены основные методы расчета установившихся и переходных процессов в электрических цепях, а также их приложения к наиболее распространенным в инженерной практике электронным схемам. Большое внимание уделено свойствам и характеристикам полупроводниковых элементов, а также их схемной реализации.
-Отдельные главы посвящены схемотехнике цифровых устройств. (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8626C9BF20E1870826F066513EC4B2FE44EBE4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342121   (226507) от 30.11.2019
-
-К.Э. Циолковский | Труды по ракетной технике (1947) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Весьма значительную часть из общего количества своих работ К. Э. Циолковский посвятил проблеме летания с помощью различных реактивных устройств. Без преувеличения можно сказать, что своим работам в этом направлении Циолковский придавал первостепенное значение. Непрерывно, одна за другой, до самой смерти Циолковского следуют статьи, заметки и расчеты, посвященные (   Читать дальше...   )Жанр: Физика, Техника, Теоретическая космонавтикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D69CFEA06CB395EF73D0CA2584A20823FDB00AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965325   (226445) от 14.12.2015
-
-М. С. Степанянц | Мусульманские концепции в философии и политике [XIX - XX вв.] (1982) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена выявлению общих закономерностей духовного развития мусульманских народов в период борьбы за национальное освобождение и после завоевания политической независимости. Рассматриваются реформаторские тенденции в трактовке философско-этических концепций в исламе. Критическому анализу подвергаются теории «исламского социализма» и «исламской демократии».Жанр: История, философия, политология, этика, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB4CD811B4C3E89F6A8EA9738D9C0E8FEAA1A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965281   (226414) от 14.12.2015
-
-А. А. Петров | Ван Чун - древнекитайский материалист и просветитель (1954) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о воззрениях китайского философа-энциклопедиста династии Хань Ван Чуна (ок. 27-104 гг. н.э.). Его обычно относят к «эклектикам» (цза цзя). Особенностью философствования Ван Чуна было постоянное обращение к данным естественных наук.Жанр: История, философия, политологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DAF43D723FEC6D53898D017D7AE323B259FF217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965504   (226387) от 14.12.2015
-
-Лариса Черкашина | Наталия Гончарова. Любовь или коварство? (2013) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Судьба замечательной красавицы XIX века Наталии Гончаровой и поныне окутана мифами, таит в себе множество неразгаданных тайн. Как ни странно, но описать ее жизнь, вместив во временные рамки детства, юности, зрелости, — невозможно. И все потому, что у Наталии Гончаровой поэтическая биография! И чтобы осмыслить, понять дар Наталии Гончаровой, её миссию, — должно было (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F20BF510E73F10FBDAB03791BF0E0D969259E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583459   (226273) от 17.10.2022
 
 Андрей Борисюк | Рекорды Империи. Эпоха Николая II (2019) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226273.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226119.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ T&P Books Publishing | Русско-турецкий тематическии�
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226080.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226034.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226006.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225949.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225902.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225901.jpg" />
 </div>
 
 
@@ -349,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225852.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225747.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225692.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225553.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225546.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225398.jpg" />
 </div>
 
 
@@ -510,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225138.jpg" />
 </div>
 
 
@@ -539,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225083.jpg" />
 </div>
 
 
@@ -565,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225080.jpg" />
 </div>
 
 
@@ -593,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225042.jpg" />
 </div>
 
 
@@ -620,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224995.jpg" />
 </div>
 
 
@@ -646,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224986.jpg" />
 </div>
 
 
@@ -672,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224983.jpg" />
 </div>
 
 
@@ -683,6 +552,143 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F20C0472FEF1EFF9FC41901662D2459C97A9E0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512734   (224973) от 28.11.2021
+
+К.А. Путилов | Курс физики [3 книги] (1963) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трёхтомный курс физики для университетов К.А. Путилова
+Первый том посвящён механике, акустике, молекулярная физике и термодинамике (одиннадцатое издание)
+Первый том посвящён электричеству (шестое издание)
+Первый том посвящён оптике, атомной и ядерной физике (второе издание)Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEDA28E9325ECDA0357FFCD34ACCB84EA9D7873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 69635   (224629) от 01.12.2019
+
+40 лучших конструкций ламповых УМЗЧ
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена специально для
+любителей лампового звука.
+Формат - pdfЖанр: Обучающие материалы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0192125424655AC1E2C31567506D03530FDD42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650717   (224600) от 03.08.2023
+
+Н.А. Сальков | Сборник задач по курсу начертательной геометрии (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224600.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник включены задачи по всем разделам курса начертательной геометрии. Предназначен для студентов, обучающихся по направлению 07.03.01 "Архитектура".
+Сборник может быть полезен для студентов вузов других направлений.Жанр: МатематикаИздательство: Инфра-МФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3906BBD3B5CFDADC7232213C6C75CBDFAE5052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 109212   (224586) от 01.12.2019
+
+А.М. Горбов | Справочник сантехника [2006] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даны рекомендации по установке и ремонту ванн, душевых кабин, раковин, унитазов и прочей сантехники, замене коммуникаций в квартире и т.д.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D935CB0143F4CE6AF4DF18DBA4DA2E5EC66226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965803   (224509) от 15.12.2015
+
+Светлана Хмелевская | Философия (2002) [FB2]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены общие вопросы, связанные с изучением философии: ее предмет, функции, роль в обществе, кратко изложена история философии, отдельно выделена тематика онтологии и гносеологии, философской антропологии.
+Для преподавателей и студентов юридических, а также иных вузов, где преподаются гуманитарные и социально-экономические дисциплины.Жанр: Философия, УчебникиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83659119A508AD33F9EF7BD3FF5666051D61CE0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

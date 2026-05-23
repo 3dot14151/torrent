@@ -1,108 +1,3 @@
-###  Публикация: 1340725   (263465) от 24.11.2019
-
-FIFA Street 3 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение знаменитой серии аркадных футбольных симуляторов FIFA Street, подарит вам красивый уличный футбол. Бурные эмоции, неподдельный азарт и всплеск адреналина, сопровождают любой матч среди бетонных стен, а упрощенная система управления, позволит осуществлять непостижимые финты и трюки.
-Действие FIFA Street 3 разворачивается в самых экзотических и необычных (   Читать дальше...   )Тип издания: LicenseРазработчик: EA CanadaЖанр: СпортЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D7D4707EFECD69725DBE25BB3A0BB4C90EFB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838467   (260857) от 23.11.2025
-
-Star Wars Jedi: Survivor / Звёздные войны Джедаи: Выживший (2023) [PS4] [HEN] [USA] 11.0 [License] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Скрывайтесь от Империи и выживайте в роли одного из последних джедаев галактики. Действие «Звёздные войны Джедаи: Выживший» происходит спустя пять лет после событий, описанных в «Звёздные войны Джедаи: Павший Орден»‎‎. Имперские войска преследуют Кэла - он всегда должен быть на шаг впереди. К тому же на его плечах тяжёлая ноша: он один из последних джедаев (   Читать дальше...   )Тип издания: LicenseРазработчик: Respawn EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7E1DE5AAA6FA1AA160EFC5815A4FB8E5CA542E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501814   (259753) от 30.05.2012
-
-[PS3] Comix Zone PSN PS3 [3.55] [Английский] (2010)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры рассказывает нам о Скетче Тернере - художнике и рок-музыканте, который работает над своим новым комиксом о вторжении инопланетян. Однажды ночью, во время грозы, в дом Тернера ударяет молния. Электрический разряд магическим образом отправляет Скетча в его нарисованный мир, где он теперь должен спасти Землю от пришельцев. Главный злодей Мортус, наоборот, из комиксов попадает в реальный мир, и оттуда всячески противодействует нашему герою.2010Жанр: ActionЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500010   (257360) от 23.05.2012
-
-[PSP] Persona 2: Batsu [JAP] (2012)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На город Сумару кто то наложил страшное проклятие, которое подобно инфекции стремительно распространяется. Более того уже началась серия жестоких убийств. Вам предстоит разобраться во всем этом круговороте мистики и ужасов. Кстати об ужасах. Моментов, способных изрядно пощекотать нервы предостаточно. Практически нигде вы не сможете чувствовать себя в полной безопасности. Многочисленные демоны и монстры, населяющие бесчисленные темные уголки мира будут преследовать вас на протяжении всей этой увлекательной игры...2012Жанр: JRPGЯзык интерфейса: JAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D958A7DC389A2CD4C74527A284DE349CF76966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226650   (255000) от 19.04.2023
 
 Transformers: Devastation (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -111,7 +6,7 @@ Transformers: Devastation (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255000.jpg" />
 </div>
 
 
@@ -137,7 +32,7 @@ Dead Space 3 (2013) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / DLC] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254602.jpg" />
 </div>
 
 
@@ -163,7 +58,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [EUR] 4.76 [Cobr
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254597.jpg" />
 </div>
 
 
@@ -189,7 +84,7 @@ Dead Island 2 Gold Edition (2023) [PS4] [EUR] [5.05] [HEN] [License / 1.03 / DLC
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254548.jpg" />
 </div>
 
 
@@ -215,7 +110,7 @@ Assassin's Creed III (2012) [PS3] [EUR] 4.31 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254451.jpg" />
 </div>
 
 
@@ -241,7 +136,7 @@ Scott Pilgrim vs. The World: The Game – Complete Edition (2021) [Switch] [USA]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252115.jpg" />
 </div>
 
 
@@ -267,7 +162,7 @@ Back 4 Blood (2021) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi] [Ul
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250240.jpg" />
 </div>
 
 
@@ -293,7 +188,7 @@ Shadow Warrior 3 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250218.jpg" />
 </div>
 
 
@@ -319,7 +214,7 @@ ELEX II (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250064.jpg" />
 </div>
 
 
@@ -345,7 +240,7 @@ WRC 10 FIA World Rally Championship (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249572.jpg" />
 </div>
 
 
@@ -371,7 +266,7 @@ Marvel’s Avengers – Deluxe Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249561.jpg" />
 </div>
 
 
@@ -397,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249002.jpg" />
 </div>
 
 
@@ -423,7 +318,7 @@ Blasphemous (2019) [Switch] [USA] 11.0.0 [NSZ] [License / DLC / 1.0.8] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247156.jpg" />
 </div>
 
 
@@ -449,7 +344,7 @@ The Outer Worlds (2020) [Switch] [USA] 11.0.1 [NSZ] [License / 1.0.3 / DLC] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247144.jpg" />
 </div>
 
 
@@ -475,7 +370,7 @@ Nioh 2 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246028.jpg" />
 </div>
 
 
@@ -501,7 +396,7 @@ Marvel's Guardians of the Galaxy / Стражи Галактики Marvel (2021)
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244502.jpg" />
 </div>
 
 
@@ -527,7 +422,7 @@ Zombie Army 4: Dead War (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.44 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244472.jpg" />
 </div>
 
 
@@ -553,7 +448,7 @@ Serious Sam Collection (2020) [PS4] [USA] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244157.jpg" />
 </div>
 
 
@@ -579,7 +474,7 @@ Crysis 2 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243666.jpg" />
 </div>
 
 
@@ -605,7 +500,7 @@ Jurassic World Evolution 2 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.12 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242386.jpg" />
 </div>
 
 
@@ -631,7 +526,7 @@ NHL 22 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.30] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241782.jpg" />
 </div>
 
 
@@ -657,7 +552,7 @@ Minecraft Dungeons (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.20 / DLC] [Ru/Mult
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241308.jpg" />
 </div>
 
 
@@ -668,6 +563,110 @@ Minecraft Dungeons (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.20 / DLC] [Ru/Mult
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCD4786221432FE44BD39FF759459F4578D83180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571041   (240316) от 20.08.2022
+
+LEGO Worlds (2017) [PS4] [EUR] 6.72 [HEN] [License / 1.19 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240316.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEGO® Worlds - это скопление миров, сделанных полностью из блоков LEGO. Все миры можно свободно менять и населять моделями из LEGO. Создавайте всё, что придёт вам в голову: строить можно по одному блоку или при помощи масштабных ландшафтных инструментов, которые позволят вам сделать целые горные хребты или усеять мир тропическими островами. Мир можно украсить на (   Читать дальше...   )Тип издания: LicenseРазработчик: TT Games, Traveller's TalesЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741A8E2BCB311E2E8DDAF436E7315EDFD3F14461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545431   (240226) от 21.04.2022
+
+Chernobylite (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.09] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chernobylite — научно-фантастическая ролевая игра в жанре ужасов с элементами выживания от студии The Farm 51. Отправляйтесь в невероятно реалистичную зону отчуждения, воссозданную с помощью 3D-сканеров, и играйте за ученого-физика Игоря Химинюка, ранее работавшего на Чернобыльской АЭС. Он вернулся в Припять, чтобы узнать, куда исчезла его невеста 30 лет назад. На (   Читать дальше...   )Тип издания: LicenseРазработчик: The Farm 51Жанр: Survival horrorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BA6E9C4579DFCC94095426F0005EA68751C637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571012   (240225) от 20.08.2022
+
+Bugsnax (2020) [PS4] [USA] 5.05 [HEN] [License / 2.08] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240225.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Bugsnax вас ждет чудное приключение на Вкусняшном острове, где обитают легендарные жуконямки — наполовину насекомые, наполовину вкусные угощения. По приглашению отважной исследовательницы Элизаберт Мегафиг вы прибываете на остров и обнаруживаете, что её нигде нет, в её лагере беспорядок, а её голодная живность разбрелась по всему острову! Решайте сами, хотите ли (   Читать дальше...   )Тип издания: LicenseРазработчик: Young HorsesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7D5B152BF4BE4D3DB6A77F13534DF114624BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572417   (239028) от 26.08.2022
+
+Kao the Kangaroo (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239028.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кенгуренок Као» — это невероятно красивый 3D-платформер, полный веселья, приключений и загадок! Отправляйтесь на поиски отца вместе с энергичным кенгуренком Као, попутно разгадывая множество загадок и тайн. Сражайтесь, решайте головоломки и преодолевайте препятствия в невероятно красочных локациях. Исследуйте загадочный мир и раскройте все его тайны.Тип издания: LicenseРазработчик: Tate Multimedia S.A.Жанр: AdventureЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3353D6E5F6B2D711BBCA397ADEBAC8693622024D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ O&O BlueCon Admin + Tech Edition 15.6 Build 6006 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791493.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrystalDiskMark 6.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791485.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat Pro DC 2019.010.20069 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791483.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DesktopOK 9.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791453.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Complete Internet Repair 5.0.1.3852 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791448.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2198 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791428.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MSI Kombustor 4.1.14.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791420.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Any Video Converter Professional 7.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791413.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Sonic Academy - ANA 2.0.3 r2 VSTi, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791409.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ WinNTSetup 3.8.8.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791408.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ AusLogics BoostSpeed 10.0.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791401.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MCS Drivers Disk 17.10.25.1390 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791400.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Skype 8.14.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791396.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Universal Media Creation Tool 15.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791389.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ IsMyHdOK 3.44 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791386.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Telegram Desktop 3.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791383.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ ExperienceIndexOK 3.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791381.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Machete 5.1 Build 11 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791380.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Pepakura Designer 4.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791368.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ GOM Player Plus 2.3.25.5282 RePack (&Portable) by Manshet [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791366.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ PeaZip 7.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791340.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ LDPlayer 3.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791331.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ CCleaner 5.87.9306 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791322.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Adobe Photoshop Lightroom Classic 11.0.0.10 Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791317.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ JRiver Media Center 28.0.81 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791315.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Glary Utilities Pro 5.143.0.169 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791309.jpg" />
 </div>
 
 

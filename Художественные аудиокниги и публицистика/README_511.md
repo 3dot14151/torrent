@@ -1,82 +1,3 @@
-###  Публикация: 1315875   (510901) от 22.07.2019
-
-Геше Джампа Тинлей | Мудрость и сострадание (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена теме мудрости и сострадания. В буддизме корнем реализации считается сострадание ко всем живым существам. Именно мудрое сострадание позволяет нам оказывать помощь живым людям. Поэтому эти два слова и звучат в названии данной книги…Жанр: ЭзотерикаПродолжительность: 09:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918856E709D8F43C27683BB6E2137D89C8688D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315933   (510894) от 22.07.2019
-
-Джо Шрайбер | Красный урожай (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эпоха Старой Республики — мрачное и опасное время, когда рыцари-джедаи отважно сражаются с владыками ситов и их безжалостными союзниками. Но у ситов есть планы, которые вызывают тревогу — прежде всего фанатичная мечта Дарта Скабруса, которая скоро станет кошмарной реальностью.Жанр: ФантастикаПродолжительность: 07:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0891B8720EE2897ABED31F3158683B6663A8F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231257   (510871) от 29.08.2010
-
-Алексей Степанов | Дезертир (S.T.A.L.K.E.R.) [2007] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда после Второй Чернобыльской катастрофы территория вокруг ЧАЭС превратилась в Зону, наполненную смертельно опасными аномалиями и хищными мутантами, войска ООН оцепили ее по периметру, чтобы ужас и безумие не вырвались из нее во внешний мир. Однако иногда жизнь человека складывается так, что приходится искать спасения на этой проклятой земле...
-Боец русского батальона (   Читать дальше...   )Жанр: Фантастика, Аудиокнига
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931434   (510782) от 27.08.2015
 
 Андрей Загорцев | Предатели (2015) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510782.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510767.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510731.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510522.jpg" />
 </div>
 
 
@@ -199,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509953.jpg" />
 </div>
 
 
@@ -225,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509854.jpg" />
 </div>
 
 
@@ -251,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509843.jpg" />
 </div>
 
 
@@ -277,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509475.jpg" />
 </div>
 
 
@@ -304,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509355.jpg" />
 </div>
 
 
@@ -332,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509288.jpg" />
 </div>
 
 
@@ -360,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509284.jpg" />
 </div>
 
 
@@ -387,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509223.jpg" />
 </div>
 
 
@@ -414,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509222.jpg" />
 </div>
 
 
@@ -440,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509219.jpg" />
 </div>
 
 
@@ -466,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509217.jpg" />
 </div>
 
 
@@ -493,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509214.jpg" />
 </div>
 
 
@@ -519,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509213.jpg" />
 </div>
 
 
@@ -545,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509212.jpg" />
 </div>
 
 
@@ -571,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509211.jpg" />
 </div>
 
 
@@ -598,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509206.jpg" />
 </div>
 
 
@@ -624,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509119.jpg" />
 </div>
 
 
@@ -650,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509118.jpg" />
 </div>
 
 
@@ -676,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509114.jpg" />
 </div>
 
 
@@ -687,6 +608,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CCBA87AC368143101D08B6EBFAF4D46F3B97F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562534   (509113) от 09.07.2022
+
+Лайон Спрэг де Камп | Такая работа (2020) [MP3, Максим Тарлавин (Scaners)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геолог и палеонтолог (Стэплз и Плэтт) сначала изобрели прибор для геологической разведки, затем для обнаружения скелетов вымерших животных. Восстановление древних животных в электролизной ванне по скелету и остаткам тканей. В каждой клетке содержится информация о всем организме в целом.Жанр: Ироническая фантастикаПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283A6E71BB54F5D51A08157228584A9DB836E184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562416   (509112) от 09.07.2022
+
+Джеймс Филлис Дороти | Корделия Грей (Книга 1). Неподходящее занятие для женщины (2022) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корделия Грей – начинающий частный детектив.
+
+Ее первое дело – расследование обстоятельств гибели Марка Келлендера, труп которого был обнаружен в загородном доме.
+Полиция считает, что юноша покончил с собой в состоянии депрессии – неожиданно бросив университет, он уехал за город и устроился работать садовником.(   Читать дальше...   )Жанр: ДетективПродолжительность: 09:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC5FDBEB100BB603A53B0DD2C4FA621E837E819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562514   (509107) от 09.07.2022
+
+Йен Пирс | Джонатан Аргайл (Книга 5). Рука Джотто (2022) [MP3, Кирилл Радциг]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509107.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Рука Джотто» – очередной роман в серии восхитительных интеллектуальных детективов Йена Пирса о преступлениях в мире искусства, которые расследуют английский искусствовед Джонатан Аргайл, следователь Флавия ди Стефано и генерал Боттандо. Детективы Йена Пирса – это изысканное пиршество для души и мозга.
+Преступления прошлого порой всплывают совершенно неожиданно. (   Читать дальше...   )Жанр: Зарубежные детективы, Исторические детективыПродолжительность: 08:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A08558CA24884B953508B7009C01C6842832FEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

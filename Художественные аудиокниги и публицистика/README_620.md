@@ -1,82 +1,3 @@
-###  Публикация: 956237   (330105) от 14.11.2015
-
-Джеймс Роллинс | Линия крови (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дочь президента США Аманда Гант бесследно исчезла с борта собственной яхты, подвергшейся нападению в районе Сейшельских островов. Следы ведут к древней и могущественной организации, известной как «Гильдия», с которой давно борется секретная спецгруппа «Сигма». Ее директору Пейнтеру Кроу становится известно, что некоторое время назад Аманда забеременела в результате (   Читать дальше...   )Жанр: ТриллерПродолжительность: 15:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9FBE67E79E49B5A91A548977829B6A820CD21C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956364   (330089) от 14.11.2015
-
-Тарас Асачёв | Палач (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Тёмная сторона».
-Можно ли рассчитывать на новую жизнь? Желать чего-то нового, приключений, любви и друзей. Новая жизнь – мечта и романтика. Можно об этом желать, если все так как вы планируете. А если новая жизнь будет без вашей памяти, там где вы не рассчитывали появиться? Уже не очень? А если судьба решит иначе, за вас и вы появитесь в странном (   Читать дальше...   )Жанр: Фантастика, попаданцы, иные мирыПродолжительность: 11:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AAEE12980958D068A113C9058C989D063D27BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580728   (329988) от 02.10.2022
-
-Иван Сергеевич Тургенев | Рудин (2010) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман «Рудин» написан в 1856 году. И.С. Тургенев ярче всех своих сверстников уловил тот момент единодушия общественных стремлений, когда все хоронили старое и, не предвидя никаких осложнений, надеялись на лучшее будущее. Он первый с необыкновенной силой изобразил и поворотный пункт эпохи, когда начался разброд и из среды сторонников новых веяний выделились два течения (   Читать дальше...   )Жанр: Классическая проза, РоманПродолжительность: 06:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A831EF4EF211C4121539356434D1736E9B66F4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580726   (329986) от 02.10.2022
 
 Иван Сергеевич Тургенев | Рудин (2007) [MP3, Александр Андриенко]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329986.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329929.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329926.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329820.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329812.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329811.jpg" />
 </div>
 
 
@@ -246,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329772.jpg" />
 </div>
 
 
@@ -272,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329766.jpg" />
 </div>
 
 
@@ -298,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329763.jpg" />
 </div>
 
 
@@ -326,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329432.jpg" />
 </div>
 
 
@@ -353,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329052.jpg" />
 </div>
 
 
@@ -379,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328975.jpg" />
 </div>
 
 
@@ -406,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328883.jpg" />
 </div>
 
 
@@ -434,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328804.jpg" />
 </div>
 
 
@@ -460,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328526.jpg" />
 </div>
 
 
@@ -488,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328512.jpg" />
 </div>
 
 
@@ -514,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328057.jpg" />
 </div>
 
 
@@ -540,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328051.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327893.jpg" />
 </div>
 
 
@@ -592,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327890.jpg" />
 </div>
 
 
@@ -619,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327839.jpg" />
 </div>
 
 
@@ -645,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327795.jpg" />
 </div>
 
 
@@ -671,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327698.jpg" />
 </div>
 
 
@@ -683,6 +604,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC38557AE25BD83C0F543658A9371DE4F5D4409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957012   (327558) от 17.11.2015
+
+Марк Твен | Американский претендент (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятные приключения ожидают молодого английского графа Росмора на просторах далеких Соединенных Штатов. В поисках "американской мечты" он находит своего дальнего родственника, "гениального" изобретателя, предпринимателя и чревовещателя - полковника Мельберри Селлерса, главным проектом которого была покупка Сибири для устройства в ней республики. (   Читать дальше...   )Жанр: Аудиокнига, зарубежная литература, классическая литератураПродолжительность: 08:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28C6B4146FE7E4B738CE8D955BD0CF92406E170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957010   (327546) от 17.11.2015
+
+Марк Твен | Банковский билет в миллион фунтов (2010) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невезучему американцу Генри Адамсу, кажется, наконец-то улыбнулась удача. Два брата-богача вручают ему конверт, в котором оказывается банковский билет в один миллион фунтов стерлингов. Благодаря билету Адамс начинает жить на широкую ногу: поселяется в шикарном отеле, обедает в лучших ресторанах. В газетах о нём пишут как об эксцентричном миллионере, везде ему всё (   Читать дальше...   )Жанр: Аудиокнига, зарубежная литература, классическая литератураИздательство: СоюзПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA79EBD4AADF6F50A275EEB0E315044783FB8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956921   (327499) от 17.11.2015
+
+Софья Ролдугина | Белая тетрадь (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ар-Нейт - это хроники эпохи перемен, история войны - но глазами не политика, не правителя и не бойца, а наивной девочки. Той, что ищет свое место в мире, меняющемся слишком быстро.  Той, что не умеет прокладывать маршруты по старым картам, и поэтому создает свою дорогу.
+Этот мир - колдовской. Здесь равейны, возлюбленные дочери Изначальных стихий, живут рядом с людьми; (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 15:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84504246D250B05DAC23FA1B31EA91B424B2E10
 ```
 
 https://mybot314.ru/tekegram_catalog/

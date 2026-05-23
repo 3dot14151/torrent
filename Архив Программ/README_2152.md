@@ -6,7 +6,7 @@ Capture One 23 Enterprise 16.4.0.2112 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56447.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mullvad Browser 13.0.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56443.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56442.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PotPlayer 240514 (1.7.22230) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56441.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WinRAR 7.01 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56436.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WinRAR 7.01 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56424.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Acrobat Pro 24.002.20759 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56423.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SketchUp Pro 2024 24.0.553 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56420.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Guitar Pro 8.1.2 Build 37 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56397.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VueScan Pro 9.8.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56396.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Windows Manager 2.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56393.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WinRAR 7.01 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56392.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WinRAR 7.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56386.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MAGIX Vegas Pro 21.0 Build 314 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56385.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Capture One 23 Enterprise 16.4.1.2127 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56383.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Google Chrome 125.0.6422.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56374.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ AMD Radeon Software Adrenalin Edition 24.5.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56373.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Wireshark 4.2.5 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56368.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Duplicate File Detective 7.2.74 ENTERPRISE EDITION RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56367.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe Bridge 2024 14.1.0.257 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56366.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ ZWCAD 2025 SP0 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56365.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Epic Pen Pro 3.12.148 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56364.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Psiphon 3 build 183 (14.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56360.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ NetLimiter 5.3.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56358.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ WinCatalog 2024.7.0.515 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56356.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ CyberLink PhotoDirector Ultra 15.4.1706.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56353.jpg" />
 </div>
 
 

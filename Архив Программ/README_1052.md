@@ -6,7 +6,7 @@ Master PDF Editor 5.8.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513413.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced SystemCare Pro 15.5.0.263 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513407.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hetman Partition Recovery 4.3 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513403.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ XviD4PSP 6.0.4 DAILY 9370 + Portable (x32) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513372.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hekasoft Backup & Restore 0.10 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513367.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Photo+ 7.5.0.222 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513357.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ OpenVPN 2.5.7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513333.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ EVGA Precision X 3.0.3 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513326.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ArtMoney SE 7.39.3 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513320.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Total Commander 10.50 final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513319.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ AppRemover 2.2.28.2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513318.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Clownfish for Skype 2.85 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513258.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Hiren's BootCD Pro 2.1 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513219.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Cobian Backup 11.2.0.580 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513144.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AMD ATI Mobility Catalyst Display Drivers 12.8 WHQL + Application Profiles 12.7 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513143.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Rob Papen - SubBoomBass 2 1.0.1a VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513102.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ SRWare Iron 68.0.3550.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513063.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Rob Papen - BLUE II 1.0.3a VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513058.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Rob Papen - Go2 1.0.1a VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513054.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ FontViewOK 4.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512923.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Rob Papen - Predator 2 1.0.4 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512884.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ WinScan2PDF 3.01 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512873.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ IsMyHdOK 1.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512870.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ GetWindowText 2.72 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512862.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Aiseesoft Screen Recorder 2.1.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512858.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Maxthon Browser 3.0.17.1000 - Final [Мультиязычный, включая 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512849.jpg" />
 </div>
 
 

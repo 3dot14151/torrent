@@ -6,7 +6,7 @@ Rolled Up Sleeves - Pointless. (2018) EP [MP3|320 Kbps] <Alternative Rock, Hard 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444787.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Papadosio - Extras In A Movie (2015) [OGG| 399-563 кб/с]<Alternative, Electro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442939.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ R.E.M. - Document (1987) 2012 (25th Anniversary Edition) Deluxe Edition, 2 CD [M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441539.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Tori Amos - Native Invader (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441311.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Inhibitor - Abhorrence (2020) EP [MP3|320 Kbps] <Deathcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440958.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Brumadensa - Brumadensa (2020) [MP3|320 Kbps] <Melodic Death, Groove Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440957.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Collective Soul - See What You Started By Continuing (2015) 2CD Walmart Deluxe E
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440509.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Kings Of Leon - Walls (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439423.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Korn - The Nothing (2019) [MP3|320 Kbps] <Alternative Metal, Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439345.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Deaf Havana - The Present Is a Foreign Land (2022) [MP3|320 kbps] <Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434034.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Marilyn Manson - We Know Where You Fucking Live (2017) Single [MP3|320 Kbps] <Al
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432344.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Foo Fighters - Concrete And Gold (2017) [MP3|320 Kbps] <Alt. Rock, Post-Grunge, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432326.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ IDLES - Ultra Mono (2020) [MP3|320 Kbps] <Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431929.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Papadosio - To End The Illusion Of Separation (T.E.T.I.O.S.) (2012) 2CD[OGG|484-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431670.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Jamie Lenman - King of Clubs (2020) [MP3|320 Kbps] <Experimental Metal, Hardcore
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429834.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Nasty - Menace (2020) [MP3|320 Kbps] <Hardcore Punk, Beatdown Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429828.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Deftones - Ohms (2020) [MP3|320 Kbps] <Nu-Metal, Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429465.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ The Hardkiss - Stones and Honey (2014) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428251.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Thousand Foot Krutch - Untraveled Roads (2017) Live [MP3|320 Kbps] <Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428175.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Svalbard - When I Die, Will I Get Better? (2020) [MP3|320 Kbps] <Post-Hardcore, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427629.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ The Pretty Reckless - Who You Selling For (2016) [MP3|320 Kbps] <Alt.Rock, Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423616.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Bellusira - The Healing (2015) [MP3|320 кб/с]<Alt. Metal, Female Vocal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422664.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Zebrahead - Walk The Plank (2015) Japanese Edition [MP3|320 кб/с]<Punk-Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422567.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ The Hardkiss - Залізна ластівка (2018) [MP3|320 kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421735.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Marilyn Manson - Heaven Upside Down (2017) [MP3|320 Kbps] <Alternative Rock, Hea
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418904.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Cold - The Things We Can't Stop (2019) [MP3|320 Kbps] <Alternative Rock, Post-Gr
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418842.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ TG Pro (Temperature Gauge Pro) 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980171.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SUMo Pro 4.2.7.300 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980169.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980163.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PhoneClean Pro 4.0.3 (20150107) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980160.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Nightfall - Cassiopeia (2013) [FLAC|Lossless]<Black  / Gothic Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980135.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Daniel Domenge - Lost in My Thoughts (2013) [MP3|320 кб/с]<Smooth Jazz, Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980134.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ My Reflection - Dreamland Drowning (2012) [MP3|320 кб/с]< Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980132.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Roger Shah - Music for Balearic People 246 (2013-02-01) [MP3|256 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980131.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ SynWrite Editor 4.7.700 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980129.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ BurnAware Professional 6.0 Final Portable by SamDel [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980127.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ EZ CD Audio Converter 1.0.6 Ultimate Portable by SamDel [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980122.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ DVDFab 9.0.2.5 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980119.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Perpetual Loop - Nocturnal Symbiosis (2015) [MP3|320 кб/с] <Psybient, Downtem
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980116.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Eluveitie - Helvetios (2012) [MP3|192-320 kbps]<Folk/Melodic Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980095.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980077.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980074.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Process Lasso Pro 6.0.2.44 RePack/Portable by D!akov [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980070.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ AnyDVD & AnyDVD HD 7.1.4.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980069.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980060.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Dokuta Suranpu / Dr. Slump: Arale-chan / Доктор Сламп [1981, TV-се�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980056.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Nicolas Eymerich Inquisitor - Book 1: The Plague v.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980051.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Restore Point Creator 3.4 Build 17 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980046.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ LC Technology RescuePRO Deluxe 5.2.5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980039.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980012.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ BurnAware Professional 6.0 Final RePack (& Portable) by KpoJIuK [MULTi / Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980009.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ iFFmpeg 3.5.0 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980003.jpg" />
 </div>
 
 

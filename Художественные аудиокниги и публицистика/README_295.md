@@ -1,81 +1,3 @@
-###  Публикация: 1385579   (797206) от 25.05.2020
-
-Татьяна Гармаш-Роффе | Частный дeтектив Алексей Кисанов (Книга 20). И нет мне прощения (2020) [MP3, Светлана Сенчева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если б людям было дано умение предугадывать ход событий!.. Тогда бы Аида не пошла на свидание в сад «Аквариум», тогда бы Манон, ее сестра, не согласилась на встречу со своим новым поклонником! И не случилось бы беды, и не пришлось бы частному сыщику Алексею Кисанову отложить долгожданный отпуск… Но полиция просит его помощи. Два жестоких и загадочных убийства. Исчезновение (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AF1B9B6658FAF39C3C05CD54F6428D1D4AD5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385580   (797200) от 25.05.2020
-
-Татьяна Гармаш-Роффе | Частный детектив Алексей Кисанов (Книга 23). Легкое дыхание лжи (2020) [MP3, Светлана Сенчева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Старший сын детектива Алексея Кисанова Роман приезжает в деревенский дом своего друга. В окне соседнего особняка он видит девушку… А вскоре выясняется: Милу там держит насильно некий «спонсор», обманом заполучивший ее в свои сети. Она просит Романа о помощи. Памятуя методы своего отца-детектива, Роман старается детально и технично продумать план побега, предусмотрев (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6837DD7E18B4FF617187CA3697E4C935CE015BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385588   (797195) от 25.05.2020
-
-Галина Куликова | Ураган по имени Глаша, или Рецепт дорогого удовольствия (2020) [MP3, Лилия Малчевская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Босс Глаши Медвянской Петр знал, что девушка она бесстрашная и находчивая. А значит, найдет его пропавшую жену Сузи. В милицию он не заявлял – боялся огласки, ведь в прошлом Сузи была девушкой по вызову. Решив, что супруга взялась за старое, Петр следил за женой. Последний раз он видел ее ночью на кладбище. Чуть позже сам Петр был убит в собственной квартире. В этот (   Читать дальше...   )Жанр: Иронический детективПродолжительность: 05:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CAD7684C4243E84B5989284F3C601B021B904F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385583   (797194) от 25.05.2020
 
 Татьяна Гармаш-Роффе | Частный визит в Париж (2020) [MP3, Светлана Сенчева]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797194.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797192.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797162.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797143.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797106.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797105.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797069.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797034.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797027.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797024.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796989.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796956.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796947.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796904.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796881.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796872.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796830.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796798.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796742.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796738.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796735.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796670.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796665.jpg" />
 </div>
 
 
@@ -677,6 +599,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70345C691F50AA23D33E4F12F21F7767914F557F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385754   (796663) от 26.05.2020
+
+Татьяна Гармаш-Роффе | Ягоды страсти, ягоды смерти (2012) [MP3, Наталья Гуревич]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он приблизился к бочкам. Здесь ягоды винограда, по его разумению, отдавали душу. Отдавали в сок, которому вскоре суждено стать вином. Превращение солнечных ягод в солнечный напиток по имени вино ему казалось великим чудом и таинством, и сейчас у него впервые появилась возможность присутствовать при чуде и таинстве.
+Взяв в руки шест, Коля медленно начал круговорот (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCE7802D1D50B46560524832B021EC817A3B356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385761   (796661) от 26.05.2020
+
+Арчибалд Джозеф Кронин | Древо Иуды (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полуголодное детство и юность Дэвида Мори нельзя назвать счастливыми... Зато теперь, в зрелые годы, он может наслаждаться роскошной жизнью в Швейцарии, посещать престижные приемы в высшем обществе во Франции или оперные премьеры в Италии. Он может позволить себе коллекционировать работы импрессионистов.
+Но все это плата. Те тридцать сребреников, которые он, подобно (   Читать дальше...   )Жанр: РеализмПродолжительность: 12:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6AFEB6783D53F3CA8B471EE536FC181C4FCFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385760   (796654) от 26.05.2020
+
+Тана Френч | Тень за спиной (2020) [MP3, Юлия Яблонская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796654.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тень за спиной» – новый роман из Дублинского цикла королевы ирландского детектива.
+Антуанетта Конвей и Стивен Моран, блестяще раскрывшие убийство в романе «Тайное место», теперь официальные напарники. В отделе убийств их держат в черном теле, поручают лишь заурядные случаи бытового насилия да бумажную волокиту. Но однажды их отправляют на банальный, на первый взгляд, (   Читать дальше...   )Жанр: ДетективПродолжительность: 18:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26ACDF0E7ED635A8B7EC9C194A2695979CDFCF16
 ```
 
 https://mybot314.ru/tekegram_catalog/

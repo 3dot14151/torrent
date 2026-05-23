@@ -1,190 +1,3 @@
-###  Публикация: 851683   (226681) от 19.12.2014
-
-Ubuntu Gnome 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый Alpha релиз 15.04 Vivid Vervet Alpha I, отличающийся от основного релиза DE, в котором вместо Unity используется традиционный Gnome. Комитет по техническому развитию Ubuntu (Ubuntu Tech Board) утвердил придание сборке Ubuntu с десктоп-окружением GNOME статуса официального ответвления от Ubuntu.
-
-Ubuntu — это разрабатываемая Canonical, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит все необходимые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD75BA65E81009B7D59054B8B97A98EA3C5B6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736442   (226455) от 19.12.2013
-
-openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Команда OpenSUSE Education с гордостью представляет еще одну версию OpenSUSE - Education Li-f-e (Linux образования) на основе OpenSUSE 13.1 Li-f-e поставляется со всем, что может понадобится для студентов, родителей, учителей и системных администраторов образовательных учреждений. В релиз включено программное обеспечение для математики, химии, астрономии; а также ПО для образовательных серверов KIWI-LTSP, Fedena, ERP, система Moodle для управления образовательным курсом, с полной поддержкой мультимедиа , графики, офисный пакет, многих популярных языков программирования, в том числе AMP, Java, C, C + +, Python и Ruby, последние стабильные GNOME и KDE рабочие столы, добавлен Cinnamon.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017AF542CB49FE6B41693AE32461D2C64E850EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736561   (223895) от 20.12.2013
-
-Kubuntu 14.04 Alpha I [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый альфа релиз следующей версии Kubuntu Trusty. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 14.04 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667E8F1C1CBD5174F0063875A8C5D2483356C1EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966169   (222223) от 16.12.2015
-
-Tor Browser 5.0.5 [анонимный доступ в сети] [х86, x64] (bundle)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEE4337C7EB0A46017E81E645B375F835F5A935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514129   (219342) от 02.12.2021
-
-Ubuntu*Pack 20.04 GNOME (ноябрь 2021) [amd64] DVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50131200867256C8AA90AE5F1C0CD2B30C7DAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514125   (219317) от 02.12.2021
-
-Ubuntu*Pack 20.04 Budgie (ноябрь 2021) [amd64] DVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B332389DF6594B55A60A186785EB5BAE1D80745B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514128   (219311) от 02.12.2021
-
-Ubuntu*Pack 20.04 (ноябрь 2021) [amd64] DVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9760F1290940654EF355E26FC2FEAAA9B57CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514126   (219260) от 02.12.2021
 
 Ubuntu*Pack 20.04 Cinnamon (ноябрь 2021) [amd64] DVD
@@ -193,7 +6,7 @@ Ubuntu*Pack 20.04 Cinnamon (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219260.jpg" />
 </div>
 
 
@@ -220,7 +33,7 @@ Ubuntu*Pack 20.04 GNOME Classic (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219211.jpg" />
 </div>
 
 
@@ -247,7 +60,7 @@ Ubuntu*Pack 20.04 DDE (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219199.jpg" />
 </div>
 
 
@@ -274,7 +87,7 @@ Ubuntu*Pack 20.04 GNOME Flashback (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219188.jpg" />
 </div>
 
 
@@ -301,7 +114,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218965.jpg" />
 </div>
 
 
@@ -328,7 +141,7 @@ Ubuntu*Pack 20.04 MATE (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218776.jpg" />
 </div>
 
 
@@ -355,7 +168,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218746.jpg" />
 </div>
 
 
@@ -382,7 +195,7 @@ Ubuntu*Pack 20.04 Unity (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218665.jpg" />
 </div>
 
 
@@ -409,7 +222,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218393.jpg" />
 </div>
 
 
@@ -436,7 +249,7 @@ Sabayon 14.01 [x86] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218257.jpg" />
 </div>
 
 
@@ -464,7 +277,7 @@ Sabayon 14.01 [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218181.jpg" />
 </div>
 
 
@@ -492,7 +305,7 @@ Tor Browser 5.0.6 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217729.jpg" />
 </div>
 
 
@@ -518,7 +331,7 @@ Ubuntu*Pack 20.04 GNOME LikeWin (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216737.jpg" />
 </div>
 
 
@@ -545,7 +358,7 @@ PCLinuxOS 2014.12 KDE FullMonty [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215748.jpg" />
 </div>
 
 
@@ -571,7 +384,7 @@ openSUSE Leap 15.4 [x86_64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213377.jpg" />
 </div>
 
 
@@ -598,7 +411,7 @@ Kali Linux 2022.2 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213178.jpg" />
 </div>
 
 
@@ -624,7 +437,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.4
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212758.jpg" />
 </div>
 
 
@@ -650,7 +463,7 @@ Debian Edu - Skolelinux 11.4.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212719.jpg" />
 </div>
 
 
@@ -676,7 +489,7 @@ MiniOS Ultra 11.4.0
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212498.jpg" />
 </div>
 
 
@@ -688,6 +501,194 @@ Ultra - самая (   Читать дальше...   )
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B5FBE4BE78B030B5DBB1E6B8815E2D18F337CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563266   (212486) от 16.07.2022
+
+MiniOS Maximum 11.4.0
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212486.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniOS - портативный модульный дистрибутив Linux на базе Debian, собранный с помощью скриптов minios-live, основной целью которого является предоставить пользователю полноценную, комфортную рабочую среду для работы, развлечений и творчества в любом месте и на любом x86-совместимом оборудовании, сохраняя ваши личные данные на съёмном носителе информации.
+Maximum - (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B0935225FD773B58AB81E754FD36145C2045FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564861   (212267) от 23.07.2022
+
+Kubuntu 22.04 LTS (Jammy Jellyfish) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212267.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 апреля 2022 вышел релиз Kubuntu 22.04 Jammy Jellyfish (Медуза Джимми). Поддержка этого релиза с долгосрочным сроком поддержки (Long Time Release) релиз будет поддерживаться до апреля 2027 года.
+Проект является частью проекта Ubuntu и использует его основу. Есть возможность установить как графическое окружение KDE (пакет kubuntu-desktop), так и окружение GNOME (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECED065042115825725E081C81084DA29FA7802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567661   (211179) от 04.08.2022
+
+Slax 15.0 [amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slax это миниатюрный дистрибутив, базирующийся на Slackware. Данный дистрибутив не требует инсталляции на жесткий диск, загружается со сменных носителей (таких как USB flash drive или CDROM). В качестве одной из функций дистрибутива предусмотрена работа из оперативной памяти компьютера (то есть он загружается в память и освобождает носитель с которого был загружен). (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC24980799ACF7FD0BFC1306134A6CACEAA3276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644968   (209558) от 07.07.2023
+
+Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4740446D3A15490C24EF93638999F8C13BF071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644814   (209553) от 07.07.2023
+
+Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7A5C7C629EDE6FF5253A5E10B9417203ECCF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644963   (209548) от 07.07.2023
+
+Ubuntu*Pack 20.04 Xfce / Xubuntu (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B12F04F91AB64BD712D1B67D022713BD3DA0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644973   (209544) от 07.07.2023
+
+Ubuntu*Pack 20.04 LXqt / Lubuntu (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1562D6956EF3AE0A78D21AF1EC76A11A0154EC86
 ```
 
 https://mybot314.ru/tekegram_catalog/

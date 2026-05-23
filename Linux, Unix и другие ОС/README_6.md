@@ -1,31 +1,3 @@
-###  Публикация: 641565   (880799) от 10.04.2013
-
-OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Разработчики OS4 (ранее проект носил название PC/OS) выпустили очередной новый релиз своего дистрибутива. OS4 представляет собой дружественный к пользователю настольный и серверный дистрибутив на базе Xubuntu, его основными особенностями являются поддержка многих популярных плагинов для браузеров, дополнительное ПО для работы с мультимедиа, создания контента и разработки, а также инновационная компоновка рабочего стола.
-
-Релиз OS4 Workstation 13.4 доступен для архитектур 32- и 64-бит, среди его компонентов – ядро 3.2.0,  Firefox 20.0; Thunderbird 17.0.4; Google Maps сменивший Nokia Maps, а также многое другое. Существенные изменения были внесены в более чем 200 пакетов. Ранее в дистрибутив были включены новые системные темы на базе Radiance и Ambiance, новые границы окон, интегрированное главное меню.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764664   (879650) от 09.03.2014
 
 Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
@@ -34,7 +6,7 @@ Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879650.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ Tails 0.23 RC1 [анонимный доступ в сети] [i386] 1xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879367.jpg" />
 </div>
 
 
@@ -90,7 +62,7 @@ Cinnarch 2013.04.05 [i686 + x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877630.jpg" />
 </div>
 
 
@@ -118,7 +90,7 @@ KaOS Linux 2016.03 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876774.jpg" />
 </div>
 
 
@@ -144,7 +116,7 @@ PCLinuxOS 2013.04 KDE FullMonty [i586] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872755.jpg" />
 </div>
 
 
@@ -172,7 +144,7 @@ Manjaro Linux 0.8.5 (Arch с несколькими рабочими стола�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871036.jpg" />
 </div>
 
 
@@ -206,7 +178,7 @@ ROSA Marathon 2012 RP2 (Enterprise Desktop X1) (Национальная про�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863503.jpg" />
 </div>
 
 
@@ -234,7 +206,7 @@ OSGeo-Live 9.0 (Дистрибутив для географов, картогр
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862661.jpg" />
 </div>
 
 
@@ -260,7 +232,7 @@ MovieShot 1.0 [x86] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862526.jpg" />
 </div>
 
 
@@ -289,7 +261,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [i686] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860789.jpg" />
 </div>
 
 
@@ -319,7 +291,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [x86-64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860592.jpg" />
 </div>
 
 
@@ -349,7 +321,7 @@ Foresight Linux 2.5.3 [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860583.jpg" />
 </div>
 
 
@@ -377,7 +349,7 @@ Scientific Linux 6.4 Live [i386] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860219.jpg" />
 </div>
 
 
@@ -405,7 +377,7 @@ Pear Linux 7.0 [amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859921.jpg" />
 </div>
 
 
@@ -435,7 +407,7 @@ Bugtraq II Black Widow beta (хакинг и анализ безопасност
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859920.jpg" />
 </div>
 
 
@@ -463,7 +435,7 @@ Scientific Linux 6.4 Live [x86-64] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859818.jpg" />
 </div>
 
 
@@ -491,7 +463,7 @@ Box Shot 3D 2.10 [En] [x86, x64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857171.jpg" />
 </div>
 
 
@@ -518,7 +490,7 @@ Pinguy OS 14.04.4-1 [i686, x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853625.jpg" />
 </div>
 
 
@@ -544,7 +516,7 @@ Kubuntu 13.04 Raring Ringtail [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852493.jpg" />
 </div>
 
 
@@ -570,7 +542,7 @@ Xubuntu 13.04 [i386, amd64] (2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852490.jpg" />
 </div>
 
 
@@ -600,7 +572,7 @@ Edubuntu 13.04 (Ubuntu для школ и вузов) [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852486.jpg" />
 </div>
 
 
@@ -628,7 +600,7 @@ CAE Linux 2018 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846138.jpg" />
 </div>
 
 
@@ -654,7 +626,7 @@ Debian GNU/Linux 8.4.0 Jessie [amd64] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843124.jpg" />
 </div>
 
 
@@ -680,7 +652,7 @@ Sabayon 13.04 (CoreCDX, HardenedServer, ServerBase, SpinBase) [x86, x86-64] (4xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841564.jpg" />
 </div>
 
 
@@ -708,7 +680,7 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841482.jpg" />
 </div>
 
 
@@ -717,6 +689,36 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86-64] (4xDVD)
 Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
 
 Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux kernel 3.8.8 с поддержкой BFQ iosched и ZFS, GNOME 3.6.3, KDE 4.10.2, MATE 1.6, Xfce 4.10, LibreOffice 4.0. Включена полная поддержка EFI/UEFI и поддержка UEFI SecureBoot, существенно улучшена поддержка NVIDIA Optimus.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 651019   (841481) от 01.05.2013
+
+JonDo 0.9.42 (Анонимный доступ в сети) [x86] (DVD, CD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел корректирующий релиз дистрибутива JonDo  - 0.9.42
+
+Jondo Live-CD / DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. JonDoBrowser предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail для электронной почты, Pidgin для анонимного обмена мгновенными сообщениями и чатов. Медиа-плеер сохраняет  анонимность метаданных.  Присутствует Toolkit для очистки документов и изображений и многие другие приложения содержащиеся на CD/ DVD частью Live-CD.
+
+Версия DVD содержит дополнительное программное обеспечение: I2P и GNUnet, LibreOffice.org, GIMP, Bluegriffon для разработки веб-сайта, Calibre для электронных книг и некоторые другие инструменты.
 
 ## Скачать торент
 ```bash

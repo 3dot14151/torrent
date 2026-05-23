@@ -7,7 +7,7 @@ Soulstone Survivors (2025) [Ru/Multi] (1.5c) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069737.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fight Life Vanguard (2026) [Ru/Multi] (1.2.0.655) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069581.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Valor of Man (2026) [Multi] (1.1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069320.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack FitGirl [Super Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067743.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mass Effect 3 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067709.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack FitGirl [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067707.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mass Effect 2 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067693.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack dixen18 [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067682.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Look Outside (2025) [En] (2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067087.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.5/dlc) Repack HardwareMining
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066484.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Weird RPG 2 (2026) [Ru/Multi] (1.0.37) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065699.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064762.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Ai Limit (2025) [Ru/Multi] (Build 22521250/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064424.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ tawarerumono: ZAN 2 (2026) [Multi] (22071867/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064302.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Hard
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063765.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326) Repack dixen18 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063602.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Across the Obelisk (2021) [Ru/Multi] (1.7.5/dlc) Repack Let'sРlay [Complete Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062933.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Lost Soul Aside (2025) [Ru/Multi] (1.101/dlc) Repack HardwareMining [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062884.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062765.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Solasta: Crown of the Magister (2020) [Ru/Multi] (1.5.97/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062541.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack Other s [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062319.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack FitGirl [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062318.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Under The Island (2026) [Multi] 1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062083.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dragon Quest I and II HD: 2D Remake (2025) [Multi] (1.0.2.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061708.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (3.0.91735/dlc) Repack Decepticon [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061644.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack FitGirl [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061592.jpg" />
 </div>
 
 

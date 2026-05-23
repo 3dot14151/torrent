@@ -6,7 +6,7 @@ Gilisoft Secure Disc Creator 7.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850270.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mirillis Splash 2.0.3.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850267.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 7.22.32.107 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850264.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AdwCleaner 5.108 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850254.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Opera 36.0.2130.46 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850253.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinUtilities Professional Edition 14.51 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850234.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PicturesToExe Deluxe 9.0.3 Portable by Sitego [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850233.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ GridinSoft Anti-Malware 3.0.31 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850216.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mirillis Splash 2.0.3.0 Premium RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850211.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Restore Desktop Icon Layouts 1.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850204.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wise Care 365 Pro 4.56.431 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850195.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Extreme Picture Finder 3.33.1.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850193.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Allavsoft Video Downloader Converter 3.22.4.7405 DC 23.04.2020 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850162.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Mirillis Splash 2.0.3.0 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850123.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850106.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ GPU Caps Viewer 1.33.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850103.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BestReminder v2020.04.22.22 Covid Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850087.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ GeoGebra 6.0.578.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850080.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Q-Dir 8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850078.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Vivaldi 3.0.1874.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850077.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ R-Studio 7.8 Build 161189 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850056.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Gilisoft RAMDisk 6.6.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850055.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Vit Registry Fix Pro 12.7 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850054.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ GoldWave 6.27 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850027.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Opera 68.0.3618.46 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849998.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Cent Browser 4.2.10.169 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849995.jpg" />
 </div>
 
 

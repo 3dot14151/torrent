@@ -1,55 +1,3 @@
-###  Публикация: 1243400   (489477) от 28.08.2018
-
-Этот неловкий момент / Un moment dеgarement (2015) BDRip [H.264/1080p-LQ] RUS Transfer
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Два закадычных друга со своими дочерьми проводят отпуск на Корсике, где на солнечных пляжах в 42-летнего отца семейства влюбляется соблазнительная 18-летняя красотка. Все бы ничего, да только прелестная девушка является дочерью лучшего друга — строгого отца, грозящего пристрелить любого, кто подойдет ближе, чем на шаг, к обожаемой малышке.Производство: Франция, Бельгия / La Petite Reine, Orange Studio, France 2 CinemaЖанр: Мелодрама, КомедияРежиссер: Жан-Франсуа РишеАктеры: Венсан Кассель, Франсуа Клюзе, Лола Ле Ланн, Алис Исааз, Лука Мельява, Ноэми Мерлан, Ромейн Апельбаум, Филипп Наон, Франсуа Бергуан, Аннелиз ЭмПеревод: Дублированный (BD RUS)Субтитры: ФранцузскиеПродолжительность: 01:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66349DD8277F04B140A18D8A0B00FC55E3C7A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544767   (489476) от 08.09.2012
-
-Повернуть время вспять / Les temps qui changent (2004) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Немолодой инженер Антуан Лаво приезжает в Танжер работать в большой строительной компании. Но помимо работы, в этом знаменитом марокканском городе у него есть и тайная цель: Антуан надеется отыскать красавицу Сесиль — ту единственную, которая стала любовью всей его жизни и которую он так и не смог забыть. И там, среди песков и миражей, происходит чудо: встретившиеся после тридцатилетней разлуки влюбленные очертя голову погружаются в повторный бурный роман…Жанр: Драма, МелодрамаРежиссер: Андре ТешинеАктеры: Катрин Денёв, Жерар Депардье, Жильбер Мелки, Малик Зиди, Лубна Азабаль, Таня Лопер, Набила Барака, Идир Эломри, Надем Рашати, Джабир ЭломриПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6C6F18559E04A016BA49837F778769F6699415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243700   (489461) от 28.08.2018
 
 Правда или действие / Truth or Dare (2018) BDRip [Extended Cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489461.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489431.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489429.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489426.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489420.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489419.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489417.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489415.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489390.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489386.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489364.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489356.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489354.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489353.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489342.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489277.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489274.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489266.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489218.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489197.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489174.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489144.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489071.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489037.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:691FB5196F17909B57B7DDFC96E073EF17B84FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402739   (488983) от 27.08.2020
+
+Средь бела дня / The Cold Light of Day (2012) BDRip [H.264/1080p] [Open Matte] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испания, море, яхта – отпуск с поднадоевшей молодому Уиллу Шоу компанией родственников... Никто не мог предположить, что уже через несколько часов палуба яхты обагрится кровью, а члены семьи Шоу станут заложниками в руках неизвестных. В поисках родных Уилл невольно узнает о государственном заговоре и раскрывает тайны своего отца. У парня всего несколько часов, чтобы (   Читать дальше...   )Производство: США, Испания / Summit Entertainment, Intrepid Pictures, Galavis FilmЖанр: боевик, триллерРежиссер: Мабрук Эль МекриАктеры: Генри Кавилл, Сигурни Уивер, Брюс Уиллис, Вероника Эчеги, Джозеф Моул, Кэролайн Гудолл, Рафи Гаврон, Эмма Хэмилтон, Рошди Зем, Оскар ХаэнадаПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6141C9FD88963B391571D24C62F10DE6BC2E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379733   (488971) от 27.08.2020
+
+Призраки: Лучшая участь / Spooks: The Greater Good (2015) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда террорист убегает из-под опеки в ходе передачи, Уилл Кромби должен объединиться с опальным шефом разведки MI5 Гарри Пирсом, чтобы разыскать его перед неминуемой террористической атакой на Лондон.Производство: Великобритания / Shine Pictures, Kudos Film and Television, Pinewood PicturesЖанр: боевик, триллер, драмаРежиссер: Бхарат НаллуриАктеры: Майкл Уилдман, Таппенс Мидлтон, Джеффри Стретфилд, Питер Фёрт, Эллиот Леви, Мэттью Уолкер, Элиес Габел, Дэвид Хэрвуд, Дженнифер Эль, Тим МакиннерниПеревод: Профессиональный многоголосый закадровыйСубтитры: Русские (форсированные)Продолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8270DAAC1FC6B046C43C8D37BA40F958BBB266D
 ```
 
 https://mybot314.ru/tekegram_catalog/

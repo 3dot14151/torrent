@@ -1,109 +1,3 @@
-###  Публикация: 1052952   (526607) от 16.09.2016
-
-Александр Даргомыжский - Каменный гость (1966) DVBrip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм-опера, по одноименной опере А.С. Даргомыжского на сюжет трагедии А.С. Пушкина.Производство: СССР, МосфильмЖанр: Фильм-опера, драмаРежиссер: Владимир ГориккерАктеры: Владимир Атлантов, Ирина Печерникова, Тамара Милашкина, Евгений Лебедев, Александр Ведерников, Георгий Шевцов, Максим Киселев, Лариса Трембовельская, Гурген Тонунц, Фёдор Никитин, Александр Локшин, Алексей Гелева, Эммануил Геллер, Виктор Кулаков, Людмила Власова, Людмила Дианова, Макс МаксимовПродолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD2BAE7D6C2B51587B8C40A709E95D9D52A7E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036399   (526579) от 16.09.2016
-
-Самуил Маршак - Петрушка-иностранец (1977) SATRip (Театр кукол им. C. Образцова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-О веселых проказах Петрушки.
-Спектакль поставлен по пьесе одного из лучших детских писателей С.Я. Маршака. Самуил Яковлевич создал это произведение специально для кукольного театра.Производство: СССР, ТО "Экран", Театр кукол им. С. ОбразцоваЖанр: Телеспектакль, кукольный, детский, сказкаРежиссер: Сергей ОбразцовАктеры: Сергей Образцов, Владимир Кусов, Лена Кусова, Григорий Толчинский, Константин Гуркин, Наталья Меркулова, Роман БогомольныйПродолжительность: 00:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AA1CF8683C0B04FB4C71504E11CEA96B3A1C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052948   (526565) от 16.09.2016
-
-Эжен Ионеско - Стулья (2010) TVRip (Театр "Школа современной пьесы")
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Спектакль театра "Школа современной пьесы". Телеверсия 2010 года.
-Сергей Юрский перевел трагифарс франко-румынского классика Эжена Ионеско в вольном стиле, перенеся европейский абсурд на русскую почву. Получилась грустная история о любви, одиночестве и смерти. На сцене только он и она, муж и жена, старик и старуха, Сергей Юрский и Наталья Тенякова. Они (   Читать дальше...   )Производство: Россия, Канал "Культура"Жанр: Трагифарс, спектакльРежиссер: Сергей ЮрскийАктеры: Сергей Юрский, Наталья Тенякова, Александр АронинПродолжительность: 01:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B4C7DE0F5C607811AAF179DF27FAE757B681E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053157   (526523) от 16.09.2016
-
-Шарль Перро - Кот в сапогах (2015) SATRip (2 части) (Театр имени Евгения Вахтангова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Интересная, невероятно остроумная, музыкальная история, рассказывающая о приключениях находчивого кота, перехитрившего всех ради того, чтобы его любимый хозяин был счастлив.Производство: Россия, Театр имени Евгения ВахтанговаЖанр: Спектакль, сказкаРежиссер: Владимир ИвановАктеры: Александр Фокин, Федор Бавтриков, Максим Бойцов, Сергей Шаталов, Александр Галочкин, Кирилл Каленов, Николай Лиханов, Андрей Удалов, Денис Самойлов, Артем Блинов, Татьяна Полосина, Ксения Кубасова, Ася Домская, Нина Амелина, Екатерина Ходырева, Виктория Коваленко, Данил МожаевПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEA8ABE6AF6DC54ED85A87D3B677789EB7B5E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663102   (526499) от 16.09.2016
 
 Капитанская дочка (1978) DVDRip (2 части)
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_526499.jpg" />
 </div>
 
 
@@ -139,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526466.jpg" />
 </div>
 
 
@@ -165,7 +59,7 @@ DJ Bobo - The Magic Live Concert (1998) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525603.jpg" />
 </div>
 
 
@@ -194,7 +88,7 @@ Mylene Farmer - Mylenium Tour (2000) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525578.jpg" />
 </div>
 
 
@@ -223,7 +117,7 @@ Madonna: The Confessions Tour Live from London (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525316.jpg" />
 </div>
 
 
@@ -252,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524465.jpg" />
 </div>
 
 
@@ -278,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524200.jpg" />
 </div>
 
 
@@ -304,7 +198,7 @@ VA - Летний марафон № 182 / (Задорный Country Хит) (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523972.jpg" />
 </div>
 
 
@@ -333,7 +227,7 @@ Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523941.jpg" />
 </div>
 
 
@@ -362,7 +256,7 @@ Nazareth - Live in Minsk (2007) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523911.jpg" />
 </div>
 
 
@@ -391,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523896.jpg" />
 </div>
 
 
@@ -420,7 +314,7 @@ Motley Crue - Lewd Crued And Tattooed (2000) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523830.jpg" />
 </div>
 
 
@@ -449,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523383.jpg" />
 </div>
 
 
@@ -475,7 +369,7 @@ The Rolling Stones - One More Shot Live (2012) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523212.jpg" />
 </div>
 
 
@@ -504,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521782.jpg" />
 </div>
 
 
@@ -531,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521598.jpg" />
 </div>
 
 
@@ -557,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520958.jpg" />
 </div>
 
 
@@ -586,7 +480,7 @@ Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520341.jpg" />
 </div>
 
 
@@ -612,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520331.jpg" />
 </div>
 
 
@@ -638,7 +532,7 @@ Deep Purple - Come Hell or High Water (1993) DVDrip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519746.jpg" />
 </div>
 
 
@@ -667,7 +561,7 @@ VA - Летний марафон № 183 / (Зарубежная Дискоте�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519492.jpg" />
 </div>
 
 
@@ -696,7 +590,7 @@ Distemper - 25 лет (2015) WEBRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519428.jpg" />
 </div>
 
 
@@ -711,6 +605,110 @@ Distemper - 25 лет (2015) WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DFFA03CA13209F8AAAD8F750B98464CD4857120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314439   (519371) от 14.07.2019
+
+Квартирник НТВ у Маргулиса. Рожден Ануси (13.07.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519371.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске в гости к Евгению Маргулису пришел известный украинский певец и саунд-продюсер Рожден Ануси, который выступает под именем ROZHDEN. Российской публике он известен такими композициями, как «Знаешь», «Без тебя, "Пустяк"», «Герой», «Ни ты, ни я». Рожден поделился интересными воспоминаниями из творческой жизни, и исполнил свои лучшие композиции. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A18F0CCDB06946BD04A71C07AFEAAB08D8A27C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314381   (519272) от 14.07.2019
+
+Славянский базар в Витебске. Песнярам - 50  (12.07.2019) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519272.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Песняры» — советский вокально-инструментальный ансамбль под управлением Владимира Мулявина. Широкой аудитории он известен по песням «Белоруссия», «Беловежская пуща», «Александрина», «Вологда», «Косил Ясь конюшину» и другими. Славу ансамблю принесли авторские и народные композиции, в аранжировках которых использована исконно славянская песенная культура. Началом (   Читать дальше...   )Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C71492860EE84AC7A8C318CBDDB2DFDBB40525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928252   (519253) от 19.08.2015
+
+Интим не предлагать! (2013) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Острейшая комедия отношений, которая использует секс как фон, чтобы исследовать человеческие эмоции через доверие и уязвимость. Это - юмористический и честный взгляд на сложность современных повседневных личных отношений. Этот спектакль отличная прививка от снобизма и подзатыльник "семейному" ханжеству. Понятие Пост Коитум означает блаженная истома, наступающая (   Читать дальше...   )Производство: Украина, Киевский театр-студия импровизации «Чёрный Квадрат»Жанр: КомедияРежиссер: Анатолий НеёловАктеры: Алексей Курилко, Оксана Брагинец, Анатолий Неелов, Вячеслав Никоноров, Ксения Полухина, Ирина Андреева, Руслан ИваненкоПродолжительность: 01:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F528247BD1F4D7E401FE7F12074826E08719D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314459   (519040) от 14.07.2019
+
+Три тенора: Каррерас, Доминго и Паваротти - Первый концерт / The Original Three Tenors Concert (Carreras Domingo Pavarotti in Concert) (1990) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый концерт Каррерас, Доминго и Паваротти на развалинах древнеримских Терм Каракаллы. Съёмка проходит в живописных руинах, напоминающих развалины древнего замка, в действительности - ''Термы Каракаллы'', красно-кирпичные руины Caracalla лежат к юго-востоку от центра древнего Рима. Действие великолепно вписывается в ни с чем несравнимую атмосферу древности...Производство: СШАЖанр: ОпераРежиссер: Брайан ЛарджАктеры: Хосе Каррерас, Пласидо Доминго, Лучано Паваротти, Зубин МетаПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 01:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B1235B3109F5014811A996C9D710F2109B0996
 ```
 
 https://mybot314.ru/tekegram_catalog/

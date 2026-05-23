@@ -6,7 +6,7 @@ Auslogics Disk Defrag Pro 9.5.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733797.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733776.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kaspersky Lab Products Remover 1.0.1513 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733775.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ UltraISO Premium Edition 9.7.5.3716 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733774.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Topaz Video Enhance AI 1.4.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733766.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discord 0.0.306 b64191 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733736.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Auslogics Driver Updater 1.24.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733727.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tor Browser Bundle 9.5.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733718.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ GoodbyeDPI.0.1.6. Launcher-3.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733678.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Calibre 5.36.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733554.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft Edge 98.0.1108.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733550.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ashampoo Burning Studio FREE 1.23.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733545.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Notepad++ 8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733533.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CrystalDiskInfo 8.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733522.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Visual Studio Code 1.64.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733516.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ventoy 1.0.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733511.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Foxit PDF Editor Pro 11.2.1.53537 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733485.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft Visual Studio 2019 Professional 16.6.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733427.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Microsoft Visual Studio 2019 Community 16.6.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733426.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Microsoft Visual Studio 2019 Enterprise 16.6.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733424.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ BluffTitler Ultimate 15.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733417.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CameraBag Pro 2020.30 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733409.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ashampoo Photo Optimizer 8.1.1.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733385.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PotPlayer 200730 (1.7.21278) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733383.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Auslogics Anti-Malware 1.21.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733376.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ SyMenu 6.12.7517 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733371.jpg" />
 </div>
 
 

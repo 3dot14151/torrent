@@ -1,81 +1,3 @@
-###  Публикация: 1570747   (440647) от 18.08.2022
-
-Лев Толстой | Детство. Отрочество. Юность (2016) [MP3, Максим Суслов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В своей трилогии Лев Николаевич Толстой исследует внутренний мир юного человека — сначала ребенка, затем подростка, потом юноши. Писатель пытается понять законы, по каким формируется сознание. В созданных им образах обнажается внутренняя жизнь человека — сложный, противоречивый процесс, обычно скрытый от посторонних глаз. Повести автобиографичны: в истории Николеньки (   Читать дальше...   )Жанр: Классика, ПовестьПродолжительность: 13:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF22B433879CD3398253F51D7C13AA533D77DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 244172   (440619) от 10.10.2010
-
-Стивен Кинг | Извлечение троих [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Юный Роланд - последний благородный рыцарь в мире, `сдвинувшемся с места`. Ему во что бы то ни стало нужно найти Темную Башню - средоточие Силы, краеугольный камень мироздания. Когда - нибудь он отыщет эту башню, а пока ему предстоит долгий и опасный путь- путь по миру, которым правит черная магия, по миру, из которого порой открываются двери в нашу реальность...Жанр: Фантастика
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570662   (440497) от 18.08.2022
-
-Хайдарали Усманов | Дух (Книга 10). Тайный враг (2022) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Не знаю как сейчас, но стоило раньше спросить у кого-нибудь из детей, хотя бы восьмидесятых годов прошлого столетия, о чём они мечтают, то можно было услышать самый распространённый в то время ответ. Практически все дети на Земле мечтали улететь к звёздам. Открывать новые планеты и осваивать новые миры. Но никто из них никогда не задумывался о том, чем чревато подобное (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаПродолжительность: 11:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C03FB2691BAE99B683F65A2908B4E1EFDFB911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570762   (440492) от 18.08.2022
 
 Наталия Басовская | Главные тираны и злодеи истории (2021) [MP3, Семён Ващенко]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440492.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440490.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440460.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440441.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440362.jpg" />
 </div>
 
 
@@ -220,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440360.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440358.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440350.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440311.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440300.jpg" />
 </div>
 
 
@@ -353,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440221.jpg" />
 </div>
 
 
@@ -381,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440207.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440168.jpg" />
 </div>
 
 
@@ -434,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440143.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440113.jpg" />
 </div>
 
 
@@ -486,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440097.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440074.jpg" />
 </div>
 
 
@@ -542,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440042.jpg" />
 </div>
 
 
@@ -568,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440033.jpg" />
 </div>
 
 
@@ -595,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440023.jpg" />
 </div>
 
 
@@ -621,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440013.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439963.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439942.jpg" />
 </div>
 
 
@@ -684,6 +606,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF1C1CC501AAD9750371B6B45ABFF9B049B52F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062371   (439929) от 14.10.2016
+
+Марк Леви | Встретиться вновь (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня Марк Леви один из самых популярных французских писателей, его книги переведены на 33 языка и расходятся огромными тиражами, а за право экранизации его первого романа Спилберг заплатил два миллиона долларов. В российском прокате фильм назывался «Между небом и землёй» и вызвал огромный интерес широкой публики, а одноимённая книга вышла не так давно в издательстве (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E297DD8042DB251BCC1452E034E1B8EEF3F46BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164429   (439890) от 10.09.2017
+
+Джудит Крэнц | Княжна Дэзи (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она выросла в роскоши. С детства привыкла к всеобщему поклонению. Ее обожали мужчины, ей завидовали женщины. Жизнь дочери русского князя и американской кинозвезды напоминала волшебную сказку. И вдруг все улетучилось, словно по воле злого духа. Она лишилась всего, даже своего имени. Начав с нуля, очаровательная княжна Дэзи вновь достигает высокого положения в обществе, (   Читать дальше...   )Жанр: Любовный романПродолжительность: 28:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4856165296683A3988EA9EE7BF58BB0D519C2314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323236   (439863) от 02.09.2019
+
+Николай Леонов, Алексей Макеев | Криминальный сезон (2018) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убит помощник режиссера экспериментального театра, по совместительству тайный финансист Руслан Бойцов. Что это - месть махинаторов, не поделивших бюджетные деньги, или бытовое ограбление? Расследование поручено полковнику МВД Льву Гурову. Внимание сыщика привлекает приглашенный из Самары режиссер Голубев. Оттуда же и все музыканты театра. Возможно, это совпадение, (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2ECCA6E757131BBFD41E5E6BB0E0850EA59273
 ```
 
 https://mybot314.ru/tekegram_catalog/

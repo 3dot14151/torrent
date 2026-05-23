@@ -6,7 +6,7 @@ WinToHDD 6.2 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171155.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XnConvert 1.99.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171153.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Google Chrome 118.0.5993.118 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171151.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ R-Studio Network 9.3 Build 191251 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171149.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MiniTool Power Data Recovery 11.7 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171147.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ uTorrent Pro 3.6.0 Build 46904 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171131.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adguard 7.15.1 (7.15.4386.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171127.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Cookie 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171097.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Integrity Pro 12.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171096.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Author 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171093.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Airtool 2 v.2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171087.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ MetaRename for Mac 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171082.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CheckBook Pro 2.7.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171079.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ myTracks 4.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171077.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ OmniGraffle Pro 7.22.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171062.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Dynamic Wallpaper Engine 16.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171053.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Keyboard Maestro 11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171047.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Transmit 5.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171046.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Opera GX 102.0.4880.112 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171041.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ n-Track Studio Suite 10.0.0.8118 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171038.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Disk Space Analyzer Pro 4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171037.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Duplicate File Finder Pro for Mac 7 v.7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171029.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Zoner Photo Studio X 19.2309.2.502 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171026.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Firefox Browser 119.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171024.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Native Instruments Guitar Rig 6 Pro for Mac 6.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171022.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Vivaldi 6.4.3160.34 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171020.jpg" />
 </div>
 
 

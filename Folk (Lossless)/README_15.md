@@ -6,7 +6,7 @@ Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12028.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12025.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Laura Cantrell - Just Like A Rose: The Anniversary Sessions (2023) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1267.jpg" />
 </div>
 
 

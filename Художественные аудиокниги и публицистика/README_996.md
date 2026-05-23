@@ -1,85 +1,3 @@
-###  Публикация: 1707669   (62666) от 17.03.2024
-
-Виталий Останин | СССР-2023 (Книга 1) Товарищ Халков (2024) [MP3, Илья Дементьев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Что должен совершить классический попаданец в СССР? Правильно – попасть к Сталину, изобрести промежуточный патрон и прикрутить к Т-34 командирскую башенку. Но на дворе 2023 год. Всё, что нужно уже давно изобрели. И Сталину помощь не нужна – ему 145 лет, но чувствует он себя максимум на 40.
-
-А еще тут по небу летают люди со сверхспособностями, бандиты толкают из-под (   Читать дальше...   )Жанр: Альтернативная история Боевая фантастикаИздательство: ЛитРесПродолжительность: 07:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A95C35BCDD7EFAE2C5D8361F54A5F8E8F0B11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488557   (62665) от 17.03.2024
-
-Юрий Бондарев | Горячий снег (2020) [MP3, Александр Дунин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ю. В. Бондарев (1924) – известный русский писатель, воевавший в годы войны под Сталинградом, в Польше и на границе с Чехословакией.
-
-В романе «Горячий снег» автор повествует о сталинградских событиях, одном из решающих моментов Великой Отечественной войны, оттого жизнь и смерть героев романа обретают особую весомость и значительность, а смерть понимается как нарушение (   Читать дальше...   )Жанр: Книги о войнеИздательство: ЭксмоПродолжительность: 17:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E62740B932C39A6C5864923FD5EA16AF7B96CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707597   (62662) от 17.03.2024
-
-Вадим Панов | (Бесчело)вечность (Книга 3). Пре(восход)ство (2024) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-К середине XXI века люди построили очень комфортный мир, в котором цифровые сервисы так плотно сплетены с реальностью, что пользователи начинают их путать, начинают воспринимать выдуманное – подлинным, а подлинное – ненастоящим. Мир обрёл множество Метавселенных и стал невероятно большим. И одновременно – очень маленьким, не выходящим за рамки цифровых иллюзий, в (   Читать дальше...   )Жанр: Фантастика, киберпанкИздательство: ЛитРес: чтецПродолжительность: 02:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30AC4F544C74D3A12B013452400A32DF57310BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707688   (62661) от 17.03.2024
 
 Рафаэль Дамиров, Валерий Гуров | Боец (Книга 1). Лихие 90-е (2024) [MP3, Егор Федотов]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62661.jpg" />
 </div>
 
 
@@ -116,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62651.jpg" />
 </div>
 
 
@@ -142,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62644.jpg" />
 </div>
 
 
@@ -170,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62643.jpg" />
 </div>
 
 
@@ -196,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62590.jpg" />
 </div>
 
 
@@ -222,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62558.jpg" />
 </div>
 
 
@@ -248,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62550.jpg" />
 </div>
 
 
@@ -274,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62546.jpg" />
 </div>
 
 
@@ -300,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62543.jpg" />
 </div>
 
 
@@ -326,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62542.jpg" />
 </div>
 
 
@@ -352,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62541.jpg" />
 </div>
 
 
@@ -378,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62540.jpg" />
 </div>
 
 
@@ -404,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62460.jpg" />
 </div>
 
 
@@ -433,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62459.jpg" />
 </div>
 
 
@@ -459,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62454.jpg" />
 </div>
 
 
@@ -485,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62451.jpg" />
 </div>
 
 
@@ -514,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62442.jpg" />
 </div>
 
 
@@ -540,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62439.jpg" />
 </div>
 
 
@@ -567,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62436.jpg" />
 </div>
 
 
@@ -594,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62424.jpg" />
 </div>
 
 
@@ -620,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62402.jpg" />
 </div>
 
 
@@ -648,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62381.jpg" />
 </div>
 
 
@@ -675,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62378.jpg" />
 </div>
 
 
@@ -686,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D47CA7D34FACB35DF7D40B86FEF0528BF12876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 355673   (62375) от 20.03.2024
+
+М.В. Ломоносов и др. | Русская поэзия и проза (2006) [MP3, Владимир Ровинский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классицизм, художественный стиль в европейской литературе и искусстве 17 - начала 19 веков, одной из важных черт которых являлось обращение к образам и формам античной литературы и искусства как идеальному эстетическому эталону. В основе классицизма лежат принципы рационализма. Они определяют взгляд на художественное произведение как на создание искусственное - сознательно (   Читать дальше...   )Жанр: Русская литература, классика, поэзия и прозаИздательство: БиблиофоникаПродолжительность: 08:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41634D604559A24A85DE6115D62EA9B1E7E8A512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614235   (62372) от 20.03.2024
+
+Андрей Никонов | Веласкес (Книга 1). Изгой (2023) [MP3, Михаил Золкин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое будущее. На Земле найден портал на другую планету. Дети переселенцев могут получить от новой родины способности сродни магическим, только этот дар убивает большую часть тех, кто его обрел, а оставшиеся вынуждены до конца жизни носить блокираторы. Не готовы мириться с таким положением дел некоторые маги, которые считают, что достойны большего, и люди, которым (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2581200B4EC16EB55F4A08F28AF55FAE5C0ADDE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708272   (62359) от 20.03.2024
+
+Алексей Свадковский | Игра Хаоса (Книга 10). Подъём к бездне. Том 2 (2024) [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Месть, власть, сила, заговоры и старые обиды все это тесным клубком сплетается воедино, и порой единственный способ его распутать удар меча.Война домов наконец началась, и в ходе нее решится, кто будет властвовать над мирами, кто будет править, а кто исчезнет под песками времени, забытый всем.Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыИздательство: ЛитРес, Автор, Аудио от автораПродолжительность: 05:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F12C1D28ECBBFF2E7384245CF23E2E3BEF65ED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

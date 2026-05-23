@@ -1,29 +1,3 @@
-###  Публикация: 904037   (656302) от 01.06.2015
-
-Sable Maze 4: Twelve Fears / Темный лабиринт 4: Двенадцать страхов (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр Sable Maze. Эмбер всегда мечтала побывать в Лабиринте Страхов! И вот однажды случилось чудо – ей перепал бесплатный билетик на этот аттракцион. Эмбер сразу же отправилась развлекаться. не подозревая, какие кошмары ждут ее впереди. Отправляйтесь вслед за Эмбер и помогите ей выбраться из Запредельного Мира Страха и Ужаса! Вам придется (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Daily Magic ProductionsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CD7DCD8F3E6F6694359D470782634AE44ECF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226490   (655642) от 20.05.2018
 
 Rite of Passage 8: Hackamore Bluff / Обряд посвящения 8: Хакамор Блаф (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Rite of Passage 8: Hackamore Bluff / Обряд посвящения 8: Хака
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655642.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Bridge to Another World 3: Alice in Shadowland / Мост в другой мир
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655613.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Conarium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655508.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Iron Wings (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655506.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Iron Wings (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655502.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The X-Com Files (1994-2016) [Ru/En] (0.6.2) Repack/Mod edcarnby
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655497.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Final Cut 5: Fame Fatale (2015) [En] Unofficial [Collector’s Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655458.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Guitar Hero Antology / Антология Guitar Hero [En] (RePack) 2007-2009 | 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655213.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Depth Hunter (Lossless RePack/v1.10) [Multi5/+] 2011 | R.G. Catalyst и R.G. ExP
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655193.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Rite of Passage 5: Heart of the Storm / Обряд Посвящения 5: Се�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654755.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Randall (2017) [En] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654662.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Hirilun (2022) [Ru/Multi] (1.0c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654647.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Aztech Forgotten Gods (2022) [Ru/Multi] (1.0.8.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654639.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ The Room Two (2016) [Ru/Multi] (1.0.4) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654492.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2/dlc) Repack R.G. Catalys
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654490.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654483.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) Repack R.G. Catalyst [The 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654476.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ FAR - Lone Sails (2018) [Ru/Multi] (1.02) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653490.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653462.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Off the Record 4: Liberty Stone (2015) [En] Unofficial [Collector’s Edition / 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653438.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Contract with the Devil (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653323.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Astebreed (2014) [En/Ja] (2.04) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653158.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653151.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Haunted Halls: Nightmare Dwellers / Дом с привидениями: Обит
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653091.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ AMOK (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653048.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ AMOK (2016) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1C9B8F537926929EC66D8D432DE4B36DEAA3393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031153   (652966) от 03.07.2016
+
+Gnomes Vs. Fairies (2016) [En] (5.0B) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gnomes vs. Fairies игра в стиле Hack 'n' slash-Action RPG platformer. Улучшайте своего гнома тонной предметов, раскачивайте любую из 5 школ Магии Меча, и наслаждайтесь уникальным ретро приключением, круто замешанным на элементах таких Гуру жанра как: Mario 64, Zelda 64, Spiro.Тип издания: LicenseРазработчик: Prismic Studios LLCЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BA45974DD4D7929D30BE24FC11F8253818A4AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,84 +1,3 @@
-###  Публикация: 1701086   (116731) от 19.02.2024
-
-Сергей Снегов | Четыре друга (2024) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В результате неудачного эксперимента погибает руководитель Лаборатории ротоновой энергии – Кондрат Сабуров. В ходе предварительного расследования установлено, что наряду с научными интересами в проводимых научных исследованиях были замешаны и сугубо личные. Одному из ученых, близко знавшему Сабурова, поручают установить меру «личного» и «производственного» в экспериментах (   Читать дальше...   )Жанр: Научная фантастикаИздательство: СОЮЗПродолжительность: 05:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BE2C70C957DC30820BB91D2A4C96A9135184B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701098   (116721) от 19.02.2024
-
-Василий Лазарев | S-T-I-K-S. И пришёл Лесник! (Книга 3) (2024) [MP3, Проводник]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Оперативник контрразведки СМЕРШ попал в Улей.
-
-Улей пожалел об этом, ибо звали его Лесник.
-(   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 10:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93D2E09358D19497B3A87E7DE6CBF9CD3D430C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700921   (116718) от 19.02.2024
-
-Кайл Иторр | Зелёный луч (Книга 3). Золотая лихорадка (2024) [MP3, Олег Шубин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новая Земля. Жизнь идет своим чередом – семья, работа, как положено. Причем работа действительно интересная. Интересом-то и цепляет, отправляя в командировку «неизвестно зачем», мол, «там объяснят». Там, наверное, объяснили бы, но что делать кабинетному сотруднику, который по дороге – такая уж она, фронтирная жизнь, – попадает в плен, а потом в фактическое рабство (   Читать дальше...   )Жанр: Боевая фaнтастика, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 14:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2599B7C5B17F3547EDAC1E3839AF7F721268205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701108   (116714) от 19.02.2024
 
 Эдуард Хруцкий | Тени кафе «Домино» (2024) [MP3, Александр Клюквин]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116714.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116690.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116687.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116671.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116669.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116668.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116622.jpg" />
 </div>
 
 
@@ -276,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116618.jpg" />
 </div>
 
 
@@ -305,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116614.jpg" />
 </div>
 
 
@@ -333,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116610.jpg" />
 </div>
 
 
@@ -360,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116599.jpg" />
 </div>
 
 
@@ -387,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116595.jpg" />
 </div>
 
 
@@ -414,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116564.jpg" />
 </div>
 
 
@@ -441,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116558.jpg" />
 </div>
 
 
@@ -467,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116528.jpg" />
 </div>
 
 
@@ -494,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116526.jpg" />
 </div>
 
 
@@ -520,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116512.jpg" />
 </div>
 
 
@@ -546,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116474.jpg" />
 </div>
 
 
@@ -572,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116454.jpg" />
 </div>
 
 
@@ -599,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116448.jpg" />
 </div>
 
 
@@ -625,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116447.jpg" />
 </div>
 
 
@@ -652,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116430.jpg" />
 </div>
 
 
@@ -678,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116423.jpg" />
 </div>
 
 
@@ -691,6 +610,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C01C44886BDBDDFEB18B801D4540868DFD0A5D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701501   (116421) от 21.02.2024
+
+Евгений Прядеев, Павел Барчук | Позывной Курсант (Книга 1) (2024) [MP3, Олег  Троицкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я был успешным юристом. Деньги, девочки, гулянки! Жизнь удалась! По крайней мере, так мне казалось. А зря… Судьба решила, я должен сделать что-то достойное и вот! 1938 год…Я – детдомовец в секретной школе НКВД. Товарищи меня ненавидят. Рядом вьётся мутный чекист. Впереди – нелегальная работа. На кону – мое будущее. Если выживу, конечно… Примечания автора: ✔ (   Читать дальше...   )Жанр: Попаданцы, Альтернативная историяИздательство: ЛитРес: чтецПродолжительность: 07:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F939E20B758AEF7A7749658C25C4409A4C677A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 426679   (116417) от 21.02.2024
+
+Дмитрий Щеглов | Женщина – миф. Хроники времён Фаины Раневской (2009) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Женщина – миф.
+Ещё до появления телевизоров её знали и любили во всей нашей огромной стране. Зрители обожали её роли, отдельные реплики и словечки из них повторяли все – от пионеров до академиков и генсеков.
+О великой Фаине Раневской рассказывает эта книга, о её жизни, творчестве, её непростом колючем характере, остром языке и, конечно же, о времени в котором (   Читать дальше...   )Жанр: ЖЗЛ, воспоминания, биография, мемуарыИздательство: Нигде не купишьПродолжительность: 12:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ABB03C06CDEC5A8BB4575C0E7B4BB311014DA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701449   (116392) от 21.02.2024
+
+Ральф Рене | Как NASA показало Америке Луну (2023) [MP3, Владимир Захаров]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о том, были ли американские астронавты на Луне, время от времени всплывает в средствах массовой информации и будоражит умы по обе стороны Атлантического океана. Множится число скептиков, которые указывают на нестыковки в официальной версии NASA, а также на то, что многие вопросы, возникшие после американских лунных миссий, до сих пор остаются без ответа.
+Существует (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 04:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFEBE4D0F64FCCE3AA1945CF9867231A8680002B
 ```
 
 https://mybot314.ru/tekegram_catalog/

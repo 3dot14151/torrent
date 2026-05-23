@@ -6,7 +6,7 @@ Unity Pro 2019.3.15f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786704.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ UnHackMe 11.70.0.970 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786682.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ ABViewer Enterprise 14.1.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786681.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.4 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786679.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ ESET Online Scanner 3.3.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786675.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ simplewall 3.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786671.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Wallpaper Engine 1.2.41 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786668.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VirtualBox 6.1.10 Build 138449 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786658.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Topaz DeNoise AI 2.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786657.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Maxon CINEMA 4D Studio S22.114 build RB315510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786648.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ IP-TV Player 50.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786633.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Phoniks - Time Goes By (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786583.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786580.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ JRiver Media Center 26.0.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786576.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ RegScanner 2.51 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786574.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Kupla - Kingdom in Blue (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Lo-Fi, Ch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786570.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Eraser 6.2.0.2988 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786555.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Free Download Manager 6.10.0.3016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786553.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Aiseesoft Blu-ray Player 6.6.28 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786552.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ GridinSoft Anti-Malware 4.1.47.4953 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786548.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ F-Stop Gallery Pro 5.3.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786529.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ EMCO Network Software Scanner 2.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786528.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ BELOFF [dp] 2020.05.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786524.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ PanoramaStudio Pro 3.1.0.229 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786477.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786471.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Roots of Insanity (2017) [Ru/Multi] (4.13) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786468.jpg" />
 </div>
 
 

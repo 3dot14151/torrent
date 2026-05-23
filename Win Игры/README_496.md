@@ -1,29 +1,3 @@
-###  Публикация: 1769630   (32644) от 29.12.2024
-
-Open Wheel Manager 2 (2023) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Open Wheel Manager 2 приглашает вас в мир автогонок. Этот стилизованный под ретро-игры симулятор позволит вам окунуться в атмосферу гоночных трасс и попробовать себя в роли менеджера команды. Ваша задача - вывести коллектив на пьедестал почёта. Ради победы придётся пойти на крайние меры и пожертвовать многим. Успех зависит не только от водительского мастерства гонщиков, (   Читать дальше...   )Тип издания: RepackРазработчик: Paprikash GamesЖанр: Гонки, Симуляторы, Спорт, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00F10685890FC33F0C5C44EDDD147178F52B594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769605   (32637) от 29.12.2024
 
 Dungeon Defenders (2011) [Multi] (10.0.0/dlc) Scene TinyIso
@@ -32,7 +6,7 @@ Dungeon Defenders (2011) [Multi] (10.0.0/dlc) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32637.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Doll Impostor (2024) [Ru/Multi] (Update 10 HotFix 3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32636.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Fire: Ungh’s Quest (2015) (1.1.8329S) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32633.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Jusant (2023) [Ru/Multi] (1.07.1498596) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32632.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.09) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32613.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32611.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32607.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Pools (2024) [Ru/Multi] (12.12.24) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32604.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32602.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32599.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Cataclismo (2024) [Ru/Multi] (0.22.0.6.417) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32596.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9129) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32585.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Transport Fever 2 (2019) [Ru/Multi] (35924.0/dlc) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32577.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.6/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32559.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ TRAIL OUT (2022) [Ru/Multi] (3.1/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32557.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Deck of Souls (2024) [Multi] (1.0.6) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32554.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32548.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32535.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32527.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Caribbean Legend (2024) [Ru/En] (1.3.5/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32522.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Machinika Museum (2021) [Ru/Multi] (1.24050201) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32515.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Recycling Center Simulator (2024) [Ru/Multi] (1.1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32510.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32485.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Architect Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32471.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Vincemus - Air Combat (2022) [En] (1.2.0a) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32465.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Vincemus - Air Combat переносит игрока во времена Вто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:725BE1F9CC869C16B15CF28377A994093A439DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745433   (32463) от 31.12.2024
+
+Dustborn (2024) [Ru/Multi] (1.10) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dustborn - дорожное приключение, вдохновленное графическими новеллами. Игра выполнена в стиле динамического комикса и рассказывает про небольшую группу подростков-неудачников, отправившиеся в путешествие сквозь всю пост-инфодемическую Америку. Их цель - доставить из Калифорнии одну важную посылку в Новую Шотландию.Тип издания: RepackРазработчик: Red Thread GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD638EED20A91DD861E6F64E2CAA82462393696
 ```
 
 https://mybot314.ru/tekegram_catalog/

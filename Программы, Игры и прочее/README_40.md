@@ -1,55 +1,3 @@
-###  Публикация: 1365896   (926624) от 09.03.2020
-
-Dr.Web v12.5.1 + Activation Key [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Dr.Web на Android – скачать антивирус Dr.Web можно бесплатно, проведите полное сканирование всех программ и файлов в памяти смартфона, а так же на карте расширения памяти. Проверку можно провести как автоматически, так и в ручную, причем в ручную проверку, можно провести как в режиме быстрой проверки так и выборочном или полном. Вредоносные объекты антивирус поместит (   Читать дальше...   )Тип издания: Оригинал (Лицензионный ключ в комплекте)Релиз состоялся: 28.10.2019Разработчик: Doctor Web, LtdПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE58EE8BD24F76F262691921E950BA7FE5F6AF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987632   (925759) от 17.02.2016
-
-Easy Music for kids v1.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Easy Music — лучший способ погрузиться в мир музыки безо всякой теории! Прекрасно анимированное приложение познакомит с музыкой детей в возрасте от 3 лет. Они научатся узнавать ноты, тон, ритм и мелодию, играя в естественной обстановке. Интерактивный замок из песка позволит любопытным детям пробовать разные музыкальные инструменты, жанры и приемы и даже создать свое (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 05.02.2016Разработчик: EDOKI ACADEMYПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBA08909D79CFAFC65B76E5B5C57E00C0C76978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366116   (925754) от 10.03.2020
 
 Files v1.0.1 [En]
@@ -58,7 +6,7 @@ Files v1.0.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925754.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Time Calculator Cardamon v1.0.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925722.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ NotifyBuddy - AMOLED Notification Light v1.50 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925523.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Five Hundred English Words v0.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925513.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Backup Apk - Extract Apk v1.2.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925417.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Equalizer Music Player Pro v2.9.22 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925388.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ AiScan: All QR Code Scanner & Barcode Reader v1.0.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925384.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ File Manager Pro v1.40 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925330.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Speed Test & WiFi Analyzer v9.0.27615 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925212.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923992.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ Lingua Book Reader 1.2.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923964.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ Randomizer+ Random Pick Generator - Decision Maker v4.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923903.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ Fast Charge Pro v1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923867.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ HERETIC GODS - Ragnarok vV.1.10.35 [Ru/Multi] (Original + Mod)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923575.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ Fallout File Manager v1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923567.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ WiFi Overview 360 Pro 3.40.01 - Универсальный инструмент 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923201.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ Cuticon Drop - Icon Pack v1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922129.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ Regex Finder v0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922115.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ MyScript Calculator II 2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922026.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ Magic DosBox v1.0.79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922011.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ Ghost Commander File Manager + All Plugins v1.56.2B2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921986.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ Happy Color – Color by Number v2.2.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920574.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ Progressbar95 v0.500 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920569.jpg" />
 </div>
 
 
@@ -667,7 +615,7 @@ LEGO Star Wars Microfighters v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920298.jpg" />
 </div>
 
 
@@ -678,6 +626,58 @@ LEGO Star Wars Microfighters – гонки на андроид, где вы б�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:779B8FB96EE49A384C0FF09092D9C04986A99E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366724   (920141) от 13.03.2020
+
+Star Wars: Rivals v6.0.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Wars: Rivals - шутер, разработанный специально для мобильных устройств, в котором вы сможете противостоять вашим противникам в реальном времени. Вы сможете выбрать героя из легендарных персонажей всей эпохи Star Wars, осваивая и улучшая их навыки в PvP боях. Собирайте боевую команду, раскройте стратегию противника и используйте своё оружие, чтобы победить.Тип издания: Free (Удален из Google Play)Релиз состоялся: 12.01.2018Разработчик: DisneyПоддерживаемая ОС: Android 4.4+Жанр: Приключения, Экшен, ТирЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A1F299B550BE008921506E66EFF0BEB4DFD9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366727   (920137) от 13.03.2020
+
+PC Creator - PC Building Simulator v1.0.57 + Mod [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920137.jpg" />
+</div>
+
+
+###  Подробнее
+
+PC Creator - PC Building Simulator – отличный симулятор на андроид, где вы будете собирать компьютеры. Если вы всегда хотели узнать что-же находится внутри вашего системного блока, то эта игра создана для вас. В этой игре вы станьте сборщиком компьютеров и пройдете путь от новичка до профессионала своего дела. Собирайте и разбирайте различные компьютеры, устанавливайте (   Читать дальше...   )Тип издания: Оригинал + ModРелиз состоялся: 25.02.2020Разработчик: UltraAndreПоддерживаемая ОС: Android 5.0+Жанр: СимуляторыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DD35135C50FFBB81C7FB4CA870FD81B5D12F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

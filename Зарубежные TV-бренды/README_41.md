@@ -1,29 +1,3 @@
-###  Публикация: 1218619   (721542) от 10.04.2018
-
-NGW: Неукротимая Южная Америка / South America Untamed (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это история жизни на лезвии бритвы, которую ведут животные, обитающие в огромной горной системе, протянувшейся вдоль всего южноамериканского континента.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс БирнПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F87F10D6037D03CF0F5845E6E981E077B3A576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218651   (721524) от 10.04.2018
 
 NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p-LQ]
@@ -32,7 +6,7 @@ NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721524.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721403.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NGW: Десять смертельно опасных змей / Ten deadliest s
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721397.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NGW: Апокалипсис животных / World's deadliest. Animal Apocaly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721271.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ NGW: Дикий Нил / Wild Nile (2014) HDTV [H.264/1080i-LQ] (Серии 1-3 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721265.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720823.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720677.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720284.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NG. Бушующие миры: Солнечная буря / Storm Worlds: Cosmi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720052.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719930.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Animal Planet: Cинее царство (Лазурная страна). Цел�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719889.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Animal Planet: Cинее царство (Лазурная страна). Гиг�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719879.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719875.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ BBC. Horizon. Эволюционируем ли мы сейчас? / BBC. Horizo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719872.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) HDT
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719722.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ NGW: Африканская кровавая река / Africa's blood river (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719525.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ NGW: Смертельная игра. Великий побег / Deadly game. E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719523.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ NGW: Переменчивые животные. Свирепые семьи / Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719522.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718936.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718821.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718813.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ BBC Earth. Чудо-яйца с Дэвидом Эттенборо / Attenborough
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718724.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ BBC. Кухня против науки. Кулинарный вызов / Chef 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718722.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ NG. Вдоль Великой Китайской стены / Trekking The Great
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718685.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718683.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:164AF697DB97C4F9EB1187CFB25AE5B0CD56F81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400588   (718642) от 05.08.2020
+
+BBC. Чудеса живой природы с Дэвидом Аттенборо / David Attenborough's Natural Curiosities (2017) WEB-DL [H.264/1080p] (Сезон 4, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир полон удивительных существ. Природа некоторых из них кажется невероятной. Отдельные животные своей необычной биологией привлекают особое внимание. Какие-то из них известны уже несколько веков, другие обнаружены совсем недавно. В этой программе сэр Дэвид Аттенборо расскажет, почему они считаются чудесами живой природы.Производство: Великобритания, A humble bee films, BBC EarthЖанр: Документальный, природа, флора, фаунаРежиссер: Хилари Джеффкинс, Шармила ЧадхуриПеревод: Одноголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: 6 х ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0D184E7F33168435010CD6C04E4A4892051C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ OCCT 10.0.7 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738117.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 83.0.4254.19 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738113.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Freac 1.1.6 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738096.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SamDrivers 22.00 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738093.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Spotify 1.1.77.643 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738084.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Internet Download Manager 6.40 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738081.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Revo Uninstaller Free 2.3.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738080.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Nekonverter 1.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738054.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ CCleaner 5.89.9401 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738051.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738050.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinRAR 6.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738015.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CCleaner 5.89.9401 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737965.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ WinRAR 6.10 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737962.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.2 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737791.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ K-Lite Codec Pack Update 16.7.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737786.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Auslogics File Recovery 10.2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737783.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Auslogics Disk Defrag Pro 10.2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737769.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Auslogics BoostSpeed 12.2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737766.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ The Bat! Professional (Christmas Edition) 9.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737765.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ YTD Video Downloader PRO 5.9.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737723.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CPU-Z 1.99.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737721.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737720.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Auslogics BoostSpeed 12.2.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737711.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Bat! Professional 9.5.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737710.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Auslogics Driver Updater 1.24.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737685.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Avast Premium Security 21.11.2500 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737682.jpg" />
 </div>
 
 

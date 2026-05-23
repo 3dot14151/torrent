@@ -6,7 +6,7 @@ ZD Soft Screen Recorder 9.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970580.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrowdInspect 1.0.0.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970578.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blue Cat's All Plug-Ins Pack (2020.1) STANDALONE, VST, VST3, RTAS, AAX RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970568.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Daum PotPlayer 1.7.21126 Stable + OpenCodec Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970552.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Raise Data Recovery for Ext2/Ext3/Ext4 5.0 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970506.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PDF-XChange Viewer Pro 2.5.316.0 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970489.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ JoyoBox Cleaner 5.0.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970488.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ USB Safely Remove 5.3.8.1234 GOTD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970486.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Waterfox Classic 2020.01.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970464.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Daum PotPlayer 1.7.21126 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970462.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Registry Workshop 5.0.0 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970384.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ SAM CoDeC & DeCoDeR Pack 2016 6.00 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970365.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Daum PotPlayer 1.7.21126 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970361.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ornatrix v1.0.0.22027 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970356.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CCleaner Professional 5.63.7540 (акция comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970353.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ FastStone Capture 8.4 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970300.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Windows System Control Center 2.5.0.6 Portable by Alecs962 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970298.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Total Commander 9.50 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970273.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Total Commander 9.50 Final LitePack / PowerPack + Portable 2020.2 by SamLab [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970266.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Super Utilities Pro v.9.8.2 Multi (включая русский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970229.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Adobe Acrobat Reader DC 2015.010.20056 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970202.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ BlueStacks HD App Player 2.0.4.5627 MOD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970195.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Adobe Acrobat XI Pro 11.0.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970188.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Mathworks Matlab 2015b 8.6.0.267246 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970187.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ SiSoftware Sandra Engineer Standard/Enterprise 2010.1.16.26 Retail [Multi Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970145.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969777.jpg" />
 </div>
 
 

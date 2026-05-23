@@ -1,56 +1,3 @@
-###  Публикация: 1657746   (192176) от 05.09.2023
-
-Хенти Ди Муэрти / Genti di muerti (2014) WEBRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Иногда непросто осознавать, кто ты есть на самом деле...Производство: Испания / Glow Animation, Glow, TheЖанр: короткометражка, фэнтезиРежиссер: Рубен ГонсалесАктеры: Сержи Мендес, Альба Герерро, Хуан Карлос Вельидо, Лара Коррочано, Карлос Альварес-Новоа, Селика Торкаль, Пепа Грация, Эстебан Дж. Баллестерос, Maite ValecilloПеревод: двуголосый любительский (den904 & deadsno)Язык озвучки: русский, испанскийСубтитры: русскиеПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E5E7A7B200945BFA0508DA5CB71C309607EAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657593   (192155) от 05.09.2023
-
-Выбор игры / В поисках Бобби Фишера / Searching for Bobby Fischer (1993) BDRemux [H.264/1080p] [MVO] [AUS Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Джош Вайцкен, как и все американские мальчишки, учится в школе и обожает бейсбол. Но все меняется в тот день, когда он впервые в жизни оказывается за шахматной доской. Ребенок сразу выигрывает партию у своего отца. Вскоре становится очевидно, что у Джоша просто уникальные способности.
-Родители юного гения, окрыленные успехами сына, нанимают ему известного шахматного (   Читать дальше...   )Производство: США, Mirage EnterprisesЖанр: драма, биография, спортРежиссер: Стивен ЗеллианАктеры: Макс Померанц, Джо Мантенья, Джоан Аллен, Бен Кингсли, Лоренс Фишбёрн, Майкл Ниренберг, Роберт Стивенс, Дэвид Пэймер, Хэл Скардино, Васек СимекПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: русский, английскийСубтитры: английские (PGS)Продолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AC0FB7174C32C2EFE1BC62EC131663D58DD474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657864   (192093) от 05.09.2023
 
 Король неба / Chang kong zhi wang / King of the Sky (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192093.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192090.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192088.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192065.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192061.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192060.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192057.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192055.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192037.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192034.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192025.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191997.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191996.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191987.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191979.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191976.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191975.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191960.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191940.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191936.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191928.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191910.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191891.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191878.jpg" />
 </div>
 
 
@@ -668,6 +615,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A977BAB5635221A084D73F28EB24D55BBBB9C470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587790   (191872) от 02.11.2022
+
+На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) WEBRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного антивоенного романа Эриха Марии Ремарка.
+Германская империя, 1917 год. Преисполненные патриотизмом 19-летний Пауль Боймер и его друзья-одноклассники отправляются добровольцами на фронт, где им предстоит испытать на себе кошмары Первой мировой войны.Производство: Германия, США, Великобритания / Amusement Park FilmsЖанр: военный, история, драма, экранизацияРежиссер: Эдвард БергерАктеры: Феликс Каммерер, Альбрехт Шух, Аарон Хилмер, Мориц Клаус, Адриан Грюневальд, Эдин Хасанович, Даниэль Брюль, Тибо де Монталембер, Девид Штрисов, Андреас Дёлер, Себастьян Хюльк, Люк Фейт, Михаэль Виттенборн, Майкл СтенжПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, Украинский, Английский, НемецкийСубтитры: Русские (Full), Украинские (Forced, Full), Английские (Forced, Full), Немецкие (Forced, SDH)Продолжительность: 02:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF9D57482997DDC8FC7E15C0CA9DF5FA0484CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658014   (191841) от 06.09.2023
+
+Запертый заживо / Вот дерьмо! / Ach du Scheibe! / Holy Shit (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архитектор Франк приходит в себя после потери сознания в кабинке уличного биотуалета. Он оказывается в ловушке и не может выбраться из неё. Но это не самая большая проблема. Кабинка лежит на дне котлована, в который заложено взрывное устройство. На то, чтобы выбраться, у Франка есть всего один час.Производство: Германия / Neopol Film, Studio Hamburg EnterprisesЖанр: боевик, триллер, комедияРежиссер: Лукас РинкерАктеры: Томас Нихаус, Гедеон Буркхард, Ольга фон Люквальд, Родни Чарльз, Микаэла Шефер, Бьорн Майер, Уке Боссе, Фридерике Кемптер, Юки ИвамотоПеревод: Дублированный (Akimbo Production), Авторский (Михаил Яроцкий)Язык озвучки: русский, немецкийСубтитры: русские, французскиеПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C907D0F525D697A1F5228692713F58F05B723E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

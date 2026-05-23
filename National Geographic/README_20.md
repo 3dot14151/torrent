@@ -6,7 +6,7 @@ NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607420.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NG: Растения - монстры ( Секс, наркотики и раст
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607337.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607164.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606889.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NGW: Невероятная Африка. Закума / Extraordinary Africa. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605169.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NGW: Невероятная Африка. Разноцветный контин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605162.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604129.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NG: Амазония: наизловещий ритуал / Search for the Amazo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603152.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603071.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602637.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602142.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601858.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601216.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599930.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599925.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ NG: Прекрасная Америка: Величественный Север
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598226.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598067.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596254.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595965.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ NGW: Гризли Аляски бросают вызов. Короли остр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595005.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594602.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NGW: В поисках таинственного зверя / Search for the Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593547.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593271.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593114.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592989.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592969.jpg" />
 </div>
 
 

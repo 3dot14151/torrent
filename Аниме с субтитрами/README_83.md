@@ -6,7 +6,7 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349526.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kindaichi Shounen no Jikenbo / Kindaichi Case Files / Дело ведёт юны
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347299.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sengoku Collection / Parallel World Samurai / Коллекции смутног�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345761.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Sakamichi no Apollon / Аполлон: Дети на холме [2012, TV, 12 с
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345759.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Shadows House 2nd Season | Дом теней [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345372.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12 эп.] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345274.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Bungou Stray Dogs 3 / Великий из бродячих псов [ТВ-3] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345263.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345125.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pupipoo! | Пупипо! [2013, TV, 15 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343439.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Fumikiri Jikan | Crossing Time | Железнодорожный переезд [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343438.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Busou Shoujo Machiavellianism | Armed Girl's Machiavellism | Тирания во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343125.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343124.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Shoot! Goal to the Future | Удар! Гол в будущее [2022, TV, 13 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343007.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bucchigire! | Shine On! Bakumatsu Bad Boys! | Сияйте, головорезы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342974.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Teppen!!!!!!!!!!!!!!! | Teppen! Laughing 'til you Cry | Апогей! [2022, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342952.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Fate/Grand Order: Moonlight/Lostroom | Судьба/Великая Кампан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342935.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Princess Principal | Принцесса-шпионка | Подручные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342913.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Ushiro no Shoumen Dare | Who's Left Behind? | Кто стоит за спино�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342780.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341794.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Ixion Saga: Dimension Transfer | ИКСИОН САГА: Пространстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341432.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Lost Song | Потерянная песня [2018, ONA, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341074.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место за п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340907.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340667.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Hanabi-chan wa Okure-gachi | Hanabi-chan Is Often Late | Ханаби посто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340662.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Guskou Budori no Denki (2012) / The Life of Guskou Budori / Житие Гуск�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_340429.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Idol Boueitai Hummingbird / Idol Defense Force Hummingbird / Боевая поп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340297.jpg" />
 </div>
 
 

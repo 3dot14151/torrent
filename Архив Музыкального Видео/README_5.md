@@ -6,7 +6,7 @@ Muse - Madness (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493583.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Audio Girls feat. Mr. On - My Prisoner (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491969.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Leticia Sabater - Mr. Policeman (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491714.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Korn III: Remember Who You Are (Bonus DVD) (2010) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490622.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ WTF! - The Sway! (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487717.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Tiesto & Steve Aoki - Tornado (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487702.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Musicmatters Videomix - Pop, Rap & RnB Vol. 2 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486208.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Musicmatters Videomix - Pop, Rap & RnB Vol. 1 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486207.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Maroon 5 - iTunes Festival London (2014) WEB-DL [1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485969.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Musicmatters Videomix - Pop House vol.2 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482242.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Musicmatters Videomix - Pop House vol.1 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482189.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Musicmatters Videomix -Pop House vol.3 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482182.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ DVJ Bazuka - Feelin (Uncensored) (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476059.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ EVEL7N feat. J. Worthy - Dirty Nights (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472427.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Kalafina - To the beginning (2012) BDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472278.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469302.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Michael Mind Project feat. Dante Thomas - Nothing Lasts Forever (2012) [H.264/10
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467678.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Kalafina - After Eden' Special Live 2011 at Tokyo Dome City Hall (2011) [H.264/7
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467488.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Moonbeam - The Secret (Live Edition) (2012) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467221.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Icky Blossoms - "Cycle" (Uncensored) (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467076.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Kanye West - Late Orchestration (Live At Abbey Road) (2006) BDRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466864.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ BBX - Making Luv (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465559.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460268.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457950.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452975.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ OV7 & Gloria Trevi - Nada Es Imposible (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451555.jpg" />
 </div>
 
 

@@ -1,112 +1,3 @@
-###  Публикация: 226570   (45083) от 31.08.2024
-
-Halford - Live In Anaheim (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-PART I:
- DOCUMENTARY AND CONCERT (approx. 35 mins)
-including 4 songs performed at Shibuya Kokaido Tokyo, Japan
-01. Heretic (Live In Japan)(   Читать дальше...   )Жанр: Heavy MetalРежиссер: John BaxterФормат: DVD videoКачество: DVD9Продолжительность: 02:06:38+бонус
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276A704E587ED985B73F3804B00E982499C3C000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630159   (44884) от 02.09.2024
-
-Алмазная колесница (2020) WEB-DL [H.264/1080p] (Театр ЛДМ "НОВАЯ СЦЕНА")
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1878 г. Япония. Порт Йокогама. Едва сойдя на берег, российский вице-консул Эраст Фандорин очарован наложницей английского консула Булкокса красавицей-гейшей О-Юми.
-Его служба в Японии начинается с посещения опиумного притона, где он помогает дочери покойного русского капитана Софье Диогеновне Благолеповой вернуть деньги её отца и становится свидетелем столкновения (   Читать дальше...   )Производство: Россия / Театр ЛДМ "НОВАЯ СЦЕНА"Жанр: театр, искусство, мюзиклРежиссер: Ирина Афанасьева, Иван Стависский, Борис МалевскийАктеры: Станислав Беляев, Анастасия Макеева, Василий Туркин, Иван Стависский, Александр Кулинкович, Алексей Родионов, Маргарита Колганова, Мария Лагацкая-Зимина, Олег Калабаев, Александр Голден, Натали Козырева, Роман Никитин, Вячеслав Штыпс, Дарья Чеснокова, Евгений Чесноков, Сергей ХудяковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CA53D4EE69E06FBFD27BB4D490FE765E0C8E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089904   (44873) от 02.09.2024
-
-Гюстав Флобер - Воспитание чувств (1973) SATRip (2 части)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По роману Гюстава Флобера "Воспитание чувств".
-Флобер считал, что в жизни постоянно нужно чему-то учиться, при этом жизнь должна непрерывно воспитывать человека. Собственно Флобер и посвятил свой роман жизни, которая формирует определенный опыт и, благодаря этому опыту, воспитывает человека. Молодой провинциал Фредерик Моро приехал покорять Париж. По характеру (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программ ЦТЖанр: Фильм-спектакль, драма, экранизацияРежиссер: Вениамин СмеховАктеры: Леонид Филатов, Виктор Семёнов, Галина Власова, Валерий Иванов, Зинаида Славина, Александр Сабинин, Инна Ульянова, Якоб Ромбро, Елена Корнилова, Людмила Комаровская, Алексей Граббе, Владимир Матюхин, Марина Полицеймако, Эдисон Денисов, Людмила Давыдова (II)Продолжительность: 2 х ~ 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC190E08B793DEFB927D0EAAC67FF207E37E51A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746935   (44776) от 03.09.2024
-
-Mylene Farmer - Avant que l'ombre A Bercy (2006) BDRip [H.265/1440p] [10-bit] [AI Remaster]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Avant que l’ombre… à Bercy — четвёртый концертный тур (концертная резиденция) Милен Фармер в поддержку её шестого студийного альбома «Avant que l'ombre...», в рамках тура состоялось 13 концертов в парижском концертном зале Берси. За год до концерта было продано более 169 000 билетов.Производство: ФранцияЖанр: PopРежиссер: Франсуа АнссАктеры: Милен Фармер, Абрахам Лабориэль мл. и др.Продолжительность: 02:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E8919C02C0A5002466CB2DF06E2A8D8665E754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746959   (44747) от 03.09.2024
 
 Евгений Гришковец: Шепот сердца (2017) WEBRip [H.264/1080p]
@@ -115,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44747.jpg" />
 </div>
 
 
@@ -142,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44700.jpg" />
 </div>
 
 
@@ -169,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44588.jpg" />
 </div>
 
 
@@ -197,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44566.jpg" />
 </div>
 
 
@@ -223,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44451.jpg" />
 </div>
 
 
@@ -250,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44178.jpg" />
 </div>
 
 
@@ -279,7 +170,7 @@ Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43535.jpg" />
 </div>
 
 
@@ -308,7 +199,7 @@ B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43505.jpg" />
 </div>
 
 
@@ -337,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43457.jpg" />
 </div>
 
 
@@ -366,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43438.jpg" />
 </div>
 
 
@@ -394,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43437.jpg" />
 </div>
 
 
@@ -420,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43341.jpg" />
 </div>
 
 
@@ -447,7 +338,7 @@ ABBA - Super Troupers (Ultimate Edition) (2004) [2xDVD5, DVD9]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43212.jpg" />
 </div>
 
 
@@ -476,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43190.jpg" />
 </div>
 
 
@@ -502,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42988.jpg" />
 </div>
 
 
@@ -528,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42959.jpg" />
 </div>
 
 
@@ -554,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42947.jpg" />
 </div>
 
 
@@ -581,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42865.jpg" />
 </div>
 
 
@@ -610,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42710.jpg" />
 </div>
 
 
@@ -639,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42356.jpg" />
 </div>
 
 
@@ -666,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42338.jpg" />
 </div>
 
 
@@ -692,7 +583,7 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42145.jpg" />
 </div>
 
 
@@ -706,6 +597,117 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9754CF82EBC7F7636502D148FE74F970ABDD05C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327292   (42075) от 29.09.2024
+
+Пиквикский клуб (1986) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джентльмен средних лет, но при том - сама наивность, суммирует свой жизненный опыт, накопленный за годы путешествий по старой доброй Англии. Комические и нелепые ситуации, в которых непрерывно оказываются он и его друзья, превращают спектакль в редкий и по-настоящему неувядающий бестселлер, развлекающий миллионы зрителей.Жанр: Фильм-спектакль, комедияРежиссер: Георгий ТовстоноговВ ролях: Николай Трофимов, Олег Басилашвили, Изиль Заблудовский, Юрий Демич, Ольга Волкова, Наталья Данилова, Татьяна Тарасова, Всеволод Кузнецов, Геннадий Богачёв, Владимир Козлов, Валентина Ковель, Георгий Штиль, Вадим Медведев, Михаил Морозов, Мария Призван-Соколова, Андрей Толубеев, Михаил Данилов, Валерий Караваев, Анатолий Пустохин, Татьяна Бедова, Юрий Томошевский, (   Читать дальше...   )Формат: AVIПродолжительность: 01:20:26 + 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A4F407C784343763DC902B07FFF522191D0694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458227   (42047) от 29.09.2024
+
+Носороги / Театр "У Никитских ворот" (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пьеса «Носороги» Эжена Ионеско относится к так называемому театру абсурда, когда за внешним нагромождением ирреальных сцен скрывается подчас сложное философское отношение к миру и к жизни, где все так же перемешано и порой абсурдно.
+
+Краткое содержание пьесы сводится к тому, как люди становятся носорогами. Действие происходит в европейском маленьком провинциальном (   Читать дальше...   )Жанр: драма, спектакль
+По определению создателей: фантасмагорияРежиссер: Марк РозовскийПродолжительность: 01:12:05 + 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F2C4F9F77FCFC09E662368FAE4EADA8615DA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046811   (42031) от 29.09.2024
+
+Король и хитрец (1994) VHSRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по мотивам английской сказки.
+В одном королевстве жил Король. И было у него три министра. И вот Первому министру приснился сон, что король ушел в отпуск и оставил Первого министра замешать Короля, а Второго министра замещать Первого министра, а Третьего министра замещать Второго министра. Сон был вещим, поскольку приснился с четверга на пятницу. Чтобы (   Читать дальше...   )Производство: Россия, Ленинградское телевидениеЖанр: Телеспектакль, сказка, семейныйРежиссер: Сергей СидоренкоАктеры: Яков Малкин, Валерий Кухарешин, Олег Леваков, Владимир Лелетко, Александр Новиков (III)Продолжительность: 00:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81230B1A8C99591F6AE555E61E98C39796B6BEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752220   (41987) от 29.09.2024
+
+Квартирник у Маргулиса. Олег Чубыкин (28.09.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камерный концерт музыканта и автора песен Олега Чубыкина. Его увлечение рок-музыкой возникло еще в далеком детстве, когда он слушал песни The Beatles, после артист впервые начинал пробовать себя в творчестве и создал школьную группу, затем играл в группе «Тандем» с Александром Ивановым и Павлом Руминовым, а сейчас развивает сольную карьеру.00:00:06  Аллилуйя
+00:05:49  Лето навсегда
+00:12:32  Давным-давно
+00:18:30  Куда уплыли корабли?(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: рокСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AD4DE4152C6B0A1B53522DD65B11FE40C89D18
 ```
 
 https://mybot314.ru/tekegram_catalog/

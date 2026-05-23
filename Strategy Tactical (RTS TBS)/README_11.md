@@ -6,7 +6,7 @@ Space Hulk: Tactics (2018) [Ru/En] (28103) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378935.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376050.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dungeon Rats (2016) [En] (1.0.1.0001) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370759.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.0) Repack Dok2
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370459.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369385.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Commandos 3 - HD Remaster (2022) [Ru/Multi] (1.00.045) License FAiRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367969.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366962.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Panzer Strategy (2018) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365549.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Prodigy Tactics (2017) [Multi] (Update 6) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365221.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ World in Conflict Complete Edition [Ru/En] (Lossless Repack/1.0.1.1) 2009 l R.G.
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362367.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Numantia (2017) [Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362299.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Total War Saga: TROY (2020) [Ru/Multi] (1.2.0/dlc) License CPY
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362076.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Total War Saga: TROY (2020) [Ru/En] (1.2.0/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362067.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Invisible Inc. (2015) [Ru/En] (183969/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359998.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) SteamRip Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359742.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ XCOM: Chimera Squad (2020) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359721.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Men of War: Assault Squad. Game of the Year Edition / В тылу врага 2: 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359486.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Anomaly 2 (2013) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356225.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.01) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355040.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Battlestations Дилогия [Ru/En] (RePack) 2007-2009 | R.G. R3PacK
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354203.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Frontline Zed (2019) [Ru/Multi] (1.00) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353805.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ring of Pain (2020) [Ru/Multi] (1.0.26) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352676.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Syrian Warfare (2017) [En] (1.3.0.19/dlc) License CODEX [Delux Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351574.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348359.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Syrian Warfare (2017) [Ru/En/De] (1.3.0.19/dlc) License PLAZA [Delux Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344725.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Assault Squad 2: Men of War Origins (2016) [En] (3.260.1/dlc) License SKIDROW Go
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344724.jpg" />
 </div>
 
 

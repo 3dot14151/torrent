@@ -6,7 +6,7 @@ Moog Music - Mariana 1.1.0 Standalone, VSTi 3, AAX (x64) RePack by TCD (Rev.1) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120159.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ simplewall 3.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120150.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Maxthon Browser 7.1.8.6001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120146.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Native Instruments - Kontakt 7.8.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120145.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Sante DICOM Viewer Pro 14.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120140.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Music Collection 3.6.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120135.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.2.3 VST 3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120127.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Monkey's Audio 10.47 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120121.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Skype 8.112.0.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120120.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ QOwnNotes 24.1.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120117.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Skype 8.112.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120113.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Privacy Eraser Free 6.3 Build 4831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120105.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ungoogled Chromium 121.0.6167.85-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120103.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sante DICOM Editor 10.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120088.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ W10Privacy 5.1.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120017.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Foobar2000 2.1.2 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120013.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Defender Remover Portable 12.6.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120009.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ LibreOffice 24.2.0.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120005.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Google Chrome 121.0.6167.140 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119999.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ PIDKey Lite 1.64.4 b38 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119993.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Microsoft PowerToys 0.78.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119984.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Free Hex Editor Neo 7.41.00.8634 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119983.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PrivaZer 4.0.82 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119976.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Google Chrome 121.0.6167.140 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119967.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Fort Firewall 3.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119948.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Emurasoft EmEditor Professional 23.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119947.jpg" />
 </div>
 
 

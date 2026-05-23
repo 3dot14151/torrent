@@ -1,29 +1,3 @@
-###  Публикация: 1584413   (225009) от 18.10.2022
-
-Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте за гигантского монстра и обрушьте гнев на человечество в smash ‘em up в стиле ретро. Бейте по зданиям, вертолетам и автомобилям и пожирайте людишек - устройте полный хаос и бессмысленное разрушение (до 4 игроков сразу). Земля на пороге климатической катастрофы. Церковь Святого Ящера придумала зловещий план для спасения планеты от человечества - они хотят (   Читать дальше...   )Тип издания: LicenseРазработчик: Loren LemckeЖанр: Экшны, АркадаЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA44550EEB57B7A89D32EA7FF240A88FA57DC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584374   (224969) от 18.10.2022
 
 The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
@@ -32,7 +6,7 @@ The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224969.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224809.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Christmas Stories 3: Hans Christian Andersen's Tin Soldier / Рождестве�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224807.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Farmer's Dynasty (2017) [Ru/Multi] (1.00.2019.11.21) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224567.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Spirits of Mystery 12: Whisper of the Past / Тайны духов 12: Шёпо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224487.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Knights of Braveland (2023) [Ru/Multi] (1.1.4.50/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224434.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224411.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224409.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tunnel of Doom (2021) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224370.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223991.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ WWE 2K19 (2018) [Multi] (1.03/dlc) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223662.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Darkest Dungeon (2015) [En] (Build 12102) Repack NIK220V
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223255.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Loco Parentis (2019) [Ru/En] (1.2.0.4856) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223230.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Christmas Spirit 2: Mother Goose's Untold Tales (2018) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223175.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ G-Force / Миссия Дарвина (2009) [Ru] (1.0) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223108.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ GTA / Grand Theft Auto: Криминальная Россия RP (2019) [Ru] (0.
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223044.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ NecrovisioN Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222178.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tinytopia (2021) [Multi] (211111) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222066.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sid Meier's Railroads! (RePack/1.1) [Ru/En] 2006 | R.G. ILITA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221869.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Star Renegades (2020) [Ru/Multi] (1.4.2) License GOG [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221850.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Hidden Expedition 20: Reign of Flames (2020) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221807.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Succubus (2021) [Ru/Multi] (1.0.14553 - 1.4.15357) License GOG [Patches]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221779.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221731.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ European Ship Simulator - Remastered (2016) [Multi] (1.0.765) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221677.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221498.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:672327902A329B12E96F93716BCA443B076C70CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379503   (221428) от 20.11.2020
+
+True Fear: Forsaken Souls (2018) [Ru/Multi] (2.0.3) License GOG [Part 2]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение высоко оценённого хоррор приключения, прославившегося своей историей и атмосферой ужасающей тайны. Холли Стоунхаус шла по следу из хлебных крошек. Наконец, она прибывает в лечебницу Дарк Фоллс и узнаёт, что кто-то уже был здесь до неё, кто-то ждал её. Но теперь Холли - не просто зритель, а то, что следует за ней - не просто тень. Теперь это настоящая (   Читать дальше...   )Тип издания: LicenseРазработчик: GoblinzЖанр: Adventure, CasualЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1D96218F0678833EA6DBCF32EBD6B8E3C843A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

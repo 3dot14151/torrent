@@ -6,7 +6,7 @@ DVDFab 13.0.3.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29613.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ WinMerge 2.16.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29606.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ TweakPower 2.068 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29599.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ TechSmith Camtasia 24.1.5 Build 6542 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29597.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ FastCopy Pro 5.8.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29595.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ StartAllBack 3.9.2 build 5232 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29594.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sandboxie 5.70.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29590.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Sandboxie plus 1.15.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29578.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Adobe Acrobat Pro 2024.005.20392 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29556.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ PotPlayer 241216 (1.7.22398) RePack (& Portable) by elchupacabra (28.01.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29531.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Movavi Video Editor 25.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29529.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Auslogics Driver Updater 2.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29513.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Freemake Video Converter 4.1.13.194 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29510.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PDFsam Basic 5.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29507.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Notepad++ 8.7.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29498.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Fast Video Cutter Joiner 6.4.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29496.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Opera One 116.0.5366.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29495.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PDF-XChange Editor Plus 10.5.0.393 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29493.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ PotPlayer 250124 (1.7.22412) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29489.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Subtitle Edit 4.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29486.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Draw.io 26.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29482.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Telegram Desktop 5.10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29472.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BitComet 2.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29467.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ DisplayFusion Pro  + Portable + MSI 11.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29464.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Hetman Partition Recovery 5.0 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29459.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Enigma Virtual Box 11.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29442.jpg" />
 </div>
 
 

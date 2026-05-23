@@ -6,7 +6,7 @@ Zodiac - Ever More (1995) Maxi-Single [FLAC|Lossless|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067696.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Carpenters - Carpenters (1991) Compilation, A&M Records [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067695.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Melanie C - Sweat (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067653.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Shout-Out Pop (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067478.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cream Soda - Истерика (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Russia
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067412.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sydney Youngblood - Sydney Youngblood (1990) [FLAC|Lossless|image + .cue] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066945.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Demi Lovato - It’s Not That Deep (Unless You Want It To Be) (2025) 2CD, 2026, 
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066943.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Carpenters - Lovelines (1989) Remastered [FLAC|Lossless|image + .cue] <Pop, Soft
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066942.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sylvester - Mutual Attraction (1986) [FLAC|Lossless|image + .cue] <Electronic, F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066940.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Michael Jackson - Michael: Songs From The Motion Picture (2026) Original Motion 
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066939.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Meghan Trainor - Toy With Me (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066927.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Real McCoy - One More Time (1997) [FLAC|Lossless|image + .cue] <Electronic, Euro
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066802.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ CREAM SODA - Истерика (2026) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066778.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Frank Duval - Rarities Volume 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066346.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kenny Rogers - Kenny Rogers (1983) Reissue, 1986, RCA [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066001.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Alexia - The Party Alexia (1998) [FLAC|Lossless|image + .cue] <Euro House, Italo
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066000.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Thomas Anders - ZEITLOS (2026) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065983.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Deary - Birding (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <dream pop, etherea
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065975.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Annie Lennox - Songs of Mass Destruction (2007) [FLAC|Lossless|tracks + .cue] <S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065780.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Ring - Savage Lover (1981) [FLAC|Lossless|tracks] <Disco, Space Rock, Prog R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065683.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Juice Newton - Juice Newton's Greatest Hits (And More) (1984) Compilation, Reiss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065606.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Susanna Hoffs - When You're A Boy (1991) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065420.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064885.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mauro Farina - ∞ (2026) 3XCD, Compilation [FLAC|Lossless|tracks] <Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063221.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062914.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Трудный возраст. Трибьют МакSим (2026) [MP3|320 K
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062863.jpg" />
 </div>
 
 

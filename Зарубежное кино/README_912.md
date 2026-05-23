@@ -1,55 +1,3 @@
-###  Публикация: 521997   (624517) от 12.07.2012
-
-Убийца внутри меня / The Killer Inside Me (2010) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Помощник шерифа Лу Форд — настоящий техасец из маленького городка. Неторопливый, дружелюбный и даже обаятельный, он скрывает внутри себя совсем другую личность — неумолимого душегуба, который убивает так же легко, как раскуривает сигару. И всю свою историю он словно сам себе и рассказывает, с интересом наблюдая, сумеют ли его коллеги найти истинного преступника. И будет ли, наконец, остановлен Лу на дороге Зла? Дороге, которую он не выбирал…Жанр: Триллер, драма, криминалРежиссер: Майкл УинтерботтомАктеры: Кейси Аффлек, Джессика Альба, Кейт Хадсон, Нед Битти, Элиас Котеас, Том Бауэр, Саймон Бэйкер, Билл Пуллман, Брент Бриско, Мэттью Мехер, Лиам Эйкен, Джей Р. Фергюсон, Али Назари, Блейк Линдсли, Зэк Йоссе, Ной Кроуфорд, Блейк Бригхэм, Кэйтлин Тернер, Майкл Гиббонс, Роза Паскарелла, Арлетта Найт Финк, Джед Фокс, Донна Е. Джонс, Расселл Стюарт, Джон Бьелич, Филипп Борге, Бретт Бауэр, Хезер Кэйтс, Лори Линн Кросс, Джеффри Фейнголд, Шон Джонстон, Марк Адам Гофф, Мила МакКой, Патрик МакГи, Дрю Никсон, Дэбби ТаккерПеревод: ДублированныйПродолжительность: 01:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A409867D9A8BDFD2E5164B142D25F3BCCD62AE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521630   (624401) от 12.07.2012
-
-Жутко громко и запредельно близко / Extremely Loud & Incredibly Close (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Десятилетний Оскар теряет отца в день атаки на башни-близнецы в Нью-Йорке. По всему городу Оскар ищет информацию, которая должна привести его к разрешению загадки отца. На пути мальчику встретятся разные люди, но их всех объединяет страшная катастрофа, поэтому каждый пытается справиться с собственным горем.Жанр: Драма, Детектив, ПриключенияРежиссер: Стивен ДолдриПродюсер: Скотт Рудин, Эли Буш, Селия Д. КостасАктеры: Том Хэнкс, Сандра Буллок, Томас Хорн, Макс фон Сюдов, Виола Дэвис, Джон Гудмен, Джеффри Райт, Зои Колдуэлл, Дэннис Хирн, Пол КлементовицПеревод: Профессиональный (многоголосый)Продолжительность: 02:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D8E81B1D59C1E90AFF332A05F9B95979547CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035898   (624380) от 18.07.2016
 
 Любовь зла / Shallow Hal (2001) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624380.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624374.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624340.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624310.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624309.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624307.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624302.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624278.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624271.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624202.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624200.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624199.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624165.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624159.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624151.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624148.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624058.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624056.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624051.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624047.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624021.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624010.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624001.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623997.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3BFCD5245EF35649A292FC01527B5A8560866F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294333   (623867) от 10.04.2019
+
+Шедевр / Mi obra maestra / My Masterpiece (2018) Blu-Ray [H.264/1080p] [SPA / SPA, ENG Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артуро — утонченный владелец художественной галереи в Буэнос-Айресе и беспринципный арт-дилер. Ренцо — угрюмый и циничный живописец, одинаково ненавидящий арт-критиков, тусовки, журналистов и клиентов, которые хотят получить шедевр на заказ. Несмотря на разность, эти двое были лучшими друзьями и партнёрами на протяжении многих лет, пока Артуро не придумал гениальную (   Читать дальше...   )Производство: Аргентина, Испания / Arco Libre, Hei Films, Instituto Nacional de Cine y Artes Audiovisuales (INCAA), Mediapro, Televisión AbiertaЖанр: комедияРежиссер: Гастон ДюпраАктеры: Гильермо Франселья, Луис Брандони, Андреа Акатто, Лукас Аранда, Рауль Аревало, Махмуд Азим, Даниэла Кац, София Кондишиани, Эмилия Дюпра, Октавио ДюпраПеревод: отсутствуетЯзык озвучки: испанскийСубтитры: английские (полные), испанские (форсированные)Продолжительность: 01:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423B36AE845AE3EDB78DEC239E4D7D47BED7391E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145193   (623782) от 24.06.2017
+
+Уроки полета / Flying Lessons (2010) HDTVRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина, снятая в жанре драмы, рассказывает о молодой 25-летней женщине по имени Софи Конвэй, жизнь которой оказалась на распутье. Софи возвращается в родной городок, который хотела бы навсегда оставить в прошлом. Дома она встречается с бывшими друзьями и любовниками, а также пытается разобраться в отношениях со своей матерью, осложнившимися после самоубийства отца. (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Дерек МадьярАктеры: Мэгги Грэйс, Кэри Элвис, Джонатан Такер, Джоанна Кэссиди, Иэн Энтони Дэйл, Рик Гонзалез, Майкл О`Нилл, Хэл Холбрук, Кристин Лахти, Никки Делоач ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C220D93D343732010499ABFFBC606AE69003458A
 ```
 
 https://mybot314.ru/tekegram_catalog/

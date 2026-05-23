@@ -6,7 +6,7 @@ GPU-Z 2.56.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133299.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SamDrivers 23.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133296.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133290.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Photoshop 2024 25.2.0.196 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133236.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133235.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ GoodbyeDPI 0.2.2 Launcher 6.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133223.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VLC Media Player 2.1.0-git-20121227-0003 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133088.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Emurasoft EmEditor Professional 23.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133064.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ XYplorer 25.20.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132980.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Change MAC Address 2.5.0 Build 81 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132976.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Araxis Merge Pro 2023.5954 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132975.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Efficient Sticky Notes 3.10 Build 326 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132970.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ OneCommander Pro 3.60.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132954.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ WindowBlinds 7.4.0 build 320 Enhanced [Eng] + 141 best visual styles
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132922.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132875.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ SynWrite Editor 4.6 build 552 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132809.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ KMS Tools Portable by Ratiborus 01.12.2023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132787.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ EmEditor Professional 12.0.8 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132739.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Sandboxie 5.67.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132715.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Sandboxie plus 1.12.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132703.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ PrivaZer 4.0.80 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132666.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ SRWare Iron 118.0.6000.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132658.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ LibreWolf 120.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132642.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Ungoogled Chromium 119.0.6045.199-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132639.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Text Edit Plus 13.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132607.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ MKVToolNix 81.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132596.jpg" />
 </div>
 
 

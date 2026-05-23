@@ -1,60 +1,3 @@
-###  Публикация: 604927   (996022) от 18.01.2013
-
-Дагон / Dagon (2001) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Выброшенные на берег небольшого острова ужасным штормом Пауль и Барбара нашли прибежище в заброшенной рыбацкой деревушке. Когда Барбара неожиданно исчезает среди уродливых и отталкивающих местных жителей, Паулю приходится столкнуться с пугающей действительностью одинокого городка.
-
-Пауль решается на жуткое расследование исчезновения Барбары в одиночку среди полного бездействия страшных обитателей деревушки. Но то, что обнаруживает Пауль в результате поисков вселяет страх и ужас и грозит опасностью всему миру.Жанр: Ужасы, Фэнтези, ТриллерРежиссер: Стюарт ГордонАктеры: Эзра Годден, Франциско Рабаль, Ракель Мероно, Брендан Прайс, Ферран Лаоз, Альфредо Вилья, Хавьер Сандовал, Виктор Баррейра, Фернандо Джил, Хорхе Луис Перез, Оскар Гарсия, Хосе Мануэль ТорресПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49018F055B3C45B9A1FE33AF68C18CFD259547E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604720   (996014) от 18.01.2013
-
-Исповедь сына века / Confession of a Child of the Century (2012) DVDRip [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Может ли любовь излечить отчаяние? Адаптация классического романа Альфреда де Мюссе, фильм «Исповедь сына века» (Confession of a Child of the Century) рассказывает драматическую историю, начало которой положено в 1830 году в Париже.
-Октав (Пит Доэрти) предан своей любовницей. Отчаяние приводит к тому, что он становится распутником. Однако эта новая для него жизнь отнюдь не удовлетворяет его.
-Смерть его отца становится причиной того, что герой кинокартины «Исповедь сына века» отправляется в провинцию, где встречает Бригитту (Шарлотта Генсбур), молодую вдову, которая много времени проводит в заботах о бедных. Октав нашел свою новую любовь.
-Бригитта вначале сопротивляется его ухаживаниям, не желая вновь пережить любовную страсть. Но в конечном итоге ее чувство оказывается сильнее, она сдается. Герои влюблены и счастливы. Но Октава начинают мучить подозрения. Останется ли Бригитта верна ему? Разве каждая женщина не предает своего возлюбленного рано или поздно? Есть ли любовь на самом деле, или же это все только иллюзия? (   Читать дальше...   )Жанр: ДрамаРежиссер: Сильви ВередАктеры: Шарлотта Генсбур, Пит Доэрти, Аугуст Диль, Лили Коул, Фолькер Бруч, Гийом Гальенн, Кяроль Роше,  Жозефин Де Ла Буме, Ребекка ДжеймсПеревод: ОтсутствуетПродолжительность: 01:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E981986B9C728FEA6EE4C0FE2C22ABC7A5BD596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604781   (996012) от 18.01.2013
 
 10 лет спустя / 10 Years (2012) [H.264/720p-LQ] BDRip [Line]
@@ -63,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996012.jpg" />
 </div>
 
 
@@ -89,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996011.jpg" />
 </div>
 
 
@@ -115,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996010.jpg" />
 </div>
 
 
@@ -141,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996001.jpg" />
 </div>
 
 
@@ -167,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995997.jpg" />
 </div>
 
 
@@ -193,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995996.jpg" />
 </div>
 
 
@@ -219,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995985.jpg" />
 </div>
 
 
@@ -247,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995982.jpg" />
 </div>
 
 
@@ -273,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995980.jpg" />
 </div>
 
 
@@ -299,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995978.jpg" />
 </div>
 
 
@@ -325,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995976.jpg" />
 </div>
 
 
@@ -351,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995969.jpg" />
 </div>
 
 
@@ -377,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995856.jpg" />
 </div>
 
 
@@ -403,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995778.jpg" />
 </div>
 
 
@@ -433,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995748.jpg" />
 </div>
 
 
@@ -459,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995741.jpg" />
 </div>
 
 
@@ -485,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995723.jpg" />
 </div>
 
 
@@ -511,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995720.jpg" />
 </div>
 
 
@@ -537,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995717.jpg" />
 </div>
 
 
@@ -563,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995709.jpg" />
 </div>
 
 
@@ -589,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995549.jpg" />
 </div>
 
 
@@ -615,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995510.jpg" />
 </div>
 
 
@@ -641,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995506.jpg" />
 </div>
 
 
@@ -667,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995492.jpg" />
 </div>
 
 
@@ -678,6 +621,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8613A3F7B673DA9AE806F7F2AC9A6D2CBAE8E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606124   (995483) от 20.01.2013
+
+Дитя Макона / The Baby of Macon (1993) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995483.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-й век. Театр. Перед публикой разыгрывается драма. Суть в том, что во времена смуты и голода пожилая женщина рожает чудесное дитя, хотя многие ожидают рождения чудовища.
+
+Новорожденный мальчик так хорош собой, что его объявляют святым, чудесным ребенком. Вокруг него разгораются страсти; и церковь и семья используют его для достижения своих целей. И постепенно границы между спектаклем и реальностью стираются.Жанр: ДрамаРежиссер: Питер ГринуэйАктеры: Джулия Ормонд, Рэйф Файнс, Филип Стоун, Джонатан Лэйси, Дон Хендерсон, Селия Грегори, Джеф Нэттал, Джессика Хайнс, Кэтрин Хантер, Гэбриэлль РейдиПеревод: Многоголосый закадровый (CP-Digital)Продолжительность: 02:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53B71F352C759244345B2CF9EF2212D44791F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605220   (995477) от 20.01.2013
+
+Последняя надежда человечества / Against the Dark (2009) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виртуоз катаны Тао ведет специальный отряд бывших военных на геноцидную миссию. Их цель — вампиры. На постапокалиптической планете, высосанной до дна кровожадными упырями, кучка оставшихся в живых пойманы в ловушку в зараженной больнице. Тао — их последняя надежда, и он знает, что единственная панацея — резня. Настал час решающего противостояния плотоядным вампирам, (   Читать дальше...   )Производство: США, Румыния / Steamroller Productions,Castel Film RomaniaЖанр: Ужасы, Фантастика, Боевик, ТриллерРежиссер: Ричард КрудоАктеры: Стивен Сигал, Таноай Рид, Дженна Харрисон, Линден Эшби, Эмма Кэтервуд, Стефен Хэйгэн, Дэниэл Персивал, Скай Беннетт, Таня Добрэ, Михаэла КонстантинПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1764BDE5931903D0A8D9DF71F9DFE9086371231
 ```
 
 https://mybot314.ru/tekegram_catalog/

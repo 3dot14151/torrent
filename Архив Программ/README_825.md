@@ -6,7 +6,7 @@ VueScan Pro 9.1.08 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629451.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PicPick 4.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629361.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CleanMyPC 1.8.7.915 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629360.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Google Chrome 59.0.3071.109 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629351.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ YTD Video Downloader PRO 5.8.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629350.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Topaz Lens Effects 1.2.0 RePack by Stalevar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629298.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ KMS Tools Portable 01.04.2019 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629297.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AusLogics BoostSpeed 8.0.0.0 Portable by punsh [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629295.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ WizTree 4.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629260.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ KiCad 6.0.4 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629258.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ CrystalDiskInfo 8.16.4 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629256.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ PowerISO 8.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629247.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Auslogics File Recovery 7.1.4.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629236.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Google Chrome 59.0.3071.109 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629234.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NetSetMan 4.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629228.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VMware Workstation 11.1.2.2780323 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629222.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ AutoRuns 13.40 Portable by Boomer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629209.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ HitmanPro 3.7.9 Build 242 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629204.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WinISO Standard 6.2.0.4574 6.2.0.4574 [Многоязычный + Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629195.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VueScan Pro (x86/x64) 9.1.09 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629183.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ FreeCommander XE 2017 Build 740 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629154.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Adobe Prelude CC 2017 (v6.1.2) Multilingual Update 4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629147.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AusLogics BoostSpeed 9.1.4.0 RePack (& Portable) by Pilot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629143.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Stellar Phoenix Windows Data Recovery Pro 7.0.0.1 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629141.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Adobe Bridge CC 6.1.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629132.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ DevExpress VCL for Delphi and C++Builder 14.2.2 Full Sources [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629128.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1724868   (55760) от 22.05.2024
-
-Алекс Ключевской | Незаконный наследник (Книга 1). Вспомнить, кем был. Стать собой. Остаться собой (2024) [MP3, Семен Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Позорная смерть стала предвестником необычного перерождения! Как же главный герой воспользуется вторым шансом на жизнь? Когда ты добился всего, чего только мог, то тебе становится скучно, и ты начинаешь рисковать, играя с судьбой. И вот однажды судьба поворачивается к тебе вовсе не лицом. Такая неожиданная, позорная смерть, но ты сам виноват, доигрался. Вот только, (   Читать дальше...   )Жанр: ПопаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 19:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6109DC06DA78B95A91348D595EECECAA335D6810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724875   (55744) от 22.05.2024
-
-Алекс Ключевской | Незаконный наследник (Книга 2). Стать сильнее (2024) [MP3, Семен Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Дед нашелся. Теперь Константину вернуться бы к учебе, к балу готовиться, по клубам пройтись… Ага, размечтался. Покой Кернам только снится.Жанр: ПопаданцыИздательство: ЛитРес: Чтец , АвторПродолжительность: 06:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ACA7126CA420EC23FD56604D0A9FFDE122C4469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724880   (55739) от 22.05.2024
-
-Алекс Ключевской | Незаконный наследник (Книга 3). Остаться сильным (2024) [MP3, Семен Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Константин арестован, Совет колеблется, дед и кот восстанавливаются после ранений. И никто не в состоянии спрогнозировать, во что всё это выльется.Жанр: ПопаданцыИздательство: ЛитРес: Чтец , АвторПродолжительность: 06:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938873495228E91A55F7624EC0AC50E8DF8A132A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724890   (55736) от 22.05.2024
 
 Юрий Винокуров, Олег Сапфир | Кодекс Охотника (Книга 22) (2024) [MP3, Александр Башков]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55736.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55733.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55726.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55715.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55711.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55658.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55623.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55601.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55573.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55526.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55524.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55517.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55506.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55503.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55498.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55431.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55338.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55313.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55239.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55208.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55116.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55107.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55102.jpg" />
 </div>
 
 
@@ -671,6 +593,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:084D0199BD54722B03553F78DCD584CC65AD36D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726461   (55098) от 28.05.2024
+
+Дэниел Абрахам | Китамар (Книга 1). Время пепла (2024) [MP3, Дмитрий Стрелков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время пепла ― первая книга фэнтезийной трилогии о городе Китамар и его обитателях от одного из авторов монументальной космической оперы «Пространство».
+
+Китамар — центр торговли, жемчужина цивилизации, древний город с долгой, кровавой историей, где живут бесчисленные тысячи людей, каждый из которых имеет свою историю. Это история Элис. Когда убивают ее брата, (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтезиИздательство: Эксмо, FanzonПродолжительность: 14:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC5C45B70CE248413201A1D142294E67DD5371B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726362   (55093) от 28.05.2024
+
+Юрий Поляков | Совдетство (Книга 2). Пионерская ночь (2022) [MP3, Александр Аравушкин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Юрия Полякова «Совдетство. Книга о светлом прошлом» сразу стала бестселлером, покорив читателей трогательной достоверностью картин минувшего и глубиной проникновения в сложный внутренний мир советского ребенка. Критика уже успела поставить эту «вспоминальную» прозу в один ряд с «Летом Господним» Ивана Шмелева и «Детством Никиты» Алексея Толстого. И вот долгожданное (   Читать дальше...   )Жанр: Современная прозаИздательство: Аудиокнига (АСТ)Продолжительность: 15:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717E7B1CC553D2BA37775F17F4CD7A04CCF11909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726361   (55091) от 28.05.2024
+
+Сергей Снегов | Драма на Ниобее (2024) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астросоциолог Василий Штилике получает задание отправиться на далекую Ниобею, небольшую планету в системе Гармодия и Аристогитона, для того, чтобы составить программу освоения планеты, которая должна спасти ее от разрушения, а нибов -немногочисленное сообщество гуманоидов, населяющих планету – от неминуемой гибели. Причина возможных фатальных событий банальна – Ниобея (   Читать дальше...   )Жанр: ФантастикаИздательство: СОЮЗПродолжительность: 05:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF9D6E2C81F3DE46D6A1A4A774BADB1DB362F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

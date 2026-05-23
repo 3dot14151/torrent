@@ -6,7 +6,7 @@ Relooted (2026) [Ru/Multi] (Build 21884112) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056368.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crisol Theater of Idols (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056294.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Crisol: Theater of Idols (2026) [Ru/Multi] (build 21866503) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056262.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mewgenics (2026) [Ru/Multi] (0.0.20622) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056241.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Souper Game (2026) [Ru/Multi] (1.0.25) Repack Other s [18+]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056194.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MIO: Memories in Orbit (2026) [Ru/Multi] (r21606) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056174.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056143.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056142.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Jackal (2026) [Ru/Multi] (0.9.10) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056139.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.7.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056085.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aztecs: The Last Sun (2025) [Ru/Multi] (0.6.0/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056039.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack HardwareMining [Go
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055969.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nioh 3 (2026) [Ru/Multi] (1.02.02/1.03/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055968.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Nioh 3 (2026) [Ru/Multi] (1.03/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055967.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Donna: The Canine Quest (2025) [En] (1.0.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055966.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Rising Front (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055964.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sky Force Reloaded (2017) [Ru/Multi] (build 3397294) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055963.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Nioh (2017) [Ru/Multi] (1.24.8/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055945.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Nioh 3 (2026) [Ru/Multi] (1.03/dlc) Repack Let'sРlay [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055939.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Nioh 2 (2021) [Ru/Multi] (1.28.8/dlc) Repack Let'sРlay [The Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055938.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055921.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Nioh 3 (2026) [Ru/Multi] (1.03/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055841.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Crosak (2025) [Ru/Multi] (1.04) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055840.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055839.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack HardwareMining [Go
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055837.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Nioh 3 (2026) [Ru/Multi] (1.02.02/dlc) Repack seleZen [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055834.jpg" />
 </div>
 
 

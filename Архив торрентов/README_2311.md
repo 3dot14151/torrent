@@ -6,7 +6,7 @@ The Clamps - Nerves (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537280.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ DJ Nike Twist - TranceWave 120 @ GTI Radio (30.07.2015) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537279.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537244.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Monster Energy NASCAR Cup Series 2017. 19-й Этап. Overton's 301 (16.07.2017
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537238.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Monster Energy Nascar Cup Series-2017, Этап 21 - Pocono Raceway (2017) WEB-D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537227.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Wireshark 3.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537219.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ TapinRadio Pro 1.71.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537200.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Serial 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537198.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ XMedia Recode 3.2.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537189.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537187.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Hecq - Night Falls (2008) [FLAC|Lossless]<Modern Classical, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537172.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537166.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Essential Guide: Progressive Trance Vol.14 (2017) [MP3|320 Kbps] <Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537152.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Goa Signature (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537142.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Eimear - Artist Focus 71 (2017) [FLAC|Lossless|tracks] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537134.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ GPU Caps Viewer 1.36.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537129.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Coates Hire Ipswich Su
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537127.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ ProPresenter 6.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537122.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537117.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Koan - Non Figment (2015) [FLAC|Lossless|WEB-DL] <Psychill, Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537114.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PrivaZer 2.36.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537109.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Can Knockdown 2 v1.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537108.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Any DVD Converter Professional 5.8.3 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537105.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537087.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Manfred Mann's Earth Band - Somewhere In Africa (1982) Remastered, 1999, Creatur
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537080.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Armin van Buuren - A State Of Trance 823 (20.07.2017) Radioshow [MP3|256 Kbps] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537076.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft .NET Framework 4.7.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377920.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 54.0.2840.87 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377893.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MusicBee 3.0.6132 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377888.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Scanitto Pro 2.14.25.239 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377870.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AltDesk 1.8.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377848.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ XviD4PSP 7.0.312 DAILY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377807.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ RadioBOSS Advanced 5.5.1.0 Repack by Givaraa [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377802.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Nero Video 2017 18.0.12000 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377800.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Kaspersky Rescue Disk 10.0.31.4 (11.11.2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377765.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Foxit Office Suite 5.3.1.0606 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377759.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Avira Antivirus Free 15.0.23.58 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377728.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft Windows 7/Server 2008 R2 Language pack - 35 Languages. SP1.RC-1 - x86/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377552.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Maxthon Browser 5.2.5.1000 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377515.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.11.01 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377478.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Privacy Eraser Free 4.18.0 Build 2175 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377468.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ EASEUS Partition Master 11.9 Server | Professional | Technican | Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377458.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Macgo Windows Blu-ray Player 2.16.7.2121 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377425.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Rohos Face Logon 2.9 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377402.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ RadioMaximus 2.23.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377384.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ WinUtilities Professional Edition 15.4 RePack by arina-23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377376.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ GoodSync Enterprise 10.9.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377375.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Mozilla Firefox 41.0.2 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377334.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377307.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ XSplit 1.1.1209.0601 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377302.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Sonible smart:EQ2 1.0.0 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377273.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Krita 4.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377261.jpg" />
 </div>
 
 

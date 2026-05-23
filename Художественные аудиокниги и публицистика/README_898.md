@@ -1,83 +1,3 @@
-###  Публикация: 1688635   (125083) от 30.12.2023
-
-Рафаэль Дамиров | Кречет (Книга 2) (2023) [MP3, Иван Златоустов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я замахнулся и со всей дури хрястнул зомби по спине. Но мертвец покачнулся, и вместо позвоночника клинок топора увяз в его лопатке. Я дернул рукоять на себя, но чертов топор застрял.
-Твою ж мать! Я рванул что есть силы. Топор выскочил, а я, потеряв равновесие, грохнулся на спину.
-Мертвец кинулся вперед и пытался сграбастать меня с земли. Я откатился в сторону и хотел (   Читать дальше...   )Жанр: Боевая фантастика, постапокалипсисИздательство: ЛитРес: чтецПродолжительность: 07:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B27D196D5EE1C3C05E7E758CE406F8E3CD3874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688454   (125070) от 30.12.2023
-
-Джордж Оруэлл | 1984 (2020) [MP3, Егор Бероев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Новояз», «мыслепреступление», «Министерство Правды» – сатирик-визионер Джордж Оруэлл так ярко и беспощадно точно изобразил тоталитаризм, что мы до сих пор пользуемся его образами, говоря о современной реальности. Эталон антиутопии – описание общества, где царит полный контроль государства над людьми, их мыслями и чувствами, их прошлым и будущим. Урок «1984» о том, (   Читать дальше...   )Жанр: зарубежная фантастика, классика фантастики, социальная фантастикаПеревод: Виктор ГолышевИздательство: ВИМБОПродолжительность: 11:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83774820715B749AF19EBEC26D868FE0954B4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688729   (125066) от 30.12.2023
-
-Валерий Шарапов | Холодное золото (2023) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1972 год. Москву всколыхнула серия жестоких убийств работников искусства: знаменитой певицы, известного дирижера и популярного артиста. У каждой из жертв грабители похитили уникальные коллекции – драгоценности, редкие книги, монеты… Следствие поручено капитану МУРа Ивану Егорову. Он сразу же выделяет схожие черты всех трех преступлений. Все убитые – деятели культуры, (   Читать дальше...   )Жанр: Детектив, боевик, криминалИздательство: ЛитРесПродолжительность: 06:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9065545FA7F2AEE8162D8B65EB4A7DEEF668111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688830   (125056) от 30.12.2023
 
 Александр Март | Механики (Книга 18). Запах свободы (2023) [MP3, Сергей Ермилов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125056.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125051.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125041.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125039.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125033.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125032.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125022.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125016.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124995.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124993.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124965.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124960.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124912.jpg" />
 </div>
 
 
@@ -431,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124900.jpg" />
 </div>
 
 
@@ -458,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124897.jpg" />
 </div>
 
 
@@ -484,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124891.jpg" />
 </div>
 
 
@@ -510,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124889.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124883.jpg" />
 </div>
 
 
@@ -563,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124878.jpg" />
 </div>
 
 
@@ -589,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124874.jpg" />
 </div>
 
 
@@ -615,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124853.jpg" />
 </div>
 
 
@@ -642,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124818.jpg" />
 </div>
 
 
@@ -669,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124811.jpg" />
 </div>
 
 
@@ -682,6 +602,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1E991034FCD42AAA1E788311259D02DD4B0DEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689261   (124789) от 01.01.2024
+
+Константин Паустовский | Повесть о лесах (2017) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124789.jpg" />
+</div>
+
+
+###  Подробнее
+
+В лучших произведениях позднего периода Константин Георгиевич Паустовский остался приверженцем лирико-романтического отношения к действительности. Настоящее и прошлое нашей действительности, полной борьбы, самоотверженности, а иногда трагизма и лишений, писатель рассматривает преимущественно с точки зрения тех её элементов, которые принадлежат миру желаемого будущего. (   Читать дальше...   )Жанр: русская классика, повестиИздательство: СОЮЗПродолжительность: 06:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667F320F1E9359C1941AB65854EEBD0D91E43272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689258   (124786) от 01.01.2024
+
+Уильям Сомерсет Моэм | Луна и шестипенсовик (Луна и грош) (2023) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарльз Стриклэнд, мелкий лондонский биржевой маклер, в котором никто из друзей и близких не замечал ничего необычного, после семнадцати лет брака, внезапно бросает жену и детей. Он уезжает в Париж и приводит в немалое изумление свою семью и знакомых сообщением о том, что он принял решение уехать, чтобы стать художником. Он начинает рисовать совершенно нестандартно, (   Читать дальше...   )Жанр: зарубежная классика, романыПеревод: Зинаида ВершининаИздательство: СОЮЗПродолжительность: 09:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63E3CAF1815DEE55CDC70302F29464A2EE56E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689395   (124785) от 01.01.2024
+
+Джек Лондон | Северная Одиссея (2007) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Лондон (1876–1916) – писатель и журналист, военный корреспондент, общественный деятель, классик американской литературы.
+В аудиокнигу вошли рассказы о нелегком завоевании «края земли». Это были времена «Золотой Лихорадки» и открытия Клондайка. В суровом испытании «Белым Безмолвием», настигавшем людей в снежной пустыне, раскрывались сила и слабость человеческого (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: СиДиКом, ЭлитайлПродолжительность: 08:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A21AF08DCDD44523F52C434564859231120949B
 ```
 
 https://mybot314.ru/tekegram_catalog/

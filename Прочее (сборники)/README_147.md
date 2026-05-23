@@ -6,7 +6,7 @@ VA - Клубные Новинки Vol.80 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253933.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Клубный драйвовый музон (2012) [MP3|224-256 кб/с]<D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253929.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ VA - Avto Club Май Vol.5 (2012) [MP3|320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253899.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Лирика. Зарубежные Медляки - 1 (2012) [MP3|320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253785.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - The Best Sixties Album In The World...Ever! Vol. I - IV (1995-1998) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253696.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253691.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Убойная вечеринка по-русски (2012) [MP3|256 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253634.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Зарубежные Новинки Vol.50 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253629.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Клубные Новинки Vol.79 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253606.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Lifetime Of Romance (2004)(18CD) [MP3|~225 кб/с (V1)]<Easy Listening / O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253408.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - XXXL Зарубежный Топ Сезона (2012) [MP3|320 кб/с]<Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253373.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Танцевальный клубный поп хит vol.7 (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253343.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Летняя Жажда Скорости (2012) [MP3|256 кб/с]<Dance, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253165.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Популярный музыкайф зарубежный (2012) [MP3|192-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253152.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - 200 Самых Сочных Хитов (2012) [MP3|128 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253145.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Дискотека Record Выпуск 6 50/50 (2012) [MP3|256 кб/с]<Clu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253143.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Клубный Танцпол Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253123.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Русский рок - Баллады (2012) [MP3|192-320 кб/с]<Heavy, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252951.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - В Машину! с DFM 50\50 (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252910.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Радужный молодежный хит (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252846.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252842.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ VA - Early Girls, Vol.1-5 (1995-2008) [MP3|320 кб/с]<Pop, Rock & Roll, Oldies
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252831.jpg" />
 </div>
 
 
@@ -776,7 +776,7 @@ VA - Music News For Forum vol.146 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252472.jpg" />
 </div>
 
 
@@ -805,7 +805,7 @@ VA - Time Life - Sounds of the Eighties (1980-1989)(10CD) [MP3|~245 кб/с (V0)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252378.jpg" />
 </div>
 
 
@@ -840,7 +840,7 @@ VA - Понемногу отовсюду by Yuridar #M-N (1958-2020) Compilation
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252118.jpg" />
 </div>
 
 
@@ -869,7 +869,7 @@ VA - Не спи за баранкой 7 (Музыка в машину) (2023) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251834.jpg" />
 </div>
 
 

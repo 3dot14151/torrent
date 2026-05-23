@@ -6,7 +6,7 @@ Tim Warfield - Jazz Is ... (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264524.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Toshiko Akiyoshi - Interlude (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264523.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Pat Martino - Formidable (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264522.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Milt Jackson - Goodbye (1974) 2017, CTI [FLAC|Lossless|tracks + .cue] <Mainstrea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264520.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tina Schlieske - Evil Gal Blues (2008) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_264516.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jane Clifton - The Marriage of Style (2003) [MP3|320 Kbps] <Jazz, Pop>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264511.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jaki Byard Quartet - Live! (1965) 1992, Prestige [APE|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264462.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Roy Haynes - True Or False 1986 (1997) Evidence [FLAC|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264312.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lionel Hampton & Friends (1990) Groove Merchant [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264185.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chris Potter - Pure (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264184.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ George Otsuka Trio - Page 2 (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264183.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Chris Potter - Moving In (1996) Concord Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264181.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Wes Montgomery - Dangerous (1961 - 1963) 1999, Milestone Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264177.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ George Otsuka Trio - Last Summer: Page 3 (1969) 2014, Nippon Columbia [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264176.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Smooth Christmas (Jazzy Lounge Christmas Relaxing Chill Out) (2017) [MP3|32
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264119.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Optimystica Orchestra - Полубоги Вина (2005) 2018, Remastered [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264016.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Chris Potter - Coming Together (2009) Inarhyme Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263918.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ George Shearing & Brian Torff - Lullaby of Birdland (1979, 1980) 2CD, 2000, Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263914.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dave Brubeck Quartet - At Wilshire Ebell (1953) 2006, Fresh Sound Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263901.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cory Wong - Cory Wong and the Green Screen Band (2017) [FLAC|Lossless|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263815.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Brian Culbertson - 15 Альбомов (1995-2018) [FLAC|Lossless|image+ .cue, t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263789.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Bud Powell Trio - Bouncing With Bud 1962 (1997) Mobile Fidelity Sound Lab [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263629.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Dave Brubeck - Time Signatures: A Career Retrospective 1950-e - 1970-e (1992) 4C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263626.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Denny Zeitlin & David Friesen - Live at the Jazz Bakery (1996) 1999, Intuition R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263561.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Lionel Hampton - Hamp's Blues & Flying Home (1969, 1974) 2CD, 1992, Lester Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263538.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Earl Hines - Here Comes Earl 'Fatha' Hines & Spontaneous Explorations (1964, 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263536.jpg" />
 </div>
 
 

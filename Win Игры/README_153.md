@@ -1,29 +1,3 @@
-###  Публикация: 1217398   (742962) от 04.04.2018
-
-Welcome to the Game II (2018) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Welcome to the Game II - атмосферный ужас, стратегия, головоломка, которая погружает Вас в мир всемирной паутины в поисках сети Deep Web. Вы играете как Клинт Эдвардс (Clint Edwards), журналист пытающийся помочь женщине по имени Амалия (Amalea), которой угрожают люди из теневой сети.Тип издания: LicenseРазработчик: Reflect StudiosЖанр: Adventure (Horror), Strategy, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C447EB1AA4614D9035BD803BAA1939571088EDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217336   (742961) от 04.04.2018
 
 Devil May Cry 4 (2015) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Special Edition]
@@ -32,7 +6,7 @@ Devil May Cry 4 (2015) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Special Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742961.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pharaonic (2016) [En/Es] (1.0 u1) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742922.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Excubitor (2016) [En/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742916.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Goat Simulator: Waste of Space (2016) [Ru/Multi] (1.3.58280/dlc) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742874.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Panzer Corps: U.S. Corps (2016) [Ru/Multi] (1.26/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742870.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Dark Romance 10: Hunchback of Notre-Dame (2019) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742454.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Kenshi (2018) [Ru/Multi] (1.0.50) Repack xatab (обновляемая)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742354.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Phoning Home (2017) [Ru/Multi] (1.4.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742100.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Hidden Expedition 15: The Curse of Mithridates / Секретная экспед
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741937.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Deep Under the Sky (2018) [En] (1.181) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741925.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Drox Operative 2 (2020) [En] (1.006) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741885.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Darkwood (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741863.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Chimeras 3: Cursed And Forgotten (2016) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741809.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Gravel (2018) [Multi] (Update 2) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741773.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Redemption Cemetery 8: At Death's Door / Кладбище искупления 8
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741711.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741710.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Kartong - Death by Cardboard! (2018) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741706.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Empires Apart (2018) [Ru/Multi] (1.0.4) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741694.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Living Legends 4: Bound by Wishes / Живые легенды 4: В ловушк
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741644.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Empires Apart (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741621.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) Repack xatab [Enhanced Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741104.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740669.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Dawn of Andromeda (2017) [Ru/En/Ge] (1.096/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740531.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740529.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Late Shift (2017) [Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740494.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Late Shift – криминальный FMV-триллер, рассказыва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C50B30A3BA33451360B3D7F04683A767527756BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127076   (740489) от 20.04.2017
+
+Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740489.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Shiness, игра в жанре action-RPG, переместит вас во вселенную на грани разрушения. Отправляйтесь с Чадо на летающем корабле к небесным островам разрушенной Магеры. После аварийной посадки на враждебном острове вы окажетесь в центре конфликта, охватившего несколько королевств. Но благодаря способности Чадо общаться с Шайнес, мистическим духом, ситуацию ждет мирное (   Читать дальше...   )Тип издания: LicenseРазработчик: EnigamiЖанр: Action, RPG, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3D7B6AD67E642A65B5147B3F5C11DDDCE99F4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

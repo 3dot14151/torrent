@@ -1,55 +1,3 @@
-###  Публикация: 1821562   (63979) от 02.10.2025
-
-Воины будущего / Ming yat zin gei / Warriors of Future (2022) WEB-DLRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-2055 год. Планета задыхается от загрязнений и глобального потепления, и уже огромные суммы потрачены на систему очистки воздуха Skynet. Внезапно в Гонконге падает метеорит с агрессивной формой жизни, впоследствии названной Пандорой. Питаясь водой, растительный организм невероятно быстро разрастается и разрушает всё на своём пути, но при этом очищает атмосферу. Благодаря (   Читать дальше...   )Производство: Гонконг / One Cool Film Production, Hua Wen Movie Group, Media Asia FilmsЖанр: боевик, фантастикаРежиссер: Нг Юэнь-ФайАктеры: Луис Ку Шон Лау Филип Кюн, Карина Лау, Ник Чун, У Цянь, Цзэ Кван-Хо, Пэнси Чан, Фат Чан, Стив ЧаньПеревод: Многоголосый (Jaskier), многоголосый (MY5 TV)Язык озвучки: Русский, узбекскийСубтитры: Русские, английские (Full, Forced)Продолжительность: 01:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE454A16F0E0B8FBCE3323DB59C9F57ADA3D5D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821578   (63971) от 02.10.2025
-
-Война будущего / The Tomorrow War (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Декабрь 2022 года. Во время финала чемпионата мира по футболу в Катаре на поле высаживается десант из будущего. Прибывшие заявляют, что через 30 лет Земля подвергнется инопланетному вторжению, и, если люди настоящего не помогут людям будущего, то человечество прекратит существование. Так начинается принудительная отправка граждан на войну, с которой возвращаются (   Читать дальше...   )Производство: США / Amazon Studios, Lit Entertainment Group, New Republic Pictures, Paramount Pictures,Жанр: фантастика, боевик, ужасыРежиссер: Крис МакКейАктеры: Крис Пратт, Ивонн Страховски, Дж.К. Симмонс, Бетти Гилпин, Сэм Ричардсон, Жасмин Мэтьюз, Эдвин Ходж, Райан Кира Армстронг, Кит Пауэрс, Мэри Линн РайскабПеревод: Дублированный (31 канал) + пара вставок HDRezka, многоголосый (''Favvora Film'')Язык озвучки: Русский, узбекскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D424DCD07343D07286D4567A3BCB0F0F353A36A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821581   (63943) от 03.10.2025
 
 Война волков / Zhan lang / Wolf Warrior (2015) BDRip [H.264/720p] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63943.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63942.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63936.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63934.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63922.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63916.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63914.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63913.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63897.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63896.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63895.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63894.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63892.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63891.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63886.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63883.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63827.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63825.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63819.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63813.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63799.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63796.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63787.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63784.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B7B0E673BEBDD9388646D9F61C863ECE42554C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705048   (63781) от 07.03.2024
+
+60 минут / 60 Minuten / Sixty Minutes (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой боец MMA Октавио Бергман перед началом важного боя отказывается выходить на ринг и решает отправиться на день рождения дочери. У него всего час, чтобы добраться до места назначения, ведь в противном случае бывшая жена подаст заявление на единоличную опеку над ребёнком. Однако на этот бой серьёзные люди поставили серьёзные деньги, и вдогонку за парнем бросились (   Читать дальше...   )Производство: Германия / Nocturna Productions, Wiedemann & Berg TelevisionЖанр: боевик, криминал, спортРежиссер: Оливер КинлеАктеры: Эмилио Сакрая, Деннис Моен, Мари Мурум, Флориан Шмидтке, Пауль Воллин, Аристо Луис, Хосе Баррош, Вассилис Кукалани, Янна Штрибек, Морик Мая ХейдоПеревод: Многоголосый профессиональный (Red Head Sound), двуголосый профессиональный (ViruseProject), двуголосый любительский (Zetflix)Язык озвучки: русский, английский, немецкийСубтитры: русские (forced, full), украинские (forced, full), английские (forced, full, SDH)Продолжительность: 01:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48719AE090FCE1653A76CB167EF98230B716B562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705154   (63778) от 07.03.2024
+
+Идеальные дни / Perfect Days (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63778.jpg" />
+</div>
+
+
+###  Подробнее
+
+День Хираямы начинается с ухода за ростками клёнов, позже он высадит их в парке. На рассвете он садится в свой фургон, включает кассетный плеер и отправляется на работу: Хираяма — уборщик туалетов в Токио. За пределами упорядоченных будней он наслаждается музыкой Лу Рида и Патти Смит, книгами из местной лавки и деревьями, которые он снимает на плёночный Olympus. (   Читать дальше...   )Производство: Япония, Германия / Master Mind, Wenders ImagesЖанр: драмаРежиссер: Вим ВендерсАктеры: Кодзи Якусё, Ариса Накано, Токио Эмото, Томокадзу Миура, Юрико Кавасаки, Юми Асо, Аои Ямада, Аои Ёсида, Ацуси Фукадзава, Масахиро КомотоПеревод: Дублированный (Велес)Язык озвучки: Русский, японскийСубтитры: русские (Gyarandu), английские (Forced, Full, SDH), испанские (латиноамериканский)Продолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775B992A520600E05AD82E9F1982BA26AC448B28
 ```
 
 https://mybot314.ru/tekegram_catalog/

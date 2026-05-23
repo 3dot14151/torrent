@@ -1,55 +1,3 @@
-###  Публикация: 1308708   (553629) от 15.06.2019
-
-Пираньи Неаполя / La paranza dei bambini (2019) BDRip [H.264/720p-LQ]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Они еще очень молоды, но уже смертельно опасны, ведь только самые дерзкие могут стать новыми королями преступного мира Неаполя. Их легко заметить по дорогой одежде, татуировкам и холодному взгляду, когда они прорезают плотный поток машин на скутерах. Их дружба и честь проверяется в уличных перестрелках. Они живут на полную, но готовы убивать и умирать за свою мечту (   Читать дальше...   )Производство: Италия / Palomar, Sky Cinema, TIMvision, Vision DistributionЖанр: Драма, криминалРежиссер: Клаудио ДжованнезиАктеры: Франческо Ди Наполи, Вивиана Апреа, Маттиа Пиано Дель Бальцо, Чиро Веккьоне, Чиро Пеллекиа, Ар Тем, Альфредо Туритто, Паскуале Маротта, Лука Накарло, Кармине ПиццоПеревод: Дублированный (iTunes)Субтитры: Русский (полные)Продолжительность: 01:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637E430521CD859D2EF95C7040C15D2B7742D693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308695   (553628) от 15.06.2019
-
-Загадочное убийство / Murder Mystery (2019) WEB-DLRip [H.265/1080p-LQ] [HDR, 10-bit] [PR]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чтобы оживить семейные отношения полицейский из Нью-Йорка вместе со своей женой отправляются в путешествие по Европе. В самолете они знакомятся с богатым пожилым мужчиной, который приглашает их на свою роскошную яхту. Но там его убивают, а они становятся главными подозреваемыми...Производство: США / Endgame Entertainment, Happy Madison Productions, Tower Hill Entertainment, Vinson FilmsЖанр: Комедия, детективРежиссер: Кайл НьюачекАктеры: Адам Сэндлер, Дженнифер Энистон, Люк Эванс, Джемма Артертон, Джеки Сэндлер, Оулавюр Дарри Оулафссон, Джон Кани, Теренс Стэмп, Сиори Куцуна, Элен КардонаПеревод: Дублированный (Пифагор)Субтитры: Русские (форс., полные), Английские (SDH) и др.Продолжительность: 01:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DD09F4DA847421FAFD5EA8D86E1DA2FC05952D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308290   (553627) от 15.06.2019
 
 Дитя робота / Я-мать / I Am Mother (2019) WEBRip [H.264/720p-LQ] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553627.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553564.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553560.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553554.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553546.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553456.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553440.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553423.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553396.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553384.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553004.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553000.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552977.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552971.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552969.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552761.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552739.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552699.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552691.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552687.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552685.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552684.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552675.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552666.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3416B65F1411F903183EADC3240B8D8470BBE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045649   (552665) от 26.08.2016
+
+Медовый месяц Камиллы / Camille (2008) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может быть романтичнее медового месяца на Ниагаре? Но для Сайласа и Камиллы это будет необычное путешествие. Сайлас — мелкий мошенник, он женится на племяннице шерифа, только чтобы не попасть в тюрьму. Но влюбленная Камилла верит, что ее чувства изменят избранника. И ничто не помешает сбыться ее мечте о медовом месяце, даже собственная смерть…Производство: США, ВеликобританияЖанр: Фэнтези, Драма, Мелодрама, КомедияРежиссер: Грегори МакКензиАктеры: Сиенна Миллер, Джеймс Франко, Дэвид Кэрредин, Скотт Гленн, Эд Лотер, Марк Уилсон, Патриция Йетмен, Стив Маркофф, Тайлер Хайнс, Мими Кузык, Джеймс Б. Дуглас, Джордж Бьюза, Лииса Репо-Мартелл, Николас КаегиПеревод: ДублированныйЯзык субтитров: Русский, Английский, ИспанскийПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8629DBE4786AB69A8F7D28AE50DC7384DFD733F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865370   (552663) от 26.08.2016
+
+Кофе и сигареты / Coffee and Cigarettes (2003) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцать новелл с участием гениальных актеров, шоуменов и музыкантов. Попивая кофе и покуривая сигареты, герои фильма спорят до безумия, подшучивают друг над другом, делают глубокомысленные выводы и травят нелепейшие байки…Производство: США, Япония, ИталияЖанр: драма, комедияРежиссер: Джим ДжармушАктеры: Игги Поп, Том Уэйтс, Роберто Бениньи, Стив Бушеми, Кейт Бланшетт, Альфред Молина, Стив Куган, Билл Мюррей, Стивен Райт, Жуа ЛиПеревод: Двуголосый закадровыйЯзык субтитров: русские, английские, японскиеПродолжительность: 01:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720D1085B74E366AF8D9FF265D7A360820B8A83C
 ```
 
 https://mybot314.ru/tekegram_catalog/

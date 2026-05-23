@@ -1,29 +1,3 @@
-###  Публикация: 1563904   (502213) от 16.07.2022
-
-Dragon Forge (2022) [En] (1.0.8224) License FLT
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Dragon Forge главный герой игры рождается в облике дракона. Этот монстр не вызывает ни у кого доверия. Поэтому потребуется сделать все, чтобы снять проклятие. Но сделать это проблемно – на каждом шагу может поджидать опасность. Протагонист будет развиваться. Сначала маленький дракончик будет учиться ходить. А после персонаж сможет плеваться ядом и дышать пламенем. (   Читать дальше...   )Тип издания: LicenseРазработчик: Legend StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E6FA5D9393B1560C53469B27719122BE605196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934440   (502155) от 05.09.2015
 
 Lost Island: Eternal Storm (2015) [En] Unofficial
@@ -32,7 +6,7 @@ Lost Island: Eternal Storm (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502155.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ LOST ORBIT: Terminal Velocity (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502117.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Haunting Mysteries: Island of Lost Souls / Загадочные Истории: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502079.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ CENTRALIA (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502050.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ CENTRALIA (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502045.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Awesomenauts [En/Multi6) (L/Steam-Rip/1.3) 2012 | R.G. Игроманы
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501955.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Lumini (2015) [Ru/Multi] License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501933.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) Repack R.G. Механики [De
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501929.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Conflict: Denied Ops / Конфликт: Секретные операции [Ru
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501404.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Real Warfare: 1242 / История Войн: Александр Невский 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501401.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ Haunting Mysteries: Island of Lost Souls Collector's Edition / Загадочн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500963.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ MADiSON (2022) [Ru/Multi] (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500259.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Giana Sisters: Dream Runners (2015) [Ru/En] (1.0) Repack R.G. Freedom
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500196.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Phantasmat: The Endless Night / Фантазм: Бесконечная ночь 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499146.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Beyond Eyes (2015) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499016.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ Red Goddess Inner World (2015) [En/Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499013.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Daydreamer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499010.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ Exile's End (2015) [En] (1.0) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498962.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498961.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498793.jpg" />
 </div>
 
 
@@ -568,7 +542,7 @@ Total War Battles: Shogun [Multi5/-] (RePack/1.0) 2012 | DankoFirst
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498791.jpg" />
 </div>
 
 
@@ -596,7 +570,7 @@ Naval War: Arctic Circle [Ru/Multi5] (Steam-Rip/1.0.8.1) 2012 | R.G. Игром�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498788.jpg" />
 </div>
 
 
@@ -624,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498428.jpg" />
 </div>
 
 
@@ -650,7 +624,7 @@ Rack N Ruin (2015) [En/Multi] (1.0) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498278.jpg" />
 </div>
 
 
@@ -676,7 +650,7 @@ Onikira - Demon Killer (2015) [En] (1.730) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498225.jpg" />
 </div>
 
 
@@ -687,6 +661,32 @@ Onikira: Demon Killer - это аркадный двухмерный экшен,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:927081DC0D19ECF431C6B1AB6F12E0A42E88D996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935483   (498196) от 09.09.2015
+
+Act of Aggression (2015) [En/Multi] (1.1) Official CODEX [Update 1]
+
+>>Win Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Act of Aggression – стратегия в реальном времени, действие которой разворачивается в недалеком будущем в 2020-х годах. Игра сталкивает между собой три крупные фракции, сражающиеся за свои интересы. В результате того, что многие государства обанкротились, в мире случился массовый экономический кризис.Тип издания: Перепакованный официальный патчРазработчик: Eugen Systems
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E48D345C4C138E73FE3A3D447C4DF9D9E375E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ DirtyHands - Dirtyhands (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799686.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mary Lou Williams - Plays In London (1953, 1954) 2016, Sony Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799685.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fred Astaire - Fred Astaire's Finest Hour (1940-e - 1950-e) 2003, Universal [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799684.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vince Vallicelli Band (feat. James Thompson) - Toot Loh Doon Faruye (2016) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799679.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [FLAC|Lossless|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799675.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blues Engine - The Quick And The Dirty (2015) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799664.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Lovers Night Smoothe and Soft Jazz Music for Romantic Evening (2017) [MP3|3
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799653.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Oscar Peterson & Clark Terry 1975 (1994) Original Jazz Classics [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799611.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Vincent Herring, Bobby Watson, Gary Bartz - Bird at 100 (2019) Smoke Sessions Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799458.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mal Waldron & Steve Lacy - The Super Quartet Live at Sweet Basil (1987) Bellapho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799450.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Confessin' The Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799401.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blues Meets Girl - Blues Meets Girl (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799372.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Walter Trout - Survivor Blues (2019) Scene [FLAC|Lossless|tracks + .cue] <Blues-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799351.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Chano Dominguez - Chano (1993) Nuba Records [FLAC|Lossless|tracks + .cue] <World
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799261.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ike Quebec - It Might As Well Be Spring (1961) 1998, Ars Nova [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799254.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dirty Dave Osti - Voodoo Guitar (2010) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799243.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Konstantin Klashtorni & Love Suggestions - Sax Night (2017) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799230.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Zoot Sims - New Beat Bossa Nova, Vol. 1 & 2 (1962) 2004,  Colpix Records/Toshiba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799229.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ruthie Foster - Joy Comes Back (2017) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799227.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Nina Van Horn - Nina Van Horn Sings Nina Simone (2017) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799219.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Toots Thielemans - The Real... Toots Thielemans (2017) 3CD [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799217.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Konrad Paszkudzki Trio - Serenade In Blue: Harry Warren Song Book (2018) Venus R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799126.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mokhtar Samba & WDR Big Band Cologne - Musique d'Afrique (2016) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798883.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Miles Davis - In Person, Saturday Night at The Blackhawk, San Francisco, Vol.II 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798880.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Peter Karp - Alabama Town (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798872.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Jazz Acoustic Chill Classical Playlist: 14 Smooth and Chilled Tracks (2017)
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798866.jpg" />
 </div>
 
 

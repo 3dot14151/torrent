@@ -6,7 +6,7 @@ Sinner - Tequila Suicide (2017) Limited Edition [FLAC|Lossless|image + .cue] <Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785800.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lay Down Rotten - Gospel of the Wretched (2009) [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785669.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Light & Shade - The Essence of Everything (2016) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785655.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gyze - Northern Hell Song (2017) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785638.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Six Feet Under - Torment (2017) [FLAC|Lossless|image + .cue] <Death, Groove Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785622.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Beyond Creation - Algorythm (2018) [WavPack|Lossless|image + .cue] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785482.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ethereal Sin - Kakuriyo (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785481.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Disgorge (US) - Parallels of Infinite Torture (2005) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785477.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lividity - Show Us Your Tits "Live" (1999) Live [FLAC|Lossless|tracks + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785476.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Metal Inquisitor - Panopticon (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785472.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785460.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blood Incantation - Starspawn (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785459.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lividity - Used, Abused, and Left for Dead (2006) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785456.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Frozen Land - Frozen Land (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785455.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Starbreaker - Dysphoria (2019) Japan [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785454.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Evergrey - The Atlantic (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785445.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Asphyxiate - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785075.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Deteriorate - Rotting in Hell (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785074.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Despondency - God on Acid (2003) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785073.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Orchidectomy - A Prelate's Attrition (2008) [FLAC|Lossless|tracks + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785072.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Deteriorate - The Senectuous Entrance (1996) [FLAC|Lossless|tracks + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785069.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Guttural Disease - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785068.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Lividity - The Age Of Clitoral Decay (2000) [FLAC|Lossless|tracks + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785067.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Waking The Cadaver - Beyond Cops. Beyond God. (2010) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785066.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Blood Incantation - Interdimensional Extinction (2015) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785033.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Black Label Society - Grimmest Hits (2018) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784643.jpg" />
 </div>
 
 

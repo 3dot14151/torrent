@@ -6,7 +6,7 @@ Brave Browser 1.41.99 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497643.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Image Tuner 3.5 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497632.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ System Explorer 3.9.4 Build 4945 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497620.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ PhotoFiltre Studio X Portable By KGS 10.7.0 [Многоязычный + Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497616.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Topaz A.I. Gigapixel 4.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497587.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Topaz Studio 2.0.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497573.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Benvista PhotoZoom Pro 8.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497570.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ MP3jam 1.1.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497562.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Unity Pro 2018 4.5f1 x64 LTS Release [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497560.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Registry Backup 3.2.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497554.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Icecream PDF Split and Merge PRO 2.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497551.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ashampoo Photo Optimizer 5.1.5 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497541.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Topaz Gigapixel AI 4.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497527.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Topaz Sharpen AI 1.3.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497525.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Topaz Adjust AI 1.0.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497516.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Icecream PDF Converter PRO 1.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497509.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Topaz DeNoise AI 1.2.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497494.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Icecream Screen Recorder 2.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497492.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ PhotoFiltre Studio X Portable by Boomer 10.7.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497471.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Efficcess Pro 5.0 Build 510 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497444.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Chromodo Browser 44.5.7.269 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497441.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Ashampoo Snap 8.0.6 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497437.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Wise Disk Cleaner 8.82.618 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497436.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ PrivaZer 2.38.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497430.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.53.2083, Speccy 1.32.803) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497419.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Adobe Photoshop 2022 23.4.2.603 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497407.jpg" />
 </div>
 
 

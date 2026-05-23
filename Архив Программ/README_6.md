@@ -6,7 +6,7 @@ Windows and Office Genuine ISO Verifier 11.12.33.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044710.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wondershare PDFelement 9.3.5.2073 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044703.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Topaz Photo AI 1.1.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044695.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Opera 94.0.4606.76 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044693.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Topaz Gigapixel AI 6.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044690.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ SanDisk SSD Dashboard 3.8.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044688.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ R-Drive Image System Recovery Media Creator Technician 7.0 Build 7010 RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044685.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Topaz Video AI 3.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044684.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Auslogics BoostSpeed 13.0.0.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044678.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tor Browser Bundle 12.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044589.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe Photoshop 2023 24.1.1.238 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044584.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Illustrator 2023 27.2.0.339 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044577.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Perfectly Clear WorkBench 4.2.0.2404 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044534.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Cytomic The Glue 1.5.11 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044514.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Glary Utilities Pro 5.200.0.229 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044510.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MediaHuman YouTube Downloader 3.9.9.79 (2001) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044503.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FanControl V144 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044500.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ MediaHuman YouTube Downloader 3.9.9.79 (2001) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044494.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FolderSizes 9.5.409 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044491.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ RisohEditor 5.7.2 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044487.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ FreeVimager 9.9.22 + Portable [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044477.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wondershare Filmora 12.0.12.1450 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044468.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Monkey's Audio 9.04 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044447.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Cytomic The Drop 1.7.11 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044440.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PdfFactory Std & Pro 8.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044438.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ FreeFileSync 12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044433.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 903843   (656376) от 01.06.2015
-
-Pupo - Super Hits Collection (2015) [MP3|320 кб/с]<Pop, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Io
-02. Ti Scrivero
-03. Sempre Tu
-04. Ciao(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3912FAA338729446F0CE11013A5A1B8EF19FC3F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903781   (656291) от 01.06.2015
 
 VA - Только русский свежак. Топ новинок поп музыки (2015) [MP3|256 кб/с]<Pop>
@@ -35,7 +6,7 @@ VA - Только русский свежак. Топ новинок поп му
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656291.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Tim McMorris - The Singles (2015) [MP3|192-320 кб/с]<Hip-Hop, Rock, Pop, Folk
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656195.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Jan Jensen - Коллекция (2022) [MP3|320 Kbps] <Italo-Disco, Pop, Synthpo
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656145.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Vocal Chillout Live Set (2022) [MP3|320 Kbps] <Chillout, Vocal, Ambient, Re
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656139.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Летний танцпол по-русски (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656097.jpg" />
 </div>
 
 
@@ -186,7 +157,7 @@ VA - 538 Dance Smash vol. 3 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656073.jpg" />
 </div>
 
 
@@ -221,7 +192,7 @@ VA - Caribe - Grandes Êxitos (2011) [MP3|320 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656068.jpg" />
 </div>
 
 
@@ -247,7 +218,7 @@ VA - US Hot Top 40 Singles Charts (2012) [MP3|~320 кб/с (V0)]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656062.jpg" />
 </div>
 
 
@@ -282,7 +253,7 @@ VA - Lo-Fi light (2012) [MP3|320 kbps]<Lo-Fi|Downtempo>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656054.jpg" />
 </div>
 
 
@@ -312,7 +283,7 @@ VA - Dance Club Party (2012) [MP3|256 kbps]<Club|Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656017.jpg" />
 </div>
 
 
@@ -347,7 +318,7 @@ VA - Жаркая летняя дискотека (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656006.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ VA - Club Session, Summer Edition (House Music Collection) (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655936.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ VA - Italo Disco Hits Vol.15 (2017) [MP3|320 Kbps] <Disco, Italo Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655878.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ VA - Amsterdam Trance Factory (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655854.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ VA - Cosmotronica & Space Disco Vol.2 (2017) [MP3|320 Kbps] <Spacesynth, House, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655795.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ VA - Cosmotronica & Space Disco (2017) [MP3|320 Kbps] <Synthspace, Synthpop, Spa
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655786.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ VA - Music For Your Car Vol.4 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655781.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ VA - ЕвроХит Топ 40 Europa Plus 18.05.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655765.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655760.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ VA - Клубная Музыка Дискотек Июня  Record 2CD (2012) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655634.jpg" />
 </div>
 
 
@@ -658,7 +629,7 @@ VA - Retro Radio Party (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655605.jpg" />
 </div>
 
 
@@ -687,7 +658,7 @@ VA - Душа Птица Вольная: Сборник Шансона (2018) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655554.jpg" />
 </div>
 
 
@@ -716,7 +687,7 @@ VA - Рэп С Понятием Часть 4 (2012) [MP3|256 kbps]<Русски�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655513.jpg" />
 </div>
 
 
@@ -751,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655452.jpg" />
 </div>
 
 
@@ -780,7 +751,7 @@ VA - Русский Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655442.jpg" />
 </div>
 
 
@@ -794,6 +765,41 @@ VA - Русский Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41CD3D7AD867A88BAA6C592E5B941C6FD7CB86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515412   (655433) от 26.06.2012
+
+VA - Самые Горячие Русские Хиты Муз-ТВ Хит 4 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Dan Balan - Не любя
+002 Слава - Sex не любовь
+003 Марсель - Иди ко мне
+004 Блестящие и Герои - Из Чего Же
+005 Джиган feat. Николай Басков - Паранойя
+006 Макс Барских - Пылай
+007 Наташа Королева - Небеса
+008 Филипп Киркоров - Я отпускаю тебя
+009 Анжелика Варум - Нарисуй Любовь
+010 Дима Билан & Nikki Jamal - Come Into My World(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3BC74F844FFE9BC63282035C777D13EF4A4D72
 ```
 
 https://mybot314.ru/tekegram_catalog/

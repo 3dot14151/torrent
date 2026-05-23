@@ -6,7 +6,7 @@ TweakPower 2.050 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120338.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Balabolka 2.15.0.863 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120326.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Psiphon 3 build 181 (27.01.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120325.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PIDKey Lite 1.64.4 b37 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120317.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FileZilla Server 1.8.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120314.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ HiBit Uninstaller 3.1.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120313.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Lacey Free Music & Video Downloader 2.92 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120308.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ f.lux v4.131 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120307.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120306.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Brave Browser 1.62.153 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120296.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NonVisual Desktop Access (NVDA) 2023.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120293.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ KMS Tools Portable Lite by Ratiborus 30.01.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120239.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AnyDesk 8.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120210.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Illustrator 2024 28.2.0.532 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120205.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows 10 Debloater 2.6.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120200.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Adobe Illustrator 2024 28.2.0.532 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120195.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ AOMEI Partition Assistant Technician Edition 10.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120194.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Malwarebytes AdwCleaner 8.4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120187.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Total Commander 11.03 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120178.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ TechSmith Camtasia 23.4.2 (Build 51146) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120176.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120169.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ WinTools.net Premium 24.1.1 (29.01.2024) RePack (& portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120168.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Total Commander 11.02 (26.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120165.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ AOMEI Partition Assistant Standard Edition 10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120163.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Windows 11 Debloater 2.0.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120162.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ GoldWave 6.80 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120161.jpg" />
 </div>
 
 

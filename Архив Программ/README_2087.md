@@ -6,7 +6,7 @@ Win7codecs 3.5.1 Final + x64 Components / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_94347.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DVDFab Passkey 8.0.5.2 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93208.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ WinMend System Doctor 1.6.0.0 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93145.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Acronis Backup & Recovery Workstation 11.0.17437 + Universal Restore + BootCD [�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90983.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Slate Digital - FG-X Mastering Processor v1.1 Build 252 by AIR x86[VST|RTAS][exe
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90951.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90914.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Total Commander 7.57а kIT Programs PowerPack 12.4 [Рус]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90879.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Mozilla Firefox 13.0  Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90844.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ FastStone Capture 7.1 Final + portable [Английский + Русифика�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90812.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Revo Uninstaller PRO 2.5.8 RePack (& Portable) by KpoJIuk [Мульти, ест�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90780.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ MultiCarbon Boot by Core.Windows 7 Ultimate SP1 x86-x64 RU Carbon Boot by Core-2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90565.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90564.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Driver Genius Professional 11.0.0.1128 DC 21/04/2012 RePack/Portable by -=SV=- [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90535.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Aimersoft Video Converter Ultimate 4.2.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90529.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Internet Download Manager 6.11 Build 5 Final RePack by KpoJIuk [Русский, 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90495.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ IconGroups 1.4.2 [Multi/Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90477.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kvisoft Flash Photo Gallery 1.5.3 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90473.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Dr.Web LiveCD 6.0.0  (23.04.2012) 6.0.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90471.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ashampoo WinOptimizer 9.4.3 [Multi/Rus] + Portable by Boomer
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90467.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Revo Uninstaller PRO 2.5.8 RePack (& Portable) by KpoJIuk [Мульти, ест�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90400.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ BitTorrent 7.6.1 Build 27098 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90377.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Autodesk Inventor Professional 2013 (x86, x64) (Русский, Английск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90363.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Uniblue RegistryBooster 2012 6.0.19.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90331.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Pestretsov Dead Pixel Test 1.0.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90328.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90316.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Revo Uninstaller PRO 2.5.8 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90303.jpg" />
 </div>
 
 

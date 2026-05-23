@@ -6,7 +6,7 @@ The Company Man (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013612.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Little Misfortune (2019) [Ru/Multi] (1.0) License GOG [Fancy Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013453.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Creepy Tale (2020) [Ru/Multi] (1.0.2b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013444.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Retro Machina (2021) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013442.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20210422/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013436.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bad Dream: Coma (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013330.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bad Dream: Fever (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013314.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Room 54 (2021) [Multi] (1.0) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013296.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ultreïa / Ultreia (2021) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013163.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012995.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rusty Lake Hotel (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012994.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cube Escape Collection (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012991.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rusty Lake: Roots (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012963.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Röki / Roki (2020) [Ru/Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012764.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Sludge Life (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012652.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Backbone (2021) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012058.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pacify (2019) [Ru/Multi] (4.24) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011436.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Visage (2020) [Ru/Multi] (3.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011184.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Minute of Islands (2021) [Multi] (6616315) License Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011043.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Paradise Lost (2021) [Ru/Multi] (cl12558.1414.shipping) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010220.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Exit From (2021) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010056.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (47726) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009734.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Minute of Islands (2021) [Multi] (1.0) License GOG [Digital Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009369.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Overboard! (2021) [En] (1.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007662.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Wonhon: A Vengeful Spirit (2021) [Ru/Multi] (1.0.4r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006566.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Lona: Realm of Colors (2021) [En] (0.1.23) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006448.jpg" />
 </div>
 
 

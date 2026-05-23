@@ -6,7 +6,7 @@ Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756601.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bro
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756235.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Суперхиты дискотеки 90-х... продолжение (2011
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756234.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Alan Sorrenti - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Pop, Pop Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755568.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Edgar Winter - The Edgar Winter Album (1979) LP [MP3|320 Kbps] <Electronic, Prog
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755295.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754840.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Umberto Tozzi - 26 Albums (1976-2019) Collection [MP3|320 Kbps] <Pop, Pop Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754815.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Soultans - 2 Albums (1997-1998) [MP3|320 Kbps] <Pop, Soul, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754776.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Jason Mraz - Look For The Good (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753797.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - The Yellow Collection (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753633.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753482.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Editio
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753362.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752171.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Curacao - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Synt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751955.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751617.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751608.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, So
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751544.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751505.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751360.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Steps - Tears on the Dancefloor (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Europ
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751348.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Peter Kent - 2 Albums, 1 Singles & EPs (1979-1982) Vinyl [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751346.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Abbamania (1999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751344.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Peggy March - Electrifying (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751244.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Q-Music Top 500 Van 90's (2015) 6CD [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750932.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VA - Hacienda Dance, Vol. 1 (2019) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750139.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Rena Mason - Cherchez La Femme (1979) Reissue CD, 2013, EMI Electrola [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750021.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ExLibris 10.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734336.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Allavsoft Video Downloader Converter 3.22.8.7514 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734333.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ OmniFocus Pro 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734317.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Morph Age 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734316.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ HazeOver 1.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734312.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.2 (build 60) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734309.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Movavi Video Converter 20 Premium 20.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734237.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Sublime Merge 1.1.1.6 Build 2027 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734233.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ CleanMyMac X 4.6.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734139.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Deliver Express 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734027.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ PullTube 1.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734018.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Default Folder X 5.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734016.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Typeface Pro 3 v3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734013.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Smultron 12.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733886.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ BBEdit 13 v13.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733885.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VideoDuke 1.12 (build 286) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733884.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Tagr 5 v5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733881.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rhinoceros 6 v6.28.20199 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733871.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Cookie 6.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733464.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ SyncTime 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733463.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MarsEdit 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733461.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ iBarcoder 3.11.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733453.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733450.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ FontExplorer X Pro 7 v7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733449.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Subtitle Studio 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733447.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ TurboCollage 7 v7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733442.jpg" />
 </div>
 
 

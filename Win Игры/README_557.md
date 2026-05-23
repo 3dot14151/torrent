@@ -1,29 +1,3 @@
-###  Публикация: 1800008   (16163) от 31.05.2025
-
-Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Disney Illusion Island - это двухмерное приключение для всей семьи, нарисованное от руки. Игрокам предстоит исследовать цельный и неразрывный мир острова Монот: подняться к высоким горным вершинам и спуститься к корням, уходящим глубоко в землю, попутно открывая новые способности, решая загадки и знакомясь с замечательными и необычными персонажами.Тип издания: RepackРазработчик: Dlala StudiosЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4885744B78D58015FB03EDAD494D645D7D966CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799977   (16158) от 31.05.2025
 
 RoadCraft (2025) [Ru/Multi] (1.5.D1PATCH.450651/dlc) Repack Other s [Rebuild Edition]
@@ -32,7 +6,7 @@ RoadCraft (2025) [Ru/Multi] (1.5.D1PATCH.450651/dlc) Repack Other s [Rebuild Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16158.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16152.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ ICBM (2020) [Ru/Multi] (1.02.03) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16135.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16126.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mind Echoes 2: Remnants of the Past (2025) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16066.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Golf With Your Friends (2020) [Ru/Multi] (19.981700/dlc) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16062.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16045.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Kathy Rain 2: Soothsayer (2025) [Multi] (1.0.3.4089) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16018.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16015.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16014.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16013.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Cataclismo (2024) [Ru/Multi] (1.0.3.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16009.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (Build 18642542) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16006.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15989.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Brassheart (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15988.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15976.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0/dlc) Repack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15972.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Grim Tales 26: Prisoners of the Past / Страшные сказки 26: Узн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15967.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.1/dlc) Licens
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15952.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Wayfinder (2023) [Ru/Multi] (211130/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15951.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15950.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.684.745/dlc) Repack seleZen [Premium Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15916.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Iron Meat (2024) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15909.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13211) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15896.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15895.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A1DEFC8686DA7CE0DCC4305D4665D73D036F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800369   (15886) от 02.06.2025
+
+Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15886.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Elden Ring Nightreign, игроки переносятся в параллельную версию мира, известную как Лимвельд, где история Elden Ring пошла другим путем после Раскола - войны, которая разрушила баланс сил в этом мрачном фэнтезийном мире. Игра не связана напрямую с основной сюжетной линией Elden Ring, но сохраняет тот же уровень глубины и сложности, который сделал серию так популярной.Тип издания: RepackРазработчик: FromSoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4965F17604BCF06FEBD925DE5880F200D193A858
 ```
 
 https://mybot314.ru/tekegram_catalog/

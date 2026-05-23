@@ -6,7 +6,7 @@ VA - Verve - Unmixed2 & Remixed2 (2003) 2CD [FLAC|Lossless]<Downtempo, Broken Be
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628983.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ McCoy Tyner - Dimensions (1984) /2005, Collectables/[FLAC|tracks+.cue]<Jazz, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628583.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Sammy Davis, Jr. & Carmen McRae - Boy Meets Girl & Porgy and Bess (1957, 1959) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628222.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Jerome Sabbagh - Plugged In (2012) Bee Jazz [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627911.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Idrees Sulieman & Benny Bailey - Swiss Radio Days: Jazz Live Trio Concert Series
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627906.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - The Real... Bossa Nova (The Ultimate Bossa Nova Collection) (2014) 3CD [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627476.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Diana Krall - The Very Best Of Diana Krall (2007), Limited Canadian Edition [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626611.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Chet Baker - For Lovers (1952 - 1959) 3CD, 2018, Jazz Images [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626571.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Jan Johansson - Musik genom fyra sekler med Jan Johansson (1995) 2CD, Heptagon R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626269.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Natalie Cressman & Ian Faquini - Setting Rays Of Summer (2019) [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626266.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Melvin Rhyne - Stick To The Kick (1995) Criss Cross Jazz [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626092.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Johnny Hartman - The Tokyo Albums (1972) 2005, Gambit Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626065.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Jamie Saft, Steve Swallow, Bobby Previte - Loneliness Road (2017) RareNoiseRecor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626062.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Sylvain Beuf - Time Feel (2021) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625960.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Stanley Turrentine - The Blue Note Stanley Turrentine Quintet & Sextet Studio Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625949.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ L. Subramaniam - Fantasy Without Limits (1980) Remaster, 1985, Trend [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625938.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Jimmy Smith - Peter & The Wolf (1966) Remaster, 1999, Verve Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625936.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625233.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625224.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625044.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Blue Knights - Night Talk (2000) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625031.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Mount Everest Trio - Waves from Albert Ayler (1977) Unheard Music[APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624773.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Sebastien Texier & Christophe Marguet 4tet - For Travellers Only (2018) Cristal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624544.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Sam Most - Plays Bird, Bud, Monk & Miles (1957) /2014, Solid Records/[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624332.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Shirley Scott Trio - For Members Only & Great Scott!! (1963-1964) /2011, Verve/[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624328.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ Ellis Marsalis - Heart Of Gold (1992) Columbia [FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624257.jpg" />
 </div>
 
 

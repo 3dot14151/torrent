@@ -1,57 +1,3 @@
-###  Публикация: 907800   (637150) от 12.06.2015
-
-Магия лунного света / Magic in the Moonlight (2014) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1928 год. Выдающийся иллюзионист по просьбе своего друга и коллеги приезжает на Лазурный Берег разоблачить молодую привлекательную шарлатанку, якобы умеющую вызывать духов умерших. Она очаровала богатого наследника и его мать-вдову, а это не устраивает других членов семьи.Производство: США, ВеликобританияЖанр: Мелодрама, КомедияРежиссер: Вуди АлленАктеры: Колин Фёрт, Эмма Стоун, Катрин МакКормакПеревод: ДублированныйПродолжительность: 01:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB81D48C84B02C0D9B1BB55915F8E6BA5E681CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907527   (637148) от 12.06.2015
-
-Исход: Цари и боги / Exodus: Gods and Kings (2014) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ветхозаветная история о великом пророке Моисее и освобождении еврейского народа из египетского плена. Моисей появился на свет в те времена, когда фараон приказал убивать всех новорожденных мальчиков еврейского происхождения. Чтобы спасти его, мать положила малыша в корзину из тростника и отправила вниз по Нилу.
-
-Ребенка нашла дочь фараона, которая усыновила его и (   Читать дальше...   )Производство: Великобритания, США, Испания / Babieka, Chernin EntertainmentЖанр: боевик, драма, приключенияРежиссер: Ридли СкоттАктеры: Кристиан Бэйл, Джоэл Эдгертон, Джон Туртурро, Аарон Пол, Бен Мендельсон, Мария Вальверде, Сигурни Уивер, Бен Кингсли, Хиам Аббасс, Исаак ЭндрюсПеревод: Дублированный (лицензия BD EUR)Субтитры: отсутствуютПродолжительность: 02:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352E198AAC778FD4504D16049FA52438BC9B7108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566496   (637146) от 12.06.2015
 
 Рэкетир (2007) BDRip [1080p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637146.jpg" />
 </div>
 
 
@@ -87,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637101.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637097.jpg" />
 </div>
 
 
@@ -141,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637095.jpg" />
 </div>
 
 
@@ -167,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637092.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637037.jpg" />
 </div>
 
 
@@ -220,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637034.jpg" />
 </div>
 
 
@@ -248,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637025.jpg" />
 </div>
 
 
@@ -274,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637023.jpg" />
 </div>
 
 
@@ -301,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637021.jpg" />
 </div>
 
 
@@ -327,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637007.jpg" />
 </div>
 
 
@@ -353,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637002.jpg" />
 </div>
 
 
@@ -379,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636951.jpg" />
 </div>
 
 
@@ -405,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636949.jpg" />
 </div>
 
 
@@ -431,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636948.jpg" />
 </div>
 
 
@@ -457,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636941.jpg" />
 </div>
 
 
@@ -483,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636930.jpg" />
 </div>
 
 
@@ -509,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636928.jpg" />
 </div>
 
 
@@ -535,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636867.jpg" />
 </div>
 
 
@@ -561,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636838.jpg" />
 </div>
 
 
@@ -587,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636823.jpg" />
 </div>
 
 
@@ -613,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636816.jpg" />
 </div>
 
 
@@ -639,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636815.jpg" />
 </div>
 
 
@@ -665,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636787.jpg" />
 </div>
 
 
@@ -676,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B4EE9066BEAA8A986CC5C0E83244FA00EC1F1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293285   (636777) от 03.04.2019
+
+Журнал 64 / Journal 64 (2018) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив копенгагенской полиции Карл Мерк и его помощник Ассад обнаруживают в заброшенной квартире три мумифицированных трупа. Тела рассажены за обеденным столом, где стоит еще один стул. Расследование приводит Карла к женской клинике на необитаемом острове, в которой проводились жестокие экспериментыПроизводство: Дания, Германия / Zentropa Entertainments, Det Danske Filminstitut, Deutscher Filmförderfonds (DFFF)Жанр: Криминал, Детектив, ТриллерРежиссер: Кристоффер БоэАктеры: Фарес Фарес, Николай Ли Каас, Николас Бро, Андерс Хове, Эллиотт Кроссет Хов, Андерс Юль, Сёрен Пильмарк, Diem Camille Gbogou, Фанни Борнедал, Вибеке ХаструпПеревод: Многоголосый закадровый, Одноголосый закадровый, любительскийСубтитры: Русские (Full), Английские (Full)Продолжительность: 01:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547CD429C14919C8A5EB6C181FDE345E9485A06C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293438   (636773) от 03.04.2019
+
+Белый парень Рик / White Boy Rick (2018) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636773.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Ричарда Верши-младшего, который в 14 лет стал самым молодым осведомителем ФБР, чтобы спасти своего отца от тюрьмы.Производство: СШАЖанр: Драма, криминал, биографияРежиссер: Ян ДеманжАктеры: Мэттью МакКонахи, Ричи Мерритт, Бел Паули, Дженнифер Джейсон Ли, Брайан Тайри Генри, Рори Кокрейн, АрДжей Сайлер, Джонатан Мэйджерс, Эдди Марсан, Тейлор ПейджПеревод: Дублированный (Лицензия)Субтитры: отсутствуют.Продолжительность: 01:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9C5F15E45351903AEB769066BFBE1C799FAAB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

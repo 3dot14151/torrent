@@ -6,7 +6,7 @@ Nvidia DriverPack v.431.36 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521014.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CurrPorts v.2.02 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520971.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520968.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Skype 8.28.0.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520966.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ NetSetMan 4.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520964.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VirtualBox 5.2.18-124319 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520950.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Total Commander 9.21 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520945.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Wireless Network Watcher 2.18 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520944.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Total Commander 9.21 LitePack | PowerPack 2018.08 by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520941.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ O&O BlueCon Tech Edition 16.0 Build 6639 WinPE Boot CD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520940.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Blackmagic Design DaVinci Resolve Studio 15.0.0.086 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520859.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VMware Workstation 14 Pro 14.1.3 Build 9474260 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520844.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Firefox Browser 102.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520800.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Firefox Browser 91.11.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520795.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ GeoGebra 6.0.718.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520792.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Photodex ProShow Producer 5.0.3280 RePack by D!akov [ENG/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520726.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Paragon Hard Disk Manager 12 Professional 10.1.19.15808 Advanced Bootable Disk W
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520718.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Auslogics Anti-Malware Pro 1.21.0.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520672.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Mozilla Thunderbird 102.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520663.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Auslogics Windows Slimmer 3.3.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520662.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ oCam Screen Recorder 130.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520625.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Wise Care 365 Pro 3.81.338 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520618.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ IObit Uninstaller 5.0.3.168 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520617.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wise Care 365 Pro 3.81.338 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520614.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ XviD4PSP 7.0.166 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520611.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Telegram Desktop 0.8.51 Stable + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520608.jpg" />
 </div>
 
 

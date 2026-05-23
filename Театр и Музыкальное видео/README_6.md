@@ -1,32 +1,3 @@
-###  Публикация: 44739   (1012307) от 06.06.2021
-
-Владимир Высоцкий в Останкино (Монолог, Последний концерт) (22.01.1980) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Эта запись была сделана для телепередачи "Кинопанорама" 22 января 1980 года. Но при жизни Владимира Семеновича она так и не вышла в эфир. Позднее запись вышла под названиями "Монолог" (реж. Ксения Маринина) и "Последний концерт" (совершенно неоправданное название, с целью прибыли) как якобы полные версии. Но действительно полная версия, (   Читать дальше...   )01. Попурри из песен: Песня о друге. Здесь вам не равнина. Прощание с горами
-02. Мы вращаем Землю
-03. Почему аборигены съели Кука
-04. Я не люблю(   Читать дальше...   )Жанр: Музыка, Бардовская песняПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C217433C6B7C9C22BB9A789980D657C0336E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475315   (1011947) от 09.06.2021
 
 The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
@@ -35,7 +6,7 @@ The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011947.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Ra
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011274.jpg" />
 </div>
 
 
@@ -89,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011265.jpg" />
 </div>
 
 
@@ -115,7 +86,7 @@ Bobby McFerrin - Spontaneous Inventions (1986) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011263.jpg" />
 </div>
 
 
@@ -142,7 +113,7 @@ One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011097.jpg" />
 </div>
 
 
@@ -168,7 +139,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRip [EN]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011086.jpg" />
 </div>
 
 
@@ -194,7 +165,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011083.jpg" />
 </div>
 
 
@@ -220,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010122.jpg" />
 </div>
 
 
@@ -246,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009651.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009395.jpg" />
 </div>
 
 
@@ -300,7 +271,7 @@ Toto: С небольшой помощью моих друзей / Toto: With A 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008824.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008680.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008249.jpg" />
 </div>
 
 
@@ -378,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007566.jpg" />
 </div>
 
 
@@ -404,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006548.jpg" />
 </div>
 
 
@@ -430,7 +401,7 @@ Nazareth - Live from Classic T Stage (2005) DVDRip [H264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006247.jpg" />
 </div>
 
 
@@ -459,7 +430,7 @@ Uriah Heep - The Legend Continues (1999) DVDRip [H264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006239.jpg" />
 </div>
 
 
@@ -488,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006211.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006056.jpg" />
 </div>
 
 
@@ -548,7 +519,7 @@ Renaissance - 50th Anniversary - Ashes Are Burning: An Anthology - Live In Conce
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006005.jpg" />
 </div>
 
 
@@ -574,7 +545,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004926.jpg" />
 </div>
 
 
@@ -603,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004797.jpg" />
 </div>
 
 
@@ -632,7 +603,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004654.jpg" />
 </div>
 
 
@@ -661,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004429.jpg" />
 </div>
 
 
@@ -687,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004420.jpg" />
 </div>
 
 
@@ -698,6 +669,36 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27A8C8F371EA5C26831DB40747AC12B3A9FC3BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 18264   (1004399) от 01.01.2020
+
+Bond. Classified (DVD)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта квартета "BOND" 20 сентября 2000 года в The Royal Albert Hall (Англия). Оригинальные аранжировки классических и современных произведений.
+"Bond" - струнный квартет, состоящий из четырех молодых и чрезвычайно одаренных девушек:01. Quixote
+02. Duel
+03. Dallas
+04. Oceanic(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA3DF6CBA2DC4A03C6D016D32E67410FEE959F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

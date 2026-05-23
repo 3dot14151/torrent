@@ -6,7 +6,7 @@ Sexy Girls Pack Wallpapers (10.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520507.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wallpapers Sexy Girls Pack (12.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520506.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wallpapers Sexy Girls Pack (09.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520505.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wallpapers Sexy Girls (12.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520504.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SiSoftware Sandra Business / Engineer / Enterprise 2015.08.21.45 SP3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520503.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Soft Organizer 4.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520502.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ EximiousSoft Banner Maker 5.38 RePack by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520499.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Mail.Ru Облако 15.05.0217 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520498.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Solidthinking Suite Evolve 2015.4945 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520497.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ FlipBuilder Flip PDF 4.3.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520491.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Transmission-Qt 2.84.5 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520489.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SiSoftware Sandra Personal 2015.08.21.45 SP3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520484.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sexy Girls Pack Wallpapers (12.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520443.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sexy Girls Pack Wallpapers (09.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520442.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wallpapers Sexy Girls Pack (10.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520441.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Beautiful Girls Wallpapers (11.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520440.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Beautiful Girls Wallpapers (09.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520439.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Drummer's Journey (1997) [MP3|192 кб/с]<Native American, Ethno, Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520438.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Sexy Women Wallpapers (12.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520437.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Beautiful Girls Wallpapers (10.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520436.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Beautiful Girls Wallpapers (12.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520433.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520430.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - 20 Vocal Trance Anthems (2012) [MP3|320 кб/с]<Vocal Trance , Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520426.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Soulver 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520417.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Opera 31.0.1889.174 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520416.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Windows Firewall Control 4.5.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520415.jpg" />
 </div>
 
 

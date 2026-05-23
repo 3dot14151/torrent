@@ -1,371 +1,3 @@
-###  Публикация: 1214451   (764823) от 21.03.2018
-
-Убить Гюнтера / Killing Gunther (2017) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В мире профессиональных убийц существует свой рейтинг, и на его вершине находится некто Гюнтер. Никто не знает, как он выглядит, и где его найти, но совершенно точно известно, что с ним лучше не связываться. Киллер Блейк решает поправить иерархию и любой ценой уничтожить легендарного Гюнтера, для чего собирает команду наёмников со всего света — хакера, взрывника, (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедияРежиссер: Таран КиллэмАктеры: Таран Киллэм, Ханна Саймон, Бобби Мойнахан, Пол Бриттейн, Арнольд Шварценеггер, Питер Келамис, Аарон Ю, Коби Смолдерс, Эллисон Толман, Стив БачичПеревод: Многоголосый закадровый (iTunes)Субтитры: АнглийскиеПродолжительность: 01:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24D455476F5999986280B259C1215DCF6EDE366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521582   (764509) от 03.01.2022
-
-VA - Best of Fokuz 2021 (2021) [AAC|~308 Kbps] <Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Melinki - Time & Time Again (5:24)
-02. Rezilient - Higher (Surreal Remix) (4:30)
-03. Valiant Emcee, Cyber Posix, Winslow - Never Too Late (Winslow Remix) (4:57)
-04. Bcee - Crystal (4:50)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEAA4E4812E33F29D654DE8286820651BEFD1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521580   (764508) от 03.01.2022
-
-VA - Chill House Traveller, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Moroder - Tony's Theme (Scarface) (6:27)
-02. Arman Behdad, Pamela Pankotsch - Sweet Fragrance of the Rose (The Event Haze Remix) (4:43)
-03. Luke Kay - Rush (3:06)
-04. Nale - Nevermind (Dub Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D76D22D0701C290251346F6AC061025A9DC8153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521604   (764507) от 03.01.2022
-
-Apartment House - Number Pieces (2021) [AAC|~269 Kbps] <Chamber Music, Indeterminacy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Five (5:07)
-02. Five² (5:07)
-03. Five⁵ (5:06)
-04. Fourteen (20:05)(   Читать дальше...   )Жанр: Chamber Music, IndeterminacyПродолжительность: 05:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D2F0A67AEF76CFBA4A7D4A3AD8CAC465D70060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521570   (764506) от 03.01.2022
-
-VA - XTR Records Best (2020) [AAC|~318 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Koi (8:29)
-02. Mainterm - Reunited (6:44)
-03. Furia - Trappist (7:13)
-04. Mainterm - Trumpet of the Gods (7:17)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 09:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84FE56479EBB6BE848A43085D05AB7EB3CD1118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521585   (764505) от 03.01.2022
-
-VA - Cosmic Lounge (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Bar - Imagine the Whole World for Us (1:52)
-02. Cool Beach - Slow Dance (1:51)
-03. Karl Lark - A Bouquet of Flowers for You (2:45)
-04. Richard Le Monde - The Lake of Lugano (2:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C41A84D3DA59AF07C612207AE935CDE564DD35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521551   (764504) от 03.01.2022
-
-VA - Furia present Authentic XTR Records, Vol. 03 (2021) [AAC|~323 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Jump into the Dark (4:02)
-02. Mainterm - Cloud Surfing (6:02)
-03. Furia - Lose Your Love (4:23)
-04. Mainterm - Eternity (6:25)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 02:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7F4993E289151111A49BD0C962FC7368666B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521571   (764502) от 03.01.2022
-
-VA - XTR Records Best 2021 (2021) [AAC|~324 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Runner (Teenage Mutants Remix Edit) (4:42)
-02. Furia - Close My Eyes (5:20)
-03. Mainterm - Reunited (6:44)
-04. Furia - Jump into the Dark (4:02)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 08:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6BA215C3EADAD3A817FDA9C685703864D2EF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521584   (764426) от 03.01.2022
-
-VA - Figura X-MAS 2022 (2021) [AAC|~324 Kbps] <Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Aramitt, Allisha - Red Eyes (5:30)
-02. Echoplays - Human Soul (6:28)
-03. E-Space - Orion (Extended Mix) (5:14)
-04. Artem Kazantsev - Stardust (6:22)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C246439780EF33F69FA850015248C1647D8E17E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521549   (764420) от 03.01.2022
-
-VA - Furia present Authentic XTR Records, Vol. 02 (2020) [AAC|~326 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Butterfly (8:06)
-02. Mainterm - Reunited (Furia Remix) (7:48)
-03. Cowlam - Avalanche (6:26)
-04. Furia - Metamorphosis (7:34)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F595835E33C4ED1099311A62A9BB68BE48ABBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521547   (764414) от 03.01.2022
-
-VA - Furia present Authentic XTR Records, Vol. 01 (2020) [AAC|~340 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Trappist (7:13)
-02. Furia - Hoag (8:34)
-03. Miguel Ante - Stardust (Furia Remix) (6:55)
-04. Furia - Koi (Ioan Gamboa Remix) (7:25)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 02:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1C4019A151DC4FF14E53281CFBE0B11A8E40F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126739   (764397) от 19.04.2017
-
-Зверопой / Sing (2016) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг, баран Эдди, устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: СШАЖанр: Мультфильм, комедия, семейный, музыкаРежиссер: Кристоф ЛурделеАктеры: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: Дублированный (Лицензия)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419E10CB3953AC9AF21C26D9934D3BDE2167FB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126685   (764393) от 19.04.2017
-
-Зверопой / Sing (2016) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг, баран Эдди, устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: СШАЖанр: Мультфильм, комедия, семейный, музыкаРежиссер: Гарт ДженнингсАктеры: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: Дублированный (Лицензия)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378056EFE2FC7FC373ADE71727C996E64A24DFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106161   (764331) от 19.04.2017
 
 Sylver - Turn The Tide (2000), Release Germany CD, Maxi Single, M4A / AAC, 320 kbps (Tracks), Lossy, (Electronic, Trance)
@@ -374,7 +6,7 @@ Sylver - Turn The Tide (2000), Release Germany CD, Maxi Single, M4A / AAC, 320 k
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764331.jpg" />
 </div>
 
 
@@ -403,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764310.jpg" />
 </div>
 
 
@@ -429,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764122.jpg" />
 </div>
 
 
@@ -455,7 +87,7 @@ VA - Best Of Cause Org 2021 (2022) [AAC|~313 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763663.jpg" />
 </div>
 
 
@@ -484,7 +116,7 @@ VA - Feel the Rhythm & Chill, Vol. 2 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763662.jpg" />
 </div>
 
 
@@ -513,7 +145,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 4 (2019) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763661.jpg" />
 </div>
 
 
@@ -542,7 +174,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 2 (2018) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763660.jpg" />
 </div>
 
 
@@ -571,7 +203,7 @@ bcalm, Banks - Feelings (2021) [AAC|~286 Kbps] <Lounge, Chill Out, Lo Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763659.jpg" />
 </div>
 
 
@@ -600,7 +232,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 1 (2018) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763658.jpg" />
 </div>
 
 
@@ -629,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763625.jpg" />
 </div>
 
 
@@ -655,7 +287,7 @@ bcalm, Banks - Feelings Pt.2 (2021) [AAC|~283 Kbps] <Lounge, Chill Out, Lo Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763552.jpg" />
 </div>
 
 
@@ -684,7 +316,7 @@ VA - Time to Chill, Vol. 2 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763551.jpg" />
 </div>
 
 
@@ -713,7 +345,7 @@ VA - Psychill Blossom, Vol. 2 (2021) [AAC|~327 Kbps] <Psychill, Psybient, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763550.jpg" />
 </div>
 
 
@@ -727,6 +359,359 @@ VA - Psychill Blossom, Vol. 2 (2021) [AAC|~327 Kbps] <Psychill, Psybient, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8919E2FDEE26A01E5E92AB0BDFF02CEAD4D1C096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521932   (763549) от 04.01.2022
+
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 3 (2019) [AAC|~356 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Artak, Sone Silver - Tell Me (Rayan Myers Remix) (7:35)
+02. Fallen Angel (Original Mix) (6:24)
+03. I'm Gonna Feel Them (Original Mix) (6:11)
+04. Wanderer (Original Mix) (6:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67818CAA0C1D11328D22478B6546AD411AD97A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521777   (763548) от 04.01.2022
+
+VA - Psychill Blossom, Vol. 1 (2020) [AAC|~323 Kbps] <Psychill, Psybient, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dense, Fourth Dimension - Dawn (John Spanos Remix) (9:44)
+02. Germind - Invention of Proportions (6:01)
+03. Side Liner, Aviron - Human, Complete Me (7:16)
+04. Cayo Largo - Fotonion (5:18)(   Читать дальше...   )Жанр: Psychill, Psybient, Chill Out, DowntempoПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFCD544D95DA05A81C33D5B235EDD6B7CFD9D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521774   (763547) от 04.01.2022
+
+VA - Time to Chill (2012) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johannes Huppertz - Bittersweet Symphonie (4:34)
+02. Artenovum - Bizarre Moments (Mystic Ambient Cut) (4:48)
+03. Gushi, Raffunk - Eyes' Cloud (4:17)
+04. Newton - Morning Star (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E6CC14651004CD6E2CC60976B5F1EEED5C35C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521937   (763546) от 04.01.2022
+
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 5 (2020) [AAC|~350 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Stopping Us Now (Original Mix) (5:53)
+02. Sound Forces, Natune - I Wanna Be Happy (Rayan Myers Remix) (4:48)
+03. Be Patient (Original Mix) (7:50)
+04. Rayan Myers, Iriser - Melt My Heart (Acoustic) (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E603426F7F7F2E252701236530BB37134FC93A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521939   (763545) от 04.01.2022
+
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 6 (2021) [AAC|~349 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daminika, Bryan Milton, Natune - I Won't Sleep (Rayan Myers Remix) (5:22)
+02. Set Me Free (Dream Version) (5:24)
+03. Rayan Myers, Yuliya River - Dreams (Original Mix) (6:02)
+04. Tonight (Original Mix) (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97444085FFD650912B7A3559C0CBED1E02671572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279970   (763519) от 01.02.2019
+
+Эллиот / Elliot the Littlest Reindeer (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь: Эллиот — маленькая лошадка с большой мечтой. Ему так хочется занять место одного из северных оленей в упряжке Санты и дарить детям радость! У него есть всего 3 дня, чтобы доказать окружающим, что он достоин стать одним из них, даже если рогами не вышел! Ведь если чего-то хочешь по-настоящему, то чудеса случаются непременно!Производство: Канада / Awesometown Entertainment,Double Dutch International,Elgin Road ProductionsЖанр: Мультфильм, СемейныйРежиссер: Дженнифер ВесткоттАктеры: Джош Хатчерсон, Морена Баккарин, Джон Клиз, Мартин Шорт, Кристофер Жако, Джин Юн, Джефф Данэм, Саманта Би, Джордж Бьюза, Роберт ТинклерПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68A8A6FBA67E67B12D5CE815123924468B76F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394541   (763503) от 05.07.2020
+
+Роковая связь / Above Suspicion (2019) WEB-DL [1080p] ATV3
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сьюзан — мать-одиночка, которая едва сводит концы с концами и мечтает лишь об одном: выбраться из своего провинциального городка Аппалачи. Когда в город приезжает симпатичный женатый агент ФБР и делает Сьюзан своим информатором, кажется, что у нее наконец-то появляется шанс уехать из этой дыры. Однако этих двоих непреодолимо влечет друг к другу, между ними вспыхивает (   Читать дальше...   )Производство: США / Bold Films, Caffeination, Colleen Camp ProductionsЖанр: Боевик, триллер, криминалРежиссер: Филлип НойсАктеры: Эмилия Кларк, Джек Хьюстон, Софи Лоу, Джонни Ноксвил, Остин Хеберт, Тора Бёрч, Карл Глусман, Кевин Данн, Брайан Франклин, Омар Бенсон МиллерПеревод: Многоголосый профессиональный (iTunes)Субтитры: НетПродолжительность: 01:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5379FC2F7AF2109E258D84F87556B307997E6EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280045   (763422) от 01.02.2019
+
+Вдовы / Widows (2018) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763422.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о жёнах грабителей, погибших при неудачном налёте. Новоиспечённые вдовы берутся сами закончить начатое, разобраться с полицией и конкурентами, а главное — выяснить, кто же подставил их мужей.Производство: Великобритания, США / Regency Enterprises, See-Saw Films, Film4Жанр: Триллер, Драма, Мелодрама, КриминалРежиссер: Стив МакКуинАктеры: Виола Дэвис, Лиам Нисон, Джон Бернтал, Мануэль Рульфо, Коберн Госс, Мишель Родригес, Алехандро Вердин, Бейли Рюз Уолтерс, Элизабет Дебики, Кэрри Кун, Синтия ЭривоПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Forced, Full)Продолжительность: 02:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1684EC4741FC5F39097B5DE9C40AD8DE058397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280003   (763315) от 01.02.2019
+
+Хроники хищных городов / Mortal Engines (2018) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошли тысячелетия после того, как мир настиг апокалипсис. Человечество адаптировалось и теперь живет по новым правилам. Гигантские движущиеся мегаполисы рассекают пустоши и поглощают маленькие города ради ресурсов. Том Нэтсуорти из нижнего уровня великого Лондона оказывается в смертельной опасности, когда на его пути появляется скрывающаяся от закона бунтарка Эстер (   Читать дальше...   )Производство: Новая Зеландия, СШАЖанр: Фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Кристиан РиверсАктеры: Гера Хилмарсдоттир, Роберт Шиэн, Хьюго Уивинг, Джихе, Ронан Рафтери, Лейла Джордж, Патрик Мэлахайд, Стивен Лэнг, Колин Сэлмон, Марк Митчинсон, Меник Гунератне, Реге Пейдж, Фрэнки АдамсПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD2D37943B07345D006A63AA837239F855CD3E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214631   (763070) от 23.03.2018
+
+Кто наш папа, чувак? / Father Figures (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер и Кайл Рейнольдсы — два брата, которых эксцентричная мать вырастила в полной уверенности, что их отец умер, когда они были маленькими. Но после того, как они выясняют, что это неправда, они отправляются на поиски своего настоящего отца, в ходе которых узнают о своей матери больше, чем, вероятно, когда-либо хотели знать.Производство: СШАЖанр: КомедияРежиссер: Лоуренс ШерАктеры: Эд Хелмс, Оуэн Уилсон, Гленн Клоуз, Кэт Уильямс, Кристофер Уокен, Дж.К. Симмонс, Терри Брэдшоу, Винг Реймз, Кэтрин Аселтон, Джессика ГомесПеревод: Дублированный (iTunes)Субтитры: Русские, АнглийскиеПродолжительность: 01:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D17E5471243DC55344B6C93BB5D83ED72BD8410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017118   (762634) от 16.05.2016
+
+Кукла / The Boy (2016) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благополучная английская семья нанимает для своего сына американскую няню. Приехав на новое место работы, няня обнаруживает, что её подопечный вовсе не настоящий мальчик, а кукла в человеческий рост, с которой обращаются, как с живым человеком. Но тревожные события, происходящие после того, как няня нарушает установленные строгие правила, заставляют её поверить в (   Читать дальше...   )Производство: США, Китай, КанадаЖанр: Ужасы, триллер, детективРежиссер: Уильям Брент БеллАктеры: Лорен Кохэн, Руперт Эванс, Джеймс Расселл, Джим Нортон, Диана Хардкэсл, Бен Робсон, Джетт Клине, Лили Патер, Мэттью Уолкер, Стефани Николь ЛемелинПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29C8F02D2C3ADBAF78B777D0E287A3A2337795E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016777   (762560) от 16.05.2016
+
+Кукла / The Boy (2016) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благополучная английская семья нанимает для своего сына американскую няню. Приехав на новое место работы, няня обнаруживает, что её подопечный вовсе не настоящий мальчик, а кукла в человеческий рост, с которой обращаются, как с живым человеком. Но тревожные события, происходящие после того, как няня нарушает установленные строгие правила, заставляют её поверить в (   Читать дальше...   )Производство: США, Китай, КанадаЖанр: Ужасы, триллер, детективРежиссер: Уильям Брент БеллАктеры: Лорен Кохэн, Руперт Эванс, Джеймс Расселл, Джим Нортон, Диана Хардкэсл, Бен Робсон, Джетт Клине, Лили Патер, Мэттью Уолкер, Стефани Николь ЛемелинПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF2F5C853AB02BC6EC1EB10D3B2E0B3DC34177D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886888   (762432) от 10.04.2015
+
+Машина времени в джакузи 2 / Hot Tub Time Machine 2 (2015) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Лу попадает в беду, Ник и Джейкоб решают воспользоваться машиной времени в джакузи, чтобы вернуться в прошлое, но неожиданно оказываются в будущем с Адамом младшим. Теперь им придется изменить будущее, чтобы исправить события в прошлом.Производство: СШАЖанр: Фантастика, комедияРежиссер: Стив ПинкАктеры: Роб Кордри, Крэйг Робинсон, Кларк Дьюк, Адам Скотт, Гиллиан Джейкобс, Чеви Чейз, Коллетт Вульф, Бьянка Хаазе, Джейсон Джонс, Кумэйл НанджианиПеревод: Дублированный (LINE)Продолжительность: 01:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C70397441E0AA4B15E7B43748494D3285BE8745
 ```
 
 https://mybot314.ru/tekegram_catalog/

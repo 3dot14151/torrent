@@ -1,29 +1,3 @@
-###  Публикация: 1027970   (693896) от 20.06.2016
-
-Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если вы соскучились по ураганным сражениям, масштабным боевым действиям, то компания Teyon предлагает вашему вниманию уникальный продукт. Вас ожидает огромное количество миссий, каждая из которых обладает своим неповторимым шармом и сюжетом. Вашему главному герою предстоит стоять насмерть и защищать мирных жителей, уничтожать врагов, которые прорываются к вашим позициям. (   Читать дальше...   )Тип издания: RepackРазработчик: TeyonЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D5D11FE7E8816408612DA92A81EB61106FE38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027864   (693880) от 20.06.2016
 
 Youtubers Life (2016) [Ru/Multi] (0.7.11) Repack Other s
@@ -32,7 +6,7 @@ Youtubers Life (2016) [Ru/Multi] (0.7.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693880.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Haunted Train 2: Frozen In Time (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693702.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Quest Hunter (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693535.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693511.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tavern Tycoon - Dragon's Hangover (2019) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693414.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ RiME (2017) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693411.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Haunted Hotel 8: Eternity / Проклятый отель 8: Вечность (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693353.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ KRAZ / КРАЗ [Ru] (RePack) 2010 | R.G.Spieler
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693224.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Grim Facade 8: The Red Cat / За гранью жестокости 8: Крас�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692946.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ PLAY WITH ME (2018) [Ru/Multi] (1.22.21) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692879.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ The Swords of Ditto (2018) [Ru/Multi] (1.0.4.01-108) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692797.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Demon's Rise - Lords of Chaos (2018) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692785.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ World to the West (2017) [Multi] (1.0.1) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692740.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ She Wants Me Dead (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692114.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Worlds Align 2: Deadly Dream / Слияние миров 2: Смертельна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692083.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Hard West (2015) [Ru/Multi] (1.4.160303.1235/dlc) Repack R.G. Revenants
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691930.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Blackhole (2015) [Ru/Multi] (1.6/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691896.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Kageroh: Shadow Corridor (2019) [En/Ja/Ko] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691635.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Pursuer (2019) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691626.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1) SteamRip R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691136.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Ominous Tales. The Forsaken Isle / Зловещие истории. Покину
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691129.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Light Fall (2018) [Ru/Multi] (1.0.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691043.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Inked (2018) [Multi] (20180425-1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691041.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690958.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Bullet Witch (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690951.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Bullet Witch (2018) [Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAE07DDD2D2951F8C0CEDA067E7C084EDA594E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134031   (690780) от 14.05.2017
+
+The Fan (2017) [En/Fr] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690780.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Fan - это интерактивная новелла с элементами point and click квеста, сделанная с помощью фотографий, в которой игроков ждут реально существующие люди и локации. Игроков ждет история жуткого серийного убийцы, который охотился за женщинами и приносил их в жертву в подземельях Парижа.Тип издания: RepackРазработчик: Ezhaac StudioЖанр: Adventure (Horror), InteractiveЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F005D0850A7ECDE1F1C198628493AAB71F6FE79A
 ```
 
 https://mybot314.ru/tekegram_catalog/

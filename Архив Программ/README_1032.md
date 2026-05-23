@@ -6,7 +6,7 @@ Waterfox 56.2.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522257.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox Quantum 68.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522250.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7153.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522238.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2010 Standard 7153.5000 SP2 (x86) RePack by KpoJIuK (15.08.2015
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522234.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 10 Manager 3.1.1 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522177.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Double Commander 0.9.5 Beta Build 8947M + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522172.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 Manager 3.1.1 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522171.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hard Disk Sentinel Pro 5.50 Build 10482 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522170.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AVS Audio Software 9.1.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522128.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522115.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ O&O BlueCon Admin + Tech Edition 16.0 Build 6639 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522113.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Advanced Renamer 3.85 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522109.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VueScan Pro 9.6.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522083.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ EssentialPIM Pro Business Edition 8.03 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522079.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Macrorit Partition Expert 5.2.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522078.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Master PDF Editor 5.4.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522060.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522050.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Office 2013-2019 C2R Install + Lite 6.8 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522038.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ IObit Uninstaller Pro 8.0.2.19 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521999.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ AAct Network 1.1.3 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521997.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6798.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521993.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7232.5000 (2019.07) RePack by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521985.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hard Disk Sentinel Pro 5.50 Build 10482 Final RePack (& Portable) by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521983.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Phase One Capture One Pro 12.1.1.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521975.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521960.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ ElcomSoft Password Recovery Bundle Forensic Edition 2019 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521954.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1810382   (9347) от 04.08.2025
-
-Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вы думаете, что ленивцы медлительны? Эдди готов доказать вам, что вы ошибаетесь. В Driftwood вы испытаете высокоскоростной спуск на лонгборде в роли аэродинамического ленивца. Дрифтинг - это суть игры, так как он поможет вам найти идеальный баланс между скоростью и контролем. Дрифтуйте по крутым поворотам, чтобы избежать столкновения с машинами и препятствиями, и (   Читать дальше...   )Тип издания: RepackРазработчик: Stoked Sloth InteractiveЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Гонки, Симуляторы, СпортЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0DFF8557B8A68F1F3CF6FDF37907066DC5FF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704027   (9300) от 05.08.2025
 
 Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack FitGirl [Supporter Bundle]
@@ -32,7 +6,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9300.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Copycat (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9290.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ PEAK (2025) [Ru/Multi] (1.11.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9285.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9278.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9275.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9273.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9270.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Too Many Clothes Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9269.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Echo Paradox (2025) [En] (19081580) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9268.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9265.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Captain Bones: A Pirates Journey / Пиратское Путешествие (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9250.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9249.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Pilgrims / Пилигримы (2019) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9243.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.9-j/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9189.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Sou
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9188.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Lucy Dreaming (2022) [Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9176.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9165.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ dotAGE (2023) [Ru/Multi] (1.7.2/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9163.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.1f/dlc) Repack Let'sРlay [Early Access
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9147.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mars Base (2022) [Multi] (1.107) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9121.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Tall Trails (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9118.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Headquarters: World War II (2024) [Ru/Multi] (1.04.03/dlc) Repack Let'sРlay [Co
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9088.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Necrophosis (2025) [Ru/Multi] (Build 19486897) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9084.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9081.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9080.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06DC9010E07C46C92C0F8CDD74F927203A3FCE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684887   (9079) от 07.08.2025
+
+House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора стряхнуть пыль с молотка - «Хаус Флиппер» возвращается в новом виде! Покупайте и ремонтируйте заброшенные дома! Или вы предпочитаете строить новые? Теперь можно и это! Примерьте роль флиппера-новичка и заработайте состояние, помогая жителям милого городка Pinnacove.Тип издания: RepackРазработчик: Frozen District, EmpyreanЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C0BB7340ECECE86DD2D39ABAE6DC4CD1AADE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

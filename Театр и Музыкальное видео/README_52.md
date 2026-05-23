@@ -1,116 +1,3 @@
-###  Публикация: 1398284   (734688) от 28.07.2020
-
-Nasty - Клипы (2013-2020) WEBRip [H.264/VP9/1080p/2160p] <Beatdown Hardcore> 13 клипов
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001 At War with Love
-002 Drogen
-003 F.Y.W
-004 Fire(   Читать дальше...   )Жанр: Beatdown HardcoreСубтитры: АнглийскиеПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308C7021195886FC463E825683E2D969DCCD790F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788301   (734080) от 22.05.2014
-
-Лебединое озеро / Swan Lake (2007) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Лебединое озеро" - символ русского балета. Самый репертуарный спектакль Мариинского театра в исполнении блестящей труппы, в главных ролях Ульяна Лопаткина и Данила Корсунцев. И этим сказано всё! Ульяна Лопаткина - настоящая королева лебедей. Это признано всем миром. Существует много вариантов этого бессмертного балета, но такого слияния балерины и созданного (   Читать дальше...   )Производство: США (Decca Music Group), Великобритания (BBC)Жанр: БалетРежиссер: Росс МакГиббонАктеры: Ульяна Лопаткина (Одетта-Одиллия), Данила Корсунцев (Принц Зигфрид), Александра Гронская (Владетельная принцесса, мать Зигфрида), Илья Кузнецов (Фон Ротбард), Андрей Иванов (Шут), Петр Стасюнас, Ирина Голуб, Екатерина Осмолкина, Антон Корсаков, Евгения Образцова, Светлана Иванова, Олеся Новикова, Виктория Терешкина, Татьяна Ткаченко, Ксения Острейковская, Дарья СухоруковаПродолжительность: 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B3EAB44D8D96919012327CCD9D2734BD9D7AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788806   (734067) от 22.05.2014
-
-Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Timeless Genesis
-03. A force de…
-04. Comme j’ai mal(   Читать дальше...   )Жанр: PopРежиссер: Франсуа АнссПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEC2B99E1B89A96AED344854C86486A3B826998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788077   (734064) от 22.05.2014
-
-Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Timeless Genesis
-03. A force de…
-04. Comme j’ai mal(   Читать дальше...   )Жанр: PopРежиссер: Франсуа АнссПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E828BE986B912834A7E286E7B4EC6C1C7A4F8328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307896   (733500) от 04.02.2022
 
 Маленькие комедии большого дома (1974) DVDRip [H.264]
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733500.jpg" />
 </div>
 
 
@@ -146,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733188.jpg" />
 </div>
 
 
@@ -175,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733146.jpg" />
 </div>
 
 
@@ -204,7 +91,7 @@ John Mayall And The Bluesbreakers – Jammin' With The Blues Greats '1982 (1983)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731961.jpg" />
 </div>
 
 
@@ -236,7 +123,7 @@ Asia - Symfonia - Live in Bulgaria '2013 (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731845.jpg" />
 </div>
 
 
@@ -265,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731684.jpg" />
 </div>
 
 
@@ -291,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731681.jpg" />
 </div>
 
 
@@ -317,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731636.jpg" />
 </div>
 
 
@@ -346,7 +233,7 @@ George Michael: Live in London (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731529.jpg" />
 </div>
 
 
@@ -375,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731401.jpg" />
 </div>
 
 
@@ -404,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730526.jpg" />
 </div>
 
 
@@ -430,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730452.jpg" />
 </div>
 
 
@@ -459,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729407.jpg" />
 </div>
 
 
@@ -485,7 +372,7 @@ Judas Priest - Epitaph (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_729331.jpg" />
 </div>
 
 
@@ -514,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729178.jpg" />
 </div>
 
 
@@ -540,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_729116.jpg" />
 </div>
 
 
@@ -566,7 +453,7 @@ Mr. Big - Raw Like Sushi 114 (Live At Budokan 2014) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728579.jpg" />
 </div>
 
 
@@ -595,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728418.jpg" />
 </div>
 
 
@@ -621,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728134.jpg" />
 </div>
 
 
@@ -647,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727988.jpg" />
 </div>
 
 
@@ -676,7 +563,7 @@ Lynyrd Skynyrd - Pronounced Leh - Nerd Skin - Nerd & Second Helping (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727475.jpg" />
 </div>
 
 
@@ -705,7 +592,7 @@ Melody Gardot - Live at the Olympia Paris (2015) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727237.jpg" />
 </div>
 
 
@@ -719,6 +606,119 @@ Melody Gardot - Live at the Olympia Paris (2015) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83E63D8CCBB9E998DB488CE71968C9B493B82C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128480   (727069) от 25.04.2017
+
+Джузеппе Верди - Аида / Giuseppe Verdi - Aida (2017) SATRip (2 части) (Teatro alla Scala) [IT / RU Sub]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный немецкий режиссер Петер Штайн предложил зрителям необычную версию одной из самых востребованных в Италии опер. По собственному признанию, Штайн стремился сделать из "Аиды" не привычное публике "яркое шоу", а тонкую психологическую драму."Перед нами классический любовный треугольник: две женщины любят одного мужчину. Все остальное (   Читать дальше...   )Производство: Россия, ГТРК "Культура", Театр Ла СкалаЖанр: Опера, драмаРежиссер: Петер ШтайнАктеры: Анита Рачвелишвили, Георгий Гангадзе, Кристина Льюис, Матти Салминен, Карло КоломбараСубтитры: РусскиеПродолжительность: 2 x ~ 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B318D41C0FF989A71E42E25D24AFDB8EDD74FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530909   (726607) от 13.02.2022
+
+Квартирник у Маргулиса. Максим Леонидов и Hippoband (13.02.2022) WEBRip [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Hippoband образовалась в далеком 1996-м: с тех прошло около 26 лет, и за это время состав коллектива поменялся всего один раз — в 1997-м. А вот название коллективу дал их альбом Hippotazm и опечатка, допущенная гитаристом и аранжировщиком Владимиром Густовым. В гостях у Евгения Маргулиса музыканты поделились интересными воспоминаниями и исполнили песни, покорившие (   Читать дальше...   )00:00:00 Квартирник
+00:00:05 Видение
+00:06:22 7 утра
+00:14:10 Питерские коты(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, PopЯзык озвучки: РусскийПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B019A5748427BBF0587D4127C3898A347131AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530937   (726537) от 13.02.2022
+
+Квартирник у Маргулиса. Максим Леонидов и Hippoband (12.02.2022) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Hippoband образовалась в далеком 1996-м: с тех прошло около 26 лет, и за это время состав коллектива поменялся всего один раз — в 1997-м. А вот название коллективу дал их альбом Hippotazm и опечатка, допущенная гитаристом и аранжировщиком Владимиром Густовым. В гостях у Евгения Маргулиса музыканты поделились интересными воспоминаниями и исполнили песни, покорившие (   Читать дальше...   )00:00:00 Квартирник
+00:00:05 Видение
+00:06:22 7 утра
+00:14:10 Питерские коты(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514093B3A3DB069414D531D3D254901812EDFA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284628   (726248) от 23.02.2019
+
+Pink Floyd - Delicate Sound Of Thunder (1989) HDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Delicate Sound of Thunder - видеофильм Уэйна Ишэма — съёмки концертов группы Pink Floyd, проходивших в рамках тура в поддержку альбома 1987 года A Momentary Lapse of Reason в Нью-Йорке («Nassau Veterans Memorial Coliseum») с 19 по 23 августа 1988 года и на площади перед Версальским дворцом (Place d’Armes, Château de Versailles) во Франции 21 и 22 июня 1988 года. (   Читать дальше...   )01. Shine On You Crazy Diamond (Intro)
+02. Signs Of Life
+03. Learning To Fly
+04. Sorrow(   Читать дальше...   )Производство: США, CBS/SONY Japan, Laserdisc Transfer HQЖанр: rонцерт, прогрессивный рок, арт-рокРежиссер: Уэйн ИшэмАктеры: Дэвид Гилмор, Ник Мейсон, Ричард РайтЯзык: АнглийскийПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFE1F1B25816437455191749D1062452058F179
 ```
 
 https://mybot314.ru/tekegram_catalog/

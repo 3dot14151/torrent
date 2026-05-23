@@ -1,81 +1,3 @@
-###  Публикация: 1737507   (49692) от 18.07.2024
-
-Семейный переполох (2024) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Обидевшись на вечно занятого мужа, Аня забирает детей и уходит от него. Вот только домохозяйка не ожидала, что устроить жизнь с двумя дочерьми и сыном будет так сложно. Недовольны новым положением дел и дети. Они привыкли, что мама всегда дома и все свое время посвящает им. А теперь Аня постоянно пропадает на работе и возвращается уставшая и раздражительная. Пытаясь (   Читать дальше...   )Производство: Россия | START, «Ол Медиа Компани», «Вита Актива»Жанр: Комедия, семейныйРежиссер: Евгения ЮстусАктеры: Зоя Бербер, Владимир Гуськов, Ева Смирнова, Полина Айнутдинова, Савелий Кудряшов, Александра Урсуляк, Наталья Земцова, Алексей Гришин, Никита Тарасов, Владимир СелезневСубтитры: ОтсутствуютПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32F18ED468C125D0EDF7580A0789BA318944B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628976   (49679) от 18.07.2024
-
-О чем говорят мужчины. Простые удовольствия (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Дело было в далеком 2019-м году… Встретившись субботним утром, чтобы выпить шампанского, друзья отправляются в новое путешествие по глубинам мужского подсознания. О чем же на этот раз говорят мужчины? Конечно, о личном. Леша пытается понять существует ли «женская дружба», Камиль рассуждает, можно ли уволить лучшего друга, ловелас Слава вспоминает первую любовь (или (   Читать дальше...   )Производство: Россия, Хэд Мэйд Продакшен, START, Стрела, Yellow, Black & WhiteЖанр: комедияРежиссер: Михаил ПоляковАктеры: Ростислав Хаит, Мария Ремер, Леонид Барац, Камиль Ларин, Александр Демидов, Михаил Полицеймако, Максим Виторган, Гарик Харламов, Дмитрий Нагиев, Мария Шамшина, Лия МамуховаПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C288DE89D2C30525BC841EC0F89D3F0AE31E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737871   (49399) от 20.07.2024
-
-Ресторан по понятиям. Фильм (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История четырех преступников: вора со стажем Шустрого, альфонса-мошенника Кощея, заядлого хулигана-драчуна Кувалды и наивного и тупого похитителя домашних животных Кильки. Все они познакомились в тюрьме и теперь, прежде чем завязать с криминальной жизнью, решаются на финальное грандиозное ограбление, чтобы денег хватило на всю оставшуюся жизнь. Бывшие арестанты арендуют (   Читать дальше...   )Производство: Россия / Кинокомпания братьев АндреасянЖанр: комедия, криминалРежиссер: Давид ДадунашвилиАктеры: Владимир Вдовиченков, Дмитрий Дюжев, Владимир Сычев, Иван Кокорин, Ирина Темичева, Михаил Тарабукин, Виктория Богатырёва, Уиллиам Ламберти, Теона Дольникова, Максим КоноваловСубтитры: РусскиеПродолжительность: 01:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D9E0C3C7006800D919E23DAADC6FD12DD16276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737498   (49366) от 21.07.2024
 
 Семейный переполох (2024) WEBRip [H.264/1080p]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49366.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49365.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48851.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48763.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48333.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48150.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48031.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47567.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47520.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46913.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46779.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46777.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46760.jpg" />
 </div>
 
 
@@ -423,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46754.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46564.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46535.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46485.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46379.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46339.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46251.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45990.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45935.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45924.jpg" />
 </div>
 
 
@@ -668,6 +590,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B39EC87F187E5A1A7EAFD2A20C908242B76CB817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744784   (45896) от 23.08.2024
+
+Особенности национальной охоты (1995) WEB-DLRip  [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой финский специалист по охоте, «финик», уговаривает своего русского друга помочь ему поучаствовать в настоящей русской охоте, дабы познакомиться с нравами и привычками русских охотников.
+До боли знакомые нам бесконечные застолья с последующими приключениями, насыщенными крепким запахом водки, непрестанно удивляют и поражают «финика», но все же, сопоставляя (   Читать дальше...   )Производство: Россия / Кинокомпания «Ленфильм», РоскомкиноЖанр: комедияРежиссер: Александр РогожкинАктеры: Вилле Хаапасало, Алексей Булдаков, Виктор Бычков, Семён Стругачев, Сергей Куприянов, Сергей Русскин, Сергей Гусинский, Игорь Сергеев, Игорь Добряков, Юрий Макусинский и другиеСубтитры: ОтсутствуютПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C483B92B05F883A87AB1CA7C7C2BCFB2B1B0A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744640   (45839) от 24.08.2024
+
+Бар «МоскваЧики» (2024) WEBRip [H.265/2160p] [4K, SDR, 10-bit]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три молодые подруги из Москвы едут развеяться в Питер. Неожиданно для самих себя на последние сбережения они покупают бар и знакомятся с тремя парнями, у которых есть одна тайна. Завязывается противостояние, полное интриг и неожиданных поворотов. Удастся ли девушкам достичь успеха, или придётся вернуться в Москву ни с чем?Производство: Россия / Берг Саунд, Кинокомпания «Темп», МоскиноЖанр: комедияРежиссер: Анарио МамедовАктеры: Яна Кошкина, Марк Богатырев, Михаил Тарабукин, DAVA, Екатерина Шкуро, Дмитрий Красилов, Екатерина Иванчикова, Александр Златопольский, Сергей Николаев, Максим СаетгараевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21DFE4BEF76A63160156BC6319CCABDCD3D74AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066011   (45736) от 25.08.2024
+
+Её звали Муму (2016) WEB-DL [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня за нехитрые материальные блага соглашается – без угрызений совести – стать приманкой для оппозиционеров; соблазнить, снять секс скрытой камерой и обнародовать запись. Политолог, молодой лидер либерального движения, ветеран постсоветских войн с подвижной психикой, эстрадный артист на излете славы, поддерживающий протестные акции, – в постели девочки, (   Читать дальше...   )Производство: Россия, ООО «Фабула Филмс»Жанр: ДрамаРежиссер: Владимир МирзоевАктеры: Ирина Вилкова, Елена Коренева, Ефим Шифрин, Пётр Фёдоров, Ольга Лапшина, Ольга Лысак, Валерия Приходченко, Ирина Бутанаева, Евгений Буслаков, Игорь Воробьёв, Юрий СысоевПродолжительность: 01:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579B68C743BD05AC44E12D8B840137C863E2AB22
 ```
 
 https://mybot314.ru/tekegram_catalog/

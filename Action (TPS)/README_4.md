@@ -6,7 +6,7 @@ Gods Will Fall (2021) [Ru/Multi] (1.0/dlc) Repack xatab [Valiant Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035299.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Lord of the Rings The Fellowship of the Ring / Властелин Колец
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034274.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Last Stand: Aftermath (2021) [Ru/Multi] (1.2.0.19) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034024.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Werewolf: The Apocalypse - Earthblood (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033356.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Werewolf The Apocalypse Earthblood (2021) [Ru/Multi] (49091/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031702.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Potentia (2021) [Multi] (1.0.5.2) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031694.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Planet Nomads (2019) [Ru/Multi] (1.0.7.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031001.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Crown of Wu (2023) [Ru/Multi] (1.00) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030630.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Arma 3: Apex Edition (2013) [Ru/Multi] (2.02.147284/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028758.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Just Cause 4 (2018) [Ru/Multi] (4110618/dlc) SteamRip =nemos= [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028756.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack xatab [Ultimate
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028581.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Pascal's Wager: Definitive Edition (2021) [Ru/Multi] (1.1.1.1000) Repack SpaceX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026475.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pascal's Wager: Definitive Edition (2021) [Ru/Multi] (1.1.1.1000) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026462.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Prototype (2009) [Ru] (1.0.0.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026281.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025702.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Persona 5 Strikers (2021) [Multi] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025152.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Batman: Arkham City / Бэтмен: Аркхем Сити (2012) [Ru/En] (1.1/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025147.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Vampyr (2018) [Ru/Multi] (1.1.7/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023528.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Kingdom Hearts Melody of Memory (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023379.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Kingdom Hearts HD 1.5+2.5 ReMIX (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023368.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Kingdom Hearts HD 2.8 Final Chapter Prologue (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023363.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Vampyr (2018) [Ru/Multi] (1.1.7/dlc) Repack SpaceX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022869.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ DreadOut 2 (2020) [Ru/Multi] (1.1.7/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021058.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ LEFT ALIVE (2019) [Multi] (1.0) License EMPRESS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014734.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ LEFT ALIVE (2019) [Multi] (1.03/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014578.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014100.jpg" />
 </div>
 
 

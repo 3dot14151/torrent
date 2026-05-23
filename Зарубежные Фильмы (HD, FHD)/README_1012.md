@@ -1,55 +1,3 @@
-###  Публикация: 1691223   (123429) от 11.01.2024
-
-Столкновение / Crash (2004) BDRip [H.264/720p] [Режиссёрская версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В фильме несколько сюжетных линий, объединённых через несколько автомобильных аварий, перестрелок и ограблений машин под одной общей темой — Я. Я - в мире, я - в обществе. Практически, все персонажи вовлекаются в конфликты, в ходе которых должны пересмотреть свои убеждения. Зритель также вынужден постоянно менять свои оценки персонажей. В каждой из сюжетных линий (   Читать дальше...   )Производство: США, Германия, Австралия / GmbH & Co. Filmproduktion KG, Blackfriars Bridge, Bob Yari Productions...Жанр: драма, криминал, триллерРежиссер: Пол ХаггисАктеры: Дон Чидл, Мэтт Диллон, Райан Филипп, Терренс Ховард, Сандра Буллок, Тандиве Ньютон, Брендан Фрейзер, Майкл Пенья, Шон Тоуб, Лудакрис, Бахар Сумех, Дженнифер Эспозито, Кит Дэвид, Уильям Фихтнер, Лоренц ТейтПеревод: дублированный, профессиональный двухголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Tycoon), английскиеПродолжительность: 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708A1C8A231433B6999F92802F5F53A04E19B345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691170   (123425) от 11.01.2024
-
-Крик. Ночь перед Рождеством / It's a Wonderful Knife (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества убийца в костюме Рождественского ангела убил лучшую подругу и напал на брата Винни, но бесстрашная девушка прикончила злодея. Им оказался местный мэр Генри Уотерс. Год спустя никто не хочет говорить о произошедшем, Винни грустит по подруге и, когда узнаёт, что её парень ей изменяет, решает, что жизнь не удалась, и загадывает желание, чтобы она вообще (   Читать дальше...   )Производство: Великобритания, США, Канада / Divide/Conquer, Fourth Culture FilmsЖанр: ужасы, комедия, фантастикаРежиссер: Тайлер МакИнтайрАктеры: Джейн Уиддоп, Джоэл Макхэйл, Джастин Лонг, Джессика Маклауд, Кэтрин Изабель, Эйден Ховард, Эрин Бойес, Шон Депнер, Зэния Маршалл, Джейсон ФернандесПеревод: Дублированный (CPI Films), Профессиональный многоголосый (TVShows)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFFEFEEA0F6FA06777DF949534A1C0D4EE20FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691388   (123377) от 12.01.2024
 
 Оставленные / The Holdovers (2023) BDRip [H.264/1080p] [MVO] [PR]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123377.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123371.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123362.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123340.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123228.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123227.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123226.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123225.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123222.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123220.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123217.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123031.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123025.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122993.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122981.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122866.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122864.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122861.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122858.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122831.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122810.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122800.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122691.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122688.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3F0FB1BC30120C54AF87B728E8A7B121EC2F919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692490   (122687) от 16.01.2024
+
+Ещё один удар / One More Shot (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фильма «Последний шанс» (2021) об офицере спецназа США Джейке Харрисе. После нападения на секретную военную базу в Польше Джейк должен использовать все свои боевые навыки, чтобы пережить осаду аэропорта наемными убийцами, которые изо всех сил стараются поймать подозреваемого в терроризме Амина Мансура, единственного человека, который может знать местонахождение (   Читать дальше...   )Производство: Великобритания / Signature FilmsЖанр: боевикРежиссер: Джеймс НаннАктеры: Скотт Эдкинс, Майкл Джей Уайт, Алексис Нэп, Том Беренджер, Валид Эльгади, Ханна Артертон, Мина Райанн, Стивен Блейдс, Дункан Кэйси, Тип КалленПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (SDH)Продолжительность: 01:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCA08476C0B54B432C49F4831C6CD90E1D4CBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692354   (122686) от 16.01.2024
+
+Черный шум / Black Noise (2023) WEB-DLRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Райан — глава элитной команды безопасности, отправленной на частный остров со спасательной операцией. Задача команды проста: проникнуть в указанную зону, забрать человека и покинуть остров. Но на деле все оказывается далеко не так просто. Почти сразу после прибытия наемники сталкиваются с неожиданным препятствием в виде жуткого звука, который способен влиять на мысли (   Читать дальше...   )Производство: США / MSR Media, Sherborne MediaЖанр: Фантастика, боевикРежиссер: Филиппе МартинесАктеры: Джексон Рэтбоун, Фрэнк Корби, Томас Дауни, Джин Фриман, Уэйн Энтони Гордон, Эштон Ли, Ив Мауро, Sadie Newman, Алекс Петтифер, Джексон Рэтбоун, Ники СпиридакосПеревод: Дублированный (Zone Vision)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90169AD494060499369A347CC0E3FADFD9B79E19
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ iToolab FixGo 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033063.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ TunePat Amazon Video Downloader 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033061.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mariana Bo - Live @ Campus, Sunburn Festival, India (2021-01-18) [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033057.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Battery Health 3 v1.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033056.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Movist 2.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033055.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ TurboMosaic Pro 3.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033048.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ oneSafe 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033046.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Desktop Aquarium Wallpapers 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033037.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Alfred 4 Powerpack 4.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033036.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ TunePat Apple Music Converter 1.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033031.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Living Wallpaper HD & Weather 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033030.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033026.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Movist Pro 2.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033022.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ TunePat Netflix Video Downloader 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033021.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Perfectly Clear WorkBench 4.3.0.2443 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032998.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ FontViewOK 6.71 + Portable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032982.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1503) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032974.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Emurasoft EmEditor Professional 22.2.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032972.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Photo Supreme 2023.0.2.4838 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032969.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Lacey Free Music & Video Downloader 2.82 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032967.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1503) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032963.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Simplenote 2.4.0  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032933.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Icecream Video Editor Pro 2.72 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032909.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ ImgDrive Free 2.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032908.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Topaz Video AI 3.1.9 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032904.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ OriginPro 2018 SR1 b9.5.1.195 (32-bit) Portable by v14dy4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032883.jpg" />
 </div>
 
 

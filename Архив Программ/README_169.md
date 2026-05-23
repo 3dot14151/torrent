@@ -6,7 +6,7 @@ UltraDefrag 6.0.0 RC1 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994511.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Foxit Advanced PDF Editor 3.04 RePack by KpoJIuK [Русский / Англий�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994468.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PowerArchiver 2012 13.03.01 + Portable by Baltagy [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994452.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hard Drive Inspector Professional 4.11 Build 151 + For Notebooks [MULTi / Рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994411.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Ashampoo Burning Studio 2013 11.0.6.40 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994395.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ashampoo Burning Studio 2013 11.0.6.40 RePacK/Portable by -= SV =- [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994394.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Connectify Dispatch 4.1.0.25941 (Includes Connectify Hotspot PRO) [Англий�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994384.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The KMPlayer 3.5.0.77 LAV by 7sh3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994383.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ NANO Антивирус 0.22.8.49711 Beta [Английский / Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994374.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Office 2013 Update Pack 01.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994369.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ The KMPlayer 3.5.0.77 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994368.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ SynWrite Editor 4.7.650 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994286.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Chasys Draw IES 4.02.01 Portable by Valx [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994174.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ EditPlus 3.50.241 [Multi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994172.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ StudioLine Photo Classic Plus 3.70.52.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994169.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Comodo Dragon 24.2.0.0 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994140.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ MiniLyrics 7.5.23 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994126.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Offline Explorer Enterprise 6.1.3698
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994120.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WinASO Registry Optimizer 4.8.1.0 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994103.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ashampoo Snap 6.0.4 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994089.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ALLPlayer 5.4.0 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994088.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ ICQ 8.0 Build 5989 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994057.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ CCleaner 3.27.1900 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994045.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ All-Radio 3.75 + Portable [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994044.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Advanced System Optimizer 3.5.1000.14640 Portable by SamDel [Мульти / Ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994030.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ GridinSoft Trojan Killer 2.1.4.8 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994027.jpg" />
 </div>
 
 

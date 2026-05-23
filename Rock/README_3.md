@@ -6,7 +6,7 @@ Roland Gassin - Born In The Seventies (2021) [MP3|320 Kbps] <Progressive Rock, C
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036353.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Schoenherz - What A Night (1978) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036345.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Be Cause - New Knights (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036338.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036040.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Vierzig Grad - Vierzig Grad (1981) LP [MP3|320 Kbps] <Krautrock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035779.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Art Of Illusion - X Marks The Spot (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035469.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 70's Rock Classics (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034617.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Raven Sad - The Leaf And The Wing (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034456.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Besnard Lakes - The Besnard Lakes Are The Last of the Great Thunderstorm (20
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034235.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Phantom Scimitar - Electric Nemeton (2021) [MP3|320 Kbps] <Psychedelic Rock, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034234.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Transatlantic - The Absolute Universe: Forevermore (2021) Extended Version, 2xCD
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033754.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Topas - Topas (1980) LP [MP3|320 Kbps] <Electronic, Krautrock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033683.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Michael Wynn Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Rock, Funk / So
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033205.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ RPWL - Crime Scene (2023) [MP3|320 Kbps] <Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033009.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Rolling Stones - Love (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032988.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Cros
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032752.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ WinaSchnitzel - In The Light (2020) [MP3|320 Kbps] <Prog Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032588.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Artnat - The Mirror Effect (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032566.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ God Is an Astronaut - Ghost Tapes #10 (2021) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032256.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Orphan - Lonely at Night (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032117.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Preview - Preview (1983) Reissue, 2006, Rock Candy [MP3|320 Kbps] <AOR, Melodic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031675.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ David Knopfler - Songs Of Loss And Love (2020) [MP3|320 Kbps] <Pop Rock, Country
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031656.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Bryan Hughes Group - Break the Rules (1990) [MP3|320 Kbps] <AOR, Melodic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031649.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Karaoke Crew - Drew's Famous #1 Karaoke Hits  Sing Like 70'-80's Hard Rock (
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030711.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The New Madness - After Hours (2020) [MP3|320 Kbps] <Classic Rock, Garage Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030444.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Amrakus - A Space Rock Opera (1982) LP [MP3|320 Kbps] <Electronic, Space Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030244.jpg" />
 </div>
 
 

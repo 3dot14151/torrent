@@ -6,7 +6,7 @@ Avira RegistryCleaner 2.0.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476171.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AMD Radeon Software Crimson ReLive Edition 17.8.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476166.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Disk Cleaner 9.7.8.695 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476086.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476060.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Artweaver Plus 6.0.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476054.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Artweaver Free 6.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476050.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ MediaHuman YouTube Downloader 3.9.8.25 (3008) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475951.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Maxthon Browser 5.2.4.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475947.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DVD X Studios CloneDVD 5.6.0.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475904.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Daum PotPlayer 1.5.34115 RePack (& Portable) by D!akov [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475903.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Immersive Explorer 0.2.1 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475899.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ LiveCD ESET NOD32 7473 [13.09.2012] [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475898.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Tor Browser Bundle 2.2.39-1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475891.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ TeamViewer 7.0.14563 Enterprise [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475890.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Avast Premium Security 22.7.6025 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475880.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ PowerArchiver 2017 Standard 17.00.92 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475864.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ TeamViewer Free 12.0.82216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475858.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Stardock Start10 1.56 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475857.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ DVDFab 9.2.1.2 Final Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475809.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Adobe AIR 19.0.0.190 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475793.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Aiseesoft Blu-ray Player 6.3.10 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475790.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Mozilla Firefox Quantum ESR 60.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475778.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.0.1.0.1122 Beta (32-bit/x64) + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475767.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Daum PotPlayer 1.5.34115 Stable Full & Lite by 7sh3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475766.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Light Alloy 4.6.7 build 726 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475752.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ PowerArchiver 2017 Standard 17.00.92 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475740.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ TechSmith Camtasia 24.0.2 build 2656 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45153.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ MailWasher Pro 7.15.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45151.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ ProfiCAD 12.4.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45146.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ R-Wipe & Clean 20.0.2471 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45140.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ KeepStreams 1.2.3.3 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45139.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Aiseesoft Blu-ray Player 6.7.68 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45137.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ ExamDiff Pro 15.0.1.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45136.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Shotcut 24.08.29 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45133.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ UltraSearch Professional 4.4.0.1010 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45132.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ PDF24 Creator 11.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45129.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Shotcut 24.08.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45128.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Atlantis Word Processor 4.4.0.8 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45127.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ WinTools.net Premium 24.9.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45124.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ JRiver Media Center 33.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45122.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Planet VPN 2.8.39.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45105.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Nitro PDF Pro 14.28.5.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45089.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Q-Dir 11.75 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45072.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (3008) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45064.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ WinTools.net Premium 24.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45052.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ AntiPlagiarism.NET 4.133.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45050.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CudaText 1.217.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45037.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ocenaudio 3.14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45036.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ PDFsam Basic 5.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45031.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Draw.io 24.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45030.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ WinTools.net Premium 24.9.1 Classic / Professional / Premium RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45029.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Calibre 7.17.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45026.jpg" />
 </div>
 
 

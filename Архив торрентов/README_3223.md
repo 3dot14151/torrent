@@ -6,7 +6,7 @@ File List Export 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337914.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Export for iTunes 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337913.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Grid 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337911.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MacBreakZ 5 v5.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337910.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Omni Recover 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337909.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ In A Mindset - Compartments EP (2010) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Indus
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337901.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Find Any File 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337892.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Coolutils Total Mail Converter 5.1.0.210 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337890.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ In'R'Voice - Metadreams, Pt. 1-3 (2017) Cosmicleaf Records [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337886.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ CoolUtils Tiff Combine 4.1.0.23 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337883.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ To Travel Without Any Certain Destination - To Travel Without Any Certain Destin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337879.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337872.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Voxal Voice Changer Plus 1.32 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337871.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Cacheman 10.0.2.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337870.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337867.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ UltraISO Premium Edition 9.6.6.3300 RePack by VIPol [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337866.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337852.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PowerArchiver 2012 13.02.02 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337832.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Downie 4 v4.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337815.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ PopClip 2020.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337811.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Allegorithmic Substance Alchemist 2020.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337810.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Artlantis 2020.2 v9.0.2.23232 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337809.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ ExpanDrive 7 v7.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337806.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Two Friends - Big Bootie Mix Volume 018 (2020-10-26) [MP3|320 Kbps] <Electro Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337805.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ JPEG SILKYPIX Photography 10 v10.2.8.1
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337804.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Permute 3 v3.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337799.jpg" />
 </div>
 
 

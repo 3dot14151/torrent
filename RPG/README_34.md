@@ -6,7 +6,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292749.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack xatab [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292592.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290760.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289163.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Dragon Age: Origins / Эпоха Дракона: Начало (2009) [Ru/En] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288858.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Monster Hunter Stories 2 Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_287030.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Sacred / Князь тьмы (2004) [Ru/En] (2.28/dlc) License GOG [Gold Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285394.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Albion (1995) [Multi] (1.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285370.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Nioh (2017) [Ru/Multi] (1.21.02/dlc) Repack R.G. Revenants [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285203.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285199.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285191.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281969.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281789.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Nox (2000) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281625.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Lightning Returns: Final Fantasy XIII (2015) [En/Multi] (1.0.) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281507.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Lightning Returns: Final Fantasy XIII (2015) [En/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281506.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279896.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SINNER: Sacrifice for Redemption (2018) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277508.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Krater (2012) [Ru/Multi] (1.10.1/dlc) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277396.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Beltion: Beyond Ritual / Бельтион: Свод равновесия (2009) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277278.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276703.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275454.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275436.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Dwarves (2016) [Ru/Multi] (1.1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274228.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Dragon Age 2 / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272725.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Two Worlds II & Pirates of the Flying Fortress / Два Мира 2 & Пират�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272720.jpg" />
 </div>
 
 

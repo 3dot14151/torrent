@@ -1,55 +1,3 @@
-###  Публикация: 515498   (655188) от 26.06.2012
-
-Секса много не бывает / Un heureux evenement (2011) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Первое свидание. Первый поцелуй. Страсть... Первое "Я тебя люблю". Чувства переполняют тебя. Ты летишь и больше никогда не будешь прежней. Но впереди притаилось то, к чему нельзя подготовиться... Чувство, способное разрушить тебя полностью.Жанр: Драма, КомедияРежиссер: Реми БезансонПродюсер: Женевьева ЛемальАктеры: Луиз Бургуан, Пио Мармай, Жозиан Баласко, Тьерри Фремон, Габриель Лазюр, Фирмин Ришар, Анаис, Дафна Бюрки, Ланник Готри, Жерар Любин, Николь Вальберг, Луи-До де Ланкесэ, Офелия Керинг, Амели Гленн, Доминик Байенс, Мишель Набокофф, Айссату Диоп, Анник Джонсон, Давид Фонкинос, Эрика Сэйнт, Виктория Бекер, Джульетт БекерПеревод: Профессиональный многоголосыйПродолжительность: 01:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA958CFFF5BA004A05EF7238BFA66151A804ED34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904355   (655185) от 02.06.2015
-
-Ночь страшного суда / Judgment Night (1993) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Иногда судьба может сыграть довольно злую шутку. Четверо друзей, отправляясь на боксерский матч, не могли даже предположить, что такое может с ними случиться. Всему виной проклятая "пробка", в которой застряла их машина. Чтобы не опаздывать, компания решила "срезать" угол и проехать кратчайшим путем через опасный квартал города…Производство: США, Япония / JVC Entertainment, Largo EntertainmentЖанр: Боевик, Триллер, КриминалРежиссер: Стивен ХопкинсАктеры: Эмилио Эстевес, Кьюба Гудинг мл., Дэнис Лири, Стивен Дорфф, Джереми Пивен, Питер Грин, Эрик Шроди, Майкл Уайзмен, Майкл ДеЛоренцо, Релиуэс УэббПеревод: Многоголосый закадровыйЯзык субтитров: ОтсутствуютПродолжительность: 01:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBB93925100E21FB159F5E318C4FF2D01A51283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904018   (655175) от 02.06.2015
 
 Преследуемый / Persecuted (2014) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655175.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655159.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655128.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655113.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655112.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655107.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655098.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655096.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655091.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655080.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655078.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654915.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654836.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654835.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654754.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_654685.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654673.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654671.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654666.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654646.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654637.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654572.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654569.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654568.jpg" />
 </div>
 
 
@@ -667,6 +615,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E462FCEC7ADFC2A33B108377F611B1401A5D264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140737   (654567) от 07.06.2017
+
+В поисках галактики / Galaxy Quest (1999) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся Америка усаживалась к телеэкранам, когда начинался любимый зрителями сериал «В поисках Галактики». Герои этой фантастической саги были воистину народными героями. Но прошли годы, и сериал надоел телевизионным боссам. «В поисках Галактики» закрыли, а труппу распустили на все четыре стороны.
+Безработные бедолаги-актеры, исполнявшие главные роли астронавтов, вынуждены (   Читать дальше...   )Производство: США / DreamWorks SKG, Gran ViaЖанр: Фантастика, Комедия, ПриключенияРежиссер: Дин ПаризоАктеры: Тим Аллен, Сигурни Уивер, Алан Рикман, Тони Шэлуб, Сэм Рокуэлл, Дэрил Митчелл, Энрико Колантони, Робин Сакс, Патрик Брин, Мисси ПайлПеревод: Многоголосый, двуголосый закадровый, авторскийСубтитры: Русские, английские (полные, SDH)Продолжительность: 01:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E356E760EDCCA4FA3CEF2E42D898CFB46F00B95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140353   (654565) от 07.06.2017
+
+Женщина в черном 2: Ангел смерти / The Woman in Black 2: Angel of Death (2014) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Второй мировой войны группу школьников и их юную учительницу Еву эвакуируют из подвергшегося бомбардировкам Лондона в заброшенное поместье, расположенное в деревенской глуши. Вскоре в деревне начинают происходить странные события. Ева с помощью начальника местного гарнизона Гарри обнаруживает, что приезд детей пробудил темные силы, внушающие больший ужас, (   Читать дальше...   )Производство: Великобритания, США, Канада / Alliance Films, Da Vinci Media Ventures, Exclusive Media GroupЖанр: Ужасы, Триллер, ДрамаРежиссер: Том ХарперАктеры: Фиби Фокс, Джереми Ирвин, Хелен МакКрори, Эдриан Роулинз, Лиэнн Бест, Нед Деннехи, Окли Пендергаст, Джуд Райт, Амелия Пиджон, Каспер ОлпрессПеревод: Дублированный (Лицензия)Субтитры: Английские (Full), Английские (SDH), Английские (SDH, Colored)Продолжительность: 01:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF1BE6C66CD4BEC1E3A3C8E20A5F56C9043D7E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

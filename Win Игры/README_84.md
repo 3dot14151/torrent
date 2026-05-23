@@ -1,29 +1,3 @@
-###  Публикация: 628748   (936179) от 10.03.2013
-
-Impire [Ru/En] (Repack/1.0.1.1) 2013 | R.G. Catalyst
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Impire – стратегия, в которой вы выступаете правителем живущих в подземном мире импов. Выполняя всяческие задания, необходимо помочь Bjal-Abaddon'у обрести былое могущество повелителя подземного царства. Воевать придется против постоянно ищущих приключений героев, хотя при желании всегда можно предпринять вылазку на поверхность, совершив рейд на какое-то из поселений людей. (   Читать дальше...   )Тип издания: RepackЖанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164B065E3743ED6762B44D81E139FE54BBD1F710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 175628   (935707) от 17.02.2010
 
 [Русификатор] German Truck Simulator
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935707.jpg" />
 </div>
 
 
@@ -63,7 +37,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935636.jpg" />
 </div>
 
 
@@ -89,7 +63,7 @@ Season Match / Времена года (2007) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934861.jpg" />
 </div>
 
 
@@ -115,7 +89,7 @@ Transistor (2014) [Ru/Multi] (1.42500) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934699.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ Magic 2014 - Duels of the Planeswalkers (2013) [Ru/Multi] (13.09.18/dlc) Unoffic
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934546.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ Worlds of Magic (2015) [Ru/Multi] (1.2.6/dlc) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934545.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ Rise & Shine (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934543.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934523.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ Strange Discoveries: Aurora Peak / Странные открытия: Пик А�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934442.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Virtual Families 2 – Our Dream House (2013) [En] Unofficial
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934359.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ Men Of War. Vietnam: Special Edition [Ru/En/Multi6] (L/1.00.2) 2010 | PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934235.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ Worms Revolution + 4 DLC [Ru/En/Multi8] (Repack/0124) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934230.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ DmC: Devil May Cry [Ru] (Repack/1.0u2/4 DLC) 2013 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934198.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ Season Match 2 / Времена года 2 (2008) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933314.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ Endless Fables: The Minotaur's Curse / Сказки без конца: Прок�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933309.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Agent Walker: Secret Journey / Агент Уолкер: Таинственное
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933307.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ Skyhill (2015) [Ru/Multi] (1.1.20) Unofficial SiMPLEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933126.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ Toricky (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933122.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ The Admin (2016) [En] (1.02) License POSTMORTEM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933121.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ Disney Infinity Trilogy (2013-2016) [Ru/En] (20161216/dlc) Repack R.G. Меха�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933008.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ Rise & Shine (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933007.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ Weakless (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932884.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ Parallels Cross (2016) [En] (1.0.0c) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932471.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ Reflections of Life 3: Dark Architect (2016) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932467.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Rite of Passage 5: Heart of the Storm (2016) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932302.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ Rite of Passage 5: Heart of the Storm (2016) [En] Unofficial [Collector's Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14F07D1181B8DBDA3C607DCB343CAD5CA0BBC4F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365229   (931960) от 06.03.2020
+
+Mindframe: The Secret Design (2020) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте захватывающую криминальную игру Mindframe. После экспериментального медицинского обследования в колледже у Уильяма Роджерса проявился неожиданный побочный эффект - он получил способность читать чужие мысли. Уильям старался держать это в секрете, но кто-то все-таки узнал правду. Теперь Роджерсу предстоит сыграть в кошки-мышки с безумцем, называющим себя (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E733F31E74419EF0F7DB3A88DD44B445533A2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

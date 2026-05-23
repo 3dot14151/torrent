@@ -6,7 +6,7 @@ CrystalDiskInfo 8.16.3 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646937.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CyberLink PowerDVD Ultra 15.0.1727.58 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646908.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BestReminder v2019.03.27.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646904.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PSPaudioware - PSP Vintage Warmer2 v.2.5.2 x86 x64 by ASSiGN [английски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_646856.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ CrystalDiskInfo 8.16.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646850.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646809.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ VueScan Pro 9.6.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646802.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Photodex ProShow Producer 7.0.3518 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646794.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ CorelDRAW Graphics Suite X7 17.5.0.907 RePack by alexagf [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646781.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Microsoft Windows 10 Pro Insider Preview 10.0.10135 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646780.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Microsoft Windows 10 Pro Insider Preview 10.0.10130 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646777.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Macrorit Partition Expert 6.0.4 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646762.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_646749.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Perfectly Clear WorkBench 4.1.0.2262 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646748.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Opera 58.0.3135.127 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646678.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Telegram Desktop 1.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646677.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ pdfFactory Pro 6.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646676.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ YTD Video Downloader PRO 5.9.11.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646675.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Opera 85.0.4341.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646664.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Calibre 5.40.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646648.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Windows 7 SP1 x86 Plus WPI Rock Design By StartSoft v21.06.003.12 [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_646626.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Windows 7 Manager 4.0.9 RePack (& portable) by KpoJIuK [ENG/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_646618.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ant Download Manager PRO 1.7.9 Build 50575 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646599.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ PreSonus - Studio One Professional 4.1.4.51719 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646555.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ FinePrint 9.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646554.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ MediaMonkey Gold 4.1.24.1883 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646544.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1503998   (815848) от 21.10.2021
-
-Арахисовый сокол / The Peanut Butter Falcon (2019) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Большое путешествие начинается с шага, а легендарное - с полета. Вылетев в окно, герой очутился в мире, где чего-то не хватало. Его новому другу - крупной суммы денег. Паре головорезов - головы друга. Молодой медсестре - любви. А ему - путешествий на плоту, погонь, пылающих костров и немного арахисового масла.Производство: США / Armory Films, Lucky TreehouseЖанр: драма, комедия, приключенияРежиссер: Тайлер Нилсон, Майк ШварцАктеры: Шайа ЛаБаф, Дакота Джонсон, Зак Готтзаген, Джон Хоукс, Томас Хейден Чёрч, Брюс Дерн, Джон Бернтал, Джэйк Робертс, Мик ФолиПеревод: Дублированный (Кинопоиск HD)Субтитры: Русские, английскиеПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A520B594B1D572FEB214E5AD23C10D3909A6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776953   (815651) от 13.04.2014
-
-Спаркс / Sparks (2013) BDRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После падения на Землю радиоактивного метеорита, некоторые люди получили удивительные, сверхчеловеческие способности. Один из таких «мутантов», Ян Спаркс, совершенно не считал себя героем, но после смерти родителей, вступил в отчаянную схватку с преступностью Нью-Йорка. Вместе с очаровательной Небесной Леди они составляют великолепную пару, которая быстро очищает (   Читать дальше...   )Производство: США / Sideshow ProductionsЖанр: Боевик, ТриллерРежиссер: Тодд Берроуз, Кристофер ФолиноАктеры: Чейз Уильямсон, Эшли Белл, Клэнси Браун, Джейк Бьюзи, Уильям Кэтт, Марина Скверсьяти, Клинт Ховард, Скотт Ринкер, Дэвид Соболев, Ларри СедарПеревод: Двухголосый закадровый, любительскийОзвучка / Автор перевода: DeadSno & den904Язык субтитров: АнглийскийПродолжительность: 01:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663FBA63C44755FC4DB93E37941D775423E17C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503953   (815581) от 21.10.2021
 
 Не дыши 2 / Don't Breathe 2 (2021) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815581.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815572.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815569.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815409.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815403.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815385.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815382.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815381.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815302.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815277.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815269.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815242.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815239.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815144.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815120.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815087.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814939.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814937.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814931.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814923.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814913.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814878.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814877.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814872.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500307DE382C9C51A65307A1919F7B2C42A6FBE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197374   (814864) от 07.01.2018
+
+Коматозники / Flatliners (2017) BDRip [H.265/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятеро студентов-медиков, одержимых желанием узнать, что происходит с человеком после смерти, решаются на рискованный эксперимент: на время они останавливают друг другу сердце, чтобы погрузиться в состояние клинической смерти и на собственном опыте понять, что происходит с человеком по ту сторону. Но они забывают, что, переступив черту, нужно быть готовым к последствиям.Производство: США, Cross Creek Pictures, Furthur Films, Laurence Mark Productions, Screen GemsЖанр: Ужасы, Фантастика, Триллер, ДрамаРежиссер: Нильс Арден ОплевАктеры: Эллен Пейдж ,  Диего Луна ,  Нина Добрев ,  Джеймс Нортон ,  Кирси Клемонс ,  Кифер Сазерленд , Джейкоб Соли, Анна Арден Оплев,  Мигель ЭнтониПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BBC003B66F05634F58873165DDD6A622D8548DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196685   (814859) от 07.01.2018
+
+Франц / Frantz (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна и Франц жили в небольшом немецком городе, были молоды, влюблены друг в друга и собирались пожениться. Но в тихое счастье двоих вмешался большой сумасшедший мир — шла Первая мировая война, Франца отправили на фронт во Францию, где он, 23-летний скрипач, обожавший стихи Верлена, погиб. Война закончилась, а жизнь Анны теперь свелась к поддержке пожилых родителей (   Читать дальше...   )Производство: Франция, Германия, Mandarin Films, X-Filme Creative Pool, FOZЖанр: Драма, Мелодрама, ВоенныйРежиссер: Франсуа ОзонАктеры: Пьер Нинэ, Паула Бир, Эрнст Штёцнер, Мария Грубер, Йохан фон Бюлов, Антон фон Люк, Сирил Клер, Элис де Ланкесэ, Аксель Вандтке, Райнер ЭггерПеревод: Дублированный (iTunes)Субтитры: Французскиe (PGS)Продолжительность: 01:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6331B8BDC221A92AC3C35C3BE7966BE82B1AC270
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 329631   (709739) от 29.04.2011
-
-Знакомство с Факерами 2 / Little Fockers (2010) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-10 лет, двое детей и бесчисленные испытания понадобились Грегу для того, чтобы тесть частично примирился с его существованием. Но после того как Грег, оказавшись на мели, находит себе халтуру в фармацевтической компании, подозрения Джека увеличиваются в геометрической прогрессии.
-Когда все семейство Грега и Пэм, включая ее бывшего возлюбленного Кевина, соберутся (   Читать дальше...   )Производство: DreamWorks Pictures / Everyman Pictures / Paramount Pictures / Relativity Media / Tribeca Productions / Universal Pictures (США)Жанр: комедияРежиссер: Пол ВайцПерсонажи: Роберт Де Ниро, Бен Стиллер, Оуэн Уилсон, Тери Поло, Блайт Даннер, Джессика Альба, Дастин Хоффман, Барбра Стрейзанд, Лора Дерн, Харви Кейтель и др.Перевод: ДублированныйСубтитры: Вшитые, отключаемыеЯзык субтитров: Английский, Русский, УкраинскийПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329790   (709734) от 29.04.2011
-
-Легенда о динозавре / Kyoryu kaicho no densetsu / Legend of Dinosaurs and Monster Birds (1977) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лето 1977 года. В расщелине у подножия горы Фудзияма найдены окаменевшие яйца динозавров. Миллионы лет пролежали они без движения, но природные катаклизмы пробудили их от спячки. И началось: исчезают люди, на дорогах находят обезглавленных животных. Начинают оживать все новые и новые твари. Кто или что сможет остановить кровавую вакханалию...Производство: Япония / Toei Co. Ltd.Жанр: ФантастикаРежиссер: Дзюндзи КуратаАктеры: Минэко Марухира, Сатору Набэ, Цунэхико Ватасэ, Нобико Сава, Сётаро Хаяси, Томоко Киёсима, Кэтрин Лауб, Хироси Нава, Гиндзи Накамура, Морин ПикокПеревод: Дублированный (Киностудия «Мосфильм»)Продолжительность: 01:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5078A6A23A5ADA45471F7A38FE95347568AF30A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025490   (709716) от 12.06.2016
 
 Джордж из джунглей 2 / George of the Jungle 2 (2003) WEB-DL [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709716.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709646.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709643.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709642.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709640.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709639.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709638.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709634.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709633.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709631.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709629.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709580.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709579.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709578.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709511.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709507.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709505.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709503.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709497.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709495.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709488.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709485.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709481.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709414.jpg" />
 </div>
 
 
@@ -672,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13650CBA5A648C943CBDE6B50E2212378FE9D92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025332   (709412) от 12.06.2016
+
+Страна тигров / Tigerland (2000) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы подготовить новобранцев к войне во Вьетнаме, в США построен самый совершенный тренировочный центр. Это место, существующее по своим, особым законам, пользуется дурной славой. Большинство попавших туда, жалеют о том, что они вообще родились.
+Это адская фабрика, где молодых ребят превращают в боевые машины, хладнокровных убийц, способных не задумываясь выполнить (   Читать дальше...   )Производство: США, Германия / Haft Entertainment, KirchMedia, New Regency PicturesЖанр: Драма, ВоенныйРежиссер: Джоэл ШумахерАктеры: Колин Фаррелл, Мэттью Дэвис, Шей Уигэм, Клифтон Коллинз мл., Расселл Ричардсон, Том Гайри, Коул Хаузер, Майкл Шеннон, Ник Сирси, Афемо ОмиламиПеревод: Дублированный, профессиональный многоголосый, авторский одноголосый (С.Визгунов)Язык субтитров: Русские, английскиеПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017CD8B30E07D3142F2939A364C94F99D7299D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024926   (709321) от 12.06.2016
+
+Мобильник / Cell (2016) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709321.jpg" />
+</div>
+
+
+###  Подробнее
+
+История художника Клайтона Ридделла, становящегося свидетелем разрушительного действия некоего опасного импульса, источающегося сотовыми телефонами (скорость его распространения невероятно высока) и превращающего попавших под его влияние людей в безумцев. В компании нескольких незараженных героев он отправляется на поиски своей супруги и сына, чтобы выяснить, удалось (   Читать дальше...   )Производство: США, Genre Co., The, Benaroya Pictures, Cargo EntertainmentЖанр: Ужасы, Фантастика, ТриллерРежиссер: Тод «Кип» УильямсАктеры: Сэмюэл Л. Джексон, Изабель Фурман, Джон Кьюсак, Стейси Кич, Алекс тер Авест, Ллойд Кауфман, Элизабет Купер, Мэнди Кристин Керр, Джошуа Микель, Кларк Сарулло, Элизабет Давидович, Оуэн Тиг, Катрин Дайер, Итан Эндрю Касто, Гриффин Фриман, Эбби Феррелл, Э. Роджер Митчелл, Рей Эрнандес, Майкл Бисли, Вилбур ФицджералдПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC835D334578F2B0E8414A43585FDD1742A6323
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,138 +1,3 @@
-###  Публикация: 1870050   (1068776) от 
-
-Cockos REAPER 7.71 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317EEFF5EF05733C6026CD8FDA87CC26279517F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870052   (1068775) от 
-
-PrivaZer Pro 4.0.121 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C7AEB8A4DF0EF111F0EFA3C64CDEF00F7BF880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870053   (1068774) от 
-
-Екатерина Пронина, Александр Пронин | Калинов мост (2025) [MP3, Елизавета Тим]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Молодой дворянин Филипп Делагрие, потомок белой эмиграции, возвращается в Россию, чтобы раскрыть старое преступление. Еще до революции в усадьбе
-Заречье пропала без вести юная княжна. Того, кто сможет разгадать эту тайну, ждет баснословное наследство. Но особняк давно превратился в руины, о которых ходит дурная слава.
-Почему птицы так любят это место? Зачем безумный (   Читать дальше...   )Жанр: Фэнтези, МистикаИздательство: ЭвербукПродолжительность: 09:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD1C9A141C31C092072CAEBEA10DDA0CF08B3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870049   (1068773) от 
-
-Виктор Пелевин | День Бульдозериста (2025) [MP3, Николай-Теодор Кобзев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Действие рассказа происходит во время праздника Дня Бульдозериста. Главный герой Иван Померанцев, работает на линии сборкиЖанр: фантастика, постмодернизм, сюрреализмИздательство: Аудиокнига своими рукамиПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3CB34344D3099C64B129440CC6825FB5F0BD663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870039   (1068772) от 
-
-Специалист, Александр Кораблин | Программирование на языке R [Уровень 1-2] (2017) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Целевое предназначение языка программирования R – это статистический анализ данных. Язык содержит широчайший спектр инструментов анализа данных, средств визуализации, создания документов и веб-приложений.
-Что удобнее делать в R? В основном отмечают четыре вещи:
-статистический анализ данных;
-создание высококачественной визуализации данных;(   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 24:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0855DE5C36AB6C9078A75BAEAB848982B6BECCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870038   (1068771) от 
 
 Олег Мушинский | Ангелы постапокалипсиса (Книги 1-3) (2025) [MP3, Андрей Ворошкевич]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068771.jpg" />
 </div>
 
 
@@ -168,7 +33,7 @@ Frontmusic - Eurodance Hits & Tops (2026) [MP3|320 Kbps] <Pop, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068770.jpg" />
 </div>
 
 
@@ -197,7 +62,7 @@ Frontmusic - 90s Club Electronica (2026) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068769.jpg" />
 </div>
 
 
@@ -226,7 +91,7 @@ Streisand, Kristofferson - A Star Is Born (1976) [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068768.jpg" />
 </div>
 
 
@@ -255,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068767.jpg" />
 </div>
 
 
@@ -284,7 +149,7 @@ MinerSearch 1.4.9.0 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068766.jpg" />
 </div>
 
 
@@ -310,7 +175,7 @@ Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack Wanterlude [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068765.jpg" />
 </div>
 
 
@@ -336,7 +201,7 @@ Windows Firewall Control 6.32.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068764.jpg" />
 </div>
 
 
@@ -362,7 +227,7 @@ CoolUtils Total Image Converter 8.2.0.299 RePack (& Portable) by Dodakaedr [Ru/E
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068763.jpg" />
 </div>
 
 
@@ -388,7 +253,7 @@ Photo Supreme 2026.2.3.9026 RePack (& Portable) by elchupacabra [Multi]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068762.jpg" />
 </div>
 
 
@@ -414,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068761.jpg" />
 </div>
 
 
@@ -440,7 +305,7 @@ DesktopOK 12.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068760.jpg" />
 </div>
 
 
@@ -467,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068759.jpg" />
 </div>
 
 
@@ -495,7 +360,7 @@ TweakNow WinSecret Plus! 9.3.2 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068758.jpg" />
 </div>
 
 
@@ -522,7 +387,7 @@ Run-Command 6.41 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068757.jpg" />
 </div>
 
 
@@ -548,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068756.jpg" />
 </div>
 
 
@@ -574,7 +439,7 @@ Any Video Downloader Pro 10.3.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068755.jpg" />
 </div>
 
 
@@ -600,7 +465,7 @@ Mailbird Pro 3.0.57 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068754.jpg" />
 </div>
 
 
@@ -627,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068753.jpg" />
 </div>
 
 
@@ -653,7 +518,7 @@ MAX Desktop 26.15.4 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068752.jpg" />
 </div>
 
 
@@ -679,7 +544,7 @@ DesktopNoteOK 4.61 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068751.jpg" />
 </div>
 
 
@@ -691,6 +556,138 @@ DesktopNoteOK – простая портативная программа дл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F093784D2967E97391DE5B4C43EBAADD6AFAE17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870076   (1068750) от 
+
+Алексей Небоходов | Не говори пустоте Да (Книга 2). Синкуб (2026) [MP3, Фибоначи]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе начинают исчезать мужчины. Не бомжи и не маргиналы – сильные, взрослые, состоявшиеся. Камеры фиксируют невозможное: мёртвые поднимаются и уходят. Следствие упирается в стену, за которой нет преступления в привычном смысле. Там – система, существующая веками, и те, кто питается чужой жизнью, оставаясь безнаказанными.«Синкуб» – мрачный детектив о власти, желании (   Читать дальше...   )Жанр: детектив, Мистика, УжасыИздательство: ЛитРесПродолжительность: 17:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B811C9BF0C96B75B2374AAF87950E19A3FFBF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870074   (1068749) от 
+
+Алексей Небоходов | Не говори пустоте Да (Книга 1). Не говори Пустоте Да (2025) [MP3, Фибоначи]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцатипятилетней столичной чиновнице предлагают сделку: выйти замуж за покойника. Не ради романтики, конечно, а ради состояния в полмиллиарда долларов, особняка на холме и власти, о которой в Москве шепчут только на закрытых этажах. Любой нормальный человек сбежал бы, не оглядываясь. Но Алевтина Каглицкая, привыкшая брать от жизни по максимуму, решает сыграть в (   Читать дальше...   )Жанр: Детектив, Мистика, УжасыИздательство: ЛитРесПродолжительность: 18:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0682184CB5DF21E8B249472E4A218D32570CD7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870088   (1068748) от 
+
+Desktop.Calendar.Tray.OK 4.51 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наличие календаря на рабочем столе Windows очень удобно. Например, вы можете быстро перейти к нужному месяцу или дате и просмотреть их с помощью этого инструмента рабочего стола Windows. Теперь вы можете видеть первый день недели, и обзор недели также очень удобен. Это не сложный инструмент планирования событий и уведомлений !
+Но это еще не все, календарь также покажет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7FDDF289DCDFCDDDB2A16E64BA42F99B8B057E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870089   (1068747) от 
+
+QuickTextPaste 9.51 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа поможет вам заранее вставить нужный вам текст в любое поле, сделать это можно путем нажатия горячих клавиш. Достаточно полезная фишка, если вы часто используете один и тот же текст. После запуска программы в выделенное поле надо вписать необходимый текст, потом прикрепить его к нужной клавише, дальше вы просто экономите время.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BC6F2D1A2679FEFBD617AA29888D37198866C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870091   (1068746) от 
+
+Print.Test.Page.OK 3.55 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Print.Test.Page.OK - это альтернативная портативная программа для печати тестовых страниц для всех операционных систем Windows, которая может быть очень полезной!
+Небольшой альтернативный инструмент для печати тестовых страниц действительно очень мал и может привести вас к цели без больших знаний в области ИТ или опыта работы с технологиями печати, и это всего лишь (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBC253B009DDB500F239683F1E92CBBFC4BB325
 ```
 
 https://mybot314.ru/tekegram_catalog/

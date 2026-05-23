@@ -1,112 +1,3 @@
-###  Публикация: 663070   (50189) от 13.07.2024
-
-Между небом и землёй (1977) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести Виктории Токаревой "Ехал грека".
-Известный музыкант Климов эгоистичен и самолюбив. Он безразличен к бывшей жене и сыну, к любящей его женщине, пренебрежительно относится к коллегам. Однажды самолёт, на котором он должен был лететь, терпит катастрофу. Климов опаздывает к вылету и остаётся жив.Жанр: Фильм-спектакль, драмаРежиссер: Валерий ФокинАктеры: Андрей Миронов, Марина Неёлова, Елена Коренева, Татьяна Пельтцер, Лариса Соловьёва, Елена Лягурова, Виктор ФридманПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FEA5BC5EBE8DE27C7ABBFF794A1E72C38B1A0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463196   (50187) от 13.07.2024
-
-Не все коту масленица / Театр п/р О.Табакова (2011) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Написанная во время Великого поста 1871 года, эта комедия Александра Островского является своего рода басней. Как и полагается, с моралью. Произнося "не все коту масленица", мы непременно вспоминаем вторую часть русской пословицы - "будет и Великий пост".
-
-Богатый старик - купец Ахов - может сколь угодно долго тешить себя мыслью, что деньги решают (   Читать дальше...   )Жанр: комедия, спектакльРежиссер: Авангард ЛеонтьевПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD9FC4C3CFBEEA70465B3A544201CD751D5F798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332054   (50184) от 13.07.2024
-
-Мертвые души (1969) DVD5
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сатирическая трагикомедия по одноименной поэме Н.В.Гоголя.
-Работу над "Мёртвыми душами" Гоголь начал еще в 1835 году по совету Пушкина и на сюжет, подсказанный им. В "Мертвых душах" Гоголь поставил самые острые и больные вопросы современной жизни. Уже само название поэмы - "Мёртвые души" - имело огромную разоблачающую силу, носило в (   Читать дальше...   )Жанр: ТелеспектакльРежиссер: Александр БелинскийВ ролях: Игорь Горбачев, Олег Басилашвили, Юрий Толубеев, Павел Луспекаев, Константин Адашевский, Елена Маркина, Светлана КарпинскаяФормат: DVD VideoПродолжительность: 02:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429D1980CF2D3791F5061BEFB6AB37F00569E5A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965924   (50172) от 13.07.2024
-
-Олег Данилов - Путники в ночи (2001) TVRip (Театр им. А.С.Пушкина)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Лирическая комедия «Путники в ночи» театра имени А.С. Пушкина по пьесе Олега Данилова, сопровождаемая одноименной музыкальной темой Фрэнка Синатры.
-Рассказ о любви, о том, как эта самая любовь тускнеет с годами, как она уходит, а потом возвращается. И как тяжело бывает мужчине и женщине просто услышать друг друга и хоть на некоторое время позабыть взаимные обиды, (   Читать дальше...   )Производство: Россия, Московский театр им. А.С. ПушкинаЖанр: Спектакль, комедияРежиссер: Дмитрий АстраханАктеры: Игорь Бочкин, Анна Легчилова, Екатерина Клочкова, Дмитрий Скрипченко, Андрей СоколовПродолжительность: 02:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6B8C4874808F20D7903281899B832041B21F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049189   (50171) от 13.07.2024
 
 Николай Коляда - Рогатка (1993) SATRip
@@ -115,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50171.jpg" />
 </div>
 
 
@@ -141,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50159.jpg" />
 </div>
 
 
@@ -168,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50158.jpg" />
 </div>
 
 
@@ -194,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50157.jpg" />
 </div>
 
 
@@ -221,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50108.jpg" />
 </div>
 
 
@@ -250,7 +141,7 @@ Electric Light Orchestra - The Early Years (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50106.jpg" />
 </div>
 
 
@@ -279,7 +170,7 @@ Electric Light Orchestra - ZOOM - Tour Live (2001) [DVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50101.jpg" />
 </div>
 
 
@@ -310,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50090.jpg" />
 </div>
 
 
@@ -341,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50083.jpg" />
 </div>
 
 
@@ -367,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50076.jpg" />
 </div>
 
 
@@ -393,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50075.jpg" />
 </div>
 
 
@@ -422,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50072.jpg" />
 </div>
 
 
@@ -448,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50069.jpg" />
 </div>
 
 
@@ -474,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50067.jpg" />
 </div>
 
 
@@ -500,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50062.jpg" />
 </div>
 
 
@@ -527,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50059.jpg" />
 </div>
 
 
@@ -556,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50058.jpg" />
 </div>
 
 
@@ -584,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50055.jpg" />
 </div>
 
 
@@ -610,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50048.jpg" />
 </div>
 
 
@@ -637,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50044.jpg" />
 </div>
 
 
@@ -663,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50036.jpg" />
 </div>
 
 
@@ -692,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50035.jpg" />
 </div>
 
 
@@ -704,6 +595,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7050AC2D1BAD2E5E6DA6E6CC2380CCAA195E6737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486944   (50001) от 15.07.2024
+
+Такая короткая долгая жизнь (8 серий) (1975) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телефильм по сценарию И. Ольшанского.
+История нескольких семей, начиная с предвоенных лет и заканчивая 60-ми годами ХХ века.Жанр: Телеспектакль, ДрамаРежиссер: Константин ХудяковАктеры: Вера Алентова, Геннадий Фролов, Василий Бочкарёв, Светлана Немоляева, Александр Лазарев, Люсьена Овчинникова, Алла Покровская, Анна Каменкова, Борис Галкин, Лев Дуров, Валентина Сперантова, Ольга Гобзева, Лариса Гребенщикова, Димитрий Кречетов, Надежда Федосова, Алла Балтер, Платон Таубин, Володя Семячкин, Мария Андрианова, Тима Говорухин, Слава Гринберг, Ольга Сертун, (   Читать дальше...   )Продолжительность: 8 серий (09:54:00)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899F63FB5AD9015CDA6785DB25F2F12BBE77ADF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444135   (50000) от 15.07.2024
+
+Служанки (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жан Жене (1910-1986) – enfant terrible французского авангарда. Написанный им в тюрьме роман «Богоматерь цветов» сначала ужасает, а затем восхищает Жана Кокто, который открывает Жене дорогу во французский литературный мир. Написанные в 1947 году «Служанки» продолжают проходящую через творчество Жене тему индивидуальной свободы, вступающей в конфликт с регламентирующим (   Читать дальше...   )Жанр: Театральный ритуалРежиссер: Александр ЗуевВ ролях: Соланж - заслуженный артист РФ Дмитрий Бозин
+Клер - Дмитрий Жойдик
+Мадам - Алексей Нестеренко
+Месье - Иван НикульчаПродолжительность: 02:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B11391BD7B6A8EC317E2EB5EC9D7676CCD8536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664582   (49986) от 15.07.2024
+
+Татуированная роза (2 части) (1989) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина, похоронив мужа, погибшего в автокатастрофе, отвечает на любовь водителя Альваро по прозвищу «деревенский дурачок». Но не так все просто у непредсказуемого мистика Тенесси Уильямса, как представляестся на первый взгляд…Жанр: Драма, телеспектакльРежиссер: Ирина Мирошниченко, Юрий Кротенко, Роман ВиктюкАктеры: Ирина Мирошниченко, Ирина Юревич, Софья Гаррель, Анна Комолова, Юрий Богомолов, Галина Киндинова, Ирина Гришина, Нина Килимник, Татьяна Забродина, Вера Десницкая, Никита Куприянов, Борис КоростелевПродолжительность: 01:02:35 + 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D3E0CE60C30121BCB810818194D039B70661EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443115   (49981) от 15.07.2024
+
+Сказки / Московский театр на Таганке (2009) CamRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свободная композиция, созданная Юрием Любимовым по произведениям Г.Х. Андерсена "Русалочка", Оскара Уайльда "Счастливый принц", и Чарльза Диккенса "Рождественские повести", "Сверчок на печке".
+
+В постановке, осуществленной к 45-летию Театра на Таганке, Юрий Любимов соединяет грустный романтизм Андерсена, символистский эстетизм (   Читать дальше...   )Жанр: свободная композицияРежиссер: Юрий ЛюбимовВ ролях: Граббе А.Н. - Солист-мэр, Скрудж, Тоби
+Бадалбейли Тимур - Теклтон
+Басова Александра - Ласточка, Фея
+Васильев Анатолий - Святочный дух прошлых лет(   Читать дальше...   )Продолжительность: 01:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B332FA80EC13B22E180101AF1E8CC15E504438B
 ```
 
 https://mybot314.ru/tekegram_catalog/

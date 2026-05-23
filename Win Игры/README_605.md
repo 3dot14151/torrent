@@ -1,29 +1,3 @@
-###  Публикация: 1818960   (2087) от 19.09.2025
-
-CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Смерть – это только начало. Поднимитесь. Дайте отпор. Выползите из могилы и приготовьтесь пробиться сквозь ряды загадочного и извращенного культа. Их жалкие разумы извращены волей невидимой сущности, и вы обнаружите, что от них летит столько же свинца, сколько и от вас. Поэтому вам придётся бежать, скользить, уклоняться и использовать окружение, чтобы выжить в этом (   Читать дальше...   )Тип издания: RepackРазработчик: Jasozz GamesЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C4274E304A30215A7C38C7D21C7E6A946F721B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818818   (2081) от 19.09.2025
 
 Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
@@ -32,7 +6,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2081.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2077.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mystery Trackers 21: The Shrouded Village / Охотники за тайнами
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2016.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1940.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3 Build 19869727/dlc)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1937.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Wingspan  / Крылья (2020) [Ru/Multi] (283/dlc) License GOG [Special Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1932.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack Wanterlude [Gold
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1927.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mortal Sin (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1919.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Betrayer (2014) [Ru/Multi] (1.9.6844.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1902.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.0003.28253.87380/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1897.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack seleZen [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1893.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1765.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Rep
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1764.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1763.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1762.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1761.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Last Epoch (2024) [Ru/Multi] (1.3.3.1/dlc) Repack Other s [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1743.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ TerraTech Worlds (2024) [Ru/Multi] (0.6.6.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1737.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1736.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ RoadCraft (2025) [Ru/Multi] (4.0.526486 526543/dlc) Repack FitGirl [Rebuild Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1731.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SCP: 5K / SCP: Pandemic (2022) [Multi] (0.17.0.154) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1729.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1727.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Bad Cheese (2025) [Ru/Multi] (1.00.035) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1724.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Bloons TD 6 (2018) [Ru/Multi] (50.2.9835) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1720.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack seleZen [Digi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1717.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack seleZen [Digi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40E638C842B01ACA8AB2E523C8D1C687E53EDD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819219   (1709) от 21.09.2025
+
+Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хирург Коул Мейсон был похищен и доставлен на подводный объект, чтобы прооперировать пациента и извлечь из него ужасное паразитирующее существо. Dead Reset - это пропитанный кровью интерактивный ужастик, в котором каждая смерть приближает вас к истине.Тип издания: RepackРазработчик: Dark Rift Horror, Wales InteractiveЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D9A92FFFF1FA1FE599FB7CD3B700CC182E1CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

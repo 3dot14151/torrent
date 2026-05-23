@@ -6,7 +6,7 @@ O&O ShutUp10 1.0.1344 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509868.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 7.20 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509866.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SolveigMM HyperCam 3.6.1508.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509857.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509856.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.09.5343 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509853.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Acronis BootDVD 2015 Grub4Dos Edition 29 (8/28/2015) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509842.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tor Browser Bundle 5.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509841.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Charles Web Debugging Proxy 3.10.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509838.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VMware Workstation 12 Pro 12.0.0 build 2985596 Lite + VMware-tools 10.0.0 RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509837.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Reg Organizer 7.20 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509832.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509819.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Windows 10 Insider Preview 10.0.10532 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509811.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ sumatra pdf 2.2.6580 prerelease +портабл [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509766.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Comodo Dragon 21.1.1.0 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509749.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VirtualBox 4.20.80231 RC2 + Extension Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509688.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Free Screenshot Capture 1.6 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509581.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ uTorrent 3.5.5 Build 45790 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509498.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VMware Workstation 9.0.0 Build 812388 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509405.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Adobe After Effects 2020 17.1.3.41 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509396.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Adobe Acrobat Pro DC 2020.012.20043 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509391.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ IP-TV Player 50.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509389.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kingsoft Antivirus 2012 SP5.0.081323 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509306.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509293.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PicPick 4.0.7 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509282.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ FlipBuilder Flip PDF 4.3.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509173.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ SuperBird 44.0.2403.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509171.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787306.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786723.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786664.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786656.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786542.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Garo: Guren no Tsuki | Garo: Crimson Moon | Гаро: Кровавая луна 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786459.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Gabriel DropOut / Габриэль бросает школу [2017, TV, 12 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786420.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ World Trigger | Импульс мира [2014, TV, 73] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786419.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Yami Shibai / Театр тьмы [ТВ-4] [2017, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786297.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Garo: Divine Flame | Гаро: Священное пламя [2016, MV] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786294.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Yami Shibai / Театр тьмы [ТВ-3] [2016, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786107.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Yami Shibai / Театр тьмы [ТВ-2] [2014, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786090.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786088.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Accel World: Infinite Burst | Ускоренный мир: Бесконечно�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786080.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dream Hunter Rem / New Dream Hunter Rem / Рэм, ловец снов [1985-1992
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786079.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786060.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786048.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ One Room / Из одной комнаты [2017, TV, 12 из 12] WEBRip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786036.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Shamanic Princess / Принцесса-шаман [1996, OVA, 6 ep.] DVDRip Hi10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785906.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784855.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784577.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Inukami! The Movie: Tokumei Reiteki Sousakan Karina Shirou! | Инуками! [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784554.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуясики [2017, TV, 11 из 11] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784199.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783407.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783354.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Dies Irae | Судный день [2017, TV + Web, 18 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783351.jpg" />
 </div>
 
 

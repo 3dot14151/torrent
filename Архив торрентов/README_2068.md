@@ -6,7 +6,7 @@ WinToUSB 6.8 Technician (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589737.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KORG Collection 3 (05.2022) Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589731.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ActivePresenter Pro Edition 8.5.7 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589729.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Error Lookup 2.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589725.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ExperienceIndexOK 4.01 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589723.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Display Driver Uninstaller 18.0.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589722.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Distant Desktop 3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589719.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Atomix VirtualDJ 2021 Pro Infinity 8.5.6921 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589718.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ GPU Shark 0.26.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589713.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ DMDE Professional Edition 3.6.0.770 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589701.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dexcell - Never Free EP (2015) [MP3|320 кб/с]< Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589640.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Monogatari Series: Second Season  / Истории, сезон второй [201
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589620.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ BurnAware Professional 8.3 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589610.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rene Lavice - Hotblooded / Bill Folderson (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589608.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ BurnAware Professional 8.3 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589606.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Technimatic - Flashbulb EP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589599.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Mozilla Thunderbird 38.1.0 Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589590.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Aghiatrias - Ethos (2006) [FLAC|Lossless]<Dark Ambient, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589589.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dj Feel - TOP 30 OF June (2015) [MP3|320 kbps]<Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589587.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ BurnAware Professional 8.3 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589582.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ CocCoc 43.0.2357.136 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589581.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mozilla Thunderbird 38.1.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589575.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589572.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Internet Download Manager 6.23 Build 15 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589571.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589567.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ pdfFactory Pro 5.30 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589566.jpg" />
 </div>
 
 

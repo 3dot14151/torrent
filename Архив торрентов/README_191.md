@@ -6,7 +6,7 @@ HitPaw Watermark Remover 1.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012697.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NVIDIA GeForce Desktop Game Ready 466.63 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012686.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sonic Academy & Slate Digital - ANA 2 Ultra Bundle 2.0.98 VSTi, VSTi3, AAX (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012679.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Realtek Ethernet Driver 10.050 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012676.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Download Master 6.20.1.1667 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012675.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ USB Safely Remove 6.4.2.1297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012662.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Total Commander 10.00 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012658.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Tor Browser Bundle 10.0.17 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012646.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.1 Build 12 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012638.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ W10Privacy 3.7.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012630.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ultra GPS Logger 3.162 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012618.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ PicPick 5.1.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012585.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Eric Prydz - BBC Radio 1 Dance at Big Weekend (2021-05-28) [MP3|~245 Kbps (V0)] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012581.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FBackup 9.0.307 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012571.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Brave Browser 1.25.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012562.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft Edge 91.0.864.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012558.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Calibre 5.20.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012555.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ GOOS Pres: Journey - Ep.105 (Guestmix by Wassu) - 2021 [MP3|320 Kbps] <Tech Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012553.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Freeplane 1.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012552.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Sandboxie 5.49.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012550.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ WhatsApp 2.2121.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012549.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012544.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Soft4Boost Document Converter 6.8.1.717 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012543.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PicPick 5.1.6  Pro + portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012535.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ WhatsApp 2.2121.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012534.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Whale Browser 2.9.118.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012525.jpg" />
 </div>
 
 

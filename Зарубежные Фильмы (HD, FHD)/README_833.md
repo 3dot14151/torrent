@@ -1,55 +1,3 @@
-###  Публикация: 1641022   (211057) от 20.06.2023
-
-Обсуждению не подлежит / Undisputed (2002) BDRip [H.265/1080p] [10-bit] [NOR Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Получив срок за изнасилование и лишившись своего звёздного титула, чемпион по боксу в тяжёлом весе Джордж Чемберс оказывается в знаменитой своими жестокими порядками тюрьме Свитуотэр, где уже 10 лет неприкасаемым чемпионом является грозный Монро Хатчен. Непобедимый Чемберс знает, что в мире нет боксера лучше него, и он готов это доказать. Но и Хатчен не собирается (   Читать дальше...   )Производство: США, Германия, Япония / A Band Apart, Amen Ra Films, Hollywood Partners Munich, Millennium Films, Miramax Films, Motion Picture Corporation of America (MPCA), Radical Media, Undisputed ProductionsЖанр: боевик, драма, криминал, спортРежиссер: Уолтер ХиллАктеры: Уэсли Снайпс, Винг Реймз, Питер Фальк, Майкл Рукер, Джон Седа, Уэс Стьюди, Фишер Стивенс, Дэйтон Калли, Эми Акино, Джонни УильямсПеревод: многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCED6DD075AB259920DB54A1EF2D4E828CE55F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568415   (211056) от 07.08.2022
-
-Пропавшие в ночи / Gone in the Night (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Кэт и ее бойфренд приезжают в глушь, чтобы провести время в уютном домике посреди вековых секвой. Однако на месте они встречают другую пару, которая забронировала этот дом на те же дни. Чтобы не тратить драгоценное время отдыха, герои поделили жилье на четверых. Когда на следующее утро парень Кэт и девушка-соседка бесследно исчезают, героиня считает, что стала жертвой (   Читать дальше...   )Производство: США / Boulder, Light Pictures, MM2 Asia, Post FilmЖанр: Триллер, детективРежиссер: Эли ГоровицАктеры: Вайнона Райдер, Седрик Кабрера, Джон Галлахер мл., Дастин Ингрэм, Ивонн Сенат, Нина Е. Джордан, Дермот Малруни, Кунал Прасад, Оуэн ТигПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: АнглийскиеПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C882CBCEB117B501340A395793E2EB847AA8ADD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568434   (211029) от 08.08.2022
 
 Последнее пришествие дьявола / The Exorcism of God (2021) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211029.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211028.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211024.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211019.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210986.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210964.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210939.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210937.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210927.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210925.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210919.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210917.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210897.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210893.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210892.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210883.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210882.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210876.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210866.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210861.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210856.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210854.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210851.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210831.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E3CDD0A8763843A4EA0CC29F2638E1621ACD4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568803   (210816) от 10.08.2022
+
+Преступления будущего / Crimes of the Future (2022) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое будущее. Человечество учится приспосабливаться к новому миру: у людей появился синдром ускоренной эволюции, из-за которого с телом начинают происходить удивительные изменения. Одни принимают новую реальность, а другие пытаются бороться любыми возможными способами.Производство: Канада, Франция, Греция, Великобритания / Argonauts, Bell Media, CBC, Coficiné, EkomeЖанр: Фантастика, триллерРежиссер: Дэвид КроненбергАктеры: Вигго Мортенсен, Леа Сейду, Кристен Стюарт, Скотт Спидман, Таная Битти, Лихи Корновски, Denise Capezza, Надя Литц, Дон МакКеллар, Велкетт БунгеПеревод: Многоголосый профессиональный (Jaskier)Субтитры: Русские, английские (Full, SDH)Продолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11DB61F7D3D40B8DD960D1C6D6294D3F3980232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602379   (210812) от 05.01.2023
+
+Южный централ / South Central (1992) WEB-DL [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Бобби сидел в тюрьме, сам он, только выйдя из тюрьмы, убил торговца наркотиками и, «отсиживая» еще 10 лет, узнает, что его партнер, возглавляющий банду в его отсутствие, пристроил и его десятилетнего сына к воровскому «ремеслу». Мальчишка получил заряд дроби в спину, а Бобби, в котором происходит духовное перерождение, благодаря влиянию сокамерника Али, сумевшего (   Читать дальше...   )Производство: США, Enchantment Films Inc., Ixtlan Corporation, Monument PicturesЖанр: драма, криминалРежиссер: Стивен Милберн АндерсонАктеры: Гленн Пламмер, Байрон Миннс, Лекси Бигхем, Винсент Крэйг Дюпри, ЛаРита Шелби, Кевин Бест, Биг Дэдди Уэйн, Аллан Хэтчер, Элвин Хэтчер, Болдуин С. СайкесПеревод: Авторский (Михаил Иванов)Язык озвучки: РусскийСубтитры: Английские (Full, SDH)Продолжительность: 01:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23AF9FD7694640067D139F0E38535CF9AFCCAD14
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066599.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ All Will Fall (2026) [Ru/Multi] (1.0.1f1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066491.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ChainStaff (2026) [Ru/Multi] (1.0.4.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066375.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bylina / Былина (2026) [Ru/Multi] (Build 22857118) Repack seleZen [Digital
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066374.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sintopia (2026) [Ru/Multi] (1.0.2.519/dlc) Repack FitGirl [Chairman Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066373.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DarkSwitch (2026) [Ru/Multi] (R26.0417.9249) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066189.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dawn Break (2026) [Ru/Multi] (Build 22861684) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066130.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ People of Note (2026) [Ru/Multi] (2026.4.13.2026-CL156094) Repack Let'sРlay [So
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066093.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ChainStaff (2026) [Ru/Multi] (1.0.5.8) Repack Let'sРlay [The Ultimate Weapon]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066084.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Bylina (2026) [Ru/Multi] (Build 22857118/dlc) Repack Let'sРlay [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066071.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Little Nemo and the Guardians of Slumberland (2026) [Ru/En] (1.0.3) Repack Let's
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066008.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Stellar Tactics (2016) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065919.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065888.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lucky Tower Ultimate (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay [Ultimate Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065865.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Airborne Empire (2026) [Ru/Multi] (1.0.02) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065840.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Cooking Simulator 2: Better Together (2026) [Ru/Multi] (1.4.6717bcc) Repack FitG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065816.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Ember Guardian (2026) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [Supporter]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065771.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Cthulhu: The Cosmic Abyss (2026) [Ru/Multi] (PR1.8324.29803/dlc) Repack Let'sРl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065605.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sintopia (2026) [Ru/Multi] (1.0.2.519/dlc) Repack Let'sРlay [Chairman Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065570.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1080) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065535.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cralon (2026) [Ru/Multi] (Build 22814580) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065488.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065443.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065442.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ MOUSE: P.I. For Hire (2026) [Ru/Multi] (1.0.2.8140/dlc) Repack Let'sРlay [Digit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065440.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Soulmask (2024) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065390.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Aether & Iron (2026) [Ru/Multi] (1.0.56) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065387.jpg" />
 </div>
 
 

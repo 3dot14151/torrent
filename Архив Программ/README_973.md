@@ -6,7 +6,7 @@ Slimjet 23.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557095.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soft Organizer Pro 7.44 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zoner Photo Studio X 19.2203.2.381 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557001.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CareUEyes 2.2.1.0 Pro RePack (& Portable) by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557000.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ EZ CD Audio Converter 10.1.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556997.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MetaProducts Offline Explorer Enterprise 8.3.0.4928 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556994.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Simple Sticky Notes 4.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556960.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PreSonus - Studio One Professional 4.5.1.52729 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556958.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Movavi Photo Manager 1.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556955.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MKVToolNix 14.0.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556947.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ GPU Caps Viewer 1.35.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556930.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Luminar 3.1.1.3269 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556901.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Cent Browser 4.0.9.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556896.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ USDownloader 1.3.5.9 Portable (25.08.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556847.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ FlipBuilder Flip PDF 4.4.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556846.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ oCam 311.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556830.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Auslogics Driver Updater 1.21.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556828.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Movavi Video Converter 19.3.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556814.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Adguard Premium 7.0.2688.6651 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556812.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Acoustica Premium Edition 7.0.5 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556809.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ XYplorer 18.20 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556791.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ ShareX 11.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556777.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Avant Browser Ultimate 2016 build 9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556774.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ EZ CD Audio Converter 4.0.9.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556773.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Uninstall Tool 3.5.0 Build 5505 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556770.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VirtualBox 5.1.26.117224 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556734.jpg" />
 </div>
 
 

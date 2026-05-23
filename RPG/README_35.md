@@ -6,7 +6,7 @@ Mount & Blade: With Fire & Sword / Mount & Blade: Огнём и мечом: Ве
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271615.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271109.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rune II (2019) [Ru/Multi] (0.0.9L) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271108.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Elder Scrolls: Arena (1994) [Ru] (1.0) Repack pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270618.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270205.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Gorky 17 / Горький-17: Запретная зона (1999) [Ru/Multi] (1.0
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268592.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ King of Dragon Pass (2015) [En] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268506.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Fictorum (2017) [En] (2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267664.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kenshi (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266284.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265252.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.3/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264331.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (275/dlc) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264323.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fictorum (2017) [En] (2.0.4) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263184.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262963.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262369.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262365.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261896.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261709.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Hades (2020) [Ru/Multi] (1.38290) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261704.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Balrum (2016) [En] (1.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261629.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Hell Clock (2025) [Ru/Multi] (1.2.0_17965/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261465.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259096.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.22) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257838.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Geneforge 1 - Mutagen (2021) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257786.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257623.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Trails in the Sky 1st Chapter (2025) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256743.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1282471   (638833) от 02.04.2019
-
-NGW: Африканские охотники / Africa's Hunters. (2018) HDTV [H.264/1080i-LQ] (сезон 2, серия 1-6 из 8) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В уникальном документальном фильме о самых опасных хищниках Африки, речь пойдет о совершенных убийцах: львах, леопардах, диких собаках и вездесущих гиенах, которые не оставляют шансов выжить своим жертвам.Производство: США, Plimsoll Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDE696786C42EB7710129A6D75A5DBB77ACC396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519130   (638641) от 05.07.2012
 
 DV: Галилео Галилей - борьба за небо / Galileos Battle for the Heaven (2002) SATRip
@@ -32,7 +6,7 @@ DV: Галилео Галилей - борьба за небо / Galileos Battle
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638641.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery: Телескоп / Discovery: Telescope (2016) HDTVRip [H.264/720p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637851.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG. В поисках правды / The Truth Behind (2011) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637433.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NGW: Крупные рыбы Зэба: огромный сом / Monster Fish. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637380.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Discovery: Земля восходов. Секреты Солнца / Sunrise Ea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637353.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637266.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Discovery. Вирусы / Virus: Invisible Killers (2017) HDTVRip [H.264/720p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637226.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NG. Фри-соло / Free Solo (2018) BDRemux [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636970.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NG: Испытайте свой мозг / Test Your Brain (Brain Games, Teste d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636693.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ NG: Нефтяное загрязнение столетия / Oil Spill of the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635371.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ NG: Осушить океан: глубокое погружение. Шторм
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635360.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BBC: В краю муссонов / Wonders of the Monsoon (2014) [BDRip/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634977.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ PBS: Природа - Невероятные лягушки / PBS: Nature - Fabu
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634766.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634761.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ DV: Невероятное вокруг нас. Волны, которые гр�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634700.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ DV: Невероятное вокруг нас. Рождение и жизнь �
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634699.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ NGW: Прирождённые монстры. Тигровая змея / Natura
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634016.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ NGW: Прирождённые монстры. Бразильский паук / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633923.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Discovery: Без промаха / Gunslingers (2007) HDTVRip [Сезон 1, С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633765.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Discovery: Без промаха / Gunslingers (2007) HDTV [H.264/720p-LQ] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633760.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Discovery. Самый разрушительный тайфун / Megastorm: Wor
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633759.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633755.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633528.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Discovery: Подлинная жизнь Тутанхамона / King Tut Unwra
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633496.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ BBC: Код / The Code (2011) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633346.jpg" />
 </div>
 
 
@@ -667,6 +641,34 @@ BBC: Код / The Code (2011) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4D8CEC7AABE2465BF85507954FD34BFAD5D6A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519348   (633301) от 08.07.2012
+
+Вертикальный Мир / Vertical City (2007) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небоскребы и офисные башни давно стали предметом восхищения — но и объектом презрения. Они преображают облик мегаполисов — но и разрушают вековой уют исторических центров. Они становятся новыми вехами в истории архитектуры — и создают новые проблемы финансового и экологического свойства… Впрочем, задолго до появления первых небоскребов европейская готика гордо вознесла шпили соборов над городами, уже тогда придав миру вертикальное измерение.
+
+В сериале «Вертикальный мир» мы оставим многолюдные улицы далеко внизу и отправимся заново открывать самые дерзкие и амбициозные образцы высотной архитектуры — от старинных соборов до построек последних лет. В каждом эпизоде сериала зритель встретится с человеком, у которого сложились очень личные отношения с одним из высотных «монстров». С помощью этих персонажей авторы сериала предлагают увидеть мир с новой точки зрения.Жанр: Документальный, ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 9 х 00:27:03 + 6-ая серия не полностью - 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69301EFCE86D446216D009F2F42665E1116D75E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

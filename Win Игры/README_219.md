@@ -1,29 +1,3 @@
-###  Публикация: 1238245   (547756) от 28.07.2018
-
-Mega Man X Legacy Collection (2018) [Multi] (1.0) License SKIDROW
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Mega Man X возвращается! Вы Мегамен Икс, преемник робота Мегамена, который сражается с опасными боссами Мавериками и становится сильнее с каждой победой. В комплект входят легендарные 16-битные игры и первые представители эпохи 32 бит: Mega Man X, X2, X3 и X4.Тип издания: LicenseРазработчик: CapcomЖанр: Action, 3D, ArcadeЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английски, Немецкий и другиеЯзык интерфейса: Английски, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDB3118821C51205770EA2F7727DFF217166024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093656   (547751) от 28.07.2018
 
 Rogue Legacy (2013) [Ru/Multi] (1.4.0) License GOG
@@ -32,7 +6,7 @@ Rogue Legacy (2013) [Ru/Multi] (1.4.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547751.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.6.26515) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547746.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Myths of the World 16: Under the Surface (2019) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547687.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Bastion (2011) [Ru/Multi] (1.50436) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547511.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Re-Legion (2019) [Ru/Multi] (1.3.1.314) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547505.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Raven: Legacy of a Master Thief (Episode 2: Ancestry of Lies) (2013) [En] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547173.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547092.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547062.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ Pan-Pan (2016) [Ru/Multi] (1.0.2) License GOG [Planetary Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547057.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ King's Quest: Chapter 1-3 (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547055.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ Before Nightfall (2018) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546915.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Hitman 2 (2018) [Ru/Multi] (2.30.0/dlc) Repack R.G. Catalyst [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546652.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Ian’s Eyes (2016) [En/Es] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546388.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Ian’s Eyes (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546296.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Joana’s Life (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546220.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546175.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Memoirs of Murder: Welcome to Hidden Pines / Воспоминание об уб�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546141.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ My Friend Pedro (2019) [Ru/Multi] Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545922.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ De-Void (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545467.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows (2013) [En] (1.0.10246.0) RePac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545372.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ De-Void (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545328.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Haunted Hotel 6: Ancient Bane / Проклятый отель 6: Древнее 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545231.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4/dlc) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545224.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545215.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Dead Age (2016) [Ru/Multi] (1.7) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545213.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ Dead Age — переживите зомби-апокалипсис с поша�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFADB3FDEB623FC222B0BC6BC4F17CBD5648519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817594   (545126) от 31.08.2014
+
+Death and Betrayal in Romania: A Dana Knightstone Novel 5 (2014) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждут новые приключения Данны Кнайтстоун в пятой части невероятно захватывающей серии игр от Boomzap Entertainment! На этот раз Вы отправляетесь в Румынию расследовать очередное запутанное дело, полное загадок и интриг. Эта история об обитателях Старинного замка в Карпатах. Граф Люсьен влюбился в прекрасную Александру, но накануне свадьбы невеста была убита. Вам предстоит расследовать это таинственное убийство. В поиске разгадки Вам придется найти все улики, обыскивая Старинный замок, столкнуться с его призраками и выяснить всю правду о виновнике этой ужасной трагедии. Как всегда, с Вами будет верный друг и помощник Даны - призрачный пёс по имени Бандит! Удачи Вам!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: BoomZap EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609B4D3B40F03C1CC9CD58CB9D80B121D724C79E
 ```
 
 https://mybot314.ru/tekegram_catalog/

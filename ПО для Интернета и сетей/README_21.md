@@ -6,7 +6,7 @@ SoftPerfect NetWorx 26.1 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DU Meter 9.20 Build 4884 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052323.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 144.0.7559.60 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052316.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RustDesk 1.4.5 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052239.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Brave Browser 1.86.135 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052225.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AnyDesk 9.6.7 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052113.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Blue Iris 5.9.9.91 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052057.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Telegram Desktop 6.4.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052055.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Zapret GUI 1.01 [Ru] (авторский релиз)
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052027.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ YT Downloader 10.1.2 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052008.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052007.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ YT Downloader 10.1.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051917.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ TapinRadio 2.16.14 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051859.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Google Chrome 143.0.7499.193 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051746.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ iTubeGo YouTube Downloader 10.12.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051744.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Allavsoft Video Downloader Converter 3.28.8.9497 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051743.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Vivaldi 7.7.3851.67 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051721.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Opera One 126.0.5750.18 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051537.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ iTop VPN 7.2.0.6796 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051522.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Zapret-discord-youtube by Flowseal (сборка на базе Zapret) 1.9.3 (08
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051504.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Vivaldi 7.7.3851.67 (x32-x64) Portable by IDE`a [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051394.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ MediaHuman YouTube Downloader 3.9.18 (0401) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051366.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Any Video Downloader Pro 10.1.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051365.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chromium 143.0.7499.193 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051321.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ MassTube Ultra 21.3.1.183 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051306.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ AyuGram Desktop 6.3.10 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051222.jpg" />
 </div>
 
 

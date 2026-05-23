@@ -1,29 +1,3 @@
-###  Публикация: 1661112   (188640) от 14.09.2023
-
-God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Когда-то этот мир был ярким и прекрасным, полным света и чудес. Но однажды, силы зла вторглись в эти земли и похитили свет мира, погрузив его во тьму. Это привело к хаосу и разрушениям по всему миру, и многие боялись, что тьма никогда не уйдет. В этом экшен-рогалике вы будете противостоять ордам монстров на каждом уровне при помощи автоматических атак оружия. Уворачивайтесь (   Читать дальше...   )Тип издания: SceneРазработчик: Archmage LabsЖанр: Экшены, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86254BB8BC696670D02F96D92245D334DB1D8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661167   (188636) от 14.09.2023
 
 Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
@@ -32,7 +6,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188636.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Cold Waters (2017) [En] (1.15g) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188631.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Aragami 2 (2021) [Ru/Multi] (1.0.30195.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188566.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Skye Tales (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188472.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188410.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188363.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Shore (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188350.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Boomerang X (2021) [Ru/Multi] (1.11) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188333.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188328.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188293.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ XEL (2022) [Ru/Multi] (1.0.7.3/dlc) License GOG [Save the World Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188291.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ XEL (2022) [Ru/Multi] (1.0.7.3/dlc) License GOG [Save the World Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188290.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Stellar Monarch (2016) [En] (1.48/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188175.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188144.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188138.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Let'sРlay [Deluxe]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188105.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Let's
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188092.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Wanterlude [Deluxe]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187993.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187983.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187961.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187946.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Scene Rune 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187943.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0.1.27) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187941.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187858.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Wanterlude [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187857.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Wanterlude [Deluxe Edition
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:306BAFBDA15F54F7D8CF80137A5E03FC47557131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662304   (187854) от 17.09.2023
+
+Swords and Fairy 7 (2021) [Multi] (2.1.0/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sword and Fairy 7 - китайская приключенческая ролевая игра c элементами "уся" (китайское фэнтези с упором на восточные боевые искусства) и "шэньмо" (различные китайские божества, культивация и поиск бессмертия, полеты на мече) от китайской студии Softstar. Разработчики обещают эпичный и драматический сюжет, а центром истории станет конфликт между (   Читать дальше...   )Тип издания: SceneРазработчик: Softstar Technology (Beijing) Co., Ltd.Жанр: RPG, Action, AdventureЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощённый, традиционный)Язык интерфейса: Английский, Китайский (упрощённый, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DC93F15843F623FCA05417B3CD87F7289A72AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

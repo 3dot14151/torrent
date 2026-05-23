@@ -6,7 +6,7 @@ AusLogics BoostSpeed Premium 7.9.0.0 DC 07.05.2015 RePack (& Portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696984.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nero Burning ROM & Nero Express 2015 16.0.24.0 Portable by PortableAppZ [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696976.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hotspot Shield Elite 4.08 Update DC 05.05.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696947.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Any Video Converter Ultimate 6.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696935.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 7 Manager 5.1.0 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696925.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Visio 2016 Professional Preview 16.0.3930.1008 [Ru/En] (онлайн-�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696918.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ HitmanPro 3.7.9 Build 241 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696917.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Wise Care 365 Pro 4.63.441 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696879.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Cacheman 10.10.0.12 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696860.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Xara Designer Pro X10 10.1.5.37495 + Content Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696843.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ KakaoTalk 2.2.1.1211 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696763.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Coolmuster Android Assistant 4.2.74 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696737.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ R-Drive Image Technician 6.2 Build 6203 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696727.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ JetBrains Rider 2018.1 Build #RD-181.4379.1191 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696726.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ JumpShare 2.0.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696667.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ IDrive 6.5.1.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696662.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Norton AntiVirus 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696616.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Piriform CCleaner Professional 5.42.6495 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696614.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Ransomware Defender Professional 3.5.8 RePack by D!akov [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696592.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Windows 10 Manager 2.2.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696497.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Google Chrome 58.0.3029.110 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696482.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.05.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696458.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ CCleaner 5.42.6495 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696456.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Telegram Desktop 0.9.51 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696425.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ CDBurnerXP 4.5.7.6229 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696420.jpg" />
 </div>
 
 

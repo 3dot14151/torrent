@@ -1,29 +1,3 @@
-###  Публикация: 1738339   (49220) от 22.07.2024
-
-Guns Demons (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Guns Demons отправляет вас в мир, где скоростные пули заменяют визг шин. Здесь автомобили - это не просто обгон соперников, это ощетинившийся арсенал, готовый разнести дорогу в клочья. Эта игра выводит автомобильные бои на совершенно новый уровень. Так что пристегнитесь, любители машин, потому что вот-вот взревет вашими моторами. Сюжетный режим: Борьба за мрачное (   Читать дальше...   )Тип издания: RepackРазработчик: DokyЖанр: Экшены, ГонкиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179F467E45D9DE68541F2329D321F20929645D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733445   (49142) от 23.07.2024
 
 Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
@@ -32,7 +6,7 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49142.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ In Search Of You (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49131.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ducky: The Brave (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49128.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Zet Zillions (2024) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49118.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Songs of Steel: Hispania (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49115.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fortress Challenge: Fort Boyard (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49105.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Dawning Clocks of Time: Remake (2024) [En] (1.0.0.0701.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49094.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49093.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ HexoCity (2024) [Multi] (1.1.1.1199) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49075.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49074.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Raw Metal (2024) [En] (1.1.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49071.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Tekken 8 (2024) [Ru/Multi] (1.06.01/dlc) Scene Rune [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49058.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (1.5.3.0/dlc) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49011.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (build 14716072/dlc) Re
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49010.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Succubus (2021) [Ru/Multi] (15112813/dlc) Scene Rune [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49007.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru/En] (1.0.9/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48933.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48927.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48908.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Longing (2020) [Ru/Multi] (1.8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48895.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Riviera: The Promised Land (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48894.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48885.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Moons of Ardan (2021) [Multi] (0.11.0.16) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48861.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.999/dlc) License GOG [Premium Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48743.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Legend of Heroes: Trails through Daybreak (2023) [Multi] (1.3.5/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48728.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Harvest Days: My Dream Farm (2022) [Multi] (1.0.0-dsp/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48717.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Harvest Days: My Dream Farm (2022) [Multi] (1.0.0-dsp/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F3912DCAE0B47C7B73EC1A7041C38FB5269A10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739264   (48716) от 27.07.2024
+
+Forza Horizon 5 (2021) [Ru/Multi] (653.463/dlc) Scene Razor 1911
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forza Horizon 5 – продолжение популярной гоночной серии Forza Horizon, в котором вам ждет еще более разнообразный и обширный открытый мир. За рулем величайших автомобилей вы промчитесь по невероятно красивому миру Мексики. Вас ожидает масштабная кампания с сотнями испытаний на любой вкус. Вы посетите пустыни, затерянные руины, густые джунгли, покрытый снегом вулкан (   Читать дальше...   )Тип издания: SceneРазработчик: Playground GamesЖанр: Racing, Arcade, Simulator, Open World, 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AF920A005371F5471FCFE1F7F82137D04F4E43
 ```
 
 https://mybot314.ru/tekegram_catalog/

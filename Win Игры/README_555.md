@@ -1,29 +1,3 @@
-###  Публикация: 1762681   (16912) от 26.05.2025
-
-Terraforming Mars (2018) [Ru/Multi] (2.9.1.2284/dlc) Repack Let'sРlay
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Terraforming Mars – официальная адаптация популярной за океаном настольной игры о колонизации Марса и превращения этой планеты в пригодной для обитания человечества. Видеоигра представлена в виде пошаговой стратегии, где предоставляется достаточное количество времени для обдумывания дальнейших действий с целью извлечения максимальной выгоды. Игровой процесс строится (   Читать дальше...   )Тип издания: RepackРазработчик: Artefacts StudioЖанр: СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B256A0452C7BDAF1BAB96FEA1745B48268F3D264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798776   (16906) от 26.05.2025
 
 The Siege and the Sandfox (2025) [Ru/Multi] (51162 patch 1) License GOG
@@ -32,7 +6,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (51162 patch 1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16906.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16891.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.80) Scene Razor 1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16887.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16819.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16802.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16795.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0C) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16791.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.11a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16774.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16700.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16697.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16693.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.28.4665/dlc) Repack Let'sРlay [Definitive Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16635.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (0.199.7) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16623.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16616.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16599.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/Multi] (1.24.01/dlc) Repack FitGirl [Special
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16582.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16579.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Fuga: Melodies of Steel 3 (2025) [Multi] (Build 29182614) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16575.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Tennis Manager 25 (2025) [Multi] (5.0.775) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16549.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack FitGirl [Deluxe Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16497.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Atomic Heart (2023) [Ru/Multi] (Dev Build) Repack Chovka
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16488.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ GUILTY GEAR -STRIVE- (2021) [Ru/Multi] (1.46/dlc) Repack Let'sРlay [Ultimate Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16458.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16451.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.13.112/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16437.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Little Brave (2025) [Ru/En] (1.0.6) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16436.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Little Brave это захватывающая, приключенческа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE37D7A537D1DE5298D0CAE80C8DB45BD4C44A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799692   (16401) от 29.05.2025
+
+ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack FitGirl [Last Wish Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16401.jpg" />
+</div>
+
+
+###  Подробнее
+
+ENDLESS Dungeon - это уникальный тактический roguelite-экшен с элементами tower defense, действие которого происходит в отмеченной наградами вселенной ENDLESS. Исследуйте давно заброшенную космическую станцию в одиночку или с друзьями в сетевом режиме. Соберите отряд героев из экипажа разбившегося корабля и защитите кристалл от бесконечной орды врагов... или погибните (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Экшены, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC66A4A7C77378BC44CA8FAD23609B2434842F47
 ```
 
 https://mybot314.ru/tekegram_catalog/

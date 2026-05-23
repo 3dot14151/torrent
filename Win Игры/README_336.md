@@ -1,29 +1,3 @@
-###  Публикация: 1631642   (198871) от 06.05.2023
-
-Before I Forget (2020) [Multi] (1.0.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Before I Forget - детективная история, рассказывающая про женщину, которая находится одна в доме. Узнайте ее историю любви. Изучайте помещения в настоящем времени, чтобы она вспомнила свое прошлое. Воспоминания девушки постепенно тускнеют или смешиваются воедино. Геймплей Before I Forget можно описать как симулятор ходьбы, который содержит огромное количество пространственных (   Читать дальше...   )Тип издания: LicenseРазработчик: 3-Fold GamesЖанр: Приключение, СимуляторЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA4DFA39163AA291234950E32ED15EDA2A54FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631235   (198866) от 04.05.2023
 
 Can't Drive This (2021) [Ru/Multi] (1.0) Scene SKiDROW
@@ -32,7 +6,7 @@ Can't Drive This (2021) [Ru/Multi] (1.0) Scene SKiDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198866.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ RC Airplane Challenge (2021) [En] (1.0) Scene PLAZA [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198862.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Panzer War: Definitive Edition (Cry of War) (2018) [Ru/Multi] (1.0) Scene TiNYiS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198854.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Solomon Snow: First Contact (2023) [Multi] (1.1.413) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198838.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Cursed Mansion (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198757.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Saga of Sins (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198674.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Backfirewall_ (2023) [Ru/Multi] (10567133) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198540.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ DIG - Deep In Galaxies (2023) [Ru/Multi] (1.0.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198538.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Edelweiss (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198455.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Magic City Detective 3: Rage Under Moon / Волшебный город 3: Яр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198280.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Twin Mind 4: Nobody's Here / Двуединое Сознание 4: Здесь �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198233.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Infliction: Extended Cut (2018) [Ru/Multi] (3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198170.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ My Train Arrives (2019) [Ru/Multi] (1.0/dlc) Scene TinyIso [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198166.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198136.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Secrets of Worlds 2: Mystery Agency / Тайны миров 2: Детектив�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198018.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Monster Tribe (2023) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198009.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Miasma Chronicles (2023) [Ru/Multi] (11294956) Repack DjDI
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197906.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Elypse (2023) [Multi] (1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197847.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Bum Simulator (2023) [Ru/Multi] (3.5.09.a) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197830.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ HAAK (2022) [Ru/Multi] (1.3.1.17223) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197796.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ We. The Refugees: Ticket to Europe (2023) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197792.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Gone Rogue (2023) [Ru/Multi] (1.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197788.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Panzer Knights (2021) [Ru/Multi] (1.1.7/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197717.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Death or Treat (2023) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197695.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197624.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ System Shock 2023 - ремейк легендарного иммерсив-си�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95149C9423C2A2CB6840743593EBF7A4A2556280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636957   (197600) от 01.06.2023
+
+DOOMBLADE (2023) [Ru/Multi] (0.9) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко под землей Мракса находит разумный бесовский меч, который стремится вырваться после многих столетий в цепях. В этом 2D-экшене жанра «метроидвания» команде «Мракобесы» предстоит объединиться, обрести мощь и уничтожить Повелителей Ужаса. 2D слешер, хотя и выглядит как платформер, но когда доберетесь до первой же драки, поймете, что это прежде всего слешер. (   Читать дальше...   )Тип издания: LicenseРазработчик: Muro StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824B5C418050A2C5D4B46565498F62C7CDBD69F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

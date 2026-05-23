@@ -6,7 +6,7 @@ WinRAR 4.00 Beta 7 (x86+x64) [2011, RUS] RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_882870.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ CorelCAD 2017.0 Build 17.0.0.1335 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882760.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Avira Scout 2016.03.04.00436b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882729.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ AOL Shield 1.0.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882576.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Baidu Browser 43.23.1000.467 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882559.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Q-Dir 6.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882513.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ AeroWallpaperChanger - автоматическая смена обоев в Win
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882442.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ ThunderSoft Video to GIF Converter 3.4.0 Repack & Portable by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882311.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Total HTML Converter 4.1.92 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882310.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ XYplorer 16.40 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882308.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ ThunderSoft GIF to Video Converter 3.6.0 Repack & Portable by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882307.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ FastStone Capture 9.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882183.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ KeePass Password Safe 2.49 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882179.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ CoolUtils Total PDF Converter 6.1.0.279 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882163.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Hotspot Shield Elite 5.20.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882134.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882110.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ WinSnap 5.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882099.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.475 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882092.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ TinyWall 2.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882091.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Tor Browser Bundle 10.5.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882089.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Vivaldi 2.11.1811.52 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882078.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Pano2VR Pro 6.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881993.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ FastStone Capture 9.7 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881964.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ TeamViewer 15.21.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881958.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ MediaInfo 20.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881884.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Rainlendar Lite 2.15.4 Build 166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881820.jpg" />
 </div>
 
 

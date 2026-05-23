@@ -6,7 +6,7 @@ AI RoboForm2Go Enterprise 7.9.32.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662690.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ping Tester 9.49 Standard / Professional + Database Edition v.9.25 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659817.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CISCO VPN Client 5.0.07.0440 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659507.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Trillian Pro 5.6 Build 5 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656224.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TCP Optimizer 3.0.8 [En] Portable+Видиоиструкция
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655162.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mail.Ru Агент 6.5 Build 9316 Portable by punsh [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646894.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Silverlight 5.1.50907.0 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644349.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MailStyler Newsletter Creator Pro 2.0.0.310 RePack by MeGaHeRTZ [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644254.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ WebcamMax 8.0.0.8 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643454.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VSO Downloader Ultimate 5.0.1.42 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642334.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WebcamMax 8.0.5.8 RePack by Pilot  [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636537.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Smart WiFi Solution 2.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628040.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627843.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ UltraSurf 16.03 Final Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622282.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SerialDetector 4.3.1.0 [Ru] (Авторская раздача)
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617452.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft OneDrive 17.3.6917.0607 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610910.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ WiFi Password Revealer v1.0.0.7 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609769.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609070.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Pocket Radio Player 270615 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606832.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Aleo Flash Intro Banner Maker 4.1 RePack (& Portable) by dinis124 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606436.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ WireGuard VPN 0.5.3 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588772.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ BatWithParameters 1.2.8.15 [Ru] (Авторская раздача)
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585743.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ CyberLink YouCam Deluxe 7.0.0623.0 Retail [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580750.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ IEInspector HTTP Analyzer Full Edition 7.5.2.454 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580702.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VK Messenger 4.3.0 (606) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573993.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ WebcamMax 8.0.1.2 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568316.jpg" />
 </div>
 
 

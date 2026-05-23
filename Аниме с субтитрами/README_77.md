@@ -6,7 +6,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] WEB-DL 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410647.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410640.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Planet With | Планета Уит [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408955.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hulaing Babies | Flying Babies | Летающие крошки [2019, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408697.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Circlet Princess | Диадема принцессы [2019, TV, 12 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408694.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408336.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | К звер
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408316.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Bartender | Бармен [2006, TV, 11 из 11] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408212.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408190.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Koi to Producer: Evol x Love | Mr Love: Queen's Choice | Продюсер и л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407886.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Shokugeki no Souma: Gou no Sara | Food Wars! The Fifth Plate | Кулинарн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407848.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Gibiate | Джибиэйт [2020, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407839.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Fugou Keiji Balance: Unlimited | The Millionaire Detective - Balance: Unlimited 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407748.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ahiru no Sora | Команда мечты [2019, TV, 50 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407743.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Angolmois: Genkou Kassenki | Анголмуа [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407621.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Kakuriyo no Yadomeshi | Повар небесной гостиницы [ТВ-1] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407616.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Akkun to Kanojo | Аккун и его девушка [2018, TV, 25] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407583.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Nobunaga no Shinobi / Ниндзя Нобунаги [2016, TV, 78 + SP] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407581.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Bang Dream! 2nd Season | Ура мечте! (ТВ-2) [2019, TV, 13 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407364.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407283.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407276.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Nayuta | Наюта [1986, OVA] LDRip 460p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407174.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Uchuu no Kishi Tekkaman | Space Knight Tekkaman | Tekkaman: The Space Knight | �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407144.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Sei Juushi Bismarck | Saber Rider and the Star Sheriffs | Звёздный му�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407135.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki | Ты единственная, �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406727.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Kyoukai no Rinne-3 / Риннэ: Меж двух миров-3 [2017, TV, 25 из
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404783.jpg" />
 </div>
 
 

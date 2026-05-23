@@ -6,7 +6,7 @@ LDPlayer 9.0.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244225.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244213.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Principle 6 v6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244210.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Things 3 v3.17.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244202.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Futuremark PCMark 10 Professional Edition 2.1.2548 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244195.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Allavsoft Video Downloader Converter 3.23.3.7740 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244181.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ IObit Smart Defrag Pro 8.4.0.274 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244178.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ iNet Network Scanner 2.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244172.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Stellarium Plus - Star Map v1.9.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244171.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ditto Clipboard Manager 3.24.238.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244168.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Firefox Browser ESR 91.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244158.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ DiskGenius Pro 5.5.0.1488 (x64) Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244152.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Topaz Video AI 3.1.11 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244151.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Kaspersky Tweak Assistant 22.7.30.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244149.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Mozilla Thunderbird 102.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244142.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ NeoFinder Business 8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244139.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Lyn 2.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244135.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Avast Clear 22.7.7403.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244128.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ EF Commander 2022.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244122.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ BusyCal 3 v3.12.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244120.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Loopback 2.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244119.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Windows 10 Manager 3.6.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244118.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Hookshot 1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244115.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Trance Top Summer 2016 (2016) [MP3|320 Kbps] <Trance, Energy, Melodic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244109.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ OmniPlayer Pro - Media Player 2.0.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244103.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ AIMP 5.11 Build 2425 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244100.jpg" />
 </div>
 
 

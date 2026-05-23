@@ -1,61 +1,3 @@
-###  Публикация: 556156   (428564) от 04.10.2012
-
-Изгоняющий дьявола: Начало / Exorcist: The Beginning (2004) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После Второй мировой войны отец Меррин, отягощенный воспоминаниями об ужасах войны и усомнившийся в своем призвании, решил сложить сан и покинуть Европу. Вспомнив о своем дипломе археолога, Меррин присоединился к экспедиции, занимающейся раскопками в отдаленном районе Африки.
-
-Экспедиция обнаруживает прекрасную церковь в византийском стиле, погребенную под землей (   Читать дальше...   )Жанр: Ужасы, Триллер, Детектив
-Cтрана : США
-
-«Бога здесь нет...»Перевод: Многоголосый закадровый
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6598017B982266F1768A98292261209A80AF0384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556148   (428558) от 04.10.2012
-
-Ослеплённый желаниями / Bedazzled (2000) [1080i] HDTV
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Дьявол еще никогда не был таким соблазнительным. В этот раз он принимает обличие распутной красотки, заставляющий любого мужчину броситься в объятия безумства. Неудачник программист, лучший объект для вербовки.
-Объект продажи — бессмертная душа. Цена — 7 желаний. Но в этой жизни бесплатным бывает лишь сыр в мышеловке, каждая медаль имеет две стороны. Выполняя любое желание продажной души, дьявол не дает насладиться результатом. В мгновение ока жизнь программиста превращается в настоящий ад.Жанр: Фэнтези, комедия, мелодрамаАктеры: Брендан Фрейзер, Элизабет Херли, Франсес О'Коннор, Мириам Шор, Орландо Джонс, Пол Адельштейн, Тоби Хасс, Габриэл Кассеус и др.Перевод: ДублированныйФормат: TSПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553864   (428556) от 04.10.2012
 
 Разомкнутые объятия / Los abrazos rotos (2009) [720p]  BDRip
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428556.jpg" />
 </div>
 
 
@@ -90,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428551.jpg" />
 </div>
 
 
@@ -116,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428467.jpg" />
 </div>
 
 
@@ -142,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428465.jpg" />
 </div>
 
 
@@ -168,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428463.jpg" />
 </div>
 
 
@@ -194,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428462.jpg" />
 </div>
 
 
@@ -220,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428414.jpg" />
 </div>
 
 
@@ -247,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428404.jpg" />
 </div>
 
 
@@ -273,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428401.jpg" />
 </div>
 
 
@@ -299,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428393.jpg" />
 </div>
 
 
@@ -325,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428356.jpg" />
 </div>
 
 
@@ -351,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428248.jpg" />
 </div>
 
 
@@ -377,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428233.jpg" />
 </div>
 
 
@@ -403,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428229.jpg" />
 </div>
 
 
@@ -432,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428204.jpg" />
 </div>
 
 
@@ -458,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428199.jpg" />
 </div>
 
 
@@ -484,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428189.jpg" />
 </div>
 
 
@@ -511,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428161.jpg" />
 </div>
 
 
@@ -537,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428142.jpg" />
 </div>
 
 
@@ -563,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428140.jpg" />
 </div>
 
 
@@ -589,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428079.jpg" />
 </div>
 
 
@@ -616,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428075.jpg" />
 </div>
 
 
@@ -642,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428023.jpg" />
 </div>
 
 
@@ -669,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428011.jpg" />
 </div>
 
 
@@ -680,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165828   (428004) от 15.09.2017
+
+Невозмутимый / Stone Cold (1991) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Хафф — полицейский, который внедряется в банду байкеров, терроризирующую городок в штате Миссисипи, подминая под себя не только рядовых его жителей и подпольных бизнесменов, но и местные органы власти, включая представителей правосудия. Внешность и манеры поведения Джо позволяют ему выдать себя среди байкеров за своего и под именем Джо Стоуна начать разработку (   Читать дальше...   )Производство: США / Stone Group Pictures, Vision InternationalЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Крэйг Р. БэкслиАктеры: Брайан Босворт, Лэнс Хенриксен, Уильям Форсайт, Арабелла Хольцбог, Сэм МакМюррей, Ричард Гант, Пауло Тока, Дэвид Тресс, Ивэн Джеймс, Тони ПирсПеревод: Двуголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC1A4DD755663C85D627DA85FA2195FDB9BCA4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555406   (427998) от 04.10.2012
+
+Ганс Клосс: Ставка больше, чем смерть / Hans Kloss. Stawka wieksza niz smierc (2012) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая киноверсия легендарного сериала 60-ых годов "Ставка больше, чем жизнь". Ганс Клосс возвращается, чтобы выяснить одну самых больших тайн Второй мировой войны. Новые приключения агента J-23 разыгрываются как во время войны, так и несколько десятилетий после её окончания. Кёнигсберг, 1945 год. Ганс Клосс нападает на след сокровища, похищенного нацистами. В интриге замешан, конечно, старый знакомый Клосса Германн Брюннер. Клосс хочет разрушить и планы врага, и спасти красавицу Эльзу. Это ради неё он готов рискнуть успехом операции... Фильм снят в духе легендарного сериала, но рассказан языком современного кино - со спецэффектами и динамичным развитием действия.Жанр: КомедияРежиссер: Патрик ВегаАктеры: Томаш Кот, Пётр Адамчик, Станислав Микульский, Эмиль Каревич, Марта Жмуда, Анна Шарек, Даниэль Ольбрыхский, Войцех Мецвальдовский, Адам Воронович, Ежи Боньчак, Пётр Гловацкий, Януш Хабёр, Пётр Гарлицкий, Ежи Цишевский, Бартош Порчик, Михал Брейтенвальд, Гжегож Ковальчик, Мацей Ферляк, Марек Коссаковский, Марцин Перхуць, Войцех Махницкий, Гжегож Мостович, Блажей Печонка, Дариуш Юзышин, Гжегож Стельмашевский, Томаш Освециньский, Дарюш Одия, Яцек Лябияк, Збигнев Дзидух, Анджей Прецигс, Ливиуш Фаляк, Клаудиуш КауфманнПеревод: Любительский одноголосый (SATKUR)Продолжительность: 01:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE1F311F803601FF056BC634ACA7453E326E8BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

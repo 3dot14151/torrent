@@ -1,82 +1,3 @@
-###  Публикация: 193179   (842776) от 17.04.2010
-
-Фёдор Михайлович Достоевский | Идиот (2007) [MP3, Иннокентий Смоктуновский и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Известный литературный критик Петр Анненков писал: «Читайте Достоевского, любите Достоевского, - если можете, а не можете, браните Достоевского, но читайте... по возможности только его».
-Над романом «Идиот» Федор Михайлович Достоевский работал в 1867-1868 гг. «Идея романа, - писал он, - моя старинная и любимая, но до того трудная, что я долго не смел браться за нее. (   Читать дальше...   )Жанр: КлассикаИздательство: 1С-Паблишинг, МелодияПродолжительность: 02:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C55B427B490ECE1E2711F7EE72D69FA67681E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500140   (842723) от 05.10.2021
-
-Татьяна Степанова | Расследования Екатерины Петровской и К. Предсказание – End (2021) [MP3, Люба Петрова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Нет, не идиллическая тишина царит над этим провинциальным городком. Скорее затишье перед бурей. Тихо в домах, замер пустынный парк, в котором некогда маньяк растерзал девушку, а единственного свидетеля вскоре нашли повешенным на карусели. Тогда это дело сошло на нет, но все знают, кто преступник. И вот он вернулся… Прежние друзья не хотят его видеть, жители шарахаются (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3D6DD0D346982133FC813C8F9ECC999F1F33D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500150   (842720) от 05.10.2021
-
-Иман Кальби | Одержимые наследники. Северная бабочка (2021) [MP3, Luigi, Валерия Егорова]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ближний Восток испокон веков испепеляет не только тела палящим зноем, но и сердца одержимой любовью. Времена меняются, а его жар все так же беспощаден. Пришло их время – наследников великого премьер-министра Сирии Васеля Увейдата… Они выросли такими же красивыми, гордыми и страстными, как их родители. Отец и мать смогли защитить их, казалось бы, от всего в жизни, (   Читать дальше...   )Жанр: Остросюжетные любовные романы, Эротические романыПродолжительность: 08:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0402B3D94A93FBCFE11DD50AD56E48662EB30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500155   (842713) от 05.10.2021
 
 Мелина Боярова | Попаданка с Земли (2021) [MP3, Людмила Шапочкина]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842713.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842710.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842709.jpg" />
 </div>
 
 
@@ -167,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842706.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842702.jpg" />
 </div>
 
 
@@ -220,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842699.jpg" />
 </div>
 
 
@@ -246,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842692.jpg" />
 </div>
 
 
@@ -272,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842624.jpg" />
 </div>
 
 
@@ -298,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842621.jpg" />
 </div>
 
 
@@ -325,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842616.jpg" />
 </div>
 
 
@@ -352,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842612.jpg" />
 </div>
 
 
@@ -379,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842471.jpg" />
 </div>
 
 
@@ -406,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842469.jpg" />
 </div>
 
 
@@ -432,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842349.jpg" />
 </div>
 
 
@@ -458,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842173.jpg" />
 </div>
 
 
@@ -485,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842127.jpg" />
 </div>
 
 
@@ -511,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841956.jpg" />
 </div>
 
 
@@ -538,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841854.jpg" />
 </div>
 
 
@@ -565,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841787.jpg" />
 </div>
 
 
@@ -591,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841777.jpg" />
 </div>
 
 
@@ -617,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841688.jpg" />
 </div>
 
 
@@ -643,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841637.jpg" />
 </div>
 
 
@@ -669,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841629.jpg" />
 </div>
 
 
@@ -680,6 +601,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88DBECAA39A9FFD6102F68D711F6EBDC41CF5697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003872   (841599) от 04.04.2016
+
+Марина Степнова | Женщины Лазаря (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841599.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Женщины Лазаря" - необычная семейная сага от начала века до наших дней. Это роман о большой любви и большой не любви. Лазарь Линдт, гениальный ученый, "беззаконная комета в кругу расчисленных светил", - центр инфернальных личных историй трех незаурядных женщин. Бездетную Марусю, жену его старшего друга, смешной юноша полюбит совсем не сыновней (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 17:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343734843061ACBD973331F490C6355A6B55E13E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003824   (841594) от 04.04.2016
+
+Валерий Демин | Бакунин (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание представляет собой новое жизнеописание, пожалуй, самой колоритной фигуры мирового революционного движения XIX века - Михаила Александровича Бакунина (1814 - 1876), которого современники называли "отцом анархии", "апостолом свободы" и "гражданином мира". Доктор философских наук В.Н.Демин предпринял попытку преодолеть (   Читать дальше...   )Жанр: Биографии и автобиографииПродолжительность: 14:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6AB2856BDBA1B1715A017A13459377AA088C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112494   (841530) от 09.03.2017
+
+Борис Камов | Аркадий Гайдар. Мишень для газетных киллеров (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Б. Н. Камова создавалась на протяжении почти двух десятилетий. Это - наиболее полное жизнеописание А. П. Голикова-Гайдара.
+Автор поставил перед собой задачу: выяснить, насколько справедливы обвинения в преступлениях, будто бы совершенных А. П. Голиковым в годы Гражданской войны. С обвинениями такого рода с конца 1980-х гг. выступали десятки безвестных "гайдароведов" (   Читать дальше...   )Жанр: Биографии. МемуарыПродолжительность: 20:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A7AC99BC4EE1F55828496FDA06ED95A43DE8EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

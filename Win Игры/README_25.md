@@ -6,7 +6,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.8.139834.0/dlc) Repack FitGirl [C
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056658.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reanimal (2026) [Ru/Multi] (354342/dlc) Repack Other s [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056657.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ High On Life 2 (2026) [Ru/Multi] (Build 21897943) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056656.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Disciples: Domination (2026) [Ru/Multi] (1.2.0.3271/dlc) Repack FitGirl [Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056655.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Elder Scrolls V: Skyrim - Enderal: Forgotten Stories (2019) [Ru/En] (2.1.4.2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056654.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Reanimal (2026) [Ru/Multi] (354342/dlc) Repack seleZen [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056646.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Heart of the Forest (2026) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056628.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Vagrus: The Riven Realms (2020) [Ru/Multi] (1.2.80.0211V/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056620.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Disciples Domination (2026) [Ru/Multi] (1.3.1.3350/dlc) Repack Let'sРlay [Delux
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056619.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sector Unknown (2025) [Ru/Multi] (2.0.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056614.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.0.3.0.01.020.001/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056598.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Reanimal (2026) [Ru/Multi] (354342.5/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056585.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hordes of Hunger (2025) [Ru/Multi] (Build: MS19.5738_5640f4d4e9) Repack Let'sРl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056581.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hordes of Hunger (2025) [Ru/Multi] (Build MS19.5738) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056576.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ God Forsaken (2026) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056520.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Guns of Fury (2025) [Ru/Multi] (1.2.7.6) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056519.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Total War: PHARAOH DYNASTIES (2024) [Multi] (2.1.6/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056483.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Total War: PHARAOH DYNASTIES (2024) [Ru/Multi] (2.1.6/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056482.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Jackal (2026) [Ru/Multi] (0.9.9) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056481.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Jackal (2026) [Ru/Multi] (0.9.9) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056480.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Disciples: Domination (2026) [Ru/Multi] (1.2.0.3271/dlc) Repack seleZen [Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056479.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Red Passport: Ticket to Russia (2026) [Ru/Multi] (1.0/dlc) Repack FitGirl [Delux
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056461.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Heroines Through My Lens (2025) [Multi] (1.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056460.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ FRONT MISSION 3 Remake (2026) [Ru/Multi] (Build 21087935) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056408.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Back to the Dawn (2023) [Ru/Multi] (2.0.0.30-RC/dlc) Repack Let'sРlay [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056375.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Crisol: Theater of Idols (2026) [Ru/Multi] (build 21866503) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056371.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 626767   (942695) от 06.03.2013
-
-MKVToolNix v6.1.0 ('Old Devil') for Ubuntu 12.04 ('Precise Pangolin')
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в себе огромное количество информации. Формат MKV - открытый проект Матрешка (Matroska), призванный создать единый стандарт мультимедийных контейнеров на ПК. Его особенность, открытость кода, что позволяет совершенствовать данный формат любому программисту мира, а также команде программистов. Формат MKV стал необычайно распространен в последнее время, благодаря своим возможностям и, в частности, преобладанием функций по сравнению с AVI.Язык интерфейса: MulTi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364017   (939177) от 01.03.2020
 
 SystemRescueCD 6.1.0 [x64] 1xCD
@@ -32,7 +6,7 @@ SystemRescueCD 6.1.0 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939177.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ CentOS 6.4 [i386] (2xDVD+2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937999.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ CentOS 6.4 [x86-64] (2xDVD+2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937858.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ Dynamic A-D Ports for Applications [Авторский релиз] 1.0 [x86, x64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932177.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ Debian GNU/Linux 8.7.0 Jessie [x86-64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932114.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ Ubuntu*Pack 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931647.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ Debian GNU/Linux 8.7.0 Jessie Live (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930586.jpg" />
 </div>
 
 
@@ -221,7 +195,7 @@ Debian GNU/Linux 8.7.0 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930463.jpg" />
 </div>
 
 
@@ -247,7 +221,7 @@ Debian GNU/Linux 8.7.1 Jessie [x86-64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930235.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ Ubuntu Gnome 15.04 Vivid Vervet Alpha II [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929739.jpg" />
 </div>
 
 
@@ -301,7 +275,7 @@ Kubuntu 15.04 Vivid Vervet Alpha II [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929733.jpg" />
 </div>
 
 
@@ -327,7 +301,7 @@ Lubuntu 15.04 Alpha II (легкий дистрибутив) [i386, amd64] 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929717.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ Debian GNU/Linux 8.7.1 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929064.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928647.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [x86-64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928524.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ Ubuntu*Pack GNOME Flashback 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925484.jpg" />
 </div>
 
 
@@ -460,7 +434,7 @@ Ubuntu*Pack GNOME Classic 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925404.jpg" />
 </div>
 
 
@@ -487,7 +461,7 @@ Ubuntu*Pack GNOME 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925399.jpg" />
 </div>
 
 
@@ -514,7 +488,7 @@ Ubuntu*Pack Budgie 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925391.jpg" />
 </div>
 
 
@@ -541,7 +515,7 @@ Ubuntu*Pack MATE 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925311.jpg" />
 </div>
 
 
@@ -568,7 +542,7 @@ Ubuntu*Pack KDE (Kubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925305.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ Debian Edu - Skolelinux 11.0.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925218.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925154.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925144.jpg" />
 </div>
 
 
@@ -675,7 +649,7 @@ Kubuntu 14.04.4 LTS [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920422.jpg" />
 </div>
 
 
@@ -686,6 +660,32 @@ Kubuntu 14.04.4 LTS [i386, amd64] 2xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9A52AC68590C8A323D5ED8CDDD7FC785B755AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988420   (920280) от 20.02.2016
+
+Lubuntu 14.04.4 Trusty Tahr (Легкий дистрибутив) [i386, amd64] 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE. Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. Lubuntu работает очень быстро, она безопасна, красива, функциональна. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA56FA40CD474C95DF81C12AD08EDF52650476C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

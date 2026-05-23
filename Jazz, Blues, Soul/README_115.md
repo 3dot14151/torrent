@@ -6,7 +6,7 @@ Matt Mann & The Shine Runners - Wrong Side Of History (2025) [FLAC 24/96|Lossles
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824021.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Max Magro and the Wolfgang - Old Smuggler Of Outlaw Blues (2025) [FLAC 24/48|Los
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824020.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Elvin Jones - Coalition (1970) Remaster, 2014, Universal[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823647.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Milt Jackson - The Ballad Artistry of Milt Jackson (1959) Remaster, 2012, Warner
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823643.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Milt Jackson - Bags & Flutes (1957) Remaster, 2012, Warner[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823640.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Louis Armstrong - Louis Armstrong (1987) Series Compact Jazz, Compilation [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823562.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Malaya Blue - Heartsick (2016) [FLAC|Lossless|image + .cue] <Blues, Jazzy Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823556.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Les McCann & Eddie Harris - Swiss Movement (1969) 1990, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823166.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bill Evans - Blue In Green: The Best Of The Early Years (1955 - 1960) 10CD, 2020
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823163.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Justin Johnson - Smoke & Mirrors (2014) 2CD [MP3|320 кб/с] <Acoustic, Electri
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823125.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Von Freeman - The Improvisor (2002) Premonition Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823107.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Randy Volin & The Hard Ones - Detroit Thang (2014) [FLAC|Lossless|WEB-DL|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823003.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ben Poole - Everything I want (2010) EP [FLAC|Lossless|tracks + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823001.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jennifer Holliday - The Song Is You (2013) [FLAC|Lossless|tracks + .cue] <Soul, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822996.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sean Chambers - Trouble & Whiskey (2017) [FLAC|Lossless|tracks] <Electric Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822907.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dakota Staton - Dakota, Dakota Staton Sings Ballads And The Blues 1960 (2012) Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822779.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mildred Bailey - Rockin' Chair: The Legendary V-Disc Sessions 1937 (1990) Vintag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822776.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Aging - Sentenced To Love (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822769.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Yojo - The Stepson (2020) [FLAC|Lossless|Web-DL|tracks] <Post Dark Jazz, Post Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822768.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - All That Jazz Is Back (1999) Original Jazz Classics [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822749.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Low Kick Collective - Exhale (Выдох) (2019) [FLAC|Lossless|Web-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822662.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Billy Harper - Trying to Make Heaven My Home (1979) 1991, MPS Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822561.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Billy Harper - The Awakening (1979) 2013, Marge [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822559.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Harold Ashby Quartet - What Am I Here For? (1990) 1992, Criss Cross Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822557.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Billy Harper Quintet - Love On The Sudan (1977) 2009, Denon Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822556.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Maynard Ferguson - The One And Only Maynard Ferguson (2007) Maynard Ferguson Tru
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822543.jpg" />
 </div>
 
 

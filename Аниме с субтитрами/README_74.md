@@ -6,7 +6,7 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Legend of the White Whale 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435967.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chio-chan no Tsuugakuro | Chio's School Road | Тио: Дорога в школ�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Idolmaster Movie: Kagayaki no Mukougawa e! | The Idolmaster Movie: Beyond th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434487.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Joukamachi no Dandelion / Castle Town Dandelion / Одуванчик из при
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434388.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Listeners | Слушатели [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433968.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Recorder to Randsell Mi / Флейта в рюкзаке Ми [2013, TV, 12 + 1 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433744.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433615.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433287.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] We
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433280.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432870.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431824.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431823.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431822.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431719.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Yousei Ou | Король фей [1988, OVA] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431718.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Uchuu no Kishi Tekkaman Blade | Star Knight Tekkaman Blade | Space Knight Tekkam
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431651.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431647.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431638.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431544.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Gosenzo-sama Banbanzai! | Gosenzosama Banbanzai! | Долгих лет жизн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_430698.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Arslan Senki (2015) | The Heroic Legend of Arslan (2015) | Сказание об
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430661.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семь Чувств в Re
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430527.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Darker than Black: Gaiden / Darker than Black: Side story / Темнее Чер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_430088.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429619.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429481.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Shaman King | Шаман Кинг [2001, TV, 64 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429394.jpg" />
 </div>
 
 

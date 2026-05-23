@@ -6,7 +6,7 @@ Avast Free Antivirus 17.4.2294 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710136.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ZD Soft Screen Recorder 9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710103.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Glary Utilities Pro 5.96.0.118 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709957.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Glary Utilities Pro 5.96.0.118 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709947.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WinUtilities Professional Edition 15.22 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709864.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ USDownloader 1.3.5.9 Portable (11.06.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709837.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Glarysoft Malware Hunter PRO 1.56.0.634 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709774.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SoftPerfect RAM Disk 4.0.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709766.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AIMP 4.02 Build 1725 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709722.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ ZD Soft Screen Recorder 9.7 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709715.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Acronis Disk Director 12 Build 12.0.3223 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709674.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Dism++ 10.1.1000.70 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709641.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ RarmaRadio Pro 2.70.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709585.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ UC Browser 5.6.13108.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709574.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709494.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AIMP 4.02 Build 1725 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709429.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ GOM Player 2.3.3 Build 5254 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709423.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Windows 10 Manager 1.1.4 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709317.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Mp3tag 2.70 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709294.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ HDCleaner 1.301 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709281.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Autodesk AutoCAD Mechanical 2017 HF3 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709198.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Autodesk AutoCAD Civil 3D 2017 HF3 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709194.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Autodesk AutoCAD LT 2017 HF3 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709188.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14361 (esd) [Ru] + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709185.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ TweakPower  1.151 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709170.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ AnyDVD & AnyDVD HD 7.6.0.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709165.jpg" />
 </div>
 
 

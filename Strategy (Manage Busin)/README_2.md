@@ -6,7 +6,7 @@ Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856959.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Punch Club (2016) [Ru/Multi] (1.1/dlc) Repack ARMENIAC [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853517.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack R.G. Механики [G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849681.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Coffee Noir - Business Detective Game (2021) [Multi] (1.01) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847354.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (1.1.2r10007/dlc) License PLAZA [Royal Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835605.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832784.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fear Equation (2016) [En] (2.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829978.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.0.0.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826215.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sheltered (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824513.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ The Amazing American Circus (2021) [Ru/Multi] (50654) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824324.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Game Tycoon 2 (2016) [En/Multi] (1.05) Repack ALiAS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816721.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Dice Legacy (2021) [Ru/Multi] (1.2.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815241.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810935.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) License PROPHET
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799711.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Farming Life (2021) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797908.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.03) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797347.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Villagers (2016) [Ru/Multi] (1.030) License RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796558.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Cities in Motion Dilogy (2011-2013) [Ru/Multi] (1.0.0/1.6.3) Repack R.G. Мех�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793261.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Prison Architect (2015) [Ru/Multi] (1.0/upd 6b/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793212.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SPORE™ Collection (2008) [Ru/En] (1.3.0.22/3.1.0.22/dlc) Repack R.G. Меха�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790775.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SimCasino (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788738.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Exodus Borealis (2021) [Multi] (5.2) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788725.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ The Guild (2002) [Ru] (1.0) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784717.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Barn Finders (2020) [Ru/Multi] (16128) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782585.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Barn Finders (2020) [Ru/Multi] (1.0.0.16128) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782185.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Zoo Tycoon: Ultimate Animal Collection (2017) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781547.jpg" />
 </div>
 
 

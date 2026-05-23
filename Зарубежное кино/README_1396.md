@@ -1,56 +1,3 @@
-###  Публикация: 844061   (320809) от 24.11.2014
-
-Патруль времени / Predestination (2014) BDRip [720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам рассказа Роберта А. Хайнлайна «Все вы зомби…»
-Специальный агент постоянно находится между прошлым и будущим, чтобы обеспечить себе карьеру законника длиною в вечность. В своем последнем задании ему предстоит завербовать в прошлом самого себя и, наконец, задержать преступника, который вновь и вновь ускользает от него в другое время, находясь (   Читать дальше...   )Жанр: Фантастика, ТриллерРежиссер: Майкл Спириг, Питер СпиригАктеры: Сара Снук, Итан Хоук, Ноа Тейлор, Элиз Джэнсен, Фрея Стэффорд, Кристофер Кирби, Кейт Вульф, Алексис Фернандес, Люсинда Армстронг Холл, Алисия ПавлисПеревод: ОтсутствуетЯзык субтитров: ОтсутствуютПродолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E37C8B089D4837876FF88845D01FEAA6EC3BD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259296   (320635) от 03.11.2018
-
-Искажение / Alterscape (2018) WEB-DL [H.264/720p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После неудачной попытки самоубийства молодой человек, переживший утрату и депрессию, подвергается эксперименту по коррекции человеческих эмоций, но его уникальная реакция на испытания отправляет его в путешествие, выходящее за пределы физической реальности.Производство: СШАЖанр: Фантастика, ТриллерРежиссер: Серж ЛевинАктеры: Майкл Айронсайд, Чарльз Бэйкер, Райан Баггл, Дебби Рошон, Алекс Видов, Маки Куродо, Антонио Д. Чарити, Джеймс Цайсс, Сера-Лис МакАртур, Серж ЛевинПеревод: Многоголосый закадровый, любительский (HiWayGrope)Субтитры: отсутствуютПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC13F79A8C844DCFCD87A4EBA97C084874050766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259125   (320630) от 03.11.2018
 
 Пророк / Next (2007) BDRip [H.265/1080p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320630.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320629.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320625.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320620.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320613.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320609.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320464.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320454.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320446.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320435.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320402.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_320368.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320309.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320308.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320302.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320299.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320297.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320293.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320291.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320280.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320279.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320256.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320249.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ KKN: Деревня танцев / KKN di Desa Penari (2022) WEBRip [H.264/1080p
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320245.jpg" />
 </div>
 
 
@@ -671,6 +618,59 @@ KKN: Деревня танцев / KKN di Desa Penari (2022) WEBRip [H.264/1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61830FBDC69468162B1824DEB5003C756FF395FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582438   (320240) от 10.10.2022
+
+Экзорцизм моей лучшей подруги / My Best Friend's Exorcism (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 1988-й. Эбби и Гретхен — лучшие подруги с четвертого класса, но после того, как один вечер закончился катастрофой, Гретхен начинает вести себя по-другому. Она угрюма. Она раздражительна. И странные происшествия случаются всякий раз, когда она находится рядом. Расследование Эбби приводит ее к поразительным открытиям — и к тому времени, когда их история достигнет (   Читать дальше...   )Производство: США / Endeavor Content, Gotham GroupЖанр: ужасы, комедия, драмаРежиссер: Дэймон ТомасАктеры: Элси Фишер, Амайя Миллер, Рэйчел Кану, Кэти Ан, Клэйтон Ройал Джонсон, Крис Лоуэлл, Нэйтан Андерсон, Синтия Эванс, Рэйчел Леа Коэн, Джон СтоунбернерПеревод: любительский многоголосый (MUZOBOZ)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C3E7F86D4E93D4B3EA481AC4665FB0FFE6CD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896235   (320238) от 10.10.2022
+
+Письма с Иводзимы / Letters from Iwo Jima (2006) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Другой взгляд на трагическую битву при Иводзиме, ставшую не только историческим событием, переломным моментом в ходе Тихоокеанской кампании США против Японии, но и столкновением культур и мировоззрений.
+Февраль 1945-го. Война в Европе подходила к концу, а на тихоокеанском направлении она была в самом разгаре. Островок Иводзима стал для США последним плацдармом на (   Читать дальше...   )Производство: USA / DreamWorks SKG, Warner Bros., Malpaso ProductionsЖанр: драма, военный, историяРежиссер: Клинт ИствудАктеры: Кен Ватанабе, Кадзунари Ниномия, Рё Касэ, Цуёси Ихара, Сидо Накамура, Хироши Ватанабэ, Такуми Бандо, Юки Мацудзаки, Такаши Ямагути, Эйдзиро ОзакиПеревод: профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, украинский, английскийПродолжительность: 02:20:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9AA55D1A8AA61183C707005E2DEACAA78751FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

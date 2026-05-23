@@ -1,85 +1,3 @@
-###  Публикация: 1284822   (726206) от 23.02.2019
-
-Кирилл Шарапов | Брошенная колония (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Брошенная колония – это мир техномагии, мир, в котором есть место волшебству, оно двигает транспорт, обогревает дома, на его основе создается оружие. В мире Интерры есть место могучим волшебницам и пришедшим из другой реальности нелюдям, на которых охотятся егеря. Игнат – егерь. Выполняя совершенно обычный заказ на нелюдь, он находит незнакомую руну, и эта находка (   Читать дальше...   )Жанр: Боевое фэнтези,приключенияПродолжительность: 11:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB17B1887E2FEA6ABEF58B506523C1D63A5A06F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022994   (726199) от 04.06.2016
-
-Алексей Ксендзюк | После Кастанеды: дальнейшее исследование (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая читателю книга посвящена уникальному магическому знанию американских индейцев - наследников древней толтекской традиции, - которое стало доступным благодаря книгам всемирно известного антрополога и оккультиста Карлоса Кастанеды.
-Используя мировоззренческие подходы, установки и методы дона Хуана Матуса, проводника Кастанеды в мир толтекской магии, автор (   Читать дальше...   )Жанр: Философия, эзотерикаПродолжительность: 15:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F123EFF7D5C127D4AA938B7CFFC3A136E437BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326156   (725969) от 21.04.2011
-
-Михаил Салтыков-Щедрин | Пошехонская старина (2005) [MP3, Алексей Казаков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиокнига. Литературные чтения.
-«Пошехонская старина» – последнее произведение великого русского писателя М. Е. Салтыкова-Щедрина (1826—1889) – представляет собой грандиозное историческое полотно целой эпохи. По словам самого Салтыкова, его задачей было восстановление «характеристических черт» жизни помещичьей усадьбы эпохи крепостного права.
-
- Михаил (   Читать дальше...   )Жанр: Русская литература, классика, исторический очеркИздательство: МедиаКнигаПродолжительность: 23:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F168F2449CC862D659A1E4AA673046D444DE2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022350   (725889) от 04.06.2016
 
 Александр Громов | Ребус-фактор (2016) [MP3]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725889.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725878.jpg" />
 </div>
 
 
@@ -142,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725722.jpg" />
 </div>
 
 
@@ -168,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725721.jpg" />
 </div>
 
 
@@ -194,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725535.jpg" />
 </div>
 
 
@@ -221,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725200.jpg" />
 </div>
 
 
@@ -248,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725195.jpg" />
 </div>
 
 
@@ -274,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725191.jpg" />
 </div>
 
 
@@ -300,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725091.jpg" />
 </div>
 
 
@@ -327,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725090.jpg" />
 </div>
 
 
@@ -353,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725087.jpg" />
 </div>
 
 
@@ -379,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725046.jpg" />
 </div>
 
 
@@ -407,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725021.jpg" />
 </div>
 
 
@@ -434,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724993.jpg" />
 </div>
 
 
@@ -460,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724904.jpg" />
 </div>
 
 
@@ -486,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724769.jpg" />
 </div>
 
 
@@ -515,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724669.jpg" />
 </div>
 
 
@@ -541,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724615.jpg" />
 </div>
 
 
@@ -569,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724601.jpg" />
 </div>
 
 
@@ -595,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724476.jpg" />
 </div>
 
 
@@ -621,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724437.jpg" />
 </div>
 
 
@@ -647,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724372.jpg" />
 </div>
 
 
@@ -673,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724331.jpg" />
 </div>
 
 
@@ -684,6 +602,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BB75FD3F4763BB4880B24C000870957F557764F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285042   (724323) от 24.02.2019
+
+Евгений Шестаков | Пьяные сказки. Том 2 (2018) [MP3, NEOСФЕРА]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений героев из сказочного государства, в котором при слове «реформа» всех бросает в дрожь, в бою вместо пушек обходятся матюгами и кольями, у царя случаются тяжелые приступы красноречия; где яростно ведут войну против нечистой силы, завидуют загранице, играют в футбол, а утро неизменно встречают рассолом.Жанр: Cатира и юморПродолжительность: 03:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A248C7AC20648B17F34DBA885A882F22BDA7DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284891   (724321) от 24.02.2019
+
+Вадим Фарг | Излом 1.0 (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митин, в прошлом тихий неприметный городок, в настоящем дьявольская аномалия. Каждому дано туда попасть, но не каждому дарован шанс вернуться. Полигон, прозванный адской бродилкой. Каждый случайный гость – игрок, каждая населяющая тварь – монстр. Откуда она появилась? И почему все больше тех, кто желает туда попасть?Жанр: Боевая фантастика, LitRPGПродолжительность: 11:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19114B6390284E70F81463DB0BC8FC44F264188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128836   (724223) от 27.04.2017
+
+Елена Михалкова | Расследования Макара Илюшина и Сергея Бабкина (Книга 14). Пари с морским дьяволом (2017) [MP3, Леляна Зимун]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ах, как заманчиво – убежать от проблем, интриг, потерь и горестей! Встать за штурвал, поднять паруса – и полный вперед! Но спрятаться от себя не получится. Несчастья преследуют пассажиров бригантины «Мечта», а убийство на борту ставит крест на тихом отдыхе. Что это – чья-то злая воля? Или происки морского дьявола? Слушайте детектив Елены Михалковой «Пари с морским (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74ACBF21FC5D3868127CD0797786D9AA691A78B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

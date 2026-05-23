@@ -1,57 +1,3 @@
-###  Публикация: 400041   (398061) от 15.10.2011
-
-Дом у озера / The Lake House (2006) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм "Дом у озера" — фильм о любви, о большой, чистой и необычайно грустной.
-Зима 2006 года. Ощутив необходимость изменить свою жизнь, доктор Кейт Форестер покидает свой необычный дом у озера в пригороде Иллинойса и устраивается на работу в чикагскую больницу. Единственное, о чем жалеет Кейт, так это о своем красивом доме с огромными окнами, который дарил (   Читать дальше...   )Производство: США, АвстралияЖанр: Фэнтези, Драма, МелодрамаРежиссер: Алехандро АгрестиАктеры: Кеану Ривз, Сандра Баллок, Шоре Агдашлу, Кристофер Пламмер, Эбон Мосс-Бакрак, Уиллек Ван Аммелрой, Дилан Уолш, Линн Коллинз, Майк Бакарелла, Кевин Бреннан, Фрэнк Каети, Скотт Елиас, Лори Энн Гердиш, Майкл Эндрю Горман, Дженнифер Керн, Синтия Кэй МакУильямс, Индия Нейлан, Нора Ньюбро, Миа Парк, Пегги Родер, Джейсон УэллсПеревод: 1 - Профессиональный (полное дублирование)
-2 - Двухголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 01:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDCC4A70F6F9E0459D57A4E69A8242DAE3763A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 399666   (398054) от 15.10.2011
-
-Инопланетное вторжение: Битва за Лос-Анджелес / Battle: Los Angeles (2010) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Землю пытается захватить инопланетная цивилизация, истребляя все живое на своем пути. По всему миру начинается широкомасштабное сражение человечества за выживание. Отряду морских пехотинцев поручено во что бы то ни стало освободить осажденный город ангелов от таинственных и смертоносных тварей…Жанр: Фантастика, боевикРежиссер: Джонатан ЛибесманАктеры: Аарон Экхарт, Бриджет Мойнэхэн, Мишель Родригес, Майкл Пенья, Рамон Родригез, Кори Хардрикт, Джино Энтони Песи, Шаффер Смит, Джеймс Хироюки Лиао, Ноэль ФишерПеревод: ДублированныйСубтитры: RussianПродолжительность: 01:56:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 400230   (398053) от 15.10.2011
 
 Спящая красавица / Sleeping Beauty (2011) DVD5
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398053.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397982.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397974.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397919.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397864.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397855.jpg" />
 </div>
 
 
@@ -220,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397814.jpg" />
 </div>
 
 
@@ -246,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397811.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397681.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397531.jpg" />
 </div>
 
 
@@ -325,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397387.jpg" />
 </div>
 
 
@@ -351,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397334.jpg" />
 </div>
 
 
@@ -377,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397331.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397329.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397317.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397271.jpg" />
 </div>
 
 
@@ -481,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397266.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397265.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397262.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397239.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397099.jpg" />
 </div>
 
 
@@ -613,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397076.jpg" />
 </div>
 
 
@@ -640,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397048.jpg" />
 </div>
 
 
@@ -666,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397026.jpg" />
 </div>
 
 
@@ -677,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567170   (396926) от 29.10.2012
+
+Мертвая плоть/ The Dead Matter (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396926.jpg" />
+</div>
+
+
+###  Подробнее
+
+В руки потерявшей брата девушки попадает загадочный амулет в форме скарабея. Раньше он принадлежал вампирам и обладает огромной мистической силой. Вместо того, чтобы вернуть амулет обратно в лес, героиня постарается с помощью его связаться с духом брата. Инструкция к артефакту не прилагалась, и вместо сотового телефона с потусторонним миром получится эффект оживления (   Читать дальше...   )Жанр: УжасыРежиссер: Эдвард ДугласАктеры: Эндрю Дивофф (Andrew Divoff), Джейсон Картер (Jason Carter), Том Савини (Tom Savini), Шон Серино (Sean Serino), Том Нэйджел (Tom Nagel), С.Б. Спенсер (C.B. Spencer), Кристофер Робишо (Christopher Robichaud), Брайан Ван Кэмп (Brian Van Camp)Перевод: Профессиональный (многоголосый)Продолжительность: 01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26F77CCFD95959AAD0D52A56D70841634215993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567132   (396917) от 29.10.2012
+
+На колесах/ Wo ist Fred? (2006) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы угодить избалованному сынку своей возлюбленной, Фред хочет достать для мальчишки баскетбольный мяч с автографами игроков его любимой команды. Но возникает проблема: такой мяч может получить только инвалид. Фред решает на время сесть в инвалидную коляску и обманом завладеть драгоценным трофеем. Однако получая желанный мяч, Фред привлекает внимание очаровательной (   Читать дальше...   )Жанр: Мелодрама, Комедия, СпортРежиссер: Анно СаулАктеры: Тиль Швайгер (Til Schweiger), Александра Мария Лара (Alexandra Maria Lara), Юрген Фогель (Jürgen Vogel), Аня Клинг (Anja Kling), Кристоф Мария Хербст (Christoph Maria Herbst), Таня Вензел (Tanja Wenzel), Рамон Джулия Кениг (Ramon Julia König), Паскуале Алеарди (Pasquale Aleardi)Перевод: ДублированныйПродолжительность: 01:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF45E4458CD01CF6DF2EA77F1FCAEB398E5BE70E
 ```
 
 https://mybot314.ru/tekegram_catalog/

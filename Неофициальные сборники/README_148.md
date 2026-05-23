@@ -1,32 +1,3 @@
-###  Публикация: 1114223   (833725) от 14.03.2017
-
-VA - Best Chillout Vol.27 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-001. Ana Criado - Vulnerable (Seven24 & S.A.T Remix) 4:54
-002. Alivvve - My Emptiness (Original mix) 3:27
-003. Anevo & Park Avenue - Waiting on Your Call (Original mix) 4:31
-004. Brad Kins x Kant Sleep - Halo (Original mix) 4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A947412C1F457621D728A99926A1464CC7A318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114217   (833723) от 14.03.2017
 
 VA - Trance Collection Vol.58 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
@@ -35,7 +6,7 @@ VA - Trance Collection Vol.58 (2017) [MP3|320 Kbps] <Trance, Progressive Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833723.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Trance Scenery Vol. 02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833625.jpg" />
 </div>
 
 
@@ -94,7 +65,7 @@ VA - Вечеринка на радио Шансон выпуск № 5 (2017) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833610.jpg" />
 </div>
 
 
@@ -123,7 +94,7 @@ VA - The Place Dance (2017) [MP3|320 Kbps] <Dance, Club, Electro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833603.jpg" />
 </div>
 
 
@@ -152,7 +123,7 @@ VA - Лучшая дискотека на Europa Plus выпуск № 3 (2017) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833600.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ VA - Я слушаю шансон. Реальный блатняк. Выпуск
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833504.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ VA - Club Music Get On Up (2017) [MP3|320 Kbps] <Dance, Club, Funky>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833503.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ VA - I Love Music! - Heavy Metal Edition Vol.32 (2017) [MP3|288-320 Kbps] <Heavy
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833499.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ VA - Deep House Collection Vol.112 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833497.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ VA - Музыкальный подарок на радио Europa Plus (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833496.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ VA - I Love Music! - Nu Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833493.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ VA - Deep House Collection Vol.111 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833490.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic M
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833489.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ VA - I Love Music! - Extreme Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Thrash 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833416.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ VA - I Love Music! - Alternative Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Alte
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833414.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ VA - I Love Music! - Indie & Soft Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833408.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ VA - Acoustic Pop (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833318.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ VA - Record Super Chart 634 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833315.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ VA - I Love Music! - Hard Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Hard Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833146.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ VA - Музыка хорошего настроения. Retro Fm. Зарубе�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833141.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ VA - Pop All Stars (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833044.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ Quiet Riot - 100% Quiet Riot (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833036.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ VA - Beatport Trance Pack (14.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833029.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ VA - Worldwide Rap Singles - Март 2020 (2020) [MP3|263-320 Kbps] <Rap, Hip-H
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832952.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ VA - 90s Rock (2020) [MP3|320 Kbps] <Rock, Alternative Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832951.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ VA - 90s Rock (2020) [MP3|320 Kbps] <Rock, Alternative Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C33E54F459C12A0774876CFD7EB4AE1E0244B785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380591   (832948) от 03.05.2020
+
+VA - Karaoke Hits (2020) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Dancing Queen 3:51
+02. AC/DC - Highway To Hell 3:28
+03. Adele - Someone Like You 4:45
+04. Alicia Keys - Fallin' 3:30(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 04:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D595A9B27FA4093151790C0D8735A10A45F635B
 ```
 
 https://mybot314.ru/tekegram_catalog/

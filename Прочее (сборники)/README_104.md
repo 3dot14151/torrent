@@ -6,7 +6,7 @@ VA - Back To The 90's (2018) [MP3|320 Kbps] <Eurodance, Pop, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512887.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Всё сразу 200 хитов Выпуск 4 (2015) [MP3|186 - 320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512796.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.07.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512777.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Зайцев нет. Лучшие новинки августа (2015) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512667.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA Радио 7. Tоп 100 (2011) [MP3|320 кб/с]<Pop, Rock, Jazz>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511271.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Dancehall And Reggae Party (2019) [MP3|320 Kbps] <Reggae, Dancehall>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510990.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - The Official UK Top 40 Singles Chart 19.07.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510984.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Poolside Ibiza: Kolombo, Autograf (2015) [MP3|320 кб/с]<Electronica, Tec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510194.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Hed Kandi Dusk Till Disco (2015) [MP3|256 кб/с]<Disco, Nu-Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509461.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Russian Dance Pop & Club House [Compiled by Zebyte] (2015) [MP3|256-320 к�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509359.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - не Громкие новинки недели 26 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508788.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Клубные Новинки Vol.121 (2012) [MP3|320 кб/с]<Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508690.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Молодежный летний хит (2012) [MP3|256 кб/с]<Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508678.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Отдыхай под классный музон (2012) [MP3|256 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508675.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Pop Dance Maniac (2015) [MP3|320 кб/с]<Vocal, Dance, Club, Euro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508234.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Red Dog: Superior Firepower (2000-2015) [MP3|320 кб/с]<Score>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508161.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Music News vol.201 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507903.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Ultimate (2004-2012) [MP3|320 кб/с]<Drum & Bass,Trance,House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507670.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Территория Зарубежных Новинок (2012) [MP3|256 kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507619.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Ibiza Summer (2012) [MP3|320 кб/с]<Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506747.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Лучшая 100ка Record: Взорви танцпол Vol.4 (2012) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506740.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Клубная Дискотека Record vol. 7 Зарубежная (2012)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506731.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ VA - В машине с музыкой Vol.284 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506208.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ VA - TOP August (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506167.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ VA - В машине с музыкой Vol.285 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506108.jpg" />
 </div>
 
 
@@ -771,7 +771,7 @@ VA - Всё сразу 200 хитов Выпуск 5 (2015) [MP3|128 - 320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506001.jpg" />
 </div>
 
 
